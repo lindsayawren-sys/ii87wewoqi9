@@ -1,57 +1,57 @@
-# 特朗普周五主持美联储主席沃什宣誓就职仪式
+# 京东物流第一季度营收606亿元同比增长29%
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-美国政府周四表示，总统特朗普周五将在白宫主持美联储主席沃什宣誓就职仪式。美国参议院5月13日表决确认沃什的任命案，他将接替鲍威尔担任美联储主席，不过鲍威尔将继续担任美联储理事直至2028年。现年56岁的沃什将展开四年的美联储主席任期及14年的美联储理事任期。特朗普选择他作为抵御进一步加息的堡垒。沃什长期以来一直表示希望在削减美联储资产负债表的同时降低利率。目前一些美联储决策官员
+京东物流周二公布2026年第一季度财报，总收入达605.81亿元人民币（约合83.7亿美元），同比增长29.0%。归属于公司所有者的净利润为8.8亿元，同比大幅增长95.2%；经调整净利润达10.52亿元，同比增长40.1%。这也是京东物流自上市以来利润表现最好的一季度业绩。 营收拆分：外部客户贡献近七成 财报显示，来自外部客户的收入为411.81亿元，占总收入比例达68%。其
 
 ## 正文
 
-美国政府周四表示，总统特朗普周五将在白宫主持美联储主席沃什宣誓就职仪式。
+京东物流周二公布2026年第一季度财报，总收入达605.81亿元人民币（约合83.7亿美元），同比增长29.0%。
 
-美国参议院5月13日表决确认沃什的任命案，他将接替鲍威尔担任美联储主席，不过鲍威尔将继续担任美联储理事直至2028年。
+归属于公司所有者的净利润为8.8亿元，同比大幅增长95.2%；经调整净利润达10.52亿元，同比增长40.1%。
 
-现年56岁的沃什将展开四年的美联储主席任期及14年的美联储理事任期。
+这也是京东物流自上市以来利润表现最好的一季度业绩。
 
-特朗普选择他作为抵御进一步加息的堡垒。
+营收拆分：外部客户贡献近七成 财报显示，来自外部客户的收入为411.81亿元，占总收入比例达68%。
 
-沃什长期以来一直表示希望在削减美联储资产负债表的同时降低利率。
+其中，一体化供应链客户收入为292亿元，同比增长25.9%，主要受益于合作模式纵深升级与全球服务扩张；来自快递、快运、秒送等服务的其他客户收入达314亿元，同比增长32.0%。
 
-目前一些美联储决策官员正考虑加息以抑制伊朗战争所引发的通胀。
+公司一季度毛利为48.3亿元，同比增长42.6%；非国际财务报告准则EBITDA为45.95亿元，同比增长22.3%。
 
-根据周三公布的会议记录，在4月28日至29日的会议上，多数美联储决策者认为，如果通胀持续高于2%的目标，“采取一些政策收紧措施可能变得合适”。
+销售及市场推广开支为17亿元，占营收比例为2.8%。
 
-责任编辑：王永生
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 19:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 19:18 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 19:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 19:33 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 19:32 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 19:10 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 19:20 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 19:27 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 19:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 19:26 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 19:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 19:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 19:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 19:27 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 19:27 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 19:30 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 19:13 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:16 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 19:24 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 19:23 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 19:23 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:13 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/8242103274.shtml)
-- 2026-06-29 19:26 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/67746940110.shtml)
-- 2026-06-29 19:12 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/4063870.shtml)
-- 2026-06-29 19:33 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/0865957924.shtml)
-- 2026-06-29 19:13 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/883729483379.shtml)
-- 2026-06-29 19:21 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/9383555878.shtml)
-- 2026-06-29 19:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/571926458852.shtml)
-- 2026-06-29 19:15 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/607399939323.shtml)
-- 2026-06-29 19:34 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/56426.shtml)
-- 2026-06-29 19:16 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/01968344.shtml)
-- 2026-06-29 19:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/73088.shtml)
-- 2026-06-29 19:30 - [急先锋](http://www.blog.minike.top/Article/details/3063770446.shtml)
-- 2026-06-29 19:15 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/864647969315.shtml)
-- 2026-06-29 19:22 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/70108370455.shtml)
-- 2026-06-29 19:35 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/4712600131.shtml)
+- 2026-06-29 19:27 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/79205958995.shtml)
+- 2026-06-29 19:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/39456376.shtml)
+- 2026-06-29 19:14 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/8495886916.shtml)
+- 2026-06-29 19:27 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/9291203.shtml)
+- 2026-06-29 19:39 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/93943187623.shtml)
+- 2026-06-29 19:18 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/24551.shtml)
+- 2026-06-29 19:20 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/8888344344.shtml)
+- 2026-06-29 19:35 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/11119588826.shtml)
+- 2026-06-29 19:24 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/9194518790.shtml)
+- 2026-06-29 19:41 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/63501057099.shtml)
+- 2026-06-29 19:16 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/83178.shtml)
+- 2026-06-29 19:33 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/970364.shtml)
+- 2026-06-29 19:19 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/273772396.shtml)
+- 2026-06-29 19:25 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/2887405.shtml)
+- 2026-06-29 19:19 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/46084747.shtml)

@@ -1,61 +1,60 @@
-# YieldMax特斯拉期权收入策略ETF宣布每周派息0.2862美元
+# 党内“逼宫”升级，英国首相斯塔默或被迫公布下台时间表
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-YieldMax特斯拉期权收入策略ETF于5月21日宣布进行每周股息分配，每股派息金额为0.2862美元，交易代码为TSLY。此次派息较前一周的0.5165美元大幅下降44.59%，除息日及登记日均为5月21日，支付日为5月22日。 该基金于2022年11月22日在NYSE Arca交易所上市，是一只主动管理型ETF。其核心策略为合成备兑认购期权策略，通过卖出特斯拉股票的看涨期
+当地时间12日上午，英国首相基尔·斯塔默（Keir Starmer）主持召开内阁会议。在工党遭遇历史性选举挫败及党内大面积“逼宫”的背景下，外界普遍预测斯塔默或将在此次会议上被迫就其离任时间表作出明确表态。 目前，工党内部反对声浪持续高涨。报道指出，已有近80名议员公开要求斯塔默辞职，以便党内进行有序的领导层更迭，包括内政大臣沙巴娜·马哈茂德（Shabana Mahmood）在
 
 ## 正文
 
-YieldMax特斯拉期权收入策略ETF于5月21日宣布进行每周股息分配，每股派息金额为0.2862美元，交易代码为TSLY。
+当地时间12日上午，英国首相基尔·斯塔默（Keir Starmer）主持召开内阁会议。
 
-此次派息较前一周的0.5165美元大幅下降44.59%，除息日及登记日均为5月21日，支付日为5月22日。
+在工党遭遇历史性选举挫败及党内大面积“逼宫”的背景下，外界普遍预测斯塔默或将在此次会议上被迫就其离任时间表作出明确表态。
 
-该基金于2022年11月22日在NYSE Arca交易所上市，是一只主动管理型ETF。
+目前，工党内部反对声浪持续高涨。
 
-其核心策略为合成备兑认购期权策略，通过卖出特斯拉股票的看涨期权价差来获取期权费收入，同时持有美国短期国债作为期权交易的抵押品并产生额外利息。
+报道指出，已有近80名议员公开要求斯塔默辞职，以便党内进行有序的领导层更迭，包括内政大臣沙巴娜·马哈茂德（Shabana Mahmood）在内的多位内阁要员已向斯塔默明确施压，要求其考虑公布离职日期。
 
-该基金不直接投资于特斯拉股票，其投资目标是为投资者提供持续的每周收入，次要目标是与特斯拉股价变动保持一定程度的参与。
+此外，已有四名政府高级幕僚于周一晚间宣布辞职，直言斯塔默已失去领导权威。
 
-根据基金披露的数据，TSLY的管理资产规模约为9.01亿美元，总费用率为1.07%，年化分配率约为50.23%，30天SEC收益率为2.92%。
+面对严峻挑战，斯塔默在周一的表态中仍试图“止损”。
 
-值得注意的是，此次派息中100.00%来自本金返还而非实际投资收益。
+他强调，若此时顺应要求离职，将使英国重陷脱欧以来的政治混乱。
 
-过往派息中有相当比例可能来自本金返还，这会随时间推移降低基金的资产净值和交易价格，投资者需注意相关风险。
+斯塔默承诺将采取更果断的措施应对国内挑战，并警告称党内领导权更迭将导致“无法挽回的后果”。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 19:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 19:14 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 19:11 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 19:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 19:20 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 19:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 19:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 19:12 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 19:24 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 19:29 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 19:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 19:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 19:10 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 19:12 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 19:28 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 19:39 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 19:30 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 19:25 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 19:13 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 19:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 19:18 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 19:27 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 19:40 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 19:28 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 19:22 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 19:32 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 19:20 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/267235.shtml)
-- 2026-06-29 19:33 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/85867.shtml)
-- 2026-06-29 19:25 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/632547653.shtml)
-- 2026-06-29 19:27 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/283885626.shtml)
-- 2026-06-29 19:27 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/44458120.shtml)
-- 2026-06-29 19:28 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/15766106.shtml)
-- 2026-06-29 19:24 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/010613529.shtml)
-- 2026-06-29 19:16 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/38164928.shtml)
-- 2026-06-29 19:28 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/271451612535.shtml)
-- 2026-06-29 19:09 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/36048873823.shtml)
-- 2026-06-29 19:14 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/5706264944.shtml)
-- 2026-06-29 19:06 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/10764.shtml)
-- 2026-06-29 19:32 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/643363114716.shtml)
-- 2026-06-29 19:30 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/29307.shtml)
-- 2026-06-29 19:31 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/887416337.shtml)
+- 2026-06-29 19:23 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/56885609.shtml)
+- 2026-06-29 19:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/8663382409.shtml)
+- 2026-06-29 19:22 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/97391.shtml)
+- 2026-06-29 19:25 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/3308260820.shtml)
+- 2026-06-29 19:17 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/24449558432.shtml)
+- 2026-06-29 19:38 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/13317319.shtml)
+- 2026-06-29 19:20 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/55426024.shtml)
+- 2026-06-29 19:22 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/0583277.shtml)
+- 2026-06-29 19:37 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/509653211.shtml)
+- 2026-06-29 19:29 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/58266077535.shtml)
+- 2026-06-29 19:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/709912417.shtml)
+- 2026-06-29 19:29 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/6507351556.shtml)
+- 2026-06-29 19:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/4464719120.shtml)
+- 2026-06-29 19:31 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/600538.shtml)
+- 2026-06-29 19:33 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/90604.shtml)

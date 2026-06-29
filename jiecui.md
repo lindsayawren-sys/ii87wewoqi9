@@ -1,57 +1,60 @@
-# 乐聚智能IPO：多项指标远逊宇树科技 越卖越亏可估值半年翻倍
+# 邦达亚洲:美联储加息预期重燃 黄金承压收跌
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 人形机器人，先后排队IPO。 近日，创业板第四套上市标准启用后的首单企业——乐聚智能（深圳）股份有限公司（下称“乐聚智能”）IPO申请获受理。 与宇树科技相比，乐聚智能多项财务指标处于劣势，包括但不限于营收、净利润及增速、毛利率、净利率、研发投入、研
+5月13日，日本央行4月会议纪要显示，多位政策委员在会议上主张尽早加息，其中一名委员直言6月存在加息可能。这凸显出，随着伊朗战事引发的原油冲击加大近期紧缩压力，央行内部鹰派倾向日益增强。受此影响，日本10年期国债收益率周二攀升至29年新高。纪要援引一位委员观点称：“即便中东局势后续走向仍存变数，日本央行也极有可能从下次会议起启动加息。”另一位委员的意见则表示：“虽然现阶段没有必
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月13日，日本央行4月会议纪要显示，多位政策委员在会议上主张尽早加息，其中一名委员直言6月存在加息可能。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 人形机器人，先后排队IPO。
+这凸显出，随着伊朗战事引发的原油冲击加大近期紧缩压力，央行内部鹰派倾向日益增强。
 
-近日，创业板第四套上市标准启用后的首单企业——乐聚智能（深圳）股份有限公司（下称“乐聚智能”）IPO申请获受理。
+受此影响，日本10年期国债收益率周二攀升至29年新高。
 
-与宇树科技相比，乐聚智能多项财务指标处于劣势，包括但不限于营收、净利润及增速、毛利率、净利率、研发投入、研发人员数量、出货量等核心指标，从商业化和市场规模来看，其能否在行业内站稳脚跟还有待时间给出答案。
+纪要援引一位委员观点称：“即便中东局势后续走向仍存变数，日本央行也极有可能从下次会议起启动加息。
 
-不过，乐聚智能的研发费用率及发明专利数量比宇树科技高。
+”另一位委员的意见则表示：“虽然现阶段没有必要仓促行动，但只要经济未出现明显放缓迹象，央行就应尽快启动加息。
 
-招股书显示，乐聚智能陷入营收越增长、亏损越大的困境之中，而宇树科技已经扭亏并实现巨额盈利。
+”还有意见指出，目前日本央行政策利率仍远低于经济中性利率水平，央行需每隔数月稳步加息；若通胀风险进一步上行，更应果断加快加息节奏。
 
-在亏损越来越严重的背景下，乐聚智能的IPO预估值却高达百亿元之上，而半年前的增资投后估值43.27 亿元，半年增长140%。
+另外，纽约联储最新数据显示，尽管美国消费者贷款新增逾期情况在2026年第一季度略有放缓，整体贷款逾期率仍维持在近八年来高位，反映出高利率与生活成本上升持续对美国家庭财务构成压力。
 
-多项重要指标不及宇树科技 招股书显示，乐聚智能主营业务为人形机器人的研发、生产和销售，专注于人形机器人“大脑—小脑—本体”的全栈式技术研发、整机生产与销售以及应用方案提供。
+根据纽约联邦储备银行周二发布的《家庭债务与信贷季度报告》，截至2026年第一季度，美国至少逾期30天的消费贷款占比维持在4.8%，与上一季度持平，结束此前连续六个季度上升趋势。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 19:13 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 19:06 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 19:08 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 19:06 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 19:21 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 19:26 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 19:10 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 19:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 19:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 19:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 19:40 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 19:15 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 19:26 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 19:34 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 19:25 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 19:38 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 19:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 19:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 19:38 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 19:35 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 19:17 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 19:40 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 19:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 19:26 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/16400605.shtml)
-- 2026-06-29 19:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/514763.shtml)
-- 2026-06-29 19:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/45675425.shtml)
-- 2026-06-29 19:13 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/7888669.shtml)
-- 2026-06-29 19:20 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/331121534.shtml)
-- 2026-06-29 19:26 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/21888384.shtml)
-- 2026-06-29 19:11 - [王俊凯命名方式](http://www.share.minike.top/Article/details/655571.shtml)
-- 2026-06-29 19:11 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/2555058337.shtml)
-- 2026-06-29 19:21 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/125219211942.shtml)
-- 2026-06-29 19:21 - [周生如故](http://www.share.minike.top/Article/details/02605148.shtml)
-- 2026-06-29 19:35 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/28391825052.shtml)
-- 2026-06-29 19:10 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/33379525.shtml)
-- 2026-06-29 19:35 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/88894.shtml)
-- 2026-06-29 19:30 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/62515.shtml)
-- 2026-06-29 19:19 - [急先锋](https://www.share.kurohicncr.top/Article/details/891140293985.shtml)
+- 2026-06-29 19:18 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/7344715261.shtml)
+- 2026-06-29 19:13 - [人形机器人](https://www.share.kurohicncr.top/Article/details/013667.shtml)
+- 2026-06-29 19:16 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/702701808746.shtml)
+- 2026-06-29 19:12 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/76100429.shtml)
+- 2026-06-29 19:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/212760.shtml)
+- 2026-06-29 19:29 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/460358813.shtml)
+- 2026-06-29 19:29 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/06078.shtml)
+- 2026-06-29 19:35 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/8328211146.shtml)
+- 2026-06-29 19:36 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/751096582949.shtml)
+- 2026-06-29 19:13 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/569115244.shtml)
+- 2026-06-29 19:15 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/05687019648.shtml)
+- 2026-06-29 19:37 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/9169102597.shtml)
+- 2026-06-29 19:41 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/3869576207.shtml)
+- 2026-06-29 19:41 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/8180785786.shtml)
+- 2026-06-29 19:15 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/719147.shtml)

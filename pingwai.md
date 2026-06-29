@@ -1,57 +1,61 @@
-# 三星就 AI 产业收益分歧达成临期协议，成功避免罢工
+# 机构：油价飙升推动全球电动汽车需求连续两个月增长
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-三星电子劳资双方就薪酬问题达成协议，成功避免罢工风波。此次罢工原本可能冲击韩国整体经济，还会扰乱全球人工智能产业发展节奏。 历经数日谈判僵局后，韩国劳动部长金英勋出面紧急斡旋，促使劳资双方重启磋商。双方最终于当地时间晚间 10 点 30 分左右敲定协议，此时距离罢工最后期限仅剩 90 分钟。受此利好提振，韩国股市周四涨幅超 7%。 三星电子全国工会主席崔承浩表示，工会成员将在
+咨询机构Benchmark Mineral Intelligence（BMI）周三公布的数据显示，由于高企的汽油价格持续推动消费者转向电动汽车，4月份全球对电动汽车的需求连续第二个月增长。 BMI表示，4月份全球新注册的纯电动汽车和插电式混合动力汽车数量同比增长6%，达到160万辆，尽管较3月份创下的月度最高纪录下降了9%。 BMI在一份声明中表示：“政策激励、汽油价格上涨以及
 
 ## 正文
 
-三星电子劳资双方就薪酬问题达成协议，成功避免罢工风波。
+咨询机构Benchmark Mineral Intelligence（BMI）周三公布的数据显示，由于高企的汽油价格持续推动消费者转向电动汽车，4月份全球对电动汽车的需求连续第二个月增长。
 
-此次罢工原本可能冲击韩国整体经济，还会扰乱全球人工智能产业发展节奏。
+BMI表示，4月份全球新注册的纯电动汽车和插电式混合动力汽车数量同比增长6%，达到160万辆，尽管较3月份创下的月度最高纪录下降了9%。
 
-历经数日谈判僵局后，韩国劳动部长金英勋出面紧急斡旋，促使劳资双方重启磋商。
+BMI在一份声明中表示：“政策激励、汽油价格上涨以及中国车企影响力的不断提升，持续支撑着市场需求。
 
-双方最终于当地时间晚间 10 点 30 分左右敲定协议，此时距离罢工最后期限仅剩 90 分钟。
+” 中东冲突中断了一条重要的石油运输路线后，各国政府继续采取措施限制燃油价格。
 
-受此利好提振，韩国股市周四涨幅超 7%。
+最近的一项研究显示，4月份欧洲电动汽车注册量增长了27%，达到约40万辆。
 
-三星电子全国工会主席崔承浩表示，工会成员将在 5 月 27 日前就该协议进行投票表决。
+与此同时，欧洲经济区和瑞士已承诺向其电动汽车生态系统投入近2000亿欧元（约合2350亿美元）。
 
-他承诺会尽全力稳定三星电子的劳资关系，并号召员工周四正常到岗上班。
+不过，BMI的数据显示，全球纯电动汽车和插电式混动汽车的需求情况并不均衡。
 
-三星电子周四表态称：“我方将秉持谦逊态度，杜绝此类矛盾再次发生，致力于构建更为成熟、良性的劳资关系。
+在中国市场，4月份新车注册量同比下降8%，约为85万辆。
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 19:19 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 19:14 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 19:32 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 19:31 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 19:15 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 19:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 19:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 19:23 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 19:15 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 19:19 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 19:13 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 19:23 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:18 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 19:29 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 19:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 19:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 19:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 19:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 19:37 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 19:34 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 19:33 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 19:15 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 19:19 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 19:13 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 19:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/45102.shtml)
-- 2026-06-29 19:24 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/423529665.shtml)
-- 2026-06-29 19:18 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/858144.shtml)
-- 2026-06-29 19:35 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/70884715.shtml)
-- 2026-06-29 19:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/95600.shtml)
-- 2026-06-29 19:12 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/070179.shtml)
-- 2026-06-29 19:33 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/3369764.shtml)
-- 2026-06-29 19:33 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/906876335324.shtml)
-- 2026-06-29 19:24 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/27566496401.shtml)
-- 2026-06-29 19:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/659708963.shtml)
-- 2026-06-29 19:16 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/36452.shtml)
-- 2026-06-29 19:14 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/6457766255.shtml)
-- 2026-06-29 19:07 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/852621249.shtml)
-- 2026-06-29 19:15 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/40266680.shtml)
-- 2026-06-29 19:07 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/754192526.shtml)
+- 2026-06-29 19:32 - [金牌调解](http://www.share.kurohicncr.top/Article/details/7868689.shtml)
+- 2026-06-29 19:15 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/76981457.shtml)
+- 2026-06-29 19:40 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/9926703.shtml)
+- 2026-06-29 19:38 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/123770786.shtml)
+- 2026-06-29 19:26 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/51821412.shtml)
+- 2026-06-29 19:16 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/3560928144.shtml)
+- 2026-06-29 19:17 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/443829.shtml)
+- 2026-06-29 19:30 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/979820605.shtml)
+- 2026-06-29 19:33 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/59473843592.shtml)
+- 2026-06-29 19:35 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/698979.shtml)
+- 2026-06-29 19:35 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/442209.shtml)
+- 2026-06-29 19:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/78706359858.shtml)
+- 2026-06-29 19:23 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/9959710.shtml)
+- 2026-06-29 19:25 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/384116892.shtml)
+- 2026-06-29 19:35 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/2357712944.shtml)

@@ -1,43 +1,56 @@
-# 美媒报道称：白宫改造项目遭质疑 议员称资金用途不明
+# 国际锐评丨中美元首会晤为何值得世界期待
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 09:00 来源：央视新闻 责任编辑：【王祎】
+“全球视线聚焦北京”“中美元首会晤结果可能对全球贸易、地缘政治等产生重大影响”……5月中旬，一场即将在北京进行的元首外交，正汇聚全球目光、承载世界期待。 应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。这是中美两国元首继去年10月釜山会晤之后再次面对面会晤，也是美国总统时隔9年再次访华。两国元首将就事关中美关系以及世界和平与发展的重大问题深入交换
 
 ## 正文
 
-发布时间：2026年05月22日 09:00 来源：央视新闻 责任编辑：【王祎】
+“全球视线聚焦北京”“中美元首会晤结果可能对全球贸易、地缘政治等产生重大影响”……5月中旬，一场即将在北京进行的元首外交，正汇聚全球目光、承载世界期待。
+
+应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。
+
+这是中美两国元首继去年10月釜山会晤之后再次面对面会晤，也是美国总统时隔9年再次访华。
+
+两国元首将就事关中美关系以及世界和平与发展的重大问题深入交换意见。
+
+特朗普总统临行前在社交媒体发文表示，非常期待即将开启的中国之行。
+
+作为当今世界最重要的双边关系之一，中美关系好不好，直接关系世界稳不稳。
+
+国际社会普遍期待，中美元首会晤继续引领中美关系这艘大船平稳前行，让两国做伙伴、做朋友，给世界带来稳定预期。
+
+元首外交始终是中美关系的“定盘星”。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 19:34 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 19:16 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 19:31 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 19:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 19:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 19:27 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 19:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 19:21 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 19:26 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 19:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 19:36 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 19:19 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 19:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 19:20 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 19:24 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 19:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 19:25 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 19:39 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 19:21 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 19:38 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/08222169.shtml)
-- 2026-06-29 19:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/312407352477.shtml)
-- 2026-06-29 19:07 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/2929545.shtml)
-- 2026-06-29 19:29 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/918569248555.shtml)
-- 2026-06-29 19:08 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/8305300.shtml)
-- 2026-06-29 19:13 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/59792832049.shtml)
-- 2026-06-29 19:09 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/65656726.shtml)
-- 2026-06-29 19:29 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/294283530.shtml)
-- 2026-06-29 19:35 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/38422885046.shtml)
-- 2026-06-29 19:26 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/34701994611.shtml)
-- 2026-06-29 19:34 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/79731448.shtml)
-- 2026-06-29 19:29 - [毒液2](http://www.blog.minike.top/Article/details/9051159193.shtml)
-- 2026-06-29 19:15 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/704476763.shtml)
-- 2026-06-29 19:30 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/75478512940.shtml)
-- 2026-06-29 19:06 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/5991580605.shtml)
+- 2026-06-29 19:25 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/73432.shtml)
+- 2026-06-29 19:19 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/972630602.shtml)
+- 2026-06-29 19:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/762635.shtml)
+- 2026-06-29 19:32 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/033263.shtml)
+- 2026-06-29 19:36 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/1802352422.shtml)
+- 2026-06-29 19:21 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/594443700.shtml)
+- 2026-06-29 19:22 - [扬名立万](http://www.blog.minike.top/Article/details/58489624.shtml)
+- 2026-06-29 19:15 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/73641681.shtml)
+- 2026-06-29 19:40 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/940199546.shtml)
+- 2026-06-29 19:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/21019.shtml)
+- 2026-06-29 19:28 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/60150631128.shtml)
+- 2026-06-29 19:26 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/329695142228.shtml)
+- 2026-06-29 19:35 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/30671.shtml)
+- 2026-06-29 19:18 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/617443927.shtml)
+- 2026-06-29 19:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/076360.shtml)

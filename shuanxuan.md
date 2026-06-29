@@ -1,60 +1,56 @@
-# 酒价内参5月22日价格发布：水晶剑南春下跌2元，平近一个月最低价纪录
+# 吉林全力打造全国重要绿色能源高地
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。 今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。上涨方面，青花郎涨幅居前，上涨5元/瓶，重
+中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。 当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。 截至“十四五”末，吉林省新增
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。
+中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。
+当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。
 
-市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。
+截至“十四五”末，吉林省新增风光新能源装机是“十三五”期间的3.6倍，风光新能源装机占比、发电量占比及非水可再生能源消纳责任权重均走在全国前列；能源领域投资连续两年超千亿元，氢基绿能产业领跑全国，新能源产业已强势崛起为全省发展新的增长极。
 
-今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
+当前，吉林省正加快“两集四高”建设，全力打造全国重要的绿色能源产业高地。
 
-上涨方面，青花郎涨幅居前，上涨5元/瓶，重返710元关口，平月内最高价纪录；五粮液普五八代上涨2元/瓶；五粮液1618小幅上涨1元/瓶。
+赵彦峰介绍，“两集”即推进新能源产业集成式发展、集群化布局，“四高”指实现新能源高质量开发、高水平消纳、高价值转化。
 
-下跌方面，洋河梦之蓝M6+跌幅居前，下跌6元/瓶，回吐前一日全部涨幅；国窖1573下跌4元/瓶，连续四日回落，价格进一步远离900元关口，回调至月内低位；飞天茅台、精品茅台、古井贡古20与水晶剑南春均下跌2元/瓶；古20遭遇四连阴，价格下探至月内新低；水晶剑南春平近一个月最低价纪录；习酒君品小幅下跌1元/瓶，价格再度回落至月内次低位。
+在此基础上，吉林省将科学编制新型能源体系建设“十五五”规划，推动规划落地见效。
 
-青花汾20的价格环比保持不变，平月内最低价纪录。
+为优化产业发展环境，吉林省将进一步完善省级能源政策体系，深化电力市场机制改革创新，保障企业“用得上绿电、用得起绿电、用得好绿电”，推动源网荷储协同发展，为新能源产业项目落地保驾护航。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+在产业融合发展方面，吉林将制定出台新能源集成融合发展方案，推出三种融合模式、17个典型场景，推动新能源产业多维度一体开发、多产业深度融合、多链条系统集成、多场景培育应用，打造产业发展“第二曲线”。
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 19:23 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 19:35 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 19:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 19:14 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 19:30 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 19:07 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 19:26 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 19:28 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 19:06 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 19:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 19:11 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 19:10 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 19:06 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 19:33 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 19:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 19:13 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 19:37 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 19:32 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 19:38 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 19:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 19:40 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 19:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 19:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [金刚川](https://www.blog.kurohicncr.top/Article/details/115837815.shtml)
-- 2026-06-29 19:19 - [沙丘](https://www.share.kurohicncr.top/Article/details/92297.shtml)
-- 2026-06-29 19:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/90028141.shtml)
-- 2026-06-29 19:20 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/9446721.shtml)
-- 2026-06-29 19:25 - [斗破苍穹](http://www.blog.minike.top/Article/details/1578926.shtml)
-- 2026-06-29 19:33 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/428672232.shtml)
-- 2026-06-29 19:12 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/283041146.shtml)
-- 2026-06-29 19:20 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/604122.shtml)
-- 2026-06-29 19:32 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/51442481.shtml)
-- 2026-06-29 19:28 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/61819068.shtml)
-- 2026-06-29 19:08 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/57693367.shtml)
-- 2026-06-29 19:12 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/91239.shtml)
-- 2026-06-29 19:06 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/05777.shtml)
-- 2026-06-29 19:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/79076.shtml)
-- 2026-06-29 19:18 - [沙特外交大臣将访华](https://www.share.kurohicncr.top/Article/details/878516.shtml)
+- 2026-06-29 19:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/121165.shtml)
+- 2026-06-29 19:15 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/09604.shtml)
+- 2026-06-29 19:12 - [一见倾心](http://www.share.kurohicncr.top/Article/details/46727553677.shtml)
+- 2026-06-29 19:16 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/0579950237.shtml)
+- 2026-06-29 19:32 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/174636.shtml)
+- 2026-06-29 19:15 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/4373351.shtml)
+- 2026-06-29 19:16 - [T1零封KC MSI](http://www.share.minike.top/Article/details/451517.shtml)
+- 2026-06-29 19:16 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/82644937.shtml)
+- 2026-06-29 19:14 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/999079315.shtml)
+- 2026-06-29 19:37 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/1671098035.shtml)
+- 2026-06-29 19:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/661868053.shtml)
+- 2026-06-29 19:28 - [送你一朵小红花](https://www.share.minike.top/Article/details/643751590.shtml)
+- 2026-06-29 19:18 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/3834714821.shtml)
+- 2026-06-29 19:28 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/1014991.shtml)
+- 2026-06-29 19:39 - [王俊凯命名方式](https://www.share.minike.top/Article/details/70226641457.shtml)

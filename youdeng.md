@@ -1,51 +1,56 @@
-# 野村预计美联储今年将维持利率不变
+# *ST沪科锁定退市，投资者索赔通道开启
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-野村证券周五表示，目前预计美联储2026年将维持利率不变，通胀走高且美联储官员降息意愿下降，短期降息可能性随之降低。 野村证券在一份报告中指出：“即将上任的美联储主席凯文·沃什可能仍然有意愿放松货币政策，但近期的数据和美联储官员的表态让我们怀疑他能否说服联邦公开市场委员会（FOMC）的大多数成员同意降息。” 该券商此前曾预测，美联储今年9月和12月将两次降息，每次降息25个基点
+登录新浪财经APP 搜索【信披】查看更多考评等级 *ST沪科（维权）公告称，公司收到上海证券交易所下发的《关于拟终止上海宽频科技股份有限公司股票上市的事先告知书》。因公司2025年度经审计的扣非净利润为负值且营收低于3亿元、财务会计报告被出具保留意见审计报告、内部控制被出具无法表示意见审计报告，触及终止上市条件。上交所将据此作出终止上市决定。 而早在2025年12月12日，*S
 
 ## 正文
 
-野村证券周五表示，目前预计美联储2026年将维持利率不变，通胀走高且美联储官员降息意愿下降，短期降息可能性随之降低。
+登录新浪财经APP 搜索【信披】查看更多考评等级 *ST沪科（维权）公告称，公司收到上海证券交易所下发的《关于拟终止上海宽频科技股份有限公司股票上市的事先告知书》。
 
-野村证券在一份报告中指出：“即将上任的美联储主席凯文·沃什可能仍然有意愿放松货币政策，但近期的数据和美联储官员的表态让我们怀疑他能否说服联邦公开市场委员会（FOMC）的大多数成员同意降息。
+因公司2025年度经审计的扣非净利润为负值且营收低于3亿元、财务会计报告被出具保留意见审计报告、内部控制被出具无法表示意见审计报告，触及终止上市条件。
 
-” 该券商此前曾预测，美联储今年9月和12月将两次降息，每次降息25个基点。
+上交所将据此作出终止上市决定。
 
-责任编辑：于健 SF069
+而早在2025年12月12日，*ST沪科就因涉嫌信息披露违法违规收到中国证监会下发的《立案告知书》。
+
+随后拉开了索赔序幕。
+
+暂定于2025年12月12日（含当日）之前买入，并在2025年12月13日之后卖出或仍持有而亏损的即可参与维权，挽回损失。
+
+（*ST沪科维权入口） 梳理公司过往公告发现，截至2025年10月底，*ST沪科原控股股东南京斯威特集团有限公司及其关联方违规占用上市公司资金余额高达3.49亿元，占公司最近一期经审计净资产的921.63%。
+
+公司虽已通过诉讼、司法执行等方式追偿，但由于原控股股东南京斯威特集团生产经营基本停止，资产已被轮候查封冻结，法院未能查找到可供执行的财产，追偿工作陷入停滞。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 19:13 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 19:14 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 19:34 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 19:12 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-29 19:09 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 19:18 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 19:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 19:25 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 19:11 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 19:13 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 19:19 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 19:21 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 19:12 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 19:35 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 19:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 19:37 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 19:29 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 19:39 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 19:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 19:18 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 19:30 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 19:23 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/40422126384.shtml)
-- 2026-06-29 19:10 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/712667859.shtml)
-- 2026-06-29 19:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/2299268447.shtml)
-- 2026-06-29 19:13 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/370769264156.shtml)
-- 2026-06-29 19:23 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/41541312.shtml)
-- 2026-06-29 19:35 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/39068791032.shtml)
-- 2026-06-29 19:34 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/375283127722.shtml)
-- 2026-06-29 19:22 - [毒液2](http://www.blog.minike.top/Article/details/55383790586.shtml)
-- 2026-06-29 19:27 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/2295218481.shtml)
-- 2026-06-29 19:13 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/5872790554.shtml)
-- 2026-06-29 19:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/303534844299.shtml)
-- 2026-06-29 19:14 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/23896.shtml)
-- 2026-06-29 19:23 - [千与千寻](https://www.blog.minike.top/Article/details/0587904.shtml)
-- 2026-06-29 19:28 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/16311785507.shtml)
-- 2026-06-29 19:14 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/727467303.shtml)
+- 2026-06-29 19:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/38658.shtml)
+- 2026-06-29 19:21 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/49190624193.shtml)
+- 2026-06-29 19:18 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/8656095.shtml)
+- 2026-06-29 19:31 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/805392975.shtml)
+- 2026-06-29 19:34 - [小娘惹](https://www.share.minike.top/Article/details/16574564664.shtml)
+- 2026-06-29 19:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/6872684.shtml)
+- 2026-06-29 19:30 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/1927546.shtml)
+- 2026-06-29 19:18 - [急先锋](https://www.share.kurohicncr.top/Article/details/57560756321.shtml)
+- 2026-06-29 19:39 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/94497938.shtml)
+- 2026-06-29 19:29 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/60941772.shtml)
+- 2026-06-29 19:39 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/985747.shtml)
+- 2026-06-29 19:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/0466345.shtml)
+- 2026-06-29 19:14 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/122792953.shtml)
+- 2026-06-29 19:17 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/839641697.shtml)
+- 2026-06-29 19:25 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/566877.shtml)

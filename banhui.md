@@ -1,59 +1,61 @@
-# 美股早盘小幅上涨 标普500指数势创2023年以来最长周连涨
+# 涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-市场对美伊达成协议、将脆弱的停火转化为持久和平的期待提振了华尔街的乐观情绪，推动美国股市迎来自2023年12月以来最长的周连涨纪录。 纽约时间10：15，标普500指数上涨0.4%，纳斯达克100指数和道指上涨0.6%。 在从战争引发的低点反弹约18%后，标普500指数有望实现连续第八周上涨。美国原油价格持续大幅波动，交易员试图判断通过关键的霍尔木兹海峡的能源运输何时能完全恢复
+当地时间5月11日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）对流媒体企业奈飞（Netflix）提起诉讼，指控该公司在未经同意的情况下非法收集包括儿童在内的消费者数据，并故意在平台设计中植入诱导用户沉迷的功能。 诉状指出，奈飞长期以来向消费者进行虚假陈述，隐瞒其收集和共享用户数据的真实行为。得州方面指控，奈飞对受众的观看习惯和偏好进行持续追踪，并将相关数据出售给
 
 ## 正文
 
-市场对美伊达成协议、将脆弱的停火转化为持久和平的期待提振了华尔街的乐观情绪，推动美国股市迎来自2023年12月以来最长的周连涨纪录。
+当地时间5月11日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）对流媒体企业奈飞（Netflix）提起诉讼，指控该公司在未经同意的情况下非法收集包括儿童在内的消费者数据，并故意在平台设计中植入诱导用户沉迷的功能。
 
-纽约时间10：15，标普500指数上涨0.4%，纳斯达克100指数和道指上涨0.6%。
+诉状指出，奈飞长期以来向消费者进行虚假陈述，隐瞒其收集和共享用户数据的真实行为。
 
-在从战争引发的低点反弹约18%后，标普500指数有望实现连续第八周上涨。
+得州方面指控，奈飞对受众的观看习惯和偏好进行持续追踪，并将相关数据出售给商业数据经纪商及广告技术公司，借此每年牟取数十亿美元的巨额利润。
 
-美国原油价格持续大幅波动，交易员试图判断通过关键的霍尔木兹海峡的能源运输何时能完全恢复。
+此外，这家总部位于加州洛思加图斯的公司还被控隐蔽使用“暗黑模式”（dark patterns）以增加用户黏性。
 
-这场冲突已持续近三个月，德黑兰正考虑美国提交的最新提案。
+起诉书提到，奈飞利用“自动播放”等机制，在当前内容结束后直接跳转播放新内容，旨在使消费者保持持续观看状态。
 
-巴基斯坦称其陆军参谋长正前往德黑兰，暗示止战谈判取得进展。
+针对上述指控，奈飞方面予以否认，并表示将在法庭上进行抗辩。
 
-路透同时报道称，卡塔尔谈判代表团已与美国协调后抵达德黑兰，以争取达成协议。
+奈飞发言人发表声明称，该起诉讼毫无根据，其内容基于不准确和被歪曲的信息。
 
-投资者正忽略宏观层面的不利因素，转而对有关和平前景的积极言论给予正面回应。
+该发言人强调，奈飞高度重视会员隐私，并严格遵守其运营所在地的隐私与数据保护法规。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 19:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 19:13 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 19:22 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 19:30 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 19:12 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 19:33 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 19:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 19:11 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 19:22 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 19:22 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 19:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 19:24 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 19:34 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 19:18 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 19:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 19:14 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 19:40 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 19:35 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 19:23 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 19:13 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 19:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:26 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 19:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 19:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 19:13 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 19:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 19:23 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/61438011203.shtml)
-- 2026-06-29 19:17 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/60345.shtml)
-- 2026-06-29 19:12 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/304846225.shtml)
-- 2026-06-29 19:20 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.kurohicncr.top/Article/details/48196892528.shtml)
-- 2026-06-29 19:19 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/127544782.shtml)
-- 2026-06-29 19:10 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/941549112386.shtml)
-- 2026-06-29 19:13 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/728586291.shtml)
-- 2026-06-29 19:33 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/139222188.shtml)
-- 2026-06-29 19:09 - [毒液2](https://www.share.minike.top/Article/details/959275.shtml)
-- 2026-06-29 19:30 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/18726088934.shtml)
-- 2026-06-29 19:14 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/744416184814.shtml)
-- 2026-06-29 19:29 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/111127.shtml)
-- 2026-06-29 19:11 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/40085988930.shtml)
-- 2026-06-29 19:13 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/03351039.shtml)
-- 2026-06-29 19:06 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/10015842.shtml)
+- 2026-06-29 19:20 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/9179702305.shtml)
+- 2026-06-29 19:41 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/851859718816.shtml)
+- 2026-06-29 19:30 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/66735872360.shtml)
+- 2026-06-29 19:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8251196.shtml)
+- 2026-06-29 19:28 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/69439.shtml)
+- 2026-06-29 19:14 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/83711.shtml)
+- 2026-06-29 19:20 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/5509952412.shtml)
+- 2026-06-29 19:16 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/0635825281.shtml)
+- 2026-06-29 19:25 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/09941491.shtml)
+- 2026-06-29 19:36 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/882747268218.shtml)
+- 2026-06-29 19:14 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/4353685.shtml)
+- 2026-06-29 19:19 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/32842.shtml)
+- 2026-06-29 19:32 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/7624942617.shtml)
+- 2026-06-29 19:39 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/396112691.shtml)
+- 2026-06-29 19:33 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/1167459095.shtml)

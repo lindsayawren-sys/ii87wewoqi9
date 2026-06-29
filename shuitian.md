@@ -1,61 +1,60 @@
-# 杠杆资金持续买进！这条赛道调整后仍有大级别上涨机会！
+# 美国债市：国债下跌 受油价上涨和通胀加速影响
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 | 尚扬 近期，A股市场走势颇有特点，大盘反复震荡，热点轮动加速，但有一条主线仍相对稳健，那就是以算力、光通信、半导体为核心的AI科技赛道。 结合融资净买入金额来看，杠杆资金正在积极布局科技硬件，用实打实的资金投票，告诉市场：新一轮科技革命的红利已经开启。 产业趋势依然完美 周
+美国国债收于盘中低点附近。受英债抛售加剧和原油价格持续上涨影响。英国首相基尔·斯塔默面临的潜在领导权挑战引发市场对英国财政状况的担忧，导致英债收益率跳升。而在美国总统唐纳德·特朗普对美伊停火协议表示怀疑后，原油基准价格收盘上涨3%至4%。此外，美国10年期国债中标收益率高于发行前交易水平。 纽约时间下午3点过后不久，美债收益率全线上涨4个至5个基点，利差变化不大；10年期美债收
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国国债收于盘中低点附近。
 
-来源：证券市场周刊市场号 文 | 尚扬 近期，A股市场走势颇有特点，大盘反复震荡，热点轮动加速，但有一条主线仍相对稳健，那就是以算力、光通信、半导体为核心的AI科技赛道。
+受英债抛售加剧和原油价格持续上涨影响。
 
-结合融资净买入金额来看，杠杆资金正在积极布局科技硬件，用实打实的资金投票，告诉市场：新一轮科技革命的红利已经开启。
+英国首相基尔·斯塔默面临的潜在领导权挑战引发市场对英国财政状况的担忧，导致英债收益率跳升。
 
-产业趋势依然完美 周四，受隔夜英伟达业绩超预期、海外半导体大涨催化，早盘AI产业全线高开走强，科创50快速冲高，算力芯片、先进封装、光通信等龙头公司集体拉升，澜起科技、兆易创新等融资重仓标的早盘再创新高，并带动AI硬件板块情绪达到峰值。
+而在美国总统唐纳德·特朗普对美伊停火协议表示怀疑后，原油基准价格收盘上涨3%至4%。
 
-但随后行情开始反转，科技板块率先走弱，几大主要股指也相继冲高回落，全天以回撤收盘（见附图）。
+此外，美国10年期国债中标收益率高于发行前交易水平。
 
-但拉长周期来看，最近一段时间，A股整体呈现了“指数磨人、主线吃肉”的格局。
+纽约时间下午3点过后不久，美债收益率全线上涨4个至5个基点，利差变化不大；10年期美债收益率接近4.46%，而10年期英债收益率收盘上涨10个基点至5.10%。
 
-消费、地产等传统周期波澜不惊、走势平淡，AI产业链却走出了独立强势行情，光模块、先进封装、AI芯片等领域的龙头公司持续走强，板块活跃度遥遥领先。
+英债引领全球债券抛售潮，英国30年期国债收益率触及5.81%，创下1998年以来最高水平；英镑兑美元下跌0.5%，至1英镑兑1.353美元。
 
-简单来说，别的板块还在纠结涨跌时，AI赛道已经开启了一轮长牛行情。
+美国4月通胀数据显示核心CPI环比上升0.4%，高于预估中值0.3%，同比上升2.8%，高于预估的2.7%；尽管市场对数据的最初反应有限，但随着隔夜指数掉期定价反映出美联储在2027年加息的可能性增加，美债收益率在下午1点投标截止前进一步攀升。
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 19:16 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 19:06 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 19:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 19:28 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 19:31 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 19:28 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 19:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 19:10 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 19:07 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 19:11 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 19:15 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 19:12 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 19:21 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 19:12 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 19:36 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 19:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 19:30 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 19:27 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 19:28 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 19:33 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 19:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 19:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 19:33 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:27 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 19:22 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 19:26 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 19:28 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 19:40 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:25 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/7826210.shtml)
-- 2026-06-29 19:12 - [千与千寻](https://www.share.minike.top/Article/details/114621199.shtml)
-- 2026-06-29 19:33 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/88942.shtml)
-- 2026-06-29 19:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/8824093.shtml)
-- 2026-06-29 19:35 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/030157825.shtml)
-- 2026-06-29 19:06 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/487314692.shtml)
-- 2026-06-29 19:13 - [金牌调解](http://www.blog.minike.top/Article/details/267501914.shtml)
-- 2026-06-29 19:33 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/38517.shtml)
-- 2026-06-29 19:31 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/441847.shtml)
-- 2026-06-29 19:15 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/22219350.shtml)
-- 2026-06-29 19:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/95837609.shtml)
-- 2026-06-29 19:15 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/079009719.shtml)
-- 2026-06-29 19:10 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/311503182.shtml)
-- 2026-06-29 19:20 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/9216019550.shtml)
-- 2026-06-29 19:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/723525552458.shtml)
+- 2026-06-29 19:33 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/75317897.shtml)
+- 2026-06-29 19:36 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/37808.shtml)
+- 2026-06-29 19:30 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/137582118.shtml)
+- 2026-06-29 19:17 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/1213769.shtml)
+- 2026-06-29 19:28 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/86074380553.shtml)
+- 2026-06-29 19:17 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/9579305959.shtml)
+- 2026-06-29 19:24 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/038300956.shtml)
+- 2026-06-29 19:14 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/195051.shtml)
+- 2026-06-29 19:19 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/191815.shtml)
+- 2026-06-29 19:17 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/38033834.shtml)
+- 2026-06-29 19:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/750622006330.shtml)
+- 2026-06-29 19:22 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/008070850.shtml)
+- 2026-06-29 19:23 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/01335787193.shtml)
+- 2026-06-29 19:20 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/735611.shtml)
+- 2026-06-29 19:41 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/63699.shtml)

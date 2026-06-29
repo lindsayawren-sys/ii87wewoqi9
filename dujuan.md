@@ -1,58 +1,47 @@
-# 足坛反腐牵扯多家房企，地产“金元足球”旧事余波未了
+# 原料供应不稳 日本零食巨头推黑白包装
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-今次被处罚的从业人员中有多位来自房企投资的足球俱乐部。 5月21日，中国足协发布关于第三批行业处罚情况的通报称，对现已掌握的足球行业“假赌黑”问题案件材料进行系统梳理和认真研究，按照相关规定，完成对涉案人员及涉案俱乐部的行业处罚审议工作。 此次，有经人民法院认定构成罚罪的17名从业人员，给予终身禁止从事任何与足球有关活动的处罚；对严重违反行业纪律的48人被给予禁止从事任何与足球
+发布时间：2026年05月13日 15:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-今次被处罚的从业人员中有多位来自房企投资的足球俱乐部。
-
-5月21日，中国足协发布关于第三批行业处罚情况的通报称，对现已掌握的足球行业“假赌黑”问题案件材料进行系统梳理和认真研究，按照相关规定，完成对涉案人员及涉案俱乐部的行业处罚审议工作。
-
-此次，有经人民法院认定构成罚罪的17名从业人员，给予终身禁止从事任何与足球有关活动的处罚；对严重违反行业纪律的48人被给予禁止从事任何与足球有关活动五年或以下的处罚。
-
-这其中，有多名从业人员是来自房企投资的足球俱乐部，包括华夏幸福、广州富力、上海绿地申花、河南建业、浙江绿城、广州恒大淘宝等。
-
-具体来看，华夏幸福基业股份有限公司原总裁孟惊，行贿，违背体育道德、丧失体育精神、为谋取不正当利益进行不正当交易；操控足球比赛，严重违背公平竞赛精神，引起恶劣社会影响。
-
-孟惊被终身禁止从事任何与足球有关的活动。
-
-其余被处罚的从业人员包括，原广州富力足球俱乐部副董事长黄盛华、原上海绿地申花足球俱乐部董事长吴晓晖、原浙江绿城足球俱乐部总经理焦凤波、原杭州绿城足球俱乐部副总经理黄凡农、原河南建业足球俱乐部总经理郭光琪、原广州恒大淘宝足球俱乐部总经理高寒等，前述人员均被禁止从事与足球有关的活动5年（自2026年5月21日至2031年5月20日）。
-
-房企投资的足球俱乐部如此密集涉案，背后不能不提过去十余年间房地产资本对中国职业足球的深度介入。
+发布时间：2026年05月13日 15:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 19:31 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 19:23 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 19:30 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 19:08 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 19:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 19:22 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 19:35 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 19:29 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 19:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 19:23 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 19:13 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 19:14 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 19:14 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 19:22 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 19:22 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 19:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 19:33 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 19:21 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 19:34 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 19:31 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 19:18 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 19:34 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 19:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 19:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 19:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 19:35 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/46620.shtml)
-- 2026-06-29 19:16 - [AG 宫斗](https://www.share.minike.top/Article/details/90624813048.shtml)
-- 2026-06-29 19:26 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/913910613.shtml)
-- 2026-06-29 19:26 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/309258.shtml)
-- 2026-06-29 19:23 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/7200215.shtml)
-- 2026-06-29 19:15 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/31238145.shtml)
-- 2026-06-29 19:33 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/65405.shtml)
-- 2026-06-29 19:35 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/80004803248.shtml)
-- 2026-06-29 19:25 - [流金岁月](http://www.share.kurohicncr.top/Article/details/4519504.shtml)
-- 2026-06-29 19:23 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/68645728766.shtml)
-- 2026-06-29 19:12 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/27360903.shtml)
-- 2026-06-29 19:06 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/60336988238.shtml)
-- 2026-06-29 19:07 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/615206.shtml)
-- 2026-06-29 19:08 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/0661517.shtml)
-- 2026-06-29 19:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/740780.shtml)
+- 2026-06-29 19:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/354671303.shtml)
+- 2026-06-29 19:37 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/997649.shtml)
+- 2026-06-29 19:31 - [NBA交易](https://www.share.kurohicncr.top/Article/details/74776.shtml)
+- 2026-06-29 19:18 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/7155203602.shtml)
+- 2026-06-29 19:19 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/388537304402.shtml)
+- 2026-06-29 19:41 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/117125.shtml)
+- 2026-06-29 19:38 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/73822692.shtml)
+- 2026-06-29 19:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/7525780.shtml)
+- 2026-06-29 19:23 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/7103753782.shtml)
+- 2026-06-29 19:35 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/868865379016.shtml)
+- 2026-06-29 19:31 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/922028440376.shtml)
+- 2026-06-29 19:19 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/034231532.shtml)
+- 2026-06-29 19:24 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/43358667217.shtml)
+- 2026-06-29 19:16 - [V8](http://www.blog.minike.top/Article/details/387465155632.shtml)
+- 2026-06-29 19:18 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/95155831394.shtml)

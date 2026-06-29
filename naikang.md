@@ -1,61 +1,56 @@
-# 王毅同摩尔多瓦副总理兼外长波普绍伊会谈
+# 专家学者围绕“云冈学”发展建言献策
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-2026年5月21日，中共中央政治局委员、外交部长王毅在北京同摩尔多瓦副总理兼外长波普绍伊举行会谈。 王毅表示，中摩是友好伙伴。双方始终相互尊重、平等互利，稳健推进各领域务实合作，惠及两国人民。中方珍视中摩传统友谊，愿同摩方一道，不断夯实互信，深化互利合作，为双边关系发展注入动力，为两国人民创造福祉，为地区和平稳定作出贡献。 王毅说，中国是负责任大国，坚定不移维护联合国宪章宗旨
+中新网大同5月12日电 (记者 胡健)云冈研究院主办的云冈学发展建设研讨会日前在山西大同举行，来自省内外高校、科研机构的专家学者以跨学科视角共商云冈学高质量发展路径，为构建云冈学学科体系、深化石窟寺保护利用凝聚共识。 本次研讨会旨在推动云冈学研究高质量发展，搭建跨学科、高水平学术交流平台，系统整合云冈石窟考古研究、文物保护、数字化建设及中华民族交往交流交融史研究成果，加快构建云
 
 ## 正文
 
-2026年5月21日，中共中央政治局委员、外交部长王毅在北京同摩尔多瓦副总理兼外长波普绍伊举行会谈。
+中新网大同5月12日电 (记者 胡健)云冈研究院主办的云冈学发展建设研讨会日前在山西大同举行，来自省内外高校、科研机构的专家学者以跨学科视角共商云冈学高质量发展路径，为构建云冈学学科体系、深化石窟寺保护利用凝聚共识。
 
-王毅表示，中摩是友好伙伴。
+本次研讨会旨在推动云冈学研究高质量发展，搭建跨学科、高水平学术交流平台，系统整合云冈石窟考古研究、文物保护、数字化建设及中华民族交往交流交融史研究成果，加快构建云冈学学科体系、学术体系、话语体系，深化中华民族共同体历史研究与阐释，促进石窟寺保护利用与文化传承创新。
 
-双方始终相互尊重、平等互利，稳健推进各领域务实合作，惠及两国人民。
+研讨会上，山西大学、山西文旅职业大学、山西省考古研究院、中国社会科学院考古研究所、敦煌研究院、长安大学等多家单位的专家学者先后发言，围绕云冈学学科建设、考古研究、文保技术、数字化应用、成果转化等关键议题分享前沿成果与实践经验。
 
-中方珍视中摩传统友谊，愿同摩方一道，不断夯实互信，深化互利合作，为双边关系发展注入动力，为两国人民创造福祉，为地区和平稳定作出贡献。
+与会专家从不同维度切入，既探讨了云冈学作为新兴交叉学科的理论框架构建，也聚焦石窟保护技术革新、数字成果活化利用、人才培养体系完善等现实问题，提出了兼具前瞻性与可操作性的建议。
 
-王毅说，中国是负责任大国，坚定不移维护联合国宪章宗旨和原则，主张国家不分大小一律平等。
+交流环节中，与会人员就学科交叉融合、研究资源整合、成果转化路径等话题展开热烈讨论，进一步明确了云冈学建设的方向与重点。
 
-我们赞赏摩方在涉及中方核心利益问题上坚持正确立场，支持摩方走本国人民选择、符合本国国情的发展道路，欢迎摩方挖掘潜力，更深入参与高质量共建“一带一路”。
+会议最后，云冈研究院院长杭侃对研讨成果进行总结，强调要持续凝聚各方力量，推动云冈学研究与石窟保护、文化传承深度融合，让千年石窟在新时代焕发新的生机与活力。
 
-双方要用好中国国际进口博览会等平台，扩大经贸交流；新兴领域合作，打造投资增长点；加强教育、文化、旅游、青年交流，搭建民心相通新桥梁。
+此次研讨会的成功举办，搭建了云冈学领域的高端交流平台，汇聚了省内外顶尖智力资源，将进一步推动云冈石窟保护研究事业迈上新台阶，为传承中华优秀传统文化、铸牢中华民族共同体意识贡献学术力量。
 
-面对变乱交织的世界，双方要携手践行四大全球倡议，维护好广大发展中国家正当权益。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 19:33 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 19:13 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 19:13 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 19:27 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 19:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 19:31 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 19:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 19:10 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 19:34 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 19:21 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 19:28 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 19:20 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 19:23 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 19:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 19:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 19:33 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 19:39 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 19:19 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 19:14 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 19:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 19:25 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 19:34 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 19:40 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 19:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/99889.shtml)
-- 2026-06-29 19:15 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/948148194.shtml)
-- 2026-06-29 19:34 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/55734402950.shtml)
-- 2026-06-29 19:19 - [金刚川](https://www.share.minike.top/Article/details/060568056.shtml)
-- 2026-06-29 19:08 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/46263491.shtml)
-- 2026-06-29 19:10 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/681570305766.shtml)
-- 2026-06-29 19:29 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/220245342092.shtml)
-- 2026-06-29 19:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/980721.shtml)
-- 2026-06-29 19:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/043353282820.shtml)
-- 2026-06-29 19:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/967172.shtml)
-- 2026-06-29 19:21 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/27296362220.shtml)
-- 2026-06-29 19:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/927381134.shtml)
-- 2026-06-29 19:13 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/28274.shtml)
-- 2026-06-29 19:33 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/995087334.shtml)
-- 2026-06-29 19:24 - [杨紫视后第一场线下活动](https://www.blog.kurohicncr.top/Article/details/8158611759.shtml)
+- 2026-06-29 19:23 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/638028.shtml)
+- 2026-06-29 19:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/6885983735.shtml)
+- 2026-06-29 19:16 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/98310967294.shtml)
+- 2026-06-29 19:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/7125081.shtml)
+- 2026-06-29 19:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/861546636.shtml)
+- 2026-06-29 19:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/56199324800.shtml)
+- 2026-06-29 19:24 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/675842960537.shtml)
+- 2026-06-29 19:31 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/7349854.shtml)
+- 2026-06-29 19:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/88666109.shtml)
+- 2026-06-29 19:13 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/4567933.shtml)
+- 2026-06-29 19:27 - [TFING全员黑西装](https://www.share.minike.top/Article/details/236181.shtml)
+- 2026-06-29 19:26 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/99275274.shtml)
+- 2026-06-29 19:13 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/4470151330.shtml)
+- 2026-06-29 19:21 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/3767903.shtml)
+- 2026-06-29 19:16 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/502224025.shtml)

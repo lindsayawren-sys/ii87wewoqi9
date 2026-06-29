@@ -1,53 +1,61 @@
-# 商务部等5部门调整《向特定国家（地区）出口易制毒化学品管理目录》
+# 美方似默许日元干预 日本财相与贝森特的会谈露出端倪
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 据商务部网站消息，为进一步做好易制毒化学品出口管理工作，根据《向特定国家(地区)出口易制毒化学品暂行管理规定》，商务部、公安部、应急管理部、海关总署和国家药监局决定对《向特定国家(地区)出口易制毒化学品管理目录》进行调整，新增1-叔丁氧羰基-4-氧-3-哌啶甲酸甲酯等3个品种至附件1第一部分。现将调整后的《向特定国家(地区)出口易制毒化学品管理目录》予以公布
+日本财务大臣片山皋月证实，她的团队正与美国财政部长斯科特·贝森特在外汇政策方面密切协调，暗示美国或默许了日本近期可能的市场干预行为。 “关于最近的汇率走势，我们确认日本和美国一直协调良好，并保持着密切的沟通，”片山周二在东京与贝森特会谈后告诉记者。 她表示：“我们也重申，我们将继续根据去年9月发表的联合声明，在外汇问题上密切合作。”她还补充说，该声明明确指出，干预是解决外汇市场
 
 ## 正文
 
-中新网5月22日电 据商务部网站消息，为进一步做好易制毒化学品出口管理工作，根据《向特定国家(地区)出口易制毒化学品暂行管理规定》，商务部、公安部、应急管理部、海关总署和国家药监局决定对《向特定国家(地区)出口易制毒化学品管理目录》进行调整，新增1-叔丁氧羰基-4-氧-3-哌啶甲酸甲酯等3个品种至附件1第一部分。
+日本财务大臣片山皋月证实，她的团队正与美国财政部长斯科特·贝森特在外汇政策方面密切协调，暗示美国或默许了日本近期可能的市场干预行为。
 
-现将调整后的《向特定国家(地区)出口易制毒化学品管理目录》予以公布。
+“关于最近的汇率走势，我们确认日本和美国一直协调良好，并保持着密切的沟通，”片山周二在东京与贝森特会谈后告诉记者。
 
-自本公告发布之日起，向美国、墨西哥、加拿大出口附件1第一部分所列化学品的，向缅甸、老挝、阿富汗出口附件1第二部分所列化学品的，应按照《向特定国家(地区)出口易制毒化学品暂行管理规定》申请许可，向其他国家(地区)出口无需申请许可。
+她表示：“我们也重申，我们将继续根据去年9月发表的联合声明，在外汇问题上密切合作。
 
-附件：1.向特定国家(地区)出口易制毒化学品管理目录.pdf 2.特定国家(地区)目录.pdf
+”她还补充说，该声明明确指出，干预是解决外汇市场过度波动的一种选择。
+
+“我相信我们在这一点上获得了充分理解，”片山说道。
+
+片山不愿就两人会面时是否讨论日本央行的货币政策发表评论。
+
+她还表示，她不会对贝森特的言论置评。
+
+这是贝森特就任财政部长以来第三次访问日本。
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 19:12 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 19:34 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 19:28 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 19:09 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 19:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 19:31 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 19:10 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 19:35 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 19:21 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 19:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 19:18 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 19:22 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 19:11 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 19:34 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 19:41 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 19:26 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 19:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 19:41 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 19:33 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 19:28 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 19:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 19:30 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 19:24 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 19:39 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 19:28 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 19:25 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 19:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 19:30 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 19:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/42601801848.shtml)
-- 2026-06-29 19:28 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/54911437.shtml)
-- 2026-06-29 19:20 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/04613204.shtml)
-- 2026-06-29 19:19 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/948568468296.shtml)
-- 2026-06-29 19:15 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/9797309.shtml)
-- 2026-06-29 19:33 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/74221.shtml)
-- 2026-06-29 19:14 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/33163.shtml)
-- 2026-06-29 19:14 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/82847098102.shtml)
-- 2026-06-29 19:19 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/907499.shtml)
-- 2026-06-29 19:34 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/48253.shtml)
-- 2026-06-29 19:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/8720532810.shtml)
-- 2026-06-29 19:20 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/5779643051.shtml)
-- 2026-06-29 19:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/485731048938.shtml)
-- 2026-06-29 19:22 - [毒液2](https://www.blog.minike.top/Article/details/48175508.shtml)
-- 2026-06-29 19:15 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/39128.shtml)
+- 2026-06-29 19:19 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/598783.shtml)
+- 2026-06-29 19:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/012190249.shtml)
+- 2026-06-29 19:30 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/44049.shtml)
+- 2026-06-29 19:31 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/272758350.shtml)
+- 2026-06-29 19:38 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/511806715427.shtml)
+- 2026-06-29 19:27 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/483776.shtml)
+- 2026-06-29 19:28 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/4654076.shtml)
+- 2026-06-29 19:16 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/271651.shtml)
+- 2026-06-29 19:16 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/12293.shtml)
+- 2026-06-29 19:25 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/783638.shtml)
+- 2026-06-29 19:21 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/58821.shtml)
+- 2026-06-29 19:19 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/21356.shtml)
+- 2026-06-29 19:14 - [起风了](https://www.share.kurohicncr.top/Article/details/6600965070.shtml)
+- 2026-06-29 19:32 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/15078491.shtml)
+- 2026-06-29 19:15 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/02071312.shtml)

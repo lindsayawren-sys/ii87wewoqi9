@@ -1,61 +1,60 @@
-# 顶级投资人：大型科技软件时代已然落幕
+# 虎牙2026年一季报：收入17.3亿元 连续五季同比增长
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-英国科技投资人James Anderson警示，美国头部软件与互联网股长达二十年的高速增长周期已然落幕。各大科技企业大举投入人工智能领域，现金流大幅承压，而英伟达等芯片厂商将长期从中获益。 Anderson向媒体表示，谷歌、Meta、亚马逊、微软等企业掀起数万亿美元人工智能投资热潮，绝大部分收益将流向英伟达、台积电、阿斯麦等少数顶尖硬件供应商。 Anderson预测，当前人工智
+新浪科技讯 5月12日下午消息，虎牙公司公布2026年第一季度财报。财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。其中，游戏相关服务、广告及其他收入同比增长69.4%至6.3亿元，占比再创新高，达到36.3%。 利润方面，2026年第一季度，随着高毛利率的多元业务收入占比的扩大，虎牙毛利润和毛利率均实现同比、环比提升。非美
 
 ## 正文
 
-英国科技投资人James Anderson警示，美国头部软件与互联网股长达二十年的高速增长周期已然落幕。
+新浪科技讯 5月12日下午消息，虎牙公司公布2026年第一季度财报。
 
-各大科技企业大举投入人工智能领域，现金流大幅承压，而英伟达等芯片厂商将长期从中获益。
+财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。
 
-Anderson向媒体表示，谷歌、Meta、亚马逊、微软等企业掀起数万亿美元人工智能投资热潮，绝大部分收益将流向英伟达、台积电、阿斯麦等少数顶尖硬件供应商。
+其中，游戏相关服务、广告及其他收入同比增长69.4%至6.3亿元，占比再创新高，达到36.3%。
 
-Anderson预测，当前人工智能芯片供应紧张的局面，持续时长将远超半导体行业投资者过往认知。
+利润方面，2026年第一季度，随着高毛利率的多元业务收入占比的扩大，虎牙毛利润和毛利率均实现同比、环比提升。
 
-Anderson与搭档共同管理规模 16 亿美元的灵戈托创新策略基金，他在致投资者年度信函中写道：“科技平台二十年高速扩张的确定性优势已然不复存在。
+非美国通用会计准则下，归属于虎牙公司的净利润为2110万元。
 
-” 信函中提及，苹果、微软、亚马逊、谷歌、Meta、英伟达、特斯拉组成的美股七大科技巨头格局，受硅谷企业重金角逐人工智能主导权影响，整体发展态势利弊皆变。
+随着虎牙在全网游戏内容生态的布局持续扩张，其生态影响力正加速释放。
 
-“科技平台企业基本面大幅下滑，再也难以回归低资本开支、高现金流的经营模式。
+据悉，虎牙在站外可触达的用户规模预估已超过2亿，覆盖抖音、视频号等多个平台，较去年同期实现翻倍。
 
-” 摩根士丹利分析师测算，2024 至 2027 年间，大型科技云厂商将投入约 2 万亿美元资金，扩建数据中心，用以训练和部署人工智能系统。
+内部统计数据显示，在游戏MCN领域，虎牙已成为视频号最大的游戏MCN，并在抖音稳居前三。
 
 ## 相关推荐
 
-- 2026-06-29 19:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 19:15 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 19:07 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 19:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 19:30 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 19:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 19:06 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 19:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 19:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 19:11 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 19:25 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 19:27 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 19:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 19:06 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 19:32 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 19:32 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 19:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 19:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 19:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 19:37 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 19:23 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 19:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 19:20 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 19:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 19:39 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 19:30 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 19:38 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 19:34 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 19:13 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/256306074.shtml)
-- 2026-06-29 19:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/47480277732.shtml)
-- 2026-06-29 19:12 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/27483647852.shtml)
-- 2026-06-29 19:12 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/6995888.shtml)
-- 2026-06-29 19:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/48952558.shtml)
-- 2026-06-29 19:17 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/847022048466.shtml)
-- 2026-06-29 19:13 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/6365266060.shtml)
-- 2026-06-29 19:28 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/986787.shtml)
-- 2026-06-29 19:21 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/5475805.shtml)
-- 2026-06-29 19:34 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/3876436231.shtml)
-- 2026-06-29 19:09 - [速度与激情9](https://www.blog.minike.top/Article/details/3602570.shtml)
-- 2026-06-29 19:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/060979.shtml)
-- 2026-06-29 19:11 - [存储三巨头被告了](http://www.share.minike.top/Article/details/4036321.shtml)
-- 2026-06-29 19:18 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/26457216292.shtml)
-- 2026-06-29 19:26 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/0665330.shtml)
+- 2026-06-29 19:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/091519339.shtml)
+- 2026-06-29 19:12 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/671533066952.shtml)
+- 2026-06-29 19:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/859968.shtml)
+- 2026-06-29 19:38 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/638524.shtml)
+- 2026-06-29 19:34 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/9361402.shtml)
+- 2026-06-29 19:22 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/17138987599.shtml)
+- 2026-06-29 19:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/8338839621.shtml)
+- 2026-06-29 19:14 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/2245441.shtml)
+- 2026-06-29 19:16 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/96612868.shtml)
+- 2026-06-29 19:35 - [请回答王牌2019](http://www.blog.minike.top/Article/details/97967.shtml)
+- 2026-06-29 19:37 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/14620014171.shtml)
+- 2026-06-29 19:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/5410710.shtml)
+- 2026-06-29 19:16 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/18419597054.shtml)
+- 2026-06-29 19:41 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/56979287.shtml)
+- 2026-06-29 19:41 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/1797592.shtml)

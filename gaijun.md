@@ -1,53 +1,60 @@
-# 市场情绪好坏参半之际金价小幅走低
+# 英伟达获得华尔街新提振：18%上涨预期引发人工智能估值热潮
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-在市场情绪好坏参半之际，金价在亚洲早盘交易中小幅走低。现货黄金下跌0.1%，报每盎司4，537.45美元。InTouch Capital Markets的分析师团队在评论中表示：“风险情绪时好时坏。“该团队指出，据伊朗媒体报道，美国最新的14点框架已经“缩小了分歧“，而且美国国务卿卢比奥称，出现了一些“好迹象“。然而，该团队补充道：“随着伊朗最高领袖发布指令：接近武器级的铀不得
+富国银行将英伟达股价目标上调至315美元，在即将到来的财报公布前强化了看涨的人工智能驱动估值逻辑。 富国银行将英伟达的目标股价从265美元上调至315美元，并维持“增持”评级，称在该芯片制造商5月20日发布季度报告之前，其股价可能看起来仍然不贵。 富国银行采用了一种将人工智能需求与全球数据中心电力建设联系起来的新模型对英伟达进行估值。该机构表示，这种方法表明该公司2027年的盈
 
 ## 正文
 
-在市场情绪好坏参半之际，金价在亚洲早盘交易中小幅走低。
+富国银行将英伟达股价目标上调至315美元，在即将到来的财报公布前强化了看涨的人工智能驱动估值逻辑。
 
-现货黄金下跌0.1%，报每盎司4，537.45美元。
+富国银行将英伟达的目标股价从265美元上调至315美元，并维持“增持”评级，称在该芯片制造商5月20日发布季度报告之前，其股价可能看起来仍然不贵。
 
-InTouch Capital Markets的分析师团队在评论中表示：“风险情绪时好时坏。
+富国银行采用了一种将人工智能需求与全球数据中心电力建设联系起来的新模型对英伟达进行估值。
 
-“该团队指出，据伊朗媒体报道，美国最新的14点框架已经“缩小了分歧“，而且美国国务卿卢比奥称，出现了一些“好迹象“。
+该机构表示，这种方法表明该公司2027年的盈利前景可能比周期峰值的估计更为持久。
 
-然而，该团队补充道：“随着伊朗最高领袖发布指令：接近武器级的铀不得运往国外，乐观情绪迅速瓦解。
+该机构表示，它仍然意识到对利润率和市场份额的担忧，包括来自竞争对手和定制芯片的压力。
 
-“责任编辑：王永生
+即便如此，富国银行认为，该股按2027年盈利预期计算的市盈率仍不到20倍。
+
+英伟达今年上涨约18%，过去12个月上涨约77%。
+
+富国银行的判断加剧了一场争论，即在这家芯片制造商公布业绩之前，其增长是否仍被低估。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 19:26 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 19:23 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 19:21 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 19:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 19:20 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 19:21 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 19:12 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 19:35 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 19:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 19:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 19:12 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 19:21 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 19:33 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 19:16 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 19:19 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 19:27 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 19:17 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 19:36 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 19:40 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 19:28 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 19:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 19:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 19:34 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 19:29 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/7836380.shtml)
-- 2026-06-29 19:32 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/5081319556.shtml)
-- 2026-06-29 19:16 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/0436972.shtml)
-- 2026-06-29 19:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/28180.shtml)
-- 2026-06-29 19:24 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/86434164.shtml)
-- 2026-06-29 19:17 - [5万块的威力](https://www.share.minike.top/Article/details/7480120112.shtml)
-- 2026-06-29 19:14 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/72994719451.shtml)
-- 2026-06-29 19:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/0667892281.shtml)
-- 2026-06-29 19:19 - [医药生物行业今日涨5.91%](http://www.blog.minike.top/Article/details/32832390.shtml)
-- 2026-06-29 19:09 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/066747084.shtml)
-- 2026-06-29 19:34 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/505719.shtml)
-- 2026-06-29 19:23 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/73715093.shtml)
-- 2026-06-29 19:35 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/6117794.shtml)
-- 2026-06-29 19:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/317764856.shtml)
-- 2026-06-29 19:24 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/445157331.shtml)
+- 2026-06-29 19:25 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/1817629765.shtml)
+- 2026-06-29 19:24 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/87684330.shtml)
+- 2026-06-29 19:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/70416828.shtml)
+- 2026-06-29 19:39 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/47814.shtml)
+- 2026-06-29 19:31 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/3037026.shtml)
+- 2026-06-29 19:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/6615922118.shtml)
+- 2026-06-29 19:41 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/10769758.shtml)
+- 2026-06-29 19:33 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/347887.shtml)
+- 2026-06-29 19:24 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/665909394117.shtml)
+- 2026-06-29 19:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/34575991.shtml)
+- 2026-06-29 19:28 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/571684.shtml)
+- 2026-06-29 19:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/19551567.shtml)
+- 2026-06-29 19:21 - [斗破苍穹](http://www.blog.minike.top/Article/details/6712657.shtml)
+- 2026-06-29 19:37 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/632786.shtml)
+- 2026-06-29 19:13 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/061266.shtml)

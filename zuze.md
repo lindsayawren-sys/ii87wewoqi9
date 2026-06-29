@@ -1,52 +1,59 @@
-# 近镜头｜教育合作丰富中俄关系内涵
+# 打好灾害防范“主动仗”——第18个全国防灾减灾日一线见闻
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-5月20日，国家主席习近平同俄罗斯总统普京在北京人民大会堂共同出席“中俄教育年”开幕式并致辞。 习近平主席指出，教育是国与国之间连接民心、传承友谊的重要桥梁，是功在当代、利在千秋的崇高事业。长期以来，中俄教育合作持续深化、成效明显，丰富了中俄新时代全面战略协作伙伴关系的内涵。 从“中俄教育年”开启新的出发，源远流长的中俄人文交流，必将为两国人民相知相亲注入更大动力，推动新时代中
+新华社北京5月12日电 题：打好灾害防范“主动仗”——第18个全国防灾减灾日一线见闻 新华社记者毛思倩、贾云鹏、熊家林 今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。记者了解到，各地各部门突出事前预防，打好灾害防范“主动仗”，多措并举提升防灾减灾救灾能力。 5月11日，深圳市福田区南园街道滨江社区滨江新村小区启动了今年的第三次
 
 ## 正文
 
-5月20日，国家主席习近平同俄罗斯总统普京在北京人民大会堂共同出席“中俄教育年”开幕式并致辞。
+新华社北京5月12日电 题：打好灾害防范“主动仗”——第18个全国防灾减灾日一线见闻 新华社记者毛思倩、贾云鹏、熊家林 今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。
 
-习近平主席指出，教育是国与国之间连接民心、传承友谊的重要桥梁，是功在当代、利在千秋的崇高事业。
+记者了解到，各地各部门突出事前预防，打好灾害防范“主动仗”，多措并举提升防灾减灾救灾能力。
 
-长期以来，中俄教育合作持续深化、成效明显，丰富了中俄新时代全面战略协作伙伴关系的内涵。
+5月11日，深圳市福田区南园街道滨江社区滨江新村小区启动了今年的第三次防汛应急演练，5分钟之内，物业工作人员完成了地下车库防汛挡板的安装和封堵。
 
-从“中俄教育年”开启新的出发，源远流长的中俄人文交流，必将为两国人民相知相亲注入更大动力，推动新时代中俄友谊向着更为璀璨的前景阔步向前。
+与平日不同的是，参加演练的工作人员胸前都挂着一张印有处置流程和应急人员联系方式的防汛安全处置“明白卡”。
 
-策划：石锋 吴丹 统筹：黄庆华 周年钧 制作：胡碧霞 屈彦 王浩程 新华社新媒体中心制作 新华社第一工作室出品
+“有了这张卡，照着操作就能守住安全底线。
+
+”社区书记刘艳媚说。
+
+这款防水密封、小巧便携的卡片，是深圳2023年“9·7”特大暴雨后，深圳市城市公共安全技术研究院联合社区为小区量身打造的防汛“掌中手册”，也是深圳立足韧性城市建设，推动基层应急治理从“被动应对”向“主动预防”转变的生动实践。
+
+“明白卡”背后，是一整套防汛预案。
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 19:19 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 19:34 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 19:29 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 19:18 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 19:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 19:10 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 19:20 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 19:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 19:08 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 19:26 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 19:14 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 19:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 19:21 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 19:38 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 19:26 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 19:16 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 19:20 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 19:36 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 19:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 19:33 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 19:15 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 19:21 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 19:27 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 19:30 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [《贺子珍》](https://www.share.minike.top/Article/details/0170418486.shtml)
-- 2026-06-29 19:21 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/674224.shtml)
-- 2026-06-29 19:14 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/325954.shtml)
-- 2026-06-29 19:26 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/4590814.shtml)
-- 2026-06-29 19:24 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/033220.shtml)
-- 2026-06-29 19:18 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/71505798.shtml)
-- 2026-06-29 19:28 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/2887562.shtml)
-- 2026-06-29 19:27 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/04105757657.shtml)
-- 2026-06-29 19:19 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/271262599.shtml)
-- 2026-06-29 19:27 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/96529728.shtml)
-- 2026-06-29 19:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/84862554.shtml)
-- 2026-06-29 19:15 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/9827419.shtml)
-- 2026-06-29 19:24 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/0022803.shtml)
-- 2026-06-29 19:31 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/08838920.shtml)
-- 2026-06-29 19:22 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/056670.shtml)
+- 2026-06-29 19:35 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/6536755505.shtml)
+- 2026-06-29 19:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/82955144054.shtml)
+- 2026-06-29 19:17 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/98690448.shtml)
+- 2026-06-29 19:12 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/552700005.shtml)
+- 2026-06-29 19:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/8290122.shtml)
+- 2026-06-29 19:14 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/5814361475.shtml)
+- 2026-06-29 19:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/1892768.shtml)
+- 2026-06-29 19:26 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/739865.shtml)
+- 2026-06-29 19:19 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/630165.shtml)
+- 2026-06-29 19:15 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/977918884.shtml)
+- 2026-06-29 19:21 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/44300.shtml)
+- 2026-06-29 19:34 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/111518421156.shtml)
+- 2026-06-29 19:25 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/9682887.shtml)
+- 2026-06-29 19:20 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/8079470.shtml)
+- 2026-06-29 19:19 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/49453609.shtml)

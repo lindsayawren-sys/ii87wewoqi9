@@ -1,56 +1,61 @@
-# 2026年统一战线定点（对口）帮扶县中小学校长培训班在湖州开班
+# 韩国官员提议以人工智能税收向发放公民红利 引发股市盘中巨震
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-中新网湖州5月22日电(林波)5月22日，2026年统一战线定点(对口)帮扶县中小学校长培训班在浙江省湖州市开班。全国政协副主席、民进中央常务副主席朱永新出席开班式并讲话，民进中央副主席王刚出席并主持开班式。 为进一步深化拓展“地域+领域”组团式帮扶成效，提升统一战线优质资源使用效能，增强统一战线培训工作的针对性、实效性，此次培训班邀请教育领域的知名专家和一线优秀教师，课程涵盖
+韩国一位高级政策制定者表示，该国应利用人工智能（AI）产业产生的税收向公民发放“红利”，凸显出当局面临的日益加大的压力来重新分配这一波科技荣景的成果。三星电子和SK海力士等芯片企业已在AI热潮中赚得盆满钵满。 韩国总统府政策室长金容范在Facebook上的发言引发韩国股市周二剧烈波动，投资者一度难以解读其建议的具体所指。股市基准KOSPI指数盘中一度下跌5.1%，随后金容范澄清
 
 ## 正文
 
-中新网湖州5月22日电(林波)5月22日，2026年统一战线定点(对口)帮扶县中小学校长培训班在浙江省湖州市开班。
+韩国一位高级政策制定者表示，该国应利用人工智能（AI）产业产生的税收向公民发放“红利”，凸显出当局面临的日益加大的压力来重新分配这一波科技荣景的成果。
 
-全国政协副主席、民进中央常务副主席朱永新出席开班式并讲话，民进中央副主席王刚出席并主持开班式。
+三星电子和SK海力士等芯片企业已在AI热潮中赚得盆满钵满。
 
-为进一步深化拓展“地域+领域”组团式帮扶成效，提升统一战线优质资源使用效能，增强统一战线培训工作的针对性、实效性，此次培训班邀请教育领域的知名专家和一线优秀教师，课程涵盖教育理念、教学方法、课程设计、学校管理等多方面， 一直以来，民进浙江省委会将教育作为履职重点领域，按照民进中央工作部署，积极助力贵州教育均衡发展。
+韩国总统府政策室长金容范在Facebook上的发言引发韩国股市周二剧烈波动，投资者一度难以解读其建议的具体所指。
 
-自2009年起，民进浙江省委会深度参与民进中央“同心·彩虹行动”，并通过与安龙县龙山镇、金沙县民兴街道、茶园镇开展教育结对，实施了“镇海中学班”“开明奖学金”“开明健康”等项目，促进了帮扶地区基础教育事业高质量发展。
+股市基准KOSPI指数盘中一度下跌5.1%，随后金容范澄清其意图是动用AI热潮带来的“超额税收收入”，而非对企业利润开征暴利税，令股市跌幅有所收窄。
 
-浙江省政协副主席、民进浙江省委会主委蔡秀军表示，开展定点帮扶和对口协作，是中共中央着眼推动区域协调发展、促进共同富裕作出的重大战略部署，是中国特色社会主义制度优势的生动体现。
+三星和SK海力士股价亦一度下挫，但随后收复了大部分失地。
 
-蔡秀军表示，下一步，民进浙江省委会将以本次培训班为契机，持续深化“开明优学”品牌建设，进一步完善帮扶机制、拓展资源平台、创新支持方式，做深做实定点帮扶地区的教育服务实践，推动优质教育资源在更大范围、更深层次上惠及结对学校与师生，为帮扶地区教育事业可持续发展，为助力乡村全面振兴贡献浙江民进的智慧与力量。
+在全球范围内，经济学家和政界人士越来越关注人工智能技术可能加剧贫富差距的问题。
 
-教育是国之大计，党的二十大作出加快建设教育强国的战略部署，明确要求到2027年教育强国建设取得重要阶段性成效，到2035年建成教育强国。
+尤其是在韩国，这种担忧已表现为公众呼吁——要求从SK海力士到三星在内的行业领军企业，将全球AI基础设施繁荣所带来的收益分享给更广泛的人群。
 
-“十五五”规划纲要明确，办好人民满意的教育，弘扬教育家精神，培养造就高水平教师队伍。
+Fibonacci Asset Management Global的首席执行官Jung In Yun认为，金容范的言论“表明韩国政府正越来越将人工智能视为国家基础设施，而不仅仅是一种技术趋势”。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 19:26 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 19:26 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 19:20 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 19:31 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 19:31 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 19:34 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 19:21 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 19:07 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 19:11 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 19:29 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 19:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 19:17 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 19:40 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 19:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:26 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 19:22 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 19:32 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 19:14 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 19:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 19:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 19:26 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 19:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 19:16 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 19:18 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/3572872.shtml)
-- 2026-06-29 19:26 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/20047.shtml)
-- 2026-06-29 19:25 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/033512009.shtml)
-- 2026-06-29 19:21 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/690549726.shtml)
-- 2026-06-29 19:34 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/95141.shtml)
-- 2026-06-29 19:23 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/490436513443.shtml)
-- 2026-06-29 19:15 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/12211.shtml)
-- 2026-06-29 19:12 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/880350560.shtml)
-- 2026-06-29 19:34 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/5493960.shtml)
-- 2026-06-29 19:13 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/274531821511.shtml)
-- 2026-06-29 19:33 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/98806208.shtml)
-- 2026-06-29 19:20 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/073459.shtml)
-- 2026-06-29 19:32 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/54651972.shtml)
-- 2026-06-29 19:11 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/4974191428.shtml)
-- 2026-06-29 19:07 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/870961851.shtml)
+- 2026-06-29 19:24 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/152148922714.shtml)
+- 2026-06-29 19:30 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/714758528093.shtml)
+- 2026-06-29 19:21 - [毒液2](http://www.share.minike.top/Article/details/186787.shtml)
+- 2026-06-29 19:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/8925311154.shtml)
+- 2026-06-29 19:26 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2315647.shtml)
+- 2026-06-29 19:23 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/7086271609.shtml)
+- 2026-06-29 19:31 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/790689431.shtml)
+- 2026-06-29 19:36 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/895731184674.shtml)
+- 2026-06-29 19:26 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/797454.shtml)
+- 2026-06-29 19:28 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/7585845.shtml)
+- 2026-06-29 19:35 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/40487972.shtml)
+- 2026-06-29 19:41 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/40544788.shtml)
+- 2026-06-29 19:28 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/405531.shtml)
+- 2026-06-29 19:37 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/9149039196.shtml)
+- 2026-06-29 19:41 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/54064.shtml)

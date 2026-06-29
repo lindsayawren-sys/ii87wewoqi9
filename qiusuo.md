@@ -1,51 +1,60 @@
-# 哈塞特希望鲍威尔尽快离开美联储 让沃什能“轻松”掌控
+# 兰州防灾减灾开放日：硬核装备与实战演练 展多元应用场景
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-美国国家经济委员会主任凯文·哈塞特在接受媒体采访时谈及即将卸任美联储主席的杰罗姆·鲍威尔和候任主席凯文·沃什时表示：“希望他能尽快离开，这样凯文就能完全、轻松地执掌美联储。” 哈塞特表示，“希望鲍威尔能够让位，这样我们就能安排另一位理事进入美联储。” 他同时重申，“我们绝对尊重美联储的独立性。”责任编辑：江学思
+发布时间：2026年05月13日 11:54 来源：中国新闻网 5月12日是第18个全国防灾减灾日。当日，兰州国家陆地搜寻与救护基地公众开放日活动在甘肃兰州举行。此次开放日活动搜救队员现场演示了切割、斜向救援、横渡等高难度科目。斜楼逃生、黑暗空间避险、地震模拟体验等项目，让民众身临其境感受灾害场景，掌握避险逃生技巧。 活动现场，由甘肃省地震局引进的可控震源地震勘探系统，吸引众多
 
 ## 正文
 
-美国国家经济委员会主任凯文·哈塞特在接受媒体采访时谈及即将卸任美联储主席的杰罗姆·鲍威尔和候任主席凯文·沃什时表示：“希望他能尽快离开，这样凯文就能完全、轻松地执掌美联储。
+发布时间：2026年05月13日 11:54 来源：中国新闻网 5月12日是第18个全国防灾减灾日。
 
-” 哈塞特表示，“希望鲍威尔能够让位，这样我们就能安排另一位理事进入美联储。
+当日，兰州国家陆地搜寻与救护基地公众开放日活动在甘肃兰州举行。
 
-” 他同时重申，“我们绝对尊重美联储的独立性。
+此次开放日活动搜救队员现场演示了切割、斜向救援、横渡等高难度科目。
 
-”责任编辑：江学思
+斜楼逃生、黑暗空间避险、地震模拟体验等项目，让民众身临其境感受灾害场景，掌握避险逃生技巧。
+
+活动现场，由甘肃省地震局引进的可控震源地震勘探系统，吸引众多民众关注。
+
+该系统通过液压驱动的振动平板，向地下激发连续、可控的地震波，经过专业处理就能绘制出地下结构的清晰图像，可用于探测活动断层、滑坡体等灾害隐患，提供地震灾害风险依据和预警支持，具有安全、环保、可重复作业的优势。
+
+近年来，甘肃省地震局持续推动防灾减灾技术深度赋能重点领域，将专业防灾减灾技术广泛应用于文物保护、铁路运营等关键场景。
+
+为了直观地演示地震预警工作原理，甘肃省地震局自主研发了地震预警科普系统，有效加深了民众对地震预警系统的认知与理解。
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 19:28 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 19:35 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 19:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 19:34 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 19:28 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 19:10 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 19:32 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 19:33 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 19:33 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 19:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 19:23 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 19:15 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 19:35 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 19:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 19:13 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 19:18 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 19:40 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 19:12 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 19:41 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 19:18 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 19:18 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 19:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 19:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 19:32 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 19:38 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 19:38 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/268789305143.shtml)
-- 2026-06-29 19:27 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/85637307809.shtml)
-- 2026-06-29 19:18 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/8701597.shtml)
-- 2026-06-29 19:33 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/493524084.shtml)
-- 2026-06-29 19:08 - [青春环游记第三季](https://www.share.minike.top/Article/details/6133994.shtml)
-- 2026-06-29 19:16 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/0993761.shtml)
-- 2026-06-29 19:17 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/9917369225.shtml)
-- 2026-06-29 19:12 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/84241255.shtml)
-- 2026-06-29 19:31 - [毒液2](http://www.blog.kurohicncr.top/Article/details/087358.shtml)
-- 2026-06-29 19:07 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/55315713.shtml)
-- 2026-06-29 19:12 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/1372052.shtml)
-- 2026-06-29 19:25 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/459852873887.shtml)
-- 2026-06-29 19:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/183749600673.shtml)
-- 2026-06-29 19:09 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/4002356.shtml)
-- 2026-06-29 19:11 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/93990311888.shtml)
+- 2026-06-29 19:40 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/26068470720.shtml)
+- 2026-06-29 19:19 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/955231.shtml)
+- 2026-06-29 19:23 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/50555712391.shtml)
+- 2026-06-29 19:24 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/43006.shtml)
+- 2026-06-29 19:21 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/573511.shtml)
+- 2026-06-29 19:38 - [TOP Prada](https://www.blog.minike.top/Article/details/0268867567.shtml)
+- 2026-06-29 19:24 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/378254806780.shtml)
+- 2026-06-29 19:26 - [金刚川](http://www.share.minike.top/Article/details/22502562.shtml)
+- 2026-06-29 19:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/89347183.shtml)
+- 2026-06-29 19:35 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/87146185.shtml)
+- 2026-06-29 19:28 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/9878750500.shtml)
+- 2026-06-29 19:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/8262520262.shtml)
+- 2026-06-29 19:29 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/5260197174.shtml)
+- 2026-06-29 19:29 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/144851431474.shtml)
+- 2026-06-29 19:35 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/01199358791.shtml)

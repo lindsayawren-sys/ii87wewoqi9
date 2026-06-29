@@ -1,57 +1,61 @@
-# 越南车企VinFast重组剥离近70亿美元债务 复杂关联交易引发市场关注
+# 揭秘千元股如何诞生？中际旭创一年暴涨980%！光模块+半导体全都要，硬科技宽基—双创50ETF单日吸金1697万元
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-为减轻财务压力并加速向“轻资产”模式转型，越南电动汽车制造商VinFast日前宣布，计划以5.06亿美元及债务转移的方式，出售其位于越南本土的制造业务核心资产。此举将帮助该公司剥离约69亿美元的巨额债务，但其背后复杂的交易架构及关联方的高度参与，引发了外界对母公司温纳集团（Vingroup）及创始人范日旺在企业治理方面的广泛关注。 根据上周公布的多方交易方案，VinFast将以
+5月12日，中际旭创股价再创新高，并成功站稳千元关口，正式跻身千元股阵营，成为A股历史上第10只股价突破千元的个股。截至最新，A股目前股价在千元以上的个股有5只，分别是源杰科技、贵州茅台、寒武纪、联讯仪器、中际旭创。除贵州茅台外，其他均是科技股。 从行业看，千元股的赛道重心，已从白酒、医美为代表的消费主线，全面切换至以芯片、光模块领衔的科技主线。这一变迁本质是产业格局迁徙的市场
 
 ## 正文
 
-为减轻财务压力并加速向“轻资产”模式转型，越南电动汽车制造商VinFast日前宣布，计划以5.06亿美元及债务转移的方式，出售其位于越南本土的制造业务核心资产。
+5月12日，中际旭创股价再创新高，并成功站稳千元关口，正式跻身千元股阵营，成为A股历史上第10只股价突破千元的个股。
 
-此举将帮助该公司剥离约69亿美元的巨额债务，但其背后复杂的交易架构及关联方的高度参与，引发了外界对母公司温纳集团（Vingroup）及创始人范日旺在企业治理方面的广泛关注。
+截至最新，A股目前股价在千元以上的个股有5只，分别是源杰科技、贵州茅台、寒武纪、联讯仪器、中际旭创。
 
-根据上周公布的多方交易方案，VinFast将以13.3万亿越南盾（约合5.06亿美元）的价格，将其本土制造业务出售给特定的投资财团，该财团将同步承接约69亿美元的债务。
+除贵州茅台外，其他均是科技股。
 
-温纳集团在声明中指出，剥离制造业务后，VinFast将基本实现零负债运营，并将企业发展重心全面转向研发与产品设计。
+从行业看，千元股的赛道重心，已从白酒、医美为代表的消费主线，全面切换至以芯片、光模块领衔的科技主线。
 
-财务数据显示，高昂的制造成本是导致VinFast去年亏损39亿美元的主要原因，该公司自2017年成立至今尚未实现盈利。
+这一变迁本质是产业格局迁徙的市场镜像：中国经济的核心增长动能，正从过往的“基建+消费”传统模式，转向“科技+高端智造”的全新发展范式。
 
-此次重组后，VinFast将仅保留在印度尼西亚和印度的组装工厂及新一代电动汽车专利。
+业内人士指出，本轮赛道切换的底层逻辑是国家战略对硬科技产业的系统性布局。
 
-尽管此项重组在财务减负层面具有一定的逻辑合理性，但交易结构的复杂性及浓厚的关联交易色彩引发了部分分析机构与投资者的质疑。
+集成电路、人工智能均为新兴支柱产业，政策资源与市场定价形成同向共振。
 
-据披露，接盘财团的核心主导者为房地产商人阮怀南，其目前担任温纳集团原旗下商业地产板块的董事。
+这不是概念炒作，而是全球科技产业链重构之下中国硬核资产话语权提升的真实映射。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 19:28 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 19:27 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 19:19 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 19:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 19:27 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 19:12 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:09 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 19:25 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 19:27 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 19:26 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 19:41 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 19:19 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 19:37 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 19:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 19:38 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 19:16 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 19:24 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 19:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 19:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 19:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 19:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 19:34 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 19:38 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 19:13 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 19:37 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/31138613229.shtml)
-- 2026-06-29 19:21 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/606199055430.shtml)
-- 2026-06-29 19:35 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/448464845.shtml)
-- 2026-06-29 19:16 - [黄金也扛不住了](http://www.share.minike.top/Article/details/472737409971.shtml)
-- 2026-06-29 19:31 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/3218276.shtml)
-- 2026-06-29 19:09 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/949739514.shtml)
-- 2026-06-29 19:09 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/42358591.shtml)
-- 2026-06-29 19:15 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/62121130185.shtml)
-- 2026-06-29 19:29 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/035554146.shtml)
-- 2026-06-29 19:29 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/8536200.shtml)
-- 2026-06-29 19:14 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/331615.shtml)
-- 2026-06-29 19:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/882622990.shtml)
-- 2026-06-29 19:32 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/78721058.shtml)
-- 2026-06-29 19:35 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/92422.shtml)
-- 2026-06-29 19:13 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/5241398545.shtml)
+- 2026-06-29 19:21 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/478549.shtml)
+- 2026-06-29 19:16 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/474706.shtml)
+- 2026-06-29 19:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/60145.shtml)
+- 2026-06-29 19:17 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/422203041138.shtml)
+- 2026-06-29 19:28 - [海清4次陪跑白玉兰](http://www.share.minike.top/Article/details/359233.shtml)
+- 2026-06-29 19:18 - [极限挑战第一季](http://www.share.minike.top/Article/details/0611688.shtml)
+- 2026-06-29 19:33 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/8388646277.shtml)
+- 2026-06-29 19:19 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/3095068.shtml)
+- 2026-06-29 19:24 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/993177282.shtml)
+- 2026-06-29 19:22 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/00698684.shtml)
+- 2026-06-29 19:17 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/193557.shtml)
+- 2026-06-29 19:30 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/70219162741.shtml)
+- 2026-06-29 19:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/78155816.shtml)
+- 2026-06-29 19:33 - [爱很美味](http://www.share.minike.top/Article/details/786694848910.shtml)
+- 2026-06-29 19:18 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/1013954279.shtml)

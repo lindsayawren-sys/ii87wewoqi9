@@ -1,56 +1,60 @@
-# 基金业共话AI时代的“进”与“守”
+# 152亿美元重磅合作！恒瑞医药联手BMS加速13款新药研发，股价一度暴拉15%
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 王雪青 随着人工智能技术的迭代升级，基金行业正迎来一场深刻的数字化变革。行业人士如何看待以AI为代表的金融科技发展机遇与挑战？ 从投研到服务全链路AI进化 “AI对整个基金行业带来的冲击和影响正在逐步显现，并终将重塑基金业全链条。”好买基金董事长杨文斌表示，这一变革具体表现为：在投研端提升信息处理与决策效率，在运
+恒瑞医药于12日午间公告，已与百时美施贵宝（BMS）达成全球战略合作及许可协议，双方将共同推进涵盖肿瘤学、血液学及免疫学的13款早期项目以加速创新药物研发；根据协议条款，BMS需向恒瑞支付高达9.5亿美元的明确款项，包括6亿美元首付款、1.75亿美元第一笔周年付款及1.75亿美元第二笔有条件的2028年周年付款，而若行使共同研发项目选择权并完成各项开发、注册及商业化里程碑，协议
 
 ## 正文
 
-专题：515投资者保护！
+恒瑞医药于12日午间公告，已与百时美施贵宝（BMS）达成全球战略合作及许可协议，双方将共同推进涵盖肿瘤学、血液学及免疫学的13款早期项目以加速创新药物研发；根据协议条款，BMS需向恒瑞支付高达9.5亿美元的明确款项，包括6亿美元首付款、1.75亿美元第一笔周年付款及1.75亿美元第二笔有条件的2028年周年付款，而若行使共同研发项目选择权并完成各项开发、注册及商业化里程碑，协议潜在总交易额可达约152亿美元。
 
-新浪财经2026年度投教案例评选结果公布 王雪青 随着人工智能技术的迭代升级，基金行业正迎来一场深刻的数字化变革。
+热点追踪 港股恒瑞医药在5月12日盘中表现强势，股价一度涨幅超过15%，反映出市场对其重大利好消息的积极反应。
 
-行业人士如何看待以AI为代表的金融科技发展机遇与挑战？
+公司当日午间发布重磅公告，宣布与全球制药巨头百时美施贵宝（BMS）达成全球战略合作及许可协议，旨在共同推进13款涵盖肿瘤学、血液学及免疫学领域的早期创新药物项目。
 
-从投研到服务全链路AI进化 “AI对整个基金行业带来的冲击和影响正在逐步显现，并终将重塑基金业全链条。
+此次合作不仅有助于加速创新药物的研发进程，更体现了恒瑞医药在国际化布局上的重大突破，力求惠及全球患者。
 
-”好买基金董事长杨文斌表示，这一变革具体表现为：在投研端提升信息处理与决策效率，在运营端实现降本增效，在服务端增强个性化服务和客户获得感。
+根据协议条款，潜在交易总交易额可达约152亿美元，其中百时美施贵宝向恒瑞支付的付款部分最高可达9.5亿美元。
 
-如何在合规的前提下，最大化地利用和拥抱AI的潜能，将决定基金业的未来价值。
+这一巨额交易金额不仅彰显了国际合作伙伴对恒瑞研发实力的认可，也将为恒瑞带来可观的资金回流，进一步巩固其在创新药领域的领先地位。
 
-中银基金首席信息官陈宇表示，金融科技已迈入安全为基、标准引领、AI赋能、数智共生的全新发展阶段。
+对于投资者而言，这一合作标志着恒瑞医药从“仿创结合”向“原创出海”的战略转型取得了实质性进展，有望提升其长期估值逻辑与全球竞争力。
 
-中银基金深度融入金融“五篇大文章”建设大局，深耕数字金融转型建设，锚定行业高质量发展主线，持续深化人工智能全场景创新落地，全面赋能投资研究、市场营销、风控合规、客户服务全链路提质增效，稳步筑牢信创自主可控安全体系。
+热点解读 创新药出海趋势加速，头部药企国际化进程显著提速。
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 19:15 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 19:24 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 19:33 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 19:06 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 19:15 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 19:29 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 19:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 19:29 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 19:26 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 19:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 19:16 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 19:28 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 19:19 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 19:30 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 19:31 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:13 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 19:38 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 19:40 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 19:30 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 19:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 19:38 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 19:16 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 19:37 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/9969579609.shtml)
-- 2026-06-29 19:27 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/75244.shtml)
-- 2026-06-29 19:07 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/6392672.shtml)
-- 2026-06-29 19:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/0283739900.shtml)
-- 2026-06-29 19:24 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/15207090916.shtml)
-- 2026-06-29 19:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/70796577067.shtml)
-- 2026-06-29 19:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/15630779712.shtml)
-- 2026-06-29 19:20 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/2266984.shtml)
-- 2026-06-29 19:29 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/9786440.shtml)
-- 2026-06-29 19:31 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/458684926.shtml)
-- 2026-06-29 19:10 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/12042854.shtml)
-- 2026-06-29 19:17 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/5280763763.shtml)
-- 2026-06-29 19:24 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/152653495.shtml)
-- 2026-06-29 19:29 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/1857096116.shtml)
-- 2026-06-29 19:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/93542032012.shtml)
+- 2026-06-29 19:17 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/66295279.shtml)
+- 2026-06-29 19:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/82281248766.shtml)
+- 2026-06-29 19:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/026899678530.shtml)
+- 2026-06-29 19:34 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/7807195.shtml)
+- 2026-06-29 19:40 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/916576.shtml)
+- 2026-06-29 19:12 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/32521667.shtml)
+- 2026-06-29 19:35 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/079391.shtml)
+- 2026-06-29 19:32 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/27185106511.shtml)
+- 2026-06-29 19:29 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/45491391897.shtml)
+- 2026-06-29 19:33 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/770326362138.shtml)
+- 2026-06-29 19:31 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/076973039.shtml)
+- 2026-06-29 19:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/263487603.shtml)
+- 2026-06-29 19:35 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/28068791.shtml)
+- 2026-06-29 19:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/763160586.shtml)
+- 2026-06-29 19:17 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2226652882.shtml)

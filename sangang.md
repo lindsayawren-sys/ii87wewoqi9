@@ -1,54 +1,44 @@
-# 齐合环保接获联交所额外复牌指引
+# 快讯：现货白银失守84美元/盎司，日内跌2.41%。
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-齐合环保（00976）发布公告，于2026年5月19日，公司接获联交所发出的额外复牌指引以重新遵守上市规则第3.10（1）、3.10（2）、3.10A、3.21、3.25、3.27A及13.92（2）条的规定。公司须补救导致其暂停买卖的实质性问题，并全面遵守上市规则致令联交所信纳后，其证券方可获准恢复买卖。为此，公司主要负责制定其复牌行动计划。联交所表示，其可能于适当时候修改复
+北京时间5月12日下午，现货白银失守84美元/盎司，日内跌2.41%。 责任编辑：朱赫楠
 
 ## 正文
 
-齐合环保（00976）发布公告，于2026年5月19日，公司接获联交所发出的额外复牌指引以重新遵守上市规则第3.10（1）、3.10（2）、3.10A、3.21、3.25、3.27A及13.92（2）条的规定。
+北京时间5月12日下午，现货白银失守84美元/盎司，日内跌2.41%。
 
-公司须补救导致其暂停买卖的实质性问题，并全面遵守上市规则致令联交所信纳后，其证券方可获准恢复买卖。
-
-为此，公司主要负责制定其复牌行动计划。
-
-联交所表示，其可能于适当时候修改复牌指引及╱或给予进一步指引。
-
-责任编辑：卢昱君
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 19:12 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 19:19 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 19:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 19:16 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 19:25 - [永远有话聊的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 19:16 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 19:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 19:16 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 19:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 19:29 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 19:06 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 19:30 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 19:35 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 19:14 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 19:38 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 19:41 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 19:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 19:21 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 19:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 19:39 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 19:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 19:34 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 19:39 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/059450.shtml)
-- 2026-06-29 19:29 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/40394.shtml)
-- 2026-06-29 19:27 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/64919.shtml)
-- 2026-06-29 19:18 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/0298941.shtml)
-- 2026-06-29 19:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/42405.shtml)
-- 2026-06-29 19:21 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/200148027264.shtml)
-- 2026-06-29 19:27 - [叠纸客服回应恋与深空新角色争议](https://www.share.kurohicncr.top/Article/details/999135.shtml)
-- 2026-06-29 19:34 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/795515.shtml)
-- 2026-06-29 19:09 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/60334067.shtml)
-- 2026-06-29 19:31 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/19780.shtml)
-- 2026-06-29 19:19 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/061331.shtml)
-- 2026-06-29 19:21 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/997016475596.shtml)
-- 2026-06-29 19:31 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/702502.shtml)
-- 2026-06-29 19:11 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/30343201.shtml)
-- 2026-06-29 19:28 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/006163986.shtml)
+- 2026-06-29 19:12 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/292770974230.shtml)
+- 2026-06-29 19:19 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/265225639437.shtml)
+- 2026-06-29 19:32 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/633952922.shtml)
+- 2026-06-29 19:29 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/82744574022.shtml)
+- 2026-06-29 19:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/3406672.shtml)
+- 2026-06-29 19:17 - [叠纸](http://www.blog.minike.top/Article/details/355913990.shtml)
+- 2026-06-29 19:30 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/784983328307.shtml)
+- 2026-06-29 19:33 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/6929431532.shtml)
+- 2026-06-29 19:17 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/391674039249.shtml)
+- 2026-06-29 19:33 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/208895.shtml)
+- 2026-06-29 19:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/379446090.shtml)
+- 2026-06-29 19:27 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/98901.shtml)
+- 2026-06-29 19:37 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/83573.shtml)
+- 2026-06-29 19:38 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/873379138.shtml)
+- 2026-06-29 19:23 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/1067526.shtml)

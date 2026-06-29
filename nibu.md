@@ -1,60 +1,45 @@
-# 中信建投期货：5月22日能化早报
+# 美国总统特朗普抵达北京开始访华
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-橡胶：短期偏弱 周四，国产全乳胶17550/吨，环比上日上涨50元/吨；泰国20号混合胶16970元/吨，环比上日下跌160元/吨。 原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收68.0泰铢/公斤，环比上日下跌0.2泰铢/公斤；云南胶水报收16.5元/公斤，环比上日下跌0.1元/公斤；海南胶水报收16.7元/公斤，环比上日持平。 截至2026年5月17日，中国
+新华社快讯：应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。
 
 ## 正文
 
-橡胶：短期偏弱 周四，国产全乳胶17550/吨，环比上日上涨50元/吨；泰国20号混合胶16970元/吨，环比上日下跌160元/吨。
-
-原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收68.0泰铢/公斤，环比上日下跌0.2泰铢/公斤；云南胶水报收16.5元/公斤，环比上日下跌0.1元/公斤；海南胶水报收16.7元/公斤，环比上日持平。
-
-截至2026年5月17日，中国天然橡胶社会库存131.6万吨，环比下降1.1万吨，降幅0.8%。
-
-中国深色胶社会总库存为90.6万吨，降幅1%。
-
-其中青岛现货库存降0.5%；云南降2.4%；越南10降13%；NR库存小计降3.4%。
-
-中国浅色胶社会总库存为41万吨，环比降0.4%。
-
-其中老全乳胶环比降1%，3L环比降6%，RU库存小计增加2.7%。
-
-观点：近期产区的天气条件或相对正常，预计割季将按照季节性顺利推进。
+新华社快讯：应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 19:14 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 19:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 19:30 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 19:19 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 19:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 19:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 19:21 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 19:12 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 19:23 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 19:35 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 19:31 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 19:26 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 19:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 19:41 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 19:16 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 19:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 19:34 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 19:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 19:32 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 19:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 19:14 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 19:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 19:28 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 19:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 19:37 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 19:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/8947312.shtml)
-- 2026-06-29 19:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/7585812075.shtml)
-- 2026-06-29 19:28 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/76652788369.shtml)
-- 2026-06-29 19:24 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/9314317164.shtml)
-- 2026-06-29 19:15 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/88403958634.shtml)
-- 2026-06-29 19:17 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/779939437.shtml)
-- 2026-06-29 19:10 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/7697732.shtml)
-- 2026-06-29 19:21 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/475981482.shtml)
-- 2026-06-29 19:34 - [这一刀 会很帅](https://www.share.minike.top/Article/details/443453935561.shtml)
-- 2026-06-29 19:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/739351.shtml)
-- 2026-06-29 19:16 - [乔家的儿女](https://www.share.minike.top/Article/details/6590059666.shtml)
-- 2026-06-29 19:30 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/274647228.shtml)
-- 2026-06-29 19:33 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/031314810.shtml)
-- 2026-06-29 19:21 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/97402359450.shtml)
-- 2026-06-29 19:21 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/5780839.shtml)
+- 2026-06-29 19:41 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/2573610983.shtml)
+- 2026-06-29 19:23 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/8829348659.shtml)
+- 2026-06-29 19:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/049294.shtml)
+- 2026-06-29 19:21 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/4221324.shtml)
+- 2026-06-29 19:13 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/6049702.shtml)
+- 2026-06-29 19:13 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/93501988845.shtml)
+- 2026-06-29 19:32 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/6444512373.shtml)
+- 2026-06-29 19:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/22441629780.shtml)
+- 2026-06-29 19:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/85983.shtml)
+- 2026-06-29 19:26 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/362601030387.shtml)
+- 2026-06-29 19:26 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/01859266.shtml)
+- 2026-06-29 19:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/252711319.shtml)
+- 2026-06-29 19:18 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/196590819215.shtml)
+- 2026-06-29 19:29 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/877282.shtml)
+- 2026-06-29 19:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/4175978.shtml)

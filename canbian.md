@@ -1,59 +1,56 @@
-# 保运作！多只A50、A500指数基金先后“出招”
+# 突破100万亿元！2025年末我国银行持债规模创新高
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-每经记者|黄小聪 每经编辑|叶峰 近日，多只规模较小的A50、A500指数基金纷纷召开持有人大会，主要议案均与基金运作有关。 记者注意到，中银中证A500指数增强基金、汇安中证A500指数基金虽召开持有人大会审议持续运作议案，但均告失败。而新华中证A50ETF召开持有人大会，直接把基金合同的终止条款修改了。 此外，国联中证A50联接基金、银河中证A500ETF联接基金也要召开持
+21世纪经济报道记者张欣 5月11日，中国人民银行正式发布《2026年第一季度货币政策执行报告》。 21经济报道记者注意到，报告专栏中的一组数据引起广泛关注：2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。这表明，银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。 报告明
 
 ## 正文
 
-每经记者|黄小聪 每经编辑|叶峰 近日，多只规模较小的A50、A500指数基金纷纷召开持有人大会，主要议案均与基金运作有关。
+21世纪经济报道记者张欣 5月11日，中国人民银行正式发布《2026年第一季度货币政策执行报告》。
 
-记者注意到，中银中证A500指数增强基金、汇安中证A500指数基金虽召开持有人大会审议持续运作议案，但均告失败。
+21经济报道记者注意到，报告专栏中的一组数据引起广泛关注：2025年末，银行持有的债券超过100万亿元，占其总资产的25%，较2015年上升7个百分点；债券与贷款比例为35%，较2015年上升6个百分点。
 
-而新华中证A50ETF召开持有人大会，直接把基金合同的终止条款修改了。
+这表明，银行债券投融资行为已经成为影响货币供应和信用创造的重要渠道。
 
-此外，国联中证A50联接基金、银河中证A500ETF联接基金也要召开持有人大会，审议的也是基金持续运作的议案。
+报告明确指出，在我国以银行为主导的金融体系结构下，银行债券投资与信贷投放具有同等重要的地位，二者都是向实体经济融资的重要方式，也是货币创造的重要途径。
 
-密集召开持有人大会 5月21日，中银中证A500指数增强基金、汇安中证A500指数基金公告了近期召开持有人大会的情况，两只基金的持有人大会均召开失败。
+近年来，随着我国融资结构变化、银行经营现代化转型，银行在债券市场为企业和政府提供融资，并提高自身资产负债管理和流动性管理能力，债券资产规模持续扩大。
 
-具体来看，出席中银中证A500指数增强基金持有人大会的有效表决份额共5818.69份，占权益登记日总份额2170万份的0.0268%，远低于二分之一的要求。
+除了助力货币信用创造，银行在债券市场的核心地位还体现在利率传导领域。
 
-而出席汇安中证A500指数基金持有人大会的有效表决份额共2.17万份，占权益登记日总份额2693万份的0.08%，同样大幅低于二分之一。
+报告指出，银行作为最主要的债券投资交易者、做市商和公开市场一级交易商，在债券价格发现、形成和市场稳定中发挥重要作用，是利率传导的第一道关口。
 
-记者注意到，这两只基金召开持有人大会审议的议案均是关于基金的持续运作，但从结果来看，均未能表决成功。
+中国人民银行通过债券市场规则和做市商、公开市场一级交易商管理，规范、引导银行债券投资交易行为，是有效实施货币政策调控的重要基础。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 19:29 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 19:31 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 19:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 19:24 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 19:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 19:28 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 19:33 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 19:34 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 19:06 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 19:28 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 19:17 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 19:25 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 19:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:26 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 19:21 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 19:25 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 19:16 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 19:16 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 19:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 19:12 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 19:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 19:14 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/1143137208.shtml)
-- 2026-06-29 19:31 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/6549022.shtml)
-- 2026-06-29 19:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/17645.shtml)
-- 2026-06-29 19:30 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/916117816.shtml)
-- 2026-06-29 19:09 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/933795613949.shtml)
-- 2026-06-29 19:35 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/203718514.shtml)
-- 2026-06-29 19:35 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/47423912114.shtml)
-- 2026-06-29 19:14 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/73561.shtml)
-- 2026-06-29 19:13 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/59566495329.shtml)
-- 2026-06-29 19:08 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/6010035.shtml)
-- 2026-06-29 19:25 - [第一炉香](https://www.blog.minike.top/Article/details/47094913403.shtml)
-- 2026-06-29 19:29 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/437536784.shtml)
-- 2026-06-29 19:14 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/46863851306.shtml)
-- 2026-06-29 19:30 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/689053110130.shtml)
-- 2026-06-29 19:10 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/6316683.shtml)
+- 2026-06-29 19:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/3181146.shtml)
+- 2026-06-29 19:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/122284.shtml)
+- 2026-06-29 19:40 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/26945348439.shtml)
+- 2026-06-29 19:36 - [海清4次陪跑白玉兰](http://www.share.minike.top/Article/details/15037679635.shtml)
+- 2026-06-29 19:12 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/775540297.shtml)
+- 2026-06-29 19:38 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/3415850479.shtml)
+- 2026-06-29 19:22 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/66472714884.shtml)
+- 2026-06-29 19:37 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/364545.shtml)
+- 2026-06-29 19:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/3562929.shtml)
+- 2026-06-29 19:29 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/816679287.shtml)
+- 2026-06-29 19:16 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/8413393275.shtml)
+- 2026-06-29 19:36 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/38551.shtml)
+- 2026-06-29 19:21 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/8277690114.shtml)
+- 2026-06-29 19:27 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/26865953.shtml)
+- 2026-06-29 19:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/00740849.shtml)

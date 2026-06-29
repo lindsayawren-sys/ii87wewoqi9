@@ -1,58 +1,61 @@
-# 耗材降价潮来袭 对上市公司影响几何？
+# 转型品牌减肥药致一季度意外亏损，美企业Hims & Hers股价重挫11%
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-2026年5月31日，将成为医用耗材行业又一个关键的“价格切换日”。 近日，深圳公共资源交易中心发布一批新通知，明确多个集采项目将落地或启动接续采购，执行时间统一锁定在今年5月31日。这其中包括首次落地的第六批耗材国采（药物涂层球囊、泌尿介入）、福建结构性心脏病封堵器联盟集采、京津冀“3+N”联盟止血材料集采，以及河南牵头的通用介入、神经外科、血液透析三大类耗材的接续采购。 在
+受向品牌减肥药业务转型推高运营成本影响，美国远程医疗企业Hims & Hers Health第一季度遭遇意外亏损。当地时间12日，该公司股价在早盘交易中大幅下跌11%至25.95美元，预计市值蒸发约7.3亿美元。 财报数据显示，Hims & Hers第一季度每股亏损40美分，大幅低于此前分析师平均预期的每股盈利4美分，当期营收亦未达华尔街预期。公司首席财务官耶米·奥库佩（Yem
 
 ## 正文
 
-2026年5月31日，将成为医用耗材行业又一个关键的“价格切换日”。
+受向品牌减肥药业务转型推高运营成本影响，美国远程医疗企业Hims & Hers Health第一季度遭遇意外亏损。
 
-近日，深圳公共资源交易中心发布一批新通知，明确多个集采项目将落地或启动接续采购，执行时间统一锁定在今年5月31日。
+当地时间12日，该公司股价在早盘交易中大幅下跌11%至25.95美元，预计市值蒸发约7.3亿美元。
 
-这其中包括首次落地的第六批耗材国采（药物涂层球囊、泌尿介入）、福建结构性心脏病封堵器联盟集采、京津冀“3+N”联盟止血材料集采，以及河南牵头的通用介入、神经外科、血液透析三大类耗材的接续采购。
+财报数据显示，Hims & Hers第一季度每股亏损40美分，大幅低于此前分析师平均预期的每股盈利4美分，当期营收亦未达华尔街预期。
 
-在业内看来，此次多项目集中落地，不仅意味着相关高值与低值耗材的价格“水分”被进一步挤出，更标志着集采常态化机制下，从国家层面到省际联盟的降价规则正趋于成熟，联动效应也在不断增强，行业竞争逻辑彻底从“渠道红利”转向“成本管控+临床价值”的硬核比拼。
+公司首席财务官耶米·奥库佩（Yemi Okupe）指出，此次亏损主要归因于司美格鲁肽（semaglutide）复合原料的资产减值、一次性法律费用及企业合并开支。
 
-第六批国采落地 作为国家层面的重磅动作，第六批耗材国采覆盖了药物涂层球囊（药涂球囊）与泌尿介入两大类多种耗材。
+对于营收不及预期的深层原因，该公司表示，由于美国食品药品监督管理局（FDA）近期收紧了对仿制减肥药的限制，公司正由提供较廉价的复合版GLP-1药物，全面转向与原研药企合作（如提供诺和诺德的Wegovy等品牌药物）。
 
-随着各地执行通知下发，此前未完全公开的拟中选价格也正式浮出水面：药物涂层球囊类中选价格范围为1677元—6015元，泌尿介入类耗材中选价格范围为60元—1537元，涉及企业包括贝朗医疗、波士顿科学、先瑞达、乐普、归创通桥、新光维医疗、欣格誉、埃尔顿、驼人等国内外主流厂商。
+这一战略转型不仅冲击了短期销售额，还引发了较高的重组成本。
 
-以药物涂层球囊为例，该品类常用于冠脉及外周血管狭窄病变，被称为“介入无植入”的代表性产品，此前终端价格较高。
+此外，公司近期缩短了产品发货周期，导致部分减肥产品的收入确认时间发生变动，进一步拖累了美国市场的整体营收表现。
 
-此次集采后，主流产品价格明确，将极大降低患者的支付负担，同时也给相关企业带来确定性的市场准入机会——中标意味着拿到全国大部分公立医院的“入场券”，但未中标者则面临市场份额急剧萎缩的风险。
+针对该期财报，华尔街投行反应不一，部分券商维持了对该公司的原有评级。
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 19:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 19:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 19:27 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 19:35 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 19:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 19:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 19:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 19:26 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 19:22 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 19:22 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 19:24 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 19:18 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 19:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 19:34 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 19:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 19:33 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 19:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 19:19 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 19:22 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 19:29 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 19:27 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 19:13 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 19:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 19:38 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 19:15 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 19:14 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/33848560929.shtml)
-- 2026-06-29 19:21 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/167927.shtml)
-- 2026-06-29 19:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/827915.shtml)
-- 2026-06-29 19:32 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/1403430312.shtml)
-- 2026-06-29 19:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/753430.shtml)
-- 2026-06-29 19:25 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/5517820833.shtml)
-- 2026-06-29 19:17 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/3255235.shtml)
-- 2026-06-29 19:21 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/39417906.shtml)
-- 2026-06-29 19:21 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/8797226248.shtml)
-- 2026-06-29 19:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/4617622.shtml)
-- 2026-06-29 19:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/144586908125.shtml)
-- 2026-06-29 19:13 - [人形机器人](http://www.share.kurohicncr.top/Article/details/76334658096.shtml)
-- 2026-06-29 19:16 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/024532370.shtml)
-- 2026-06-29 19:18 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/32084.shtml)
-- 2026-06-29 19:34 - [扬名立万](http://www.blog.minike.top/Article/details/941598892.shtml)
+- 2026-06-29 19:17 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/241763.shtml)
+- 2026-06-29 19:33 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/62360888769.shtml)
+- 2026-06-29 19:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/387091805.shtml)
+- 2026-06-29 19:25 - [美人鱼](http://www.share.kurohicncr.top/Article/details/59905700945.shtml)
+- 2026-06-29 19:12 - [美人鱼](http://www.blog.minike.top/Article/details/17058207.shtml)
+- 2026-06-29 19:15 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/135176.shtml)
+- 2026-06-29 19:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/42519.shtml)
+- 2026-06-29 19:26 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/676389447.shtml)
+- 2026-06-29 19:20 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/498044556535.shtml)
+- 2026-06-29 19:40 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/04023770.shtml)
+- 2026-06-29 19:39 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/893813892215.shtml)
+- 2026-06-29 19:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/148095088963.shtml)
+- 2026-06-29 19:29 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/38556507500.shtml)
+- 2026-06-29 19:40 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/1247736.shtml)
+- 2026-06-29 19:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/41749161910.shtml)

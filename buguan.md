@@ -1,58 +1,56 @@
-# 贷款诈骗、非法吸收存款、操纵资本市场……公安部通报20起经济犯罪典型案例
+# CPO交换机一机难求！算力硬件大涨，工业富联等3股涨停！华宝基金电子ETF（515260）上探3.7%续创新高！
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 记者：孙榕 5月20日，公安部举行新闻发布会，会上通报了公安机关打击防范经济犯罪工作举措和成效情况，并公布20起典型案例。发布会介绍，2025年至今年4月底，全国公安机关共破获各类经济犯罪案件12.8万起，挽回经济损失375亿元。 从已披露的案例来看，多起案件涉及金融领域，涵盖非法买卖外汇、贷款诈骗、保险诈骗、非法吸收公众存款、操纵资本市场等多个方面。 以下为其
+今日（5月13日）电子板块再度领跑市场，算力硬件概念午后拉升，工业富联、鹏鼎控股、生益科技3股涨停，卓胜微涨超15%，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅最高上探3.7%，收涨3.46%，续创历史新高！伴随火热的行情，该ETF昨天单日吸金689万元。 资金面上，电子板块全天获主力资金净流入645.93亿元，拉长时间来看，近5日、近20日分别吸金1362.
 
 ## 正文
 
-来源：金融时报 记者：孙榕 5月20日，公安部举行新闻发布会，会上通报了公安机关打击防范经济犯罪工作举措和成效情况，并公布20起典型案例。
+今日（5月13日）电子板块再度领跑市场，算力硬件概念午后拉升，工业富联、鹏鼎控股、生益科技3股涨停，卓胜微涨超15%，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅最高上探3.7%，收涨3.46%，续创历史新高！
 
-发布会介绍，2025年至今年4月底，全国公安机关共破获各类经济犯罪案件12.8万起，挽回经济损失375亿元。
+伴随火热的行情，该ETF昨天单日吸金689万元。
 
-从已披露的案例来看，多起案件涉及金融领域，涵盖非法买卖外汇、贷款诈骗、保险诈骗、非法吸收公众存款、操纵资本市场等多个方面。
+资金面上，电子板块全天获主力资金净流入645.93亿元，拉长时间来看，近5日、近20日分别吸金1362.80亿元、3447.76亿元，板块吸金额持续霸居31个申万一级行业首位！
 
-以下为其中几起典型案件： 上海刘某等人涉嫌非法经营（非法买卖外汇）案 2025年1月，上海市公安局依法立案侦办刘某等人涉嫌非法经营案。
+电子ETF华宝（515260）成份股工业富联获主力资金净流入91亿元，登顶A股吸金榜榜首。
 
-经查，2020年5月至案发，以犯罪嫌疑人刘某、连某等人为首的犯罪团伙形成了庞大隐蔽的地下钱庄犯罪网络，通过招揽组织人员开设大量个人和空壳公司银行账户，搭建境内非法资金收付通道，并与境外换汇机构勾结，以跨境“对敲”方式，为境内外有外币、人民币兑换需求的客户提供非法汇兑服务。
+近期，北美云厂商一季度资本开支激增，叠加鸿海大幅上修CPO交换机柜出货目标，AI算力板块再次成为资金焦点： 焦点个股方面，工业富联母公司鸿海集团的全光CPO交换机柜已向英伟达提前出货，远快于市场此前预期，且出货目标亦上修到2026至2027年超过5万台。
 
-案发后，公安机关将刘某等8名犯罪嫌疑人抓获归案。
+值得关注的是，鸿海集团（富士康）越南工厂已投产全光CPO交换机柜，并提前向英伟达供货，目前产品供货供不应求、产能极度紧缺，就连展示用机柜也已悉数交付英伟达，可谓一机难求。
 
-目前，案件已移送检察机关审查起诉。
+从产业链传导视角看，谷歌、Meta、字节跳动等全球主要云端服务供应商（CSP）近日再度上修2026年资本支出指引，正为AI算力产业链注入持续的成长动力。
 
-浙江王某等人洗钱案 2024年12月，浙江省杭州市公安局依法立案侦办王某等人涉嫌洗钱案。
+国盛证券认为，以谷歌为代表的CSP厂商已显著持续跑出算力投入-订单增长-算力不足-资本开支上修的正反馈模型，其云业务增长还将更为快速，后续增长势头的持续性展望较为乐观，预计将为AI算力产业链进一步注入成长动力。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 19:30 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 19:27 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 19:16 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 19:32 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:28 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 19:18 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 19:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 19:09 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 19:24 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 19:13 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 19:13 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 19:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 19:17 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 19:23 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 19:14 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:17 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 19:33 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 19:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 19:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 19:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/242478.shtml)
-- 2026-06-29 19:30 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/445220.shtml)
-- 2026-06-29 19:08 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/03691.shtml)
-- 2026-06-29 19:24 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/96921.shtml)
-- 2026-06-29 19:23 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/202165077017.shtml)
-- 2026-06-29 19:22 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/488409.shtml)
-- 2026-06-29 19:31 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/088457.shtml)
-- 2026-06-29 19:29 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/06783.shtml)
-- 2026-06-29 19:29 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/0484093809.shtml)
-- 2026-06-29 19:06 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/4320613008.shtml)
-- 2026-06-29 19:22 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/867094183.shtml)
-- 2026-06-29 19:06 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/021850618.shtml)
-- 2026-06-29 19:11 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/681559.shtml)
-- 2026-06-29 19:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/33460.shtml)
-- 2026-06-29 19:13 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/971219819692.shtml)
+- 2026-06-29 19:18 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/378290004281.shtml)
+- 2026-06-29 19:36 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/685078995.shtml)
+- 2026-06-29 19:20 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/527997536.shtml)
+- 2026-06-29 19:41 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/79807.shtml)
+- 2026-06-29 19:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/67950470.shtml)
+- 2026-06-29 19:35 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/26468670668.shtml)
+- 2026-06-29 19:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/04601417.shtml)
+- 2026-06-29 19:38 - [Ella回应SHE何时合体](http://www.blog.minike.top/Article/details/11418.shtml)
+- 2026-06-29 19:14 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/59808174.shtml)
+- 2026-06-29 19:16 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/103808.shtml)
+- 2026-06-29 19:36 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/2081468641.shtml)
+- 2026-06-29 19:27 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/05272.shtml)
+- 2026-06-29 19:30 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/576205.shtml)
+- 2026-06-29 19:36 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/9216141063.shtml)
+- 2026-06-29 19:22 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/01596.shtml)

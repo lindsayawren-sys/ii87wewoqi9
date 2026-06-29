@@ -1,56 +1,56 @@
-# 斯特兰蒂斯瞄准北美销量提升35%，依托公羊皮卡与克莱斯勒品牌复苏驱动
+# 第四届老山国际春茶节专场活动在云南麻栗坡举行
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-核心要点 斯特兰蒂斯计划 2030 年前实现北美销量上涨 35%，同时推动处境低迷的克莱斯勒品牌重振，该品牌多年来仅有一款车型支撑市场。 本次销量增长聚焦旗下美式经典品牌，克莱斯勒与公羊皮卡销量目标提升 60%，道奇性能系列提升 10%，吉普品牌提升 15%。菲亚特、阿尔法・罗密欧在北美市场销量占比较低，官方暂未公布二者增长指标。 公羊品牌总裁蒂姆・库尼斯基同时统管集团其他美式
+中新网文山5月13日电 (李相成 杨镇)5月12日，第四届老山国际春茶节“茶香天下·同心致远”麻栗坡·新华国茶政企合作四周年专场活动在云南省麻栗坡县小兴冲村举行。香港新华集团等企业代表及云南农业大学、西南林业大学等机构的茶学专家参加了活动。 麻栗坡县地处中越边境，拥有茶园约3.5万亩，古茶树40余万株。2021年，当地古树茶亮相联合国，受到外界关注。自2021年麻栗坡县政府与香
 
 ## 正文
 
-核心要点 斯特兰蒂斯计划 2030 年前实现北美销量上涨 35%，同时推动处境低迷的克莱斯勒品牌重振，该品牌多年来仅有一款车型支撑市场。
+中新网文山5月13日电 (李相成 杨镇)5月12日，第四届老山国际春茶节“茶香天下·同心致远”麻栗坡·新华国茶政企合作四周年专场活动在云南省麻栗坡县小兴冲村举行。
 
-本次销量增长聚焦旗下美式经典品牌，克莱斯勒与公羊皮卡销量目标提升 60%，道奇性能系列提升 10%，吉普品牌提升 15%。
+香港新华集团等企业代表及云南农业大学、西南林业大学等机构的茶学专家参加了活动。
 
-菲亚特、阿尔法・罗密欧在北美市场销量占比较低，官方暂未公布二者增长指标。
+麻栗坡县地处中越边境，拥有茶园约3.5万亩，古茶树40余万株。
 
-公羊品牌总裁蒂姆・库尼斯基同时统管集团其他美式品牌业务。
+2021年，当地古树茶亮相联合国，受到外界关注。
 
-他表示，行业整体销量预计将维持 2000 万辆规模、增长停滞，在此背景下，旗下美式品牌销量要从去年的 140 万辆增至 2030 年的 190 万辆。
+自2021年麻栗坡县政府与香港新华集团开启合作以来，当地茶产业逐步从资源输出向品牌化发展转型。
 
-周四投资者大会上，集团公布由首席执行官安东尼奥・菲洛萨主导、总额 600 亿欧元（折合 697 亿美元）的五年转型规划。
+活动期间，麻栗坡县致富带头人现场讲述了依托茶产业脱贫的经历。
 
-库尼斯基称，车企主要依靠推出全新车型拓宽市场覆盖范围，达成销量目标。
+由当地政府与企业联合推出的“四载同心·老山礼茶”纪念产品正式发布。
 
-菲洛萨谈及北美业务时表示：“我们不会在增长与盈利之间二选一，将同步推动两项指标稳步向好。
+当日，麻栗坡县人民政府与相关企业签订了深度战略合作协议，并与勐海陈升茶业有限公司签订三方合作协议。
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 19:09 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 19:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 19:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 19:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:27 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 19:20 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 19:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 19:20 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 19:14 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 19:23 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 19:23 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 19:29 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 19:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 19:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 19:27 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 19:24 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 19:24 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 19:22 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 19:15 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/31068.shtml)
-- 2026-06-29 19:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/222170642.shtml)
-- 2026-06-29 19:35 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/79556214710.shtml)
-- 2026-06-29 19:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/00008878.shtml)
-- 2026-06-29 19:31 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/14342.shtml)
-- 2026-06-29 19:34 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/2960329355.shtml)
-- 2026-06-29 19:24 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/64084223.shtml)
-- 2026-06-29 19:29 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/956309592.shtml)
-- 2026-06-29 19:14 - [绘画区你赢了](http://www.blog.minike.top/Article/details/33633366.shtml)
-- 2026-06-29 19:10 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/54789.shtml)
-- 2026-06-29 19:09 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/2682879559.shtml)
-- 2026-06-29 19:34 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/57464680696.shtml)
-- 2026-06-29 19:30 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/3091445353.shtml)
-- 2026-06-29 19:06 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/6364174056.shtml)
-- 2026-06-29 19:34 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/454751278.shtml)
+- 2026-06-29 19:23 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/148222.shtml)
+- 2026-06-29 19:16 - [爱很美味](http://www.share.kurohicncr.top/Article/details/371335771.shtml)
+- 2026-06-29 19:41 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/42527599363.shtml)
+- 2026-06-29 19:14 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/82416.shtml)
+- 2026-06-29 19:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/346935409.shtml)
+- 2026-06-29 19:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/2232206202.shtml)
+- 2026-06-29 19:35 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/6071765104.shtml)
+- 2026-06-29 19:31 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/381432.shtml)
+- 2026-06-29 19:18 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/41972.shtml)
+- 2026-06-29 19:17 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/7165912.shtml)
+- 2026-06-29 19:28 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/877817.shtml)
+- 2026-06-29 19:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/355372704861.shtml)
+- 2026-06-29 19:36 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/08227.shtml)
+- 2026-06-29 19:14 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/26958104.shtml)
+- 2026-06-29 19:39 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/27308.shtml)

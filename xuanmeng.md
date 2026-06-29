@@ -1,59 +1,61 @@
-# 华林证券一年人事变动超20次，资本大佬林立有想法
+# 瑞银：上调A股盈利预测至11%，中国资产全球吸引力凸显
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：银瑞社 文/瑞财经 许淑敏 步入2026年，低调神秘的资本大佬林立，公开出席了两场活动。 他先是在第九届深商盛典上，发表了主题演讲，阐述了立业集团与华林证券发展逻辑。 他表示，立业集团与华林证券的发展始终坚持“守正、出奇、向善”。 其中，“出奇”正是体现在科技金融的创新。 再到2026预见AI独角兽峰
+“我们将2026年全部A股盈利同比增长预测从此前的8%上调至11%。”在5月11日举行的媒体分享会上，瑞银证券中国股票策略分析师孟磊表示。 从全球视角来看，国际市场对中国资产的关注度正在持续升温。瑞银全球金融市场部中国主管房东明指出，在全球不确定性加剧、地缘政治波动明显的背景下，中国资产的抗风险和低相关性的属性，越来越凸显了吸引力。他强调，中国资本市场拥有完整的产业链与多元化的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“我们将2026年全部A股盈利同比增长预测从此前的8%上调至11%。
 
-来源：银瑞社 文/瑞财经 许淑敏 步入2026年，低调神秘的资本大佬林立，公开出席了两场活动。
+”在5月11日举行的媒体分享会上，瑞银证券中国股票策略分析师孟磊表示。
 
-他先是在第九届深商盛典上，发表了主题演讲，阐述了立业集团与华林证券发展逻辑。
+从全球视角来看，国际市场对中国资产的关注度正在持续升温。
 
-他表示，立业集团与华林证券的发展始终坚持“守正、出奇、向善”。
+瑞银全球金融市场部中国主管房东明指出，在全球不确定性加剧、地缘政治波动明显的背景下，中国资产的抗风险和低相关性的属性，越来越凸显了吸引力。
 
-其中，“出奇”正是体现在科技金融的创新。
+他强调，中国资本市场拥有完整的产业链与多元化的能源结构，今年更是彰显了低相关性、分散风险的优势，被越来越多的机构投资者称为是全球资产的“避风港”。
 
-再到2026预见AI独角兽峰会暨《科创看中国》纪录片启动仪式上，林立围绕《AI 时代的投资生存之道》带来分享。
+房东明介绍，国际投资者目前高度关注三大方向：AI创新和高科技产业、中国优质企业出海与全球化布局，以及“反内卷”带来的新机遇。
 
-他分享自己的观点，并以此介绍，华林证券始终聚焦“帮助散户提升投资决策能力”，全力打造海豚AI系列工具，把机构级的研究能力和量化工具送到散户手中。
+当日，上证综指盘中最高触及4229.58点，刷新自2015年7月2日以来新高。
 
-从林立对外输出的内容来看，他要强调华林证券正在深化科技金融创新、转化经济效益。
+孟磊对此表示，这只是整体市场上行，不断突破之后一层一层的整数高点当中的步骤，有非常强的正面的激励作用，但远远没有达到最终的目标。
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 19:20 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 19:17 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 19:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 19:27 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 19:25 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 19:29 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 19:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 19:34 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 19:07 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 19:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 19:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 19:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 19:21 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 19:37 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 19:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 19:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 19:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 19:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 19:20 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 19:21 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 19:40 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 19:33 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 19:36 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 19:38 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [逆天祖国人](https://www.share.minike.top/Article/details/5933258.shtml)
-- 2026-06-29 19:23 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/11067.shtml)
-- 2026-06-29 19:22 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/839630.shtml)
-- 2026-06-29 19:07 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/59402.shtml)
-- 2026-06-29 19:13 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/166920018.shtml)
-- 2026-06-29 19:34 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/51973142.shtml)
-- 2026-06-29 19:09 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/1420176.shtml)
-- 2026-06-29 19:07 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/0145341.shtml)
-- 2026-06-29 19:08 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/966517412621.shtml)
-- 2026-06-29 19:32 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/667264.shtml)
-- 2026-06-29 19:19 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/10898353.shtml)
-- 2026-06-29 19:20 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/79287.shtml)
-- 2026-06-29 19:34 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/90350096291.shtml)
-- 2026-06-29 19:29 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/9397453.shtml)
-- 2026-06-29 19:06 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/592923493.shtml)
+- 2026-06-29 19:33 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/3860182.shtml)
+- 2026-06-29 19:15 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/29827661.shtml)
+- 2026-06-29 19:12 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/06267322369.shtml)
+- 2026-06-29 19:26 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/00968.shtml)
+- 2026-06-29 19:18 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/94671073.shtml)
+- 2026-06-29 19:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/25292735.shtml)
+- 2026-06-29 19:33 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/74215572948.shtml)
+- 2026-06-29 19:15 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/3207017.shtml)
+- 2026-06-29 19:36 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/2956931631.shtml)
+- 2026-06-29 19:18 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/821392.shtml)
+- 2026-06-29 19:42 - [斛珠夫人](http://www.share.minike.top/Article/details/26030605.shtml)
+- 2026-06-29 19:23 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/28826243.shtml)
+- 2026-06-29 19:29 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/40710616.shtml)
+- 2026-06-29 19:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/57546777.shtml)
+- 2026-06-29 19:21 - [毒液2](https://www.share.minike.top/Article/details/994222.shtml)

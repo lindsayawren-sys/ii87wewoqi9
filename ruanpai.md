@@ -1,51 +1,56 @@
-# 为何只有小满而无大满 专家：蕴含中式处世智慧和农事考量
+# 汶川大地震中被埋72小时的女孩，如今怎么样了？
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 16:08 来源：中国新闻网 5月21日迎来二十四节气中的小满。中央文史研究馆馆员、北京师范大学文学院教授万建中接受中新社采访时表示，节气中唯有小满而无大满，并非古人疏漏，而是蕴含着华夏民族千年的生活智慧与人生哲理。 从农事来看，小满指农作物颗粒渐满但未完全成熟，北方冬小麦进入灌浆期，南方江河水量充盈却未溢满，设“大满”既不符合农事实际，还可能
+2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？ 黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排
 
 ## 正文
 
-发布时间：2026年05月21日 16:08 来源：中国新闻网 5月21日迎来二十四节气中的小满。
+2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？
 
-中央文史研究馆馆员、北京师范大学文学院教授万建中接受中新社采访时表示，节气中唯有小满而无大满，并非古人疏漏，而是蕴含着华夏民族千年的生活智慧与人生哲理。
+黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？
 
-从农事来看，小满指农作物颗粒渐满但未完全成熟，北方冬小麦进入灌浆期，南方江河水量充盈却未溢满，设“大满”既不符合农事实际，还可能隐含洪涝、作物脱落等风险。
+” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排的角落 她眼前的最后一幕 是保护电视机的学习委员 被坍塌的铁架砸中 教室随即被黑暗、浓烟与惨叫吞没 牛钰的头顶 被一块预制板死死卡住 双腿以下全被压住 身体扭曲着动弹不得 闷热、窒息、剧痛 让她喘不上气 黑暗中 她摸到一只冰凉的手 手腕上戴着一块电子表 那就是坐在她后桌的女生 那个爱笑的女孩 永远留在了废墟之下 家长们哭喊着搜救 可到处都是坍塌的楼房 搬动一块石板 就可能让另一处再次塌陷 “先救我的孩子们！
 
-万建中指出，这背后是“满招损、谦受益”的传统文化理念，小满代表着分寸与清醒：失意时蓄力，得意时内敛，不贪极致圆满，看淡缺憾、守住本心，便是小满蕴含的处世之道。
+” 班主任的声音从远处传来 微弱却坚定 废墟之下 牛钰昏迷、清醒、再昏迷 直到5月14日中午 她被一阵光亮唤醒 解放军小于叔叔冒着余震风险 一直俯在她上方的预制板上 手使劲往下够 “不要怕，叔叔在这里 我们一定救你出去” 小于叔叔的头盔上 有一盏很小的灯 微弱却耀眼 牛钰说 那是她关于希望最具象的模样 被困三天三夜后获救 5月15日 牛钰成为她读书的学校 最后一位被救出的幸存者 被抬上担架时 小于叔叔和她说 “一定要活下来” 救护车上 她的体温急剧下降 冷得浑身发抖 护士姐姐跪在担架旁 紧紧抱住她 哭着恳求 “孩子，你都撑了三天三夜 一定要坚持住 马上就到医院了” 没想到 抵达医院后等待她的 是另一个残酷的现实 双腿严重坏死 医生告诉牛钰的父母 “要命还是要腿，你们自己决定” 为保住女儿的生命 父母含泪签字 11岁的牛钰 在手术台上失去了右腿 此后又
 
-(记者 范思忆) 责任编辑：【罗攀】
+” 在无数个深夜里 她哭着向妈妈问出这个问题 康复训练的痛 与内心的自卑、挣扎 一度让她陷入低谷 日子在煎熬中一点点向前 她把委屈与不甘藏在心底 默默等待一个 能与自己和解的契机 2018年5月12日 汶川地震十周年 这天也是牛钰的农历生日 她做了一个勇敢的决定 参加汶川首届马拉松 那天 她取下假肢上的海绵 穿上短裤 第一次坦然露出假肢和伤疤 五百米、再五百米…… 本想跑几公里就放弃 却跑了一程又一程 有人冲她喊了一声“妹妹加油” 接着 很多折返回来的跑者异口同声 “中国加油！
+
+汶川加油！
+
+” 她突然意识到 伤疤是苦难留下的不完美 也是无数人托举的生命奇迹 更是自己努力活下来的勋章 “从负数起步 我终于又回到了原点 从内心里接纳了这条‘腿’ 所以 哪有什么迈不过的坎儿？
+
+倒就爬起来，活就活精彩” 从那天起 她再也没给假肢包过海绵 坦然接受自己的不完美 真正与伤痛、与自己和解 铭记与向前 走出阴霾的牛钰爱上了摄影 即便扛着器材步履艰难 但她依然坚持用镜头 记录真实与美好 拍下残障朋友 最放松、最自信的模样 她也尝试做自媒体 用轻松幽默的方式 科普假肢知识，讲述幻肢痛 她走进校园宣讲 用自己的经历鼓励迷茫的人 “活法有千千万万种 你相信什么 就会成为什么” 她记得 自己是被无数人“拉一把” 才活下来的孩子 她也想成为拉别人一把的人 一位尿毒症女孩曾因绝望想告别世界 在牛钰的鼓励下重返校园 最终考上复旦大学 一位19岁截肢女孩怀揣模特梦 在看到牛钰的视频后重拾勇气 2021年 牛钰戴着闪光假肢 登上上海时装周T台 聚光灯下 她昂首挺胸，步履坚定 走出了最自信的姿态 每年5月12日 牛钰都会回到北川 祭奠逝去的亲友 小时候一
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 19:35 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 19:32 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 19:14 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 19:15 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 19:09 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 19:17 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 19:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:19 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 19:09 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 19:30 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 19:23 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 19:38 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 19:21 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 19:14 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 19:25 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 19:28 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 19:25 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 19:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 19:19 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 19:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/0812586345.shtml)
-- 2026-06-29 19:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/470778690.shtml)
-- 2026-06-29 19:32 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/457783.shtml)
-- 2026-06-29 19:12 - [叠纸](https://www.share.kurohicncr.top/Article/details/8982843.shtml)
-- 2026-06-29 19:24 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/9749609.shtml)
-- 2026-06-29 19:13 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/74571.shtml)
-- 2026-06-29 19:22 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8900657.shtml)
-- 2026-06-29 19:27 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/0898056586.shtml)
-- 2026-06-29 19:17 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/954003.shtml)
-- 2026-06-29 19:15 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/495433692.shtml)
-- 2026-06-29 19:31 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/52994218.shtml)
-- 2026-06-29 19:06 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/4098998513.shtml)
-- 2026-06-29 19:16 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/0628567.shtml)
-- 2026-06-29 19:29 - [送你一朵小红花](http://www.share.minike.top/Article/details/7814410.shtml)
-- 2026-06-29 19:29 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/0521783.shtml)
+- 2026-06-29 19:19 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/067349382.shtml)
+- 2026-06-29 19:24 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/997867521.shtml)
+- 2026-06-29 19:15 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/319531879223.shtml)
+- 2026-06-29 19:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/55729246976.shtml)
+- 2026-06-29 19:31 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/716018642.shtml)
+- 2026-06-29 19:32 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/900553080530.shtml)
+- 2026-06-29 19:36 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/555829.shtml)
+- 2026-06-29 19:36 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/88621.shtml)
+- 2026-06-29 19:19 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/0301342.shtml)
+- 2026-06-29 19:41 - [逃狱兄弟](https://www.blog.minike.top/Article/details/144327754182.shtml)
+- 2026-06-29 19:18 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/492723.shtml)
+- 2026-06-29 19:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/0646131999.shtml)
+- 2026-06-29 19:36 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/487685460735.shtml)
+- 2026-06-29 19:26 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.minike.top/Article/details/98027561.shtml)
+- 2026-06-29 19:35 - [V8](http://www.blog.minike.top/Article/details/845024051054.shtml)

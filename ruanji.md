@@ -1,54 +1,56 @@
-# 外交部：摩尔多瓦副总理兼外长波普绍伊访华将有利于增进中摩互信
+# 去年以来四川公安侦办经济犯罪案件6300余起 挽回损失150余亿元
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 (记者 谢雁冰)中国外交部发言人郭嘉昆21日主持例行记者会。有记者就摩尔多瓦副总理兼外长波普绍伊将访华提问。 郭嘉昆：中国和摩尔多瓦是传统友好伙伴。近年来，中摩友好合作关系稳定发展，两国各领域合作扎实推进。我们相信，波普绍伊副总理兼外长对中国的正式访问将有利于增进中摩的互信与合作。(完)
+中新网成都5月13日电 (单鹏)四川省政府新闻办13日在成都举行新闻发布会，介绍四川省公安经侦部门打击防范经济犯罪工作成效。四川省公安厅经侦总队总队长张荣洪在发布会上表示，2025年以来，全省公安机关共侦办各类经济犯罪案件6300余起，抓获犯罪嫌疑人1万余名，挽回经济损失150余亿元。 一年多来，四川公安机关全力严惩经济犯罪，深化“云端”打击模式，严打利用离岸公司、地下钱庄向境
 
 ## 正文
 
-中新网北京5月21日电 (记者 谢雁冰)中国外交部发言人郭嘉昆21日主持例行记者会。
+中新网成都5月13日电 (单鹏)四川省政府新闻办13日在成都举行新闻发布会，介绍四川省公安经侦部门打击防范经济犯罪工作成效。
 
-有记者就摩尔多瓦副总理兼外长波普绍伊将访华提问。
+四川省公安厅经侦总队总队长张荣洪在发布会上表示，2025年以来，全省公安机关共侦办各类经济犯罪案件6300余起，抓获犯罪嫌疑人1万余名，挽回经济损失150余亿元。
 
-郭嘉昆：中国和摩尔多瓦是传统友好伙伴。
+一年多来，四川公安机关全力严惩经济犯罪，深化“云端”打击模式，严打利用离岸公司、地下钱庄向境外转移赃款犯罪，破获大要案件125起，斩断一批跨境非法资金通道；紧盯非法集资、网络传销违法犯罪，立案280余起，摧毁一批职业犯罪团伙，维护群众财产安全。
 
-近年来，中摩友好合作关系稳定发展，两国各领域合作扎实推进。
+在重点行业领域整治方面，四川公安机关联合金融监管部门，严打贷款诈骗、非法中介、保险诈骗等金融领域违法乱象，立案370余起，切实保护金融消费者权益。
 
-我们相信，波普绍伊副总理兼外长对中国的正式访问将有利于增进中摩的互信与合作。
+同时精准发力多个细分领域开展靶向整治，毁假币、假发票印制窝点35个、破获案件56起；持续打击涉税犯罪，立案200余起；严打证券犯罪，立案21起；快侦快破合同诈骗、职务侵占等商贸领域犯罪3000余起。
 
-(完)
+在严打犯罪的基础上，四川公安机关持续完善经济犯罪综合治理体系，推动经济领域风险高效能治理。
+
+在风险防控层面，强化前端防治，健全经济领域风险动态监测预警机制，紧盯全省经济产业支柱和易滋生风险的重点领域，排查苗头性、隐蔽性风险隐患1900余条；在普法宣传层面，广泛普及经济犯罪防范知识，全省累计现场接受群众咨询6.2万余人次，推送安全防范信息150余万条。
+
+此外，四川公安机关立足便民利企服务导向，全力优化营商环境，精准落实多项护企安商举措，助力民营经济高质量发展。
 
 ## 相关推荐
 
-- 2026-06-29 19:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 19:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 19:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 19:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 19:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 19:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 19:11 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 19:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 19:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 19:08 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 19:35 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 19:20 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 19:31 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 19:32 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 19:30 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 19:21 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 19:23 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 19:37 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 19:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 19:31 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 19:38 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 19:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/16695.shtml)
-- 2026-06-29 19:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/89111671.shtml)
-- 2026-06-29 19:20 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/325030.shtml)
-- 2026-06-29 19:08 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/380593.shtml)
-- 2026-06-29 19:13 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/07469151.shtml)
-- 2026-06-29 19:13 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/34129107.shtml)
-- 2026-06-29 19:23 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/816867327197.shtml)
-- 2026-06-29 19:09 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/02307366432.shtml)
-- 2026-06-29 19:11 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/486790149.shtml)
-- 2026-06-29 19:12 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/9090363.shtml)
-- 2026-06-29 19:25 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/80235692.shtml)
-- 2026-06-29 19:17 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/280442.shtml)
-- 2026-06-29 19:18 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/6322516274.shtml)
-- 2026-06-29 19:27 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/1609957.shtml)
-- 2026-06-29 19:25 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/1645990895.shtml)
+- 2026-06-29 19:18 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/90861434.shtml)
+- 2026-06-29 19:17 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/067134.shtml)
+- 2026-06-29 19:36 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/4149088.shtml)
+- 2026-06-29 19:27 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/71873166987.shtml)
+- 2026-06-29 19:15 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/204547546503.shtml)
+- 2026-06-29 19:21 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/662992.shtml)
+- 2026-06-29 19:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/21148946.shtml)
+- 2026-06-29 19:14 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/469257.shtml)
+- 2026-06-29 19:24 - [毒液2](http://www.blog.kurohicncr.top/Article/details/934312.shtml)
+- 2026-06-29 19:28 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/86055484562.shtml)
+- 2026-06-29 19:28 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/624605273.shtml)
+- 2026-06-29 19:37 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/04971091091.shtml)
+- 2026-06-29 19:35 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/3028525118.shtml)
+- 2026-06-29 19:33 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/58583800942.shtml)
+- 2026-06-29 19:34 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/855774.shtml)

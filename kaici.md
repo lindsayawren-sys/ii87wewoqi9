@@ -1,60 +1,58 @@
-# 老虎、富途被立案调查！全面整治境外机构非法展业
+# 德国航运企业Hapag-Lloyd：对中东动荡导致成本上升表示担忧
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据中国证监会5月22日发布的消息，中国证监会等八部门近日联合印发《综合整治非法跨境证券期货基金经营活动实施方案》（下称“方案”）。方案总体要求经过2年集中整治，全面取缔境外证券期货基金经营机构（下称“境外机构”）非法跨境经营活动，实现“坚决取缔非法、稳妥清理
+德国航运企业Hapag-Lloyd维持了未来一年的业绩指引，但同时警示，中东局势正通过扰乱其区域班轮运输网络、推高燃油价格的方式抬高运营成本。 公司表示，平均运费费率上涨预计将部分抵消上述成本增幅。 自2月底中东冲突爆发以来，Hapag-Lloyd等集装箱航运企业被迫暂停多条进出该地区的关键海运航线，并调整船舶绕行更长航线，以避开战乱区域。 该公司公布，第一季度息税折旧摊销前利
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+德国航运企业Hapag-Lloyd维持了未来一年的业绩指引，但同时警示，中东局势正通过扰乱其区域班轮运输网络、推高燃油价格的方式抬高运营成本。
 
-据中国证监会5月22日发布的消息，中国证监会等八部门近日联合印发《综合整治非法跨境证券期货基金经营活动实施方案》（下称“方案”）。
+公司表示，平均运费费率上涨预计将部分抵消上述成本增幅。
 
-方案总体要求经过2年集中整治，全面取缔境外证券期货基金经营机构（下称“境外机构”）非法跨境经营活动，实现“坚决取缔非法、稳妥清理存量”的整治目标。
+自2月底中东冲突爆发以来，Hapag-Lloyd等集装箱航运企业被迫暂停多条进出该地区的关键海运航线，并调整船舶绕行更长航线，以避开战乱区域。
 
-与此同时，证监会近日依法对Tiger Brokers（NZ）Limited（下称“老虎”）、富途证券国际（香港）有限公司（下称“富途”）、长桥证券（香港）有限公司（下称“长桥”）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
+该公司公布，第一季度息税折旧摊销前利润为4.22亿欧元（折合4.955亿美元），上年同期为10.5亿欧元；营收同比下滑17%，至42亿欧元。
 
-要点速览 全面取缔境外机构非法跨境经营活动 设置2年集中整治期清理非法存量业务 所有未持牌的境外机构在境内提供的开户、招揽、交易、结算等证券经纪服务，必须全部终止；相关服务如App、网站、广告宣传等，必须下架 非法跨境经营境外机构及协助其非法跨境经营的境内相关主体均纳入整治范围 禁止境外机构为存量投资者在境内非法提供买入交易、转入资金等服务，只允许单向卖出交易并转出资金 过渡期后，境外机构全面关停境内网站、交易软件及配套服务，存量投资者账户在境内将无法交易 投资者已开立的账户不会被强制注销，账户里的资金及股票、基金等资产不会被强制清理 坚决将非法跨境经营活动逐出境内市场 中国证监会有关部门负责人就方案答记者问时表示，2022年12月，中国证监会依法开展对境外机构非法跨境经营的整治工作，禁止境外机构违法招揽境内投资者及为其开立新账户。
+路孚特FactSet分析师调查预期其当期息税折旧摊销前利润为4.07亿欧元，营收39亿欧元。
 
-与前期整治工作相比，本次整治更加突出全链条治理，取缔要求覆盖营销招揽、开户、处理交易指令、资金划转等各业务环节，严禁境外机构以任何形式在境内非法提供开户和交易服务，并设置2年集中整治期清理非法存量业务，坚决将此类非法跨境经营活动逐出境内市场。
+公司首席执行官表示：“2026年第一季度业绩不尽如人意，受天气引发的供应链中断以及运费费率承压影响，公司业绩大幅下滑。
 
-根据方案，非法跨境经营境外机构及协助其非法跨境经营的境内相关主体均纳入整治范围。
-
-关于此次整治的具体要求，上述负责人具体提到四方面内容： 一是禁止境外机构在境内非法开展证券期货基金业务相关营销招揽活动，包括在境内运营网站及交易软件、发布营销信息、推送投资资讯、开展返利营销活动、宣传推介和诱导认购境外股票等。
+”责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 19:11 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 19:17 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 19:06 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 19:23 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 19:19 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 19:33 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 19:16 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 19:17 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 19:19 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 19:34 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 19:11 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 19:10 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 19:06 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 19:40 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 19:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 19:18 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 19:37 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 19:39 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 19:35 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 19:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 19:40 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 19:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 19:33 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-29 19:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 19:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 19:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 19:22 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [蔚来回应车漆洗车时被冲掉](https://www.share.minike.top/Article/details/22382713904.shtml)
-- 2026-06-29 19:32 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/439057.shtml)
-- 2026-06-29 19:17 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/87980748270.shtml)
-- 2026-06-29 19:27 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/8634557.shtml)
-- 2026-06-29 19:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/3478326.shtml)
-- 2026-06-29 19:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/725728.shtml)
-- 2026-06-29 19:16 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/63042319.shtml)
-- 2026-06-29 19:30 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/2558631.shtml)
-- 2026-06-29 19:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/98988208.shtml)
-- 2026-06-29 19:09 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/5616363.shtml)
-- 2026-06-29 19:35 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/75053248170.shtml)
-- 2026-06-29 19:35 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/874940.shtml)
-- 2026-06-29 19:07 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/55163289.shtml)
-- 2026-06-29 19:16 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/84988.shtml)
-- 2026-06-29 19:23 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/416314.shtml)
+- 2026-06-29 19:17 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/67380.shtml)
+- 2026-06-29 19:35 - [极限挑战第一季](https://www.share.minike.top/Article/details/4255586.shtml)
+- 2026-06-29 19:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/43720467364.shtml)
+- 2026-06-29 19:30 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/49338.shtml)
+- 2026-06-29 19:23 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/84786628.shtml)
+- 2026-06-29 19:38 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/25563195.shtml)
+- 2026-06-29 19:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/624860.shtml)
+- 2026-06-29 19:33 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/2999303790.shtml)
+- 2026-06-29 19:12 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/24625.shtml)
+- 2026-06-29 19:16 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/674119.shtml)
+- 2026-06-29 19:24 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/7041736.shtml)
+- 2026-06-29 19:22 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/39181241.shtml)
+- 2026-06-29 19:32 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/57558.shtml)
+- 2026-06-29 19:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/6770851841.shtml)
+- 2026-06-29 19:32 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/2942233904.shtml)

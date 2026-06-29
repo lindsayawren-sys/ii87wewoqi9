@@ -1,59 +1,56 @@
-# 国家发改委：预计异常气候不会对夏粮产量产生较大影响
+# 花生：油料方面控制成本 观望农忙后基层上货情况
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-中新网5月22日电 国家发展改革委22日召开5月份新闻发布会。国家发展改革委政策研究室副主任、新闻发言人李超在会上表示，预计异常气候不会对夏粮产量产生较大影响。 会上有记者问：夏收工作已经陆续开始。今年的厄尔尼诺现象，对夏粮生产是否会有影响？夏粮收购如何保障农民“卖得出、卖好价”？ 李超表示，夏粮是全年粮食生产的第一季，产量大概占全年粮食总产量的20%，直接关系全年粮食生产大局
+卓创资讯花生市场分析师严琳 【导语】进入5月后气温逐步升高，局部农户播种花生中，基层整体上货有限。油厂控制成本，商品米市场补库积极性不高，预计五月中下旬价格货维持偏弱调整。 五一后花生价格偏弱运行 进入5月后，花生现货价格重心偏弱运行。部分鲁花分厂停收，部分到货量较多的油厂价格持续下调，产地心态受到影响。下游批发市场采购相对谨慎，五一节日过后少量逢低补库为主，出货速度整体偏慢，
 
 ## 正文
 
-中新网5月22日电 国家发展改革委22日召开5月份新闻发布会。
+卓创资讯花生市场分析师严琳 【导语】进入5月后气温逐步升高，局部农户播种花生中，基层整体上货有限。
 
-国家发展改革委政策研究室副主任、新闻发言人李超在会上表示，预计异常气候不会对夏粮产量产生较大影响。
+油厂控制成本，商品米市场补库积极性不高，预计五月中下旬价格货维持偏弱调整。
 
-会上有记者问：夏收工作已经陆续开始。
+五一后花生价格偏弱运行 进入5月后，花生现货价格重心偏弱运行。
 
-今年的厄尔尼诺现象，对夏粮生产是否会有影响？
+部分鲁花分厂停收，部分到货量较多的油厂价格持续下调，产地心态受到影响。
 
-夏粮收购如何保障农民“卖得出、卖好价”？
+下游批发市场采购相对谨慎，五一节日过后少量逢低补库为主，出货速度整体偏慢，高价多观望。
 
-李超表示，夏粮是全年粮食生产的第一季，产量大概占全年粮食总产量的20%，直接关系全年粮食生产大局稳定。
+不过目前虽然气温陆续回升，基层原料整体上货有限。
 
-从生产情况看，占夏粮产量90%左右的冬小麦，长势与常年基本持平，夏粮丰产丰收基础较为稳固。
+河南大杂产区农户普遍农忙出大蒜，白沙产区基层原料不多。
 
-从异常气候影响方面看，根据国家气候中心监测，当前厄尔尼诺现象仍处在发展初期，冬小麦灌浆期已基本结束，也就是说产量已经大体形成，预计异常气候不会对夏粮产量产生较大影响。
+东北地区农户播种花生中，上货持续维持低位。
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 19:29 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 19:19 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 19:32 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 19:31 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 19:12 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 19:11 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 19:14 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 19:16 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 19:18 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 19:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 19:14 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 19:16 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 19:20 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 19:16 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 19:28 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 19:27 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 19:15 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 19:40 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 19:14 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 19:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 19:25 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 19:20 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [周杰伦演唱会含星量](https://www.share.kurohicncr.top/Article/details/9260172948.shtml)
-- 2026-06-29 19:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/726819088414.shtml)
-- 2026-06-29 19:07 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/72487.shtml)
-- 2026-06-29 19:25 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/801005891.shtml)
-- 2026-06-29 19:28 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/353195737247.shtml)
-- 2026-06-29 19:24 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/17279091.shtml)
-- 2026-06-29 19:11 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/70008.shtml)
-- 2026-06-29 19:22 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/5096337.shtml)
-- 2026-06-29 19:24 - [金刚川](https://www.share.kurohicncr.top/Article/details/8796698282.shtml)
-- 2026-06-29 19:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/69928264.shtml)
-- 2026-06-29 19:33 - [时光音乐会](https://www.blog.minike.top/Article/details/884054250463.shtml)
-- 2026-06-29 19:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/3612998.shtml)
-- 2026-06-29 19:19 - [周生如故](http://www.blog.kurohicncr.top/Article/details/63912.shtml)
-- 2026-06-29 19:07 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/7426024070.shtml)
-- 2026-06-29 19:24 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/802704245.shtml)
+- 2026-06-29 19:14 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/68430.shtml)
+- 2026-06-29 19:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/519398.shtml)
+- 2026-06-29 19:13 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/842812372.shtml)
+- 2026-06-29 19:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/798492119589.shtml)
+- 2026-06-29 19:30 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/44842601428.shtml)
+- 2026-06-29 19:35 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/62192.shtml)
+- 2026-06-29 19:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/263173.shtml)
+- 2026-06-29 19:24 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/97726323.shtml)
+- 2026-06-29 19:39 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/38194774.shtml)
+- 2026-06-29 19:18 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/052032.shtml)
+- 2026-06-29 19:16 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/511425132391.shtml)
+- 2026-06-29 19:33 - [外交部谈对日出口管制措施](https://www.share.kurohicncr.top/Article/details/43140.shtml)
+- 2026-06-29 19:32 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/010649880.shtml)
+- 2026-06-29 19:12 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/3341514.shtml)
+- 2026-06-29 19:14 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/39684101.shtml)

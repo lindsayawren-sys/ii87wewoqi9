@@ -1,59 +1,59 @@
-# 大理医博会聚焦AI医疗 共探南亚东南亚合作新机遇
+# 金融时报：特朗普失去随心所欲挥舞关税大棒的能力
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-中新网云南大理5月21日电 (记者 韩帅南)21日，正在云南省大理州弥渡县举行的2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会(下称“大理医博会”)上，AI医疗成为关注焦点。现场展示了AI在医疗领域的应用成果，多位专家学者也就AI如何赋能医疗健康产业展开探讨，共商南亚东南亚医疗领域合作新机遇。 本届大理医博会以“新机遇、新动能、新合作、新标准·共建
+当特朗普今年1月为争夺格陵兰岛威胁对北约盟友提高关税时，伦敦感到不安，欧盟召开紧急会议，数千人在丹麦街头抗议。然而三个月后，当他宣布对向伊朗出售武器的国家征收50%的关税且“无例外无豁免”时，这一威胁很快被外界抛诸脑后。 这一巨大反差，源于美国最高法院的一纸判决。 司法重击：紧急权力法案不再“万能” 今年2月，最高法院以6比3裁定，特朗普依据1977年《国际紧急经济权力法》征收
 
 ## 正文
 
-中新网云南大理5月21日电 (记者 韩帅南)21日，正在云南省大理州弥渡县举行的2026年第二届大理医疗器械产业博览会暨南亚东南亚国际医疗产业合作交流推介会(下称“大理医博会”)上，AI医疗成为关注焦点。
+当特朗普今年1月为争夺格陵兰岛威胁对北约盟友提高关税时，伦敦感到不安，欧盟召开紧急会议，数千人在丹麦街头抗议。
 
-现场展示了AI在医疗领域的应用成果，多位专家学者也就AI如何赋能医疗健康产业展开探讨，共商南亚东南亚医疗领域合作新机遇。
+然而三个月后，当他宣布对向伊朗出售武器的国家征收50%的关税且“无例外无豁免”时，这一威胁很快被外界抛诸脑后。
 
-本届大理医博会以“新机遇、新动能、新合作、新标准·共建健康丝绸之路，推动医疗健康产业高质量发展”为主题，共有169家中外企业参展，还邀请到缅甸、泰国、孟加拉国、柬埔寨等9个国家的官方代表团、企业、商协会和医疗机构参会。
+这一巨大反差，源于美国最高法院的一纸判决。
 
-在医疗器械展区，来自深圳的一家企业此次带来了医院医保AI智能审核机器人及医院智慧服务整体解决方案的展示，该企业已是第二次参展大理医博会。
+司法重击：紧急权力法案不再“万能” 今年2月，最高法院以6比3裁定，特朗普依据1977年《国际紧急经济权力法》征收的一揽子全球关税越过了总统权限，其法律依据“自始无效”。
 
-该企业代表黄祎表示，AI正成为医疗服务升级的核心引擎。
+这一裁决从根本上动摇了特朗普最得心应手的贸易武器——那种“周五威胁、周一实施”的瞬时施压能力。
 
-他介绍，该企业研发的智能导诊系统，通过分析医院历史就诊数据实现精准分诊，减少患者无效排队。
+对特朗普而言，关税远不止是经济工具。
 
-企业未来的新产品都将全面融入AI技术。
+它既是迎合民粹情绪的“政治提款机”，又是填补财政窟窿的“补血袋”，更是外交施压的“万能筹码”。
 
-“我们看中了大理弥渡的区位优势，希望能借助此次大理医博会开拓南亚东南亚市场。
+他自称“关税侠”，相信进口税能重振美国制造业、平衡经济、增加财政收入。
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 19:21 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 19:32 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 19:27 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 19:08 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 19:17 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 19:19 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 19:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 19:10 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 19:08 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 19:18 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 19:12 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 19:35 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 19:30 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 19:17 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 19:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 19:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 19:19 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 19:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 19:36 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 19:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 19:31 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 19:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 19:23 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 19:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 19:38 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/744958.shtml)
-- 2026-06-29 19:34 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/31933479.shtml)
-- 2026-06-29 19:31 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/66491123769.shtml)
-- 2026-06-29 19:07 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/8295618483.shtml)
-- 2026-06-29 19:09 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/25290748713.shtml)
-- 2026-06-29 19:29 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/26189407.shtml)
-- 2026-06-29 19:13 - [沉睡花园](https://www.share.minike.top/Article/details/76813.shtml)
-- 2026-06-29 19:31 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/22883788226.shtml)
-- 2026-06-29 19:22 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/789109539.shtml)
-- 2026-06-29 19:06 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/06419876.shtml)
-- 2026-06-29 19:09 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/7585198905.shtml)
-- 2026-06-29 19:30 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/52729209.shtml)
-- 2026-06-29 19:16 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/790180.shtml)
-- 2026-06-29 19:14 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/4194302.shtml)
-- 2026-06-29 19:14 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/731492223.shtml)
+- 2026-06-29 19:12 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/7246402.shtml)
+- 2026-06-29 19:32 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/6422740.shtml)
+- 2026-06-29 19:29 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/52374746.shtml)
+- 2026-06-29 19:40 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/66041.shtml)
+- 2026-06-29 19:24 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/21352477635.shtml)
+- 2026-06-29 19:40 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/2379267.shtml)
+- 2026-06-29 19:19 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/4366759610.shtml)
+- 2026-06-29 19:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/5713638.shtml)
+- 2026-06-29 19:40 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/773897376361.shtml)
+- 2026-06-29 19:23 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/51280962681.shtml)
+- 2026-06-29 19:39 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/264413.shtml)
+- 2026-06-29 19:39 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/83752249.shtml)
+- 2026-06-29 19:15 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/4657787.shtml)
+- 2026-06-29 19:18 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/58772966993.shtml)
+- 2026-06-29 19:27 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/066431306016.shtml)

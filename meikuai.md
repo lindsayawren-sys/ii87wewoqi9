@@ -1,59 +1,59 @@
-# 曹操出行将以香港为桥头堡拓展全球Robotaxi右舵市场，盘中一度涨逾10%
+# 市场监管总局：开展破除妨碍统一市场和公平竞争卡点堵点专项行动
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 5月21日下午消息，今日，曹操出行股价表现强势，早间盘中一度涨超10%，截至收盘涨3.25%，报每股24.16港元，涨幅居港股出行板块前列。 消息面上，吉利控股集团高级副总裁杨学良在2026香港车博会新闻发布会上透露，曹操出行将在香港车博会上重点展出中国首款原生开发Robotaxi原型车，并计划
+中新网北京5月13日电(记者 左雨晴) 记者5月13日在市场监管总局专题新闻发布会上获悉，近期，市场监管总局部署全系统开展破除妨碍统一市场和公平竞争卡点堵点专项行动。 市场监管总局竞争协调司司长汪世忠介绍，专项行动的主要目标可概括为“四个一批”，即到年底，依法查办一批重大案件，推动废除和修改一批妨碍全国统一市场和公平竞争的政策措施，公开曝光一批典型案例，加快出台一批制度机制，推
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京5月13日电(记者 左雨晴) 记者5月13日在市场监管总局专题新闻发布会上获悉，近期，市场监管总局部署全系统开展破除妨碍统一市场和公平竞争卡点堵点专项行动。
 
-新浪科技讯 5月21日下午消息，今日，曹操出行股价表现强势，早间盘中一度涨超10%，截至收盘涨3.25%，报每股24.16港元，涨幅居港股出行板块前列。
+市场监管总局竞争协调司司长汪世忠介绍，专项行动的主要目标可概括为“四个一批”，即到年底，依法查办一批重大案件，推动废除和修改一批妨碍全国统一市场和公平竞争的政策措施，公开曝光一批典型案例，加快出台一批制度机制，推动公平竞争、质量标准等市场基础制度更加科学完备，地方政府经济促进行为更加规范有序，市场监管执法更加公平公正，市场环境更加透明可预期。
 
-消息面上，吉利控股集团高级副总裁杨学良在2026香港车博会新闻发布会上透露，曹操出行将在香港车博会上重点展出中国首款原生开发Robotaxi原型车，并计划在香港布局Robotaxi业务，以香港作为拓展全球右舵市场的战略桥头堡。
+具体举措以强化公平竞争审查和滥用行政权力排除、限制竞争执法为牵引，深化信用、竞争、质量、计量、标准、认证、检验检测等市场监管要素综合治理。
 
-据了解，该原型车融合了曹操出行在定制车研发与十年出行运营的经验积累，代表吉利控股集团在Robotaxi商业化方向的最新探索。
+汪世忠表示，此次专项行动中，将重点聚焦妨碍企业公平准入与自主经营、限制商品要素自由流动、资质认定内外有别、不当实施信用评价设置招投标隐性壁垒等卡点堵点，从加强滥用行政权力排除、限制竞争执法与落实公平竞争审查制度两个维度系统推进。
 
-按照规划，曹操出行深度定制版Robotaxi将于2027年量产，到2030年累计投放10万辆。
+为破除妨碍统一市场和公平竞争卡点堵点，市场监管总局积极推进重点领域法律法规的制修订。
 
-市场人士表示，香港不仅是国际金融中心，也是连接东南亚、中东等右舵市场的重要窗口。
+2025年，市场监管总局推动修订出台《反不正当竞争法》，完善新型、典型不正当竞争行为的认定规则，加强对“内卷式”竞争的规制。
 
-若Robotaxi业务率先在香港实现商业化落地，将为曹操出行后续全球化拓展打开空间。
+制定出台《公平竞争审查条例实施办法》，对政府部门滥用行政权力出台排除限制竞争政策的行为进一步予以规制。
 
-作为吉利控股集团Robotaxi最重要的商业化载体，曹操出行已形成“智能定制车+智能驾驶技术+智能运营”三位一体的Robotaxi全要素闭环生态系统。
+目前，市场监管总局正在积极推动《价格法》《计量法》《认证认可条例》《工业产品生产许可证管理条例》的修订，通过完善反垄断、反不正当竞争、价格、标准、质量监管等领域的法律法规，为纵深推进全国统一大市场建设提供法律支撑。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 19:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 19:21 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 19:23 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 19:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 19:34 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 19:19 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 19:32 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 19:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 19:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 19:18 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 19:25 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 19:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 19:16 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 19:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 19:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 19:16 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 19:16 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 19:36 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 19:14 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 19:13 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:23 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 19:12 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 19:12 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 19:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 19:26 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/17724989375.shtml)
-- 2026-06-29 19:32 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/181254977.shtml)
-- 2026-06-29 19:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/18462.shtml)
-- 2026-06-29 19:28 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/875535591667.shtml)
-- 2026-06-29 19:24 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/55609323.shtml)
-- 2026-06-29 19:20 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/37063.shtml)
-- 2026-06-29 19:22 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/79446.shtml)
-- 2026-06-29 19:27 - [极限挑战第一季](http://www.blog.minike.top/Article/details/345894.shtml)
-- 2026-06-29 19:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/0739388.shtml)
-- 2026-06-29 19:28 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/69343322783.shtml)
-- 2026-06-29 19:24 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/222718075618.shtml)
-- 2026-06-29 19:12 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/782421812659.shtml)
-- 2026-06-29 19:18 - [啊啊啊](https://www.blog.minike.top/Article/details/85693.shtml)
-- 2026-06-29 19:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/662851373.shtml)
-- 2026-06-29 19:10 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/16301.shtml)
+- 2026-06-29 19:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0599295501.shtml)
+- 2026-06-29 19:35 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/741532451314.shtml)
+- 2026-06-29 19:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/034755903707.shtml)
+- 2026-06-29 19:29 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/02261265542.shtml)
+- 2026-06-29 19:26 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/694668080991.shtml)
+- 2026-06-29 19:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/562630327.shtml)
+- 2026-06-29 19:24 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/35064011.shtml)
+- 2026-06-29 19:18 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/284796973927.shtml)
+- 2026-06-29 19:28 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/65557.shtml)
+- 2026-06-29 19:38 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/5496067526.shtml)
+- 2026-06-29 19:19 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/10256032.shtml)
+- 2026-06-29 19:41 - [千与千寻](http://www.share.kurohicncr.top/Article/details/5393531.shtml)
+- 2026-06-29 19:29 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/19765.shtml)
+- 2026-06-29 19:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/18851314625.shtml)
+- 2026-06-29 19:34 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/961979783119.shtml)

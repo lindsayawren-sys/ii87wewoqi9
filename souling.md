@@ -1,54 +1,57 @@
-# 原安徽省民族事务委员会党组成员、副主任邵郁被开除党籍
+# CPI料创三年新高！大摩警告数据会“更劲爆”，通胀不是短暂恐慌
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-中新网合肥5月22日电 日前，经中共安徽省委批准，安徽省纪委监委对原安徽省民族事务委员会党组成员、副主任邵郁严重违纪违法问题进行了立案审查调查。 经查，邵郁丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排，违规借用管理和服务对象车辆；违背组织原则，在组织函询时不如实说明问题；廉
+大摩全球宏观策略主管用“更劲爆”来形容本周即将公布的通胀数据。同时，运输和仓储价格持续上涨，表明价格冲击正在蔓延到能源行业之外。美银利率策略主管指出，市场低估了加息风险。 摩根士丹利全球宏观策略主管马特·霍恩巴赫（Matt Hornbach）表示，美国周二公布的消费者价格指数（CPI）报告将是一组“更劲爆”的数据。这是本周一系列通胀数据中的第一组，这些数据将共同纳入美联储偏爱的
 
 ## 正文
 
-中新网合肥5月22日电 日前，经中共安徽省委批准，安徽省纪委监委对原安徽省民族事务委员会党组成员、副主任邵郁严重违纪违法问题进行了立案审查调查。
+大摩全球宏观策略主管用“更劲爆”来形容本周即将公布的通胀数据。
 
-经查，邵郁丧失理想信念，背弃初心使命，对党不忠诚、不老实，对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排，违规借用管理和服务对象车辆；违背组织原则，在组织函询时不如实说明问题；廉洁底线失守，将本人费用交由他人支付；利用职务便利为他人在项目承揽、融资贷款等方面谋利，并非法收受巨额财物。
+同时，运输和仓储价格持续上涨，表明价格冲击正在蔓延到能源行业之外。
 
-邵郁严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+美银利率策略主管指出，市场低估了加息风险。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予邵郁开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+摩根士丹利全球宏观策略主管马特·霍恩巴赫（Matt Hornbach）表示，美国周二公布的消费者价格指数（CPI）报告将是一组“更劲爆”的数据。
 
-(完)
+这是本周一系列通胀数据中的第一组，这些数据将共同纳入美联储偏爱的通胀衡量指标。
+
+霍恩巴赫周一表示：“最终重要的是，我们本周得到的这组通胀数据将如何共同构成PCE（个人消费支出价格指数）通胀预测。
+
+我们有CPI、PPI（生产者价格指数）、进口价格。
+
+这三者都以各自的方式影响最终得到的PCE数据，而这对美联储来说当然是重要的指标。
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 19:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 19:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 19:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 19:13 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 19:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 19:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 19:09 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 19:18 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 19:34 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 19:20 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 19:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 19:31 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 19:14 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 19:29 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 19:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 19:15 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 19:34 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 19:16 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 19:12 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 19:31 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 19:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 19:19 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 19:28 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 19:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/42749.shtml)
-- 2026-06-29 19:31 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/22529657.shtml)
-- 2026-06-29 19:23 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/702988283749.shtml)
-- 2026-06-29 19:12 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/88166.shtml)
-- 2026-06-29 19:28 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/81007.shtml)
-- 2026-06-29 19:11 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/3486336129.shtml)
-- 2026-06-29 19:25 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/3212963.shtml)
-- 2026-06-29 19:27 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/205447088.shtml)
-- 2026-06-29 19:30 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/50889.shtml)
-- 2026-06-29 19:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/80809.shtml)
-- 2026-06-29 19:25 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/86846308673.shtml)
-- 2026-06-29 19:33 - [逆天祖国人](http://www.share.minike.top/Article/details/08848895691.shtml)
-- 2026-06-29 19:07 - [周生如故](http://www.share.minike.top/Article/details/96339.shtml)
-- 2026-06-29 19:06 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/692210.shtml)
-- 2026-06-29 19:20 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/5649743014.shtml)
+- 2026-06-29 19:26 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/20135.shtml)
+- 2026-06-29 19:15 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/25084443931.shtml)
+- 2026-06-29 19:19 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/063286401.shtml)
+- 2026-06-29 19:12 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/717160758.shtml)
+- 2026-06-29 19:25 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/2442260.shtml)
+- 2026-06-29 19:39 - [AG 宫斗](https://www.share.minike.top/Article/details/591613013783.shtml)
+- 2026-06-29 19:28 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/1588568260.shtml)
+- 2026-06-29 19:39 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/5128873.shtml)
+- 2026-06-29 19:16 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/89271490.shtml)
+- 2026-06-29 19:36 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/832183935367.shtml)
+- 2026-06-29 19:16 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/879376652.shtml)
+- 2026-06-29 19:27 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/30808956.shtml)
+- 2026-06-29 19:14 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/2955447554.shtml)
+- 2026-06-29 19:35 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/47018.shtml)
+- 2026-06-29 19:14 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/191438.shtml)

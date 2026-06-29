@@ -1,57 +1,57 @@
-# Spotify股价因AI音乐协议和业绩指引公告而大涨
+# 算电协同持续发力+AI用电需求激增，电力ETF华宝（159146）逆市涨逾1%，大唐发电五连板！
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-Spotify股价周四跳涨15%，此前这家音乐流媒体平台发布了2030年业绩指引，并与环球音乐达成了一项人工智能协议。目前，该技术正引发整个行业对重大颠覆的担忧。 该公司预计，其营收的年复合增长率将达到10%以上（中双位数），毛利率在35%至40%之间。Spotify将实现10亿订阅用户和1000亿美元营收的计划称为其“北极星”目标。 联合首席执行官Gustav Söderst
+5月12日，截至11时17分，电力板块表现强劲，中证全指电力公用事业指数上涨1.32%，成份股方面，大唐发电、太阳能、晋控电力涨停，其中大唐发电斩获五连板！热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内价格上涨1.16%，成交额达1928.92万元。 政策面上，据财联社，国家能源局等四部门近日联合印发《关于促进人工智能与能源双向赋能的行动方案》，首
 
 ## 正文
 
-Spotify股价周四跳涨15%，此前这家音乐流媒体平台发布了2030年业绩指引，并与环球音乐达成了一项人工智能协议。
+5月12日，截至11时17分，电力板块表现强劲，中证全指电力公用事业指数上涨1.32%，成份股方面，大唐发电、太阳能、晋控电力涨停，其中大唐发电斩获五连板！
 
-目前，该技术正引发整个行业对重大颠覆的担忧。
+热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内价格上涨1.16%，成交额达1928.92万元。
 
-该公司预计，其营收的年复合增长率将达到10%以上（中双位数），毛利率在35%至40%之间。
+政策面上，据财联社，国家能源局等四部门近日联合印发《关于促进人工智能与能源双向赋能的行动方案》，首次确立“算电协同”顶层范式，明确探索核电、氢能等能源直连算力设施供能，并将绿电使用占比作为算力设施项目布局核心参考指标。
 
-Spotify将实现10亿订阅用户和1000亿美元营收的计划称为其“北极星”目标。
+中信建投认为，政策与资金双轮驱动下，电力板块估值处于历史低位，建议关注优质标的。
 
-联合首席执行官Gustav Söderström在该公司自2022年以来的首次投资者日上对CNBC的Julia Boorstin表示：“我们仍在全速前进。
+此外，AI需求端，大摩表示，受Token需求飙升350%的推动，超大规模云服务商（Hyperscalers）的2026年资本支出预测从4500亿美元大幅上调至8000亿美元。
 
-我们看到免费用户和订阅用户都实现了强劲增长。
+大摩预计数据中心将面临55GW的电力缺口。
 
-”责任编辑：张俊 SF065
+AI参与者正越来越多地收购“离网”解决方案。
+
+电力可用性已成为收紧能源基础设施融资的决定性因素。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 19:17 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 19:26 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 19:11 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 19:24 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 19:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 19:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 19:15 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 19:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 19:35 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 19:30 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 19:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 19:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 19:38 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 19:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 19:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 19:16 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 19:40 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 19:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 19:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 19:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 19:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 19:31 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 19:17 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:08 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/726682317.shtml)
-- 2026-06-29 19:30 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/859081907688.shtml)
-- 2026-06-29 19:17 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/769056.shtml)
-- 2026-06-29 19:35 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/26506.shtml)
-- 2026-06-29 19:20 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/029426.shtml)
-- 2026-06-29 19:13 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/21644445980.shtml)
-- 2026-06-29 19:20 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/898778950428.shtml)
-- 2026-06-29 19:08 - [当我回母校教书](https://www.blog.minike.top/Article/details/516532.shtml)
-- 2026-06-29 19:14 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/9504939.shtml)
-- 2026-06-29 19:09 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/389763.shtml)
-- 2026-06-29 19:32 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/5784824.shtml)
-- 2026-06-29 19:23 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/89163800244.shtml)
-- 2026-06-29 19:35 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/29659836.shtml)
-- 2026-06-29 19:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/27615.shtml)
-- 2026-06-29 19:17 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/2146672326.shtml)
+- 2026-06-29 19:13 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/7897589.shtml)
+- 2026-06-29 19:24 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/7462604.shtml)
+- 2026-06-29 19:26 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/5122115.shtml)
+- 2026-06-29 19:30 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/91270.shtml)
+- 2026-06-29 19:35 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/27629.shtml)
+- 2026-06-29 19:17 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/59314.shtml)
+- 2026-06-29 19:39 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/37756911863.shtml)
+- 2026-06-29 19:40 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/2122798.shtml)
+- 2026-06-29 19:36 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/2140555599.shtml)
+- 2026-06-29 19:16 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/687710186.shtml)
+- 2026-06-29 19:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/30771.shtml)
+- 2026-06-29 19:37 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/03158983935.shtml)
+- 2026-06-29 19:40 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/036011.shtml)
+- 2026-06-29 19:25 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/3430269.shtml)
+- 2026-06-29 19:30 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/969931337.shtml)

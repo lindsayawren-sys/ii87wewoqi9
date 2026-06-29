@@ -1,61 +1,59 @@
-# 数据中心合同催化 Jefferies上调Generac评级至买入 股价涨逾3%
+# 光大期货0513黄金点评：通胀粘性抑制降息预期，黄金上有阻力下有支撑
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-Jefferies于5月21日将发电设备制造商Generac的股票评级从持有上调至买入，并将目标股价从239美元大幅上调至302美元。受此消息提振，Generac股价当日上涨逾3%。 Jefferies在研报中指出，数据中心建设将成为推动Generac股价上涨的重要催化剂，且这一利好因素尚未被市场充分定价。分析师认为，公司在数据中心备用电源合同转化方面拥有多次得分机会，预计今年
+隔夜，外盘COMEX黄金走势震荡加剧，短线呈现先抑后扬的“V”型反转形态，市场多空博弈激烈。 宏观面，美国4月CPI同比上涨3.8%，高于市场预期的3.7%，创下2023年5月以来最高纪录；核心CPI同比上涨2.8%，同样超出预期的2.7%，并创2025年9月以来最高水平。通胀数据的超预期表现，反映出物价压力依然顽固。美伊冲突正通过能源价格、机票及运输成本向整体价格体系传导，进
 
 ## 正文
 
-Jefferies于5月21日将发电设备制造商Generac的股票评级从持有上调至买入，并将目标股价从239美元大幅上调至302美元。
+隔夜，外盘COMEX黄金走势震荡加剧，短线呈现先抑后扬的“V”型反转形态，市场多空博弈激烈。
 
-受此消息提振，Generac股价当日上涨逾3%。
+宏观面，美国4月CPI同比上涨3.8%，高于市场预期的3.7%，创下2023年5月以来最高纪录；核心CPI同比上涨2.8%，同样超出预期的2.7%，并创2025年9月以来最高水平。
 
-Jefferies在研报中指出，数据中心建设将成为推动Generac股价上涨的重要催化剂，且这一利好因素尚未被市场充分定价。
+通胀数据的超预期表现，反映出物价压力依然顽固。
 
-分析师认为，公司在数据中心备用电源合同转化方面拥有多次得分机会，预计今年内可能有两项重要的数据中心相关公告。
+美伊冲突正通过能源价格、机票及运输成本向整体价格体系传导，进一步强化了通胀的粘性。
 
-Jefferies特别提到，Generac的Baudouin发动机已进入超大规模云服务商的配置方案，这标志着公司产品在市场上获得了认可，且只有Generac能够有效规模化生产这一产品。
+受此影响，市场对美联储年内降息的预期继续后延，降息窗口愈发渺茫。
 
-事实上，Generac正在从传统的住宅备用发电机供应商加速转型为AI基础设施领域的关键电力设备提供商。
+理论上，高利率环境将推升持有黄金的机会成本，对金价上涨动能形成制约。
 
-公司2026年第一季度财报显示，商用与工业板块营收同比增长28%至3.85亿美元，几乎全部由数据中心备用电源订单驱动。
+地缘政治方面，美伊停火谈判陷入严重僵局。
 
-公司总订单储备已超过7亿美元，其中一家超大规模云厂商已发出6亿美元的非约束性意向函，用于2027年交付。
+伊朗方面明确表示，与美谈判的先决条件是结束战事并解除封锁；而特朗普则表态不急于解决冲突。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 19:35 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 19:11 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 19:14 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 19:09 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 19:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 19:32 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 19:10 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 19:29 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 19:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 19:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 19:28 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 19:16 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 19:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 19:34 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 19:35 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 19:15 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 19:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 19:36 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 19:40 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 19:36 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 19:24 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 19:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 19:17 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 19:23 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 19:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 19:23 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 19:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/4101539.shtml)
-- 2026-06-29 19:23 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/978956305.shtml)
-- 2026-06-29 19:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/753624625.shtml)
-- 2026-06-29 19:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/15707887439.shtml)
-- 2026-06-29 19:21 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/53190703.shtml)
-- 2026-06-29 19:08 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/085189757682.shtml)
-- 2026-06-29 19:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/4144110.shtml)
-- 2026-06-29 19:09 - [人形机器人](https://www.blog.minike.top/Article/details/48459.shtml)
-- 2026-06-29 19:26 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/512994.shtml)
-- 2026-06-29 19:32 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/17401620.shtml)
-- 2026-06-29 19:25 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/76804438898.shtml)
-- 2026-06-29 19:19 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/365973138.shtml)
-- 2026-06-29 19:29 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/225077.shtml)
-- 2026-06-29 19:33 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/6602878.shtml)
-- 2026-06-29 19:34 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/51518200834.shtml)
+- 2026-06-29 19:26 - [沙特外交大臣将访华](http://www.blog.kurohicncr.top/Article/details/01369423338.shtml)
+- 2026-06-29 19:21 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/67200.shtml)
+- 2026-06-29 19:15 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/730954472981.shtml)
+- 2026-06-29 19:23 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/409890565.shtml)
+- 2026-06-29 19:37 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/4553563.shtml)
+- 2026-06-29 19:19 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/31129942631.shtml)
+- 2026-06-29 19:41 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/391679.shtml)
+- 2026-06-29 19:19 - [TTG KSG](https://www.share.minike.top/Article/details/171802447269.shtml)
+- 2026-06-29 19:21 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/56217958943.shtml)
+- 2026-06-29 19:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/304297.shtml)
+- 2026-06-29 19:24 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/3033617225.shtml)
+- 2026-06-29 19:13 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/42297.shtml)
+- 2026-06-29 19:37 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/8580806222.shtml)
+- 2026-06-29 19:22 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.kurohicncr.top/Article/details/0235532663.shtml)
+- 2026-06-29 19:37 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/85776198017.shtml)

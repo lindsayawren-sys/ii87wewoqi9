@@ -1,57 +1,60 @@
-# 服饰服装年报|重营销侵吞利润 过半数公司净利率不足7% 美邦服饰毛利率、净利率双垫底
+# 两江海关信息化运维服务采购项目比选公告
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！截至2026年4月30日，服饰服装上市公司已完成2025年度财报的披露，对此我们挑选了具有代表性的上市公司进行业绩比对分析。在各项财务指标中，销售毛利率、销售净利率作为两项较为核心的盈利能力考核指标，倍受市场投资者关注。 2025年，国内服饰服装上市公司的销售毛利率与销售净利率呈现出显著的分化格局。整体来看
+两江海关对信息化运维服务采购项目进行比选，现邀请符合资格条件的供应商参加本项目比选。本项目采购活动将严格落实保护环境、扶持不发达地区和少数民族地区、促进中小企业发展等政府采购政策。 一、项目名称 采购项目：两江海关信息化运维服务采购项目； 采购人名称：中华人民共和国两江海关；采购人地址：重庆市南岸区江桥路1号； 采购方式：比选。 二、采购内容 本项目服务范围主要针对两江海关使用
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+两江海关对信息化运维服务采购项目进行比选，现邀请符合资格条件的供应商参加本项目比选。
 
-截至2026年4月30日，服饰服装上市公司已完成2025年度财报的披露，对此我们挑选了具有代表性的上市公司进行业绩比对分析。
+本项目采购活动将严格落实保护环境、扶持不发达地区和少数民族地区、促进中小企业发展等政府采购政策。
 
-在各项财务指标中，销售毛利率、销售净利率作为两项较为核心的盈利能力考核指标，倍受市场投资者关注。
+一、项目名称 采购项目：两江海关信息化运维服务采购项目； 采购人名称：中华人民共和国两江海关；采购人地址：重庆市南岸区江桥路1号； 采购方式：比选。
 
-2025年，国内服饰服装上市公司的销售毛利率与销售净利率呈现出显著的分化格局。
+二、采购内容 本项目服务范围主要针对两江海关使用的信息化设备提供全年365天×24小时相关专业运维服务。
 
-整体来看，大部分品牌维持了较高的毛利率水平，但受费用投入、资产减值、非经常性损益等因素影响，净利率的波动远大于毛利率。
+详见第四章“项目需求书”。
 
-部分企业“高毛利、低净利”，部分企业“毛利不高、净利可观”，还有企业陷入“毛利尚可、净利为负”的困境。
+三、项目最高限价 本项目最高限价为9万元。
 
-本文基于15家代表性公司2025年年报数据，从毛利率与净利率的对比维度，透视各品牌的盈利质量。
+四、供应商资格要求 (一)符合《政府采购法》第二十二条规定： 1、具有独立承担民事责任的能力； 2、具有良好的商业信誉和健全的财务会计制度； 3、具有履行合同所必需的设备和专业技术能力； 4、有依法缴纳税收和社会保障资金的良好记录； 5、参加政府采购活动近三年内，在经营活动中没有重大违法记录。
 
-2025年，销售毛利率超过70%的公司有两家：比音勒芬以75.09%的毛利率位居第一，地素时尚随其后为74.91%。
+五、比选文件的获取 凡有意参加的供应商，请于2026年5月12日起至提交响应文件截止时间前，在重庆海关互联网官方网站 (chongqing.customs.gov.cn)下载本项目的比选文件、答疑、补遗等与本项目有关的所有资料，并随时关注本项目相关修改或补充内容。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 19:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 19:14 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 19:08 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 19:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 19:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 19:26 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 19:11 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 19:31 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 19:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 19:20 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 19:13 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 19:31 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 19:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 19:34 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 19:30 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 19:25 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 19:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 19:20 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 19:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 19:33 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 19:39 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 19:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 19:23 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 19:32 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/0781602.shtml)
-- 2026-06-29 19:20 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/811046140.shtml)
-- 2026-06-29 19:34 - [TTG KSG](https://www.share.minike.top/Article/details/9365648.shtml)
-- 2026-06-29 19:22 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/4708581009.shtml)
-- 2026-06-29 19:22 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/59732378058.shtml)
-- 2026-06-29 19:24 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/8306430.shtml)
-- 2026-06-29 19:09 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/0307310.shtml)
-- 2026-06-29 19:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/062748120929.shtml)
-- 2026-06-29 19:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/847373933928.shtml)
-- 2026-06-29 19:32 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/5781812.shtml)
-- 2026-06-29 19:27 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/869798571784.shtml)
-- 2026-06-29 19:09 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/06526155372.shtml)
-- 2026-06-29 19:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/650933807262.shtml)
-- 2026-06-29 19:26 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/650115376693.shtml)
-- 2026-06-29 19:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/488379875460.shtml)
+- 2026-06-29 19:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/358828204229.shtml)
+- 2026-06-29 19:19 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/21594994.shtml)
+- 2026-06-29 19:30 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/007212.shtml)
+- 2026-06-29 19:20 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/448571536957.shtml)
+- 2026-06-29 19:21 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/14721.shtml)
+- 2026-06-29 19:27 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/26183950.shtml)
+- 2026-06-29 19:38 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/93667.shtml)
+- 2026-06-29 19:29 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/907597884689.shtml)
+- 2026-06-29 19:29 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/67390.shtml)
+- 2026-06-29 19:18 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/486770.shtml)
+- 2026-06-29 19:13 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/8390833.shtml)
+- 2026-06-29 19:31 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/51276.shtml)
+- 2026-06-29 19:40 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/35763.shtml)
+- 2026-06-29 19:20 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/63661.shtml)
+- 2026-06-29 19:35 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/044371072.shtml)

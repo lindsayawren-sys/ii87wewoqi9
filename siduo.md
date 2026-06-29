@@ -1,58 +1,50 @@
-# 开盘：美股周四低开 原油价格与美债收益率同步走高
+# 陕西潼关：沃野铺绿 农事正忙
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-北京时间5月21日晚，美股周四低开。原油价格与美债收益率同步走高，令股指承压。交易员继续评估英伟达财报及美伊局势的进展。通胀压力增大使美联储加息预期升温。 道指跌152.50点，跌幅为0.30%，报49856.85点；纳指跌150.767点，跌幅为0.57%，报26119.593点；标普500指数跌30.66点，跌幅为0.41%，报7402.31点。 据报道，伊朗最高领袖已下令
+发布时间：2026年05月13日 10:12 来源：中国新闻网 近日，陕西省潼关县沃野铺绿，满目青葱。初夏时节，田间农事正忙，农人躬身耕耘，以汗水浇灌希望，静待夏粮颗粒满仓、丰收在望。(作者：侯英勃 崔正博） 责任编辑：【魏聪聪】
 
 ## 正文
 
-北京时间5月21日晚，美股周四低开。
+发布时间：2026年05月13日 10:12 来源：中国新闻网 近日，陕西省潼关县沃野铺绿，满目青葱。
 
-原油价格与美债收益率同步走高，令股指承压。
+初夏时节，田间农事正忙，农人躬身耕耘，以汗水浇灌希望，静待夏粮颗粒满仓、丰收在望。
 
-交易员继续评估英伟达财报及美伊局势的进展。
-
-通胀压力增大使美联储加息预期升温。
-
-道指跌152.50点，跌幅为0.30%，报49856.85点；纳指跌150.767点，跌幅为0.57%，报26119.593点；标普500指数跌30.66点，跌幅为0.41%，报7402.31点。
-
-据报道，伊朗最高领袖已下令将该国的浓缩铀留存境内，此举使美伊战争的解决前景更加复杂化，随后原油价格跳涨。
-
-周四早间，西得克萨斯中质原油期货上涨2.9%，报每桶101.04美元。
-
-布伦特原油上涨2.3%，报107.36美元。
+(作者：侯英勃 崔正博） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 19:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 19:16 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 19:23 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 19:27 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 19:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 19:20 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 19:26 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 19:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 19:22 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 19:16 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 19:13 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 19:40 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 19:37 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 19:23 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 19:25 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 19:30 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 19:17 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 19:18 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 19:40 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 19:21 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:41 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 19:31 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 19:32 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 19:31 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:29 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/194687345.shtml)
-- 2026-06-29 19:24 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/17505683.shtml)
-- 2026-06-29 19:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/0539982.shtml)
-- 2026-06-29 19:07 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/0739714520.shtml)
-- 2026-06-29 19:06 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/008617446.shtml)
-- 2026-06-29 19:09 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/81923913022.shtml)
-- 2026-06-29 19:24 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/34313240549.shtml)
-- 2026-06-29 19:18 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/0513258.shtml)
-- 2026-06-29 19:33 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/449266.shtml)
-- 2026-06-29 19:19 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/00618.shtml)
-- 2026-06-29 19:13 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/49037969.shtml)
-- 2026-06-29 19:08 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/31388176027.shtml)
-- 2026-06-29 19:24 - [我和我的家乡](https://www.blog.minike.top/Article/details/57505.shtml)
-- 2026-06-29 19:11 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/50487934.shtml)
-- 2026-06-29 19:30 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/2607501860.shtml)
+- 2026-06-29 19:34 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/51377624966.shtml)
+- 2026-06-29 19:22 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/3698093872.shtml)
+- 2026-06-29 19:15 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/49480554397.shtml)
+- 2026-06-29 19:23 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/2072224.shtml)
+- 2026-06-29 19:29 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/723825.shtml)
+- 2026-06-29 19:36 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/33043.shtml)
+- 2026-06-29 19:22 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/105554923395.shtml)
+- 2026-06-29 19:24 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/64321.shtml)
+- 2026-06-29 19:37 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/7746916635.shtml)
+- 2026-06-29 19:13 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/80238758.shtml)
+- 2026-06-29 19:21 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/32454008.shtml)
+- 2026-06-29 19:27 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/06987951.shtml)
+- 2026-06-29 19:40 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/130028599.shtml)
+- 2026-06-29 19:25 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/447512447.shtml)
+- 2026-06-29 19:17 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/26898960902.shtml)

@@ -1,57 +1,59 @@
-# 加码防卫费 日本执意扩武拖累经济民生
+# 中信建投期货：5月13日能化早报
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-近日，日本经济发展面临多重冲击，但政府却依然图谋上调防卫费，此举引发日本舆论深度忧虑，民间反对之声日益高涨。 分析指出巨额防卫费或令日本防卫更加不稳定 总台记者 何欣蕾：针对日本政府加速推动修改“安保三文件”，进一步增加防卫费等举动，日本京都新闻近期社论指出，日本应该关注无止境军备竞赛以及紧张局势升级而带来的风险，并重新制定作为和平国家的外交战略。京都新闻进一步分析认为，未来，
+PX： 供需面供需双减。亚洲行业负荷环比减少1.8pct至62.7%，刷新五年新低。中国PX行业负荷环比减少1.1pct至79.3%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。需求端，PTA计划外检修增多将对PX需求产生阶段性压制。PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。美国4月CPI同比上涨3.8%
 
 ## 正文
 
-近日，日本经济发展面临多重冲击，但政府却依然图谋上调防卫费，此举引发日本舆论深度忧虑，民间反对之声日益高涨。
+PX： 供需面供需双减。
 
-分析指出巨额防卫费或令日本防卫更加不稳定 总台记者 何欣蕾：针对日本政府加速推动修改“安保三文件”，进一步增加防卫费等举动，日本京都新闻近期社论指出，日本应该关注无止境军备竞赛以及紧张局势升级而带来的风险，并重新制定作为和平国家的外交战略。
+亚洲行业负荷环比减少1.8pct至62.7%，刷新五年新低。
 
-京都新闻进一步分析认为，未来，日本可能进一步将防卫费提高至GDP的3.5%。
+中国PX行业负荷环比减少1.1pct至79.3%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。
 
-然而，在人口持续减少的日本，是否能够长期承担每年的巨额开支？
+需求端，PTA计划外检修增多将对PX需求产生阶段性压制。
 
-如果不顾国家实际承受能力、一味追求增加防卫预算，反而可能使日本的防卫更加不稳定。
+PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。
 
-扩军备武叠加民生承压 自民党执政前景堪忧 总台记者 何欣蕾：可以看到在日本扩军备武的动向之下，为了保证防卫费预算而逐步推行相关增税政策，使得民生状况进一步承压。
+美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高，通胀压力重燃，美元指数随之上涨。
 
-而中东局势的长期化，给日本经济带来的影响也在不断显现。
+美国政府内部人士透露，美方如今比过去几周“更认真地考虑”恢复对伊朗的军事行动。
 
-日本朝日新闻前记者佐藤章在社交媒体评论称，高市(领导下的)自民党的衰退已势不可挡，在地方选举连战连败，支持率日渐下跌。
+与此同时，伊朗表示，核技术和铀浓缩问题不会被列入美伊谈判。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 19:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 19:17 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 19:35 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 19:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 19:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 19:14 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 19:32 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 19:11 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 19:31 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 19:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 19:36 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 19:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 19:37 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 19:40 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 19:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 19:33 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 19:33 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 19:18 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 19:29 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 19:26 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 19:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 19:28 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 19:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/501287555271.shtml)
-- 2026-06-29 19:30 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/786286.shtml)
-- 2026-06-29 19:16 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/857328.shtml)
-- 2026-06-29 19:17 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/55799188.shtml)
-- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/80580.shtml)
-- 2026-06-29 19:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/488741.shtml)
-- 2026-06-29 19:16 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/621095682375.shtml)
-- 2026-06-29 19:16 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/6602341957.shtml)
-- 2026-06-29 19:32 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/5001084.shtml)
-- 2026-06-29 19:24 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/7408627735.shtml)
-- 2026-06-29 19:23 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/855958516808.shtml)
-- 2026-06-29 19:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/87402.shtml)
-- 2026-06-29 19:09 - [毒液2](http://www.blog.minike.top/Article/details/5619078.shtml)
-- 2026-06-29 19:21 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/87636.shtml)
-- 2026-06-29 19:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/424495246.shtml)
+- 2026-06-29 19:14 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/25021870.shtml)
+- 2026-06-29 19:25 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/8683835764.shtml)
+- 2026-06-29 19:26 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/240119475.shtml)
+- 2026-06-29 19:29 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/959047539.shtml)
+- 2026-06-29 19:34 - [7款高价创新药有望降价](https://www.share.minike.top/Article/details/912430514.shtml)
+- 2026-06-29 19:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/3194460622.shtml)
+- 2026-06-29 19:19 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/5437985060.shtml)
+- 2026-06-29 19:26 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/48187516703.shtml)
+- 2026-06-29 19:32 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0217385873.shtml)
+- 2026-06-29 19:23 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/49436153654.shtml)
+- 2026-06-29 19:33 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/59108481.shtml)
+- 2026-06-29 19:36 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/15321061.shtml)
+- 2026-06-29 19:18 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/1378633.shtml)
+- 2026-06-29 19:14 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/48121170379.shtml)
+- 2026-06-29 19:33 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/1786914.shtml)

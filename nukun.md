@@ -1,59 +1,56 @@
-# 老骥伏枥，70岁马明哲划定中国平安高质量发展路线图：战略做融合，出海要谨慎，个险要稳妥，治理不松懈
+# 两岸人士溯源南岛语族文化：以史寻归属、明未来
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-来源：险企高参 5.20股东大会上，马明哲定调中国平安战略。 5月20日，中国平安2025年年度股东大会召开，董事长马明哲携一众高管出席，直面战略定位、市场布局、寿险改革、科技投入及公司治理等话题，给人感受战略清晰、财务稳健、底气十足。 “综合金融+医疗养老”双轮驱动 当被问及中国平安未来如何打造独特优势时，马明哲简明扼要地敲定中国平安整体战略——以科技赋能“综合金融+医疗养老
+中新社福建平潭5月13日电 (李百加)“南岛语族文化不是孤立的海洋文明，而是中华文明向海而生的重要组成部分。厘清其源流，有助台湾少数民族寻找文化归属与发展路径。”闽江大学人文学院院长助理黄运明12日在平潭说。以“越山向海 潮汇一脉”为主题的2026两岸海洋文化交流平台主场活动在平潭举行。两岸学者、台湾少数民族代表等近300人与会，围绕南岛语族文化的溯源与发展分享见解。 南岛语族
 
 ## 正文
 
-来源：险企高参 5.20股东大会上，马明哲定调中国平安战略。
+中新社福建平潭5月13日电 (李百加)“南岛语族文化不是孤立的海洋文明，而是中华文明向海而生的重要组成部分。
 
-5月20日，中国平安2025年年度股东大会召开，董事长马明哲携一众高管出席，直面战略定位、市场布局、寿险改革、科技投入及公司治理等话题，给人感受战略清晰、财务稳健、底气十足。
+厘清其源流，有助台湾少数民族寻找文化归属与发展路径。
 
-“综合金融+医疗养老”双轮驱动 当被问及中国平安未来如何打造独特优势时，马明哲简明扼要地敲定中国平安整体战略——以科技赋能“综合金融+医疗养老”，这也是中国平安现在及未来打造的独特优势。
+”闽江大学人文学院院长助理黄运明12日在平潭说。
 
-2025年报的数据能够佐证中国平安战略的成功，2.51亿个人客户——大约每6个人中就有1位是中国平安客户。
+以“越山向海 潮汇一脉”为主题的2026两岸海洋文化交流平台主场活动在平潭举行。
 
-业绩表现上，去年中国平安健康险保费收入1590亿元，其中医疗险保费近734亿元，同比增长2.7%。
+两岸学者、台湾少数民族代表等近300人与会，围绕南岛语族文化的溯源与发展分享见解。
 
-平安健康实现营收57.23亿元，北大医疗集团营收54.68亿元，医养服务正加速成为中国平安的“第二增长曲线”。
+南岛语族是世界上分布范围最广的语族之一，覆盖18个国家和地区近4亿人口。
 
-同时，年报中有个数据很说明问题“使用平安医养服务的客户，加保率比未使用的客户高出整整4个百分点；居家养老权益客户的寿险新单件均保费提升至5.2倍，高品质养老权益客户更是提升至23.4倍。
+百余年来，国际学界持续探寻其源流脉络。
 
-可见，医养业务是真真切切在给金融主业“导流+锁客+提价”。
+据黄运明介绍，21世纪以来，依托古DNA、语言谱系、考古遗址等多学科交叉实证，学界逐步形成共识：包括福建在内的中国大陆东南沿海，是南岛语族先民扬帆起航之地，台湾则是其向外扩散的关键一站。
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 19:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 19:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 19:17 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 19:17 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 19:24 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 19:10 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 19:25 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 19:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 19:26 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 19:19 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 19:08 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 19:32 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 19:36 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 19:18 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 19:14 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 19:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 19:31 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 19:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 19:40 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 19:39 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 19:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 19:15 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/7545997346.shtml)
-- 2026-06-29 19:27 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/734361.shtml)
-- 2026-06-29 19:13 - [爱很美味](http://www.share.kurohicncr.top/Article/details/6201009.shtml)
-- 2026-06-29 19:18 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/424962325077.shtml)
-- 2026-06-29 19:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/755976005.shtml)
-- 2026-06-29 19:16 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/265971259867.shtml)
-- 2026-06-29 19:21 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/914518.shtml)
-- 2026-06-29 19:29 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/78595.shtml)
-- 2026-06-29 19:32 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/163418301.shtml)
-- 2026-06-29 19:15 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/402219649097.shtml)
-- 2026-06-29 19:06 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/32091.shtml)
-- 2026-06-29 19:35 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/3857261181.shtml)
-- 2026-06-29 19:32 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/511911964.shtml)
-- 2026-06-29 19:24 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/157349467312.shtml)
-- 2026-06-29 19:28 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/8090961.shtml)
+- 2026-06-29 19:18 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/48247.shtml)
+- 2026-06-29 19:34 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/67843243292.shtml)
+- 2026-06-29 19:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/397082448734.shtml)
+- 2026-06-29 19:20 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/2646558213.shtml)
+- 2026-06-29 19:29 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/09479995.shtml)
+- 2026-06-29 19:21 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/0880847752.shtml)
+- 2026-06-29 19:16 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/240757.shtml)
+- 2026-06-29 19:29 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/4756597.shtml)
+- 2026-06-29 19:41 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/053923845.shtml)
+- 2026-06-29 19:13 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/300680.shtml)
+- 2026-06-29 19:34 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/3340346.shtml)
+- 2026-06-29 19:35 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/87835.shtml)
+- 2026-06-29 19:14 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/84759998.shtml)
+- 2026-06-29 19:14 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/986814318.shtml)
+- 2026-06-29 19:30 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/83274.shtml)

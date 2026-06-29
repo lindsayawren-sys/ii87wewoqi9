@@ -1,58 +1,61 @@
-# 富兰克林新兴市场收益基金月度派息升至0.054美元
+# 大理大学在洱海蓝藻水华防控研究中取得重要进展
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。 根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支
+中新网云南大理5月12日电 (吴明灿)记者12日从大理大学获悉，近日，该校农学与生物科学学院、药学院联合开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行，在洱海蓝藻水华防控研究中取得重要进展。 “高原明珠”洱海是云南第二大高原淡水湖，位于云南省大理白族自治州大理市，被大理人民誉为“母亲湖”。近年来，随着人类活动导致的富营养化和气候变化加剧，有害蓝藻水华已成为全球性的
 
 ## 正文
 
-富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。
+中新网云南大理5月12日电 (吴明灿)记者12日从大理大学获悉，近日，该校农学与生物科学学院、药学院联合开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行，在洱海蓝藻水华防控研究中取得重要进展。
 
-此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。
+“高原明珠”洱海是云南第二大高原淡水湖，位于云南省大理白族自治州大理市，被大理人民誉为“母亲湖”。
 
-根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支付日为8月31日；9月份除息日和登记日为9月23日，支付日为9月30日。
+近年来，随着人类活动导致的富营养化和气候变化加剧，有害蓝藻水华已成为全球性的水环境危机，特别是在洱海等生态敏感的高原湖泊流域，此类生态灾害对区域水质安全构成严峻挑战。
 
-该基金是一只封闭式管理投资公司，主要投资于新兴市场国家的主权或主权相关实体及私营公司发行的收益性证券。
+其中，蓝藻水华优势种铜绿微囊藻不仅能快速增殖，还会合成具有肝毒性的微囊藻毒素(如MC-LR)，成为对水生生物多样性和生态健康威胁最大的因素之一。
 
-基金的投资目标以获取高额当期收入为主，资本增值为辅。
+传统的化学除藻方法极易导致细胞破裂及胞内毒素大量释放，从而引发严重的二次污染。
 
-根据基金的管理分配政策，为保持稳定的分配水平，当可分配收益不足时，基金将通过分配长期资本利得或返还本金来维持既定派息率。
+针对这一治理困境，大理大学农学与生物科学学院特聘教授吴明灿团队与药学院教授戚克振团队合作开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行。
 
-数据显示，基金近五年按资产净值计算的平均年化总回报率为6.22%，当前按资产净值计算的分配率为8.70%。
+日前，该成果发表于生物工程与环境科学领域国际顶级期刊《Bioresource Technology》。
 
-富兰克林邓普顿表示，董事会可随时修改、终止或暂停管理分配政策，任何此类变动可能对基金股价产生不利影响。
+研究团队通过乙醇辅助界面工程策略，成功构建了一种新型的p-p型S型异质结光催化剂。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 19:31 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 19:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 19:12 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 19:18 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 19:27 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 19:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 19:19 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 19:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 19:20 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 19:19 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 19:13 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 19:16 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 19:39 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 19:22 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 19:23 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 19:18 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 19:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 19:12 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 19:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 19:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 19:38 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:40 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 19:20 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 19:13 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 19:35 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 19:31 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/5449629916.shtml)
-- 2026-06-29 19:22 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/84209611.shtml)
-- 2026-06-29 19:13 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/484096.shtml)
-- 2026-06-29 19:20 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/5331659.shtml)
-- 2026-06-29 19:24 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/51460.shtml)
-- 2026-06-29 19:08 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/607602612.shtml)
-- 2026-06-29 19:21 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/5186723.shtml)
-- 2026-06-29 19:28 - [T1零封KC MSI](http://www.share.minike.top/Article/details/5314066.shtml)
-- 2026-06-29 19:28 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/76990991.shtml)
-- 2026-06-29 19:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/948547086.shtml)
-- 2026-06-29 19:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/193099697.shtml)
-- 2026-06-29 19:09 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/2012945.shtml)
-- 2026-06-29 19:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/575339246.shtml)
-- 2026-06-29 19:22 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/420388788746.shtml)
-- 2026-06-29 19:09 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/974893988496.shtml)
+- 2026-06-29 19:41 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/627775272.shtml)
+- 2026-06-29 19:31 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/6833709829.shtml)
+- 2026-06-29 19:39 - [主力抛售电子和通信板块](http://www.share.minike.top/Article/details/776217907.shtml)
+- 2026-06-29 19:16 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/13071.shtml)
+- 2026-06-29 19:14 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/00430.shtml)
+- 2026-06-29 19:15 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/2942060659.shtml)
+- 2026-06-29 19:36 - [沙丘](https://www.share.kurohicncr.top/Article/details/65995877.shtml)
+- 2026-06-29 19:15 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/2983069.shtml)
+- 2026-06-29 19:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/18222638546.shtml)
+- 2026-06-29 19:23 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/7145410.shtml)
+- 2026-06-29 19:20 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/03337081250.shtml)
+- 2026-06-29 19:18 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/753298.shtml)
+- 2026-06-29 19:14 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/453618.shtml)
+- 2026-06-29 19:36 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/3711291203.shtml)
+- 2026-06-29 19:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/707415.shtml)

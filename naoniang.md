@@ -1,61 +1,60 @@
-# 近闻·读懂“世界百年变局中的关键恒量”
+# 国际能源署（IEA）警告：石油库存创纪录暴跌，油价或将进一步飙升
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-大国外交的舞台上，又写下遒劲一笔。 5月19日至20日，应国家主席习近平邀请，俄罗斯总统普京来华进行国事访问。这是今年以来，两国元首首次面对面会晤。 “30年来，中俄关系栉风沐雨、与时俱进，关系定位不断提升，达到新时代全面战略协作伙伴关系的历史最高水平，树立起新型大国关系的典范。”习近平主席强调。 特殊节点，重要会晤。 中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》
+国际能源署周三警告称：全球石油库存正以创纪录速度消耗，伊朗局势冲突带来的供应扰动仍在持续，进一步放大油价冲高风险。 4月原油及成品油库存日均减少近400万桶，这一规模超过英国与德国石油消费量总和，各国用以抵御供应冲击的缓冲库存面临枯竭风险。 国际能源署在备受关注的月度报告中表示：“石油进口国遭遇中东供应前所未有的中断，全球正以史上最快速度动用石油库存。” “供应扰动持续、缓冲库
 
 ## 正文
 
-大国外交的舞台上，又写下遒劲一笔。
+国际能源署周三警告称：全球石油库存正以创纪录速度消耗，伊朗局势冲突带来的供应扰动仍在持续，进一步放大油价冲高风险。
 
-5月19日至20日，应国家主席习近平邀请，俄罗斯总统普京来华进行国事访问。
+4月原油及成品油库存日均减少近400万桶，这一规模超过英国与德国石油消费量总和，各国用以抵御供应冲击的缓冲库存面临枯竭风险。
 
-这是今年以来，两国元首首次面对面会晤。
+国际能源署在备受关注的月度报告中表示：“石油进口国遭遇中东供应前所未有的中断，全球正以史上最快速度动用石油库存。
 
-“30年来，中俄关系栉风沐雨、与时俱进，关系定位不断提升，达到新时代全面战略协作伙伴关系的历史最高水平，树立起新型大国关系的典范。
+” “供应扰动持续、缓冲库存快速萎缩，预示后续或将迎来油价暴涨。
 
-”习近平主席强调。
+” 国际能源署此番预警，进一步加剧市场担忧：未来数月部分油品库存或将跌至临界低位，各方将为日益紧缺的供给展开竞价。
 
-特殊节点，重要会晤。
+IEA表示，自冲突爆发以来，全球石油库存已锐减近2.5亿桶；若剔除滞留在海湾地区无法外运的原油，库存降幅会更为陡峭。
 
-中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年、“中俄教育年”启动之年……一连串历史坐标，镌刻下中俄关系“一步一个脚印走到今天这个高度”，见证了“中俄关系进入更有作为、更快发展的新阶段”。
+IEA称，发达经济体等石油需求回落，一定程度上对冲了海湾地区的供应损失。
 
-百年变局，风云激荡。
+欧洲今年石油消费量将出现下滑，降幅规模为2022年俄乌冲突以来最大；IEA预测欧洲日均消费量将减少14万桶，约为去年消费量的1%。
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 19:31 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 19:33 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 19:17 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 19:32 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 19:08 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:10 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 19:28 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 19:23 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 19:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 19:23 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 19:09 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 19:08 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 19:06 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 19:26 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 19:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 19:20 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 19:38 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 19:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 19:33 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 19:34 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 19:30 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 19:31 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 19:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 19:33 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 19:39 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 19:29 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 19:40 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/220171538.shtml)
-- 2026-06-29 19:33 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/3239025230.shtml)
-- 2026-06-29 19:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/16913662494.shtml)
-- 2026-06-29 19:19 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/6475801212.shtml)
-- 2026-06-29 19:15 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/29893709801.shtml)
-- 2026-06-29 19:25 - [逆天祖国人](http://www.share.minike.top/Article/details/2177263631.shtml)
-- 2026-06-29 19:14 - [流金岁月](http://www.blog.minike.top/Article/details/657265.shtml)
-- 2026-06-29 19:07 - [叠纸](https://www.share.minike.top/Article/details/875814497341.shtml)
-- 2026-06-29 19:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/413050.shtml)
-- 2026-06-29 19:07 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/4774325.shtml)
-- 2026-06-29 19:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/374940042.shtml)
-- 2026-06-29 19:16 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.minike.top/Article/details/36711838.shtml)
-- 2026-06-29 19:14 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/1819159.shtml)
-- 2026-06-29 19:20 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/0519197.shtml)
-- 2026-06-29 19:21 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/16651772.shtml)
+- 2026-06-29 19:34 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/6075004076.shtml)
+- 2026-06-29 19:25 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/061114.shtml)
+- 2026-06-29 19:38 - [天道](http://www.blog.minike.top/Article/details/56934.shtml)
+- 2026-06-29 19:12 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/72421499305.shtml)
+- 2026-06-29 19:27 - [勇敢的心第二部](http://www.share.minike.top/Article/details/771922985.shtml)
+- 2026-06-29 19:33 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/6152800316.shtml)
+- 2026-06-29 19:12 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/819902424246.shtml)
+- 2026-06-29 19:38 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/03431427214.shtml)
+- 2026-06-29 19:21 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/37999441.shtml)
+- 2026-06-29 19:40 - [本届世界杯已有5人涉性侵风波](https://www.blog.minike.top/Article/details/64635329347.shtml)
+- 2026-06-29 19:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/56553.shtml)
+- 2026-06-29 19:25 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/0546356305.shtml)
+- 2026-06-29 19:16 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/378131.shtml)
+- 2026-06-29 19:39 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/1605225206.shtml)
+- 2026-06-29 19:29 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/7110686735.shtml)

@@ -1,59 +1,60 @@
-# 整治“泡药杨梅”重在从根子上发力
+# 瑞士研发出“熊脸识别”人工智能模型
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-一个让消费者疑虑重重的行业，注定走不长远。眼下，只有痛定思痛，针对“泡药杨梅”病灶靶向施策，才可能挽回公众信任。 近期，媒体反映福建省漳州市部分杨梅收购点存在违规使用添加剂浸泡杨梅的问题，一时间舆论哗然。5月20日，当地食安委办公室发布情况通报，已追回问题杨梅540公斤，查扣违规添加剂20.1公斤，行政立案12起，刑事立案2起、刑事拘留5人。自15日起，漳州市组织开展为期45天
+中新网北京5月12日电 伯尔尼消息：据瑞士资讯网10日报道，瑞士研发出一款能够进行“熊脸识别”的人工智能模型，可以在美国阿拉斯加荒野中追踪棕熊的行踪，为野生动物研究和自然保护带来全新工具。 美国阿拉斯加太平洋大学的生物学家和生态学家贝丝·罗森伯格(Beth Rosenberg)在阿拉斯加荒野中生活了二十年，可以凭棕熊的头部、口鼻形状，以及细小伤疤或某些典型行为分辨出不同的熊。
 
 ## 正文
 
-一个让消费者疑虑重重的行业，注定走不长远。
+中新网北京5月12日电 伯尔尼消息：据瑞士资讯网10日报道，瑞士研发出一款能够进行“熊脸识别”的人工智能模型，可以在美国阿拉斯加荒野中追踪棕熊的行踪，为野生动物研究和自然保护带来全新工具。
 
-眼下，只有痛定思痛，针对“泡药杨梅”病灶靶向施策，才可能挽回公众信任。
+美国阿拉斯加太平洋大学的生物学家和生态学家贝丝·罗森伯格(Beth Rosenberg)在阿拉斯加荒野中生活了二十年，可以凭棕熊的头部、口鼻形状，以及细小伤疤或某些典型行为分辨出不同的熊。
 
-近期，媒体反映福建省漳州市部分杨梅收购点存在违规使用添加剂浸泡杨梅的问题，一时间舆论哗然。
+如今，她与瑞士洛桑联邦理工学院的研究人员合作，将这些经验分享给人工智能模型，训练了一套能够识别单只棕熊的人工智能系统。
 
-5月20日，当地食安委办公室发布情况通报，已追回问题杨梅540公斤，查扣违规添加剂20.1公斤，行政立案12起，刑事立案2起、刑事拘留5人。
+这项训练基于罗森伯格多年积累的专业知识，以及她在六年间拍摄的数千张棕熊照片。
 
-自15日起，漳州市组织开展为期45天的专项整治行动，时间段覆盖杨梅采摘上市全周期(据5月21日新华社)。
+据报道，该系统可根据棕熊的头部形状和侧面轮廓等身体特征，准确地识别麦克尼尔河沿岸的棕熊个体，并且能够将同一只熊在不同时间、不同地点拍摄的照片联系起来，从而在时间和空间上追踪这只熊的活动轨迹。
 
-杨梅上市季，本是广大果农盼望的丰收季，却因个别收购点的“泡药杨梅”，硬生生让消费者对整个行业起了疑心。
+这个模型甚至还能识别出一只此前从未“见过”的熊。
 
-而这种信任危机，很可能让很多果农一年的心血付诸东流。
+罗森伯格表示，这是前所未有的成果。
 
-事实也证明，“泡药杨梅”曝光后，市场销量一落千丈。
+通过对大量影像资料进行分析，人工智能还可以帮助研究人员识别反复出现的情景，例如棕熊在哪里觅食、休息或活动，从而进一步系统研究熊的行为。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 19:21 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 19:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 19:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 19:11 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 19:12 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 19:28 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 19:35 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 19:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 19:24 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 19:29 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 19:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 19:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 19:38 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 19:39 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 19:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 19:32 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 19:21 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 19:27 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 19:36 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 19:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 19:17 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 19:26 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:37 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 19:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 19:36 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 19:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/4583687271.shtml)
-- 2026-06-29 19:11 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/7237189078.shtml)
-- 2026-06-29 19:30 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/6449474830.shtml)
-- 2026-06-29 19:31 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/33989368342.shtml)
-- 2026-06-29 19:06 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/293314235.shtml)
-- 2026-06-29 19:20 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/797134826.shtml)
-- 2026-06-29 19:28 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/96133075.shtml)
-- 2026-06-29 19:19 - [急先锋](http://www.blog.kurohicncr.top/Article/details/43923653.shtml)
-- 2026-06-29 19:06 - [绘画区你赢了](http://www.blog.minike.top/Article/details/31597031242.shtml)
-- 2026-06-29 19:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/02930.shtml)
-- 2026-06-29 19:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/0927407.shtml)
-- 2026-06-29 19:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/129166005640.shtml)
-- 2026-06-29 19:27 - [起风了](http://www.blog.minike.top/Article/details/730102321001.shtml)
-- 2026-06-29 19:25 - [急先锋](https://www.share.kurohicncr.top/Article/details/598699.shtml)
-- 2026-06-29 19:17 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/1839450471.shtml)
+- 2026-06-29 19:12 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/969385582.shtml)
+- 2026-06-29 19:13 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/95011857.shtml)
+- 2026-06-29 19:13 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/329316949.shtml)
+- 2026-06-29 19:21 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/27140.shtml)
+- 2026-06-29 19:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/10172.shtml)
+- 2026-06-29 19:37 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/916824780.shtml)
+- 2026-06-29 19:39 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/25741666.shtml)
+- 2026-06-29 19:24 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/0339727.shtml)
+- 2026-06-29 19:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/953050878.shtml)
+- 2026-06-29 19:13 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/318867301691.shtml)
+- 2026-06-29 19:17 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/532935376596.shtml)
+- 2026-06-29 19:39 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/534677140185.shtml)
+- 2026-06-29 19:37 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/5861205380.shtml)
+- 2026-06-29 19:18 - [逆天祖国人](http://www.blog.minike.top/Article/details/38281.shtml)
+- 2026-06-29 19:34 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/25772625664.shtml)

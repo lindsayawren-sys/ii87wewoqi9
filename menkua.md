@@ -1,61 +1,58 @@
-# 汇丰因4亿美元损失踩刹车，40亿美元私募信贷扩张放缓
+# 致敬以心为灯的白衣天使！爱尔眼科举行“5·12”国际护士节表彰大会
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-继遭遇4亿美元欺诈相关损失后，汇丰控股正在重新评估其风险偏好，并放缓了此前公布的40亿美元私募信贷扩张计划。据报道，这家欧洲最大银行尚未将这笔资金实质性投入其资产管理部门的私募信贷基金。 此次扩张减速的直接导火索，是一笔与阿波罗旗下Atlas SP Partners部门相关的贷款损失。Atlas曾向英国抵押贷款机构Market Financial Solutions提供融资，后
+五月芳菲，白衣灼灼；提灯引路，芳华如初。在第115个“5·12”国际护士节到来之际，爱尔眼科医院集团举行以“赋能护士致敬芳华”为主题的“5·12”国际护士节表彰大会暨第九届“最美天使”颁奖典礼，致敬每一位坚守一线、以心为灯的护理工作者，以弘扬先进，树立榜样，凝聚推动医院护理事业高质量发展的磅礴力量。 爱尔眼科医院集团董事长陈邦，全球总裁李力，副总裁王丽华、刘多元等领导以及获奖护
 
 ## 正文
 
-继遭遇4亿美元欺诈相关损失后，汇丰控股正在重新评估其风险偏好，并放缓了此前公布的40亿美元私募信贷扩张计划。
+五月芳菲，白衣灼灼；提灯引路，芳华如初。
 
-据报道，这家欧洲最大银行尚未将这笔资金实质性投入其资产管理部门的私募信贷基金。
+在第115个“5·12”国际护士节到来之际，爱尔眼科医院集团举行以“赋能护士致敬芳华”为主题的“5·12”国际护士节表彰大会暨第九届“最美天使”颁奖典礼，致敬每一位坚守一线、以心为灯的护理工作者，以弘扬先进，树立榜样，凝聚推动医院护理事业高质量发展的磅礴力量。
 
-此次扩张减速的直接导火索，是一笔与阿波罗旗下Atlas SP Partners部门相关的贷款损失。
+爱尔眼科医院集团董事长陈邦，全球总裁李力，副总裁王丽华、刘多元等领导以及获奖护士代表等120余人出席大会。
 
-Atlas曾向英国抵押贷款机构Market Financial Solutions提供融资，后者因涉嫌欺诈而倒闭。
+会上，李力首先发表致辞，他指出，目前爱尔眼科正处于从“规模扩张”向“价值增长”转型的关键时期，护理团队是医疗质量的“压舱石”和服务品牌的“金名片”。
 
-汇丰通过为Atlas提供后端杠杆融资而间接卷入，并为此计提了约4亿美元损失。
+他向坚守爱尔二十载的“资深护理老兵”致敬，并充分肯定了过去一年护理团队在繁重任务下展现出的实干力量。
 
-知情人士透露，在该特殊目的载体中，汇丰为贷款价值的80%提供资金，高于业内60%至70%的常见水平，导致其缓冲垫不足。
+他对全体护理同仁提出“守牢安全底线、深耕患者服务、实现共同成长”的三重期许，并希望他们在守护患者光明的同时，也守护好自己的健康与快乐。
 
-汇丰主席布兰登·纳尔逊在股东年会上表示，银行已基本完成对其贷款政策的审查，并正在更新风险偏好。
+报告显示，2025年爱尔眼科实现门诊量1889.17万人次，同比增长11.52%；手术量168万例，同比增长5.77%，这每一个数字背后都凝结着爱尔护理人的匠心与大爱。
 
-尽管一位发言人重申了汇丰致力于提供私募信贷基金的承诺，但据报道，目前尚无资金实际投入，短期内也无意推进。
+大会现场举行了庄重的表彰仪式，对过去一年在护理工作中爱岗敬业、表现突出的先进省区和优秀个人予以隆重表彰，本次大会共设立10个荣誉奖项，涵盖二十年护理奉献奖、护理质量与安全管理奖、医院感染预防与控制奖、护理培训创新奖、优质护理服务奖、护理精进与价值创造奖、护理技术创新奖等。
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 19:29 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 19:09 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 19:16 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 19:15 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 19:13 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 19:23 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 19:08 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 19:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 19:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 19:20 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 19:19 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 19:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 19:06 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 19:30 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 19:35 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 19:12 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 19:35 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 19:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 19:28 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 19:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 19:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 19:16 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 19:28 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 19:32 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 19:28 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 19:27 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/32912862.shtml)
-- 2026-06-29 19:34 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/6408557798.shtml)
-- 2026-06-29 19:08 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/768345002.shtml)
-- 2026-06-29 19:13 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/31940.shtml)
-- 2026-06-29 19:31 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/40752681209.shtml)
-- 2026-06-29 19:31 - [天道](http://www.share.kurohicncr.top/Article/details/0392938.shtml)
-- 2026-06-29 19:32 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/72924193326.shtml)
-- 2026-06-29 19:24 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/796952271.shtml)
-- 2026-06-29 19:25 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/03280.shtml)
-- 2026-06-29 19:12 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/361397276.shtml)
-- 2026-06-29 19:27 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/1690147.shtml)
-- 2026-06-29 19:13 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/756932130.shtml)
-- 2026-06-29 19:34 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/25203255.shtml)
-- 2026-06-29 19:26 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/69279019.shtml)
-- 2026-06-29 19:14 - [青春环游记第三季](http://www.blog.minike.top/Article/details/9026064.shtml)
+- 2026-06-29 19:22 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/401076111.shtml)
+- 2026-06-29 19:35 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/2015019496.shtml)
+- 2026-06-29 19:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/290785361964.shtml)
+- 2026-06-29 19:23 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/421953.shtml)
+- 2026-06-29 19:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/4277617.shtml)
+- 2026-06-29 19:24 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/8409885698.shtml)
+- 2026-06-29 19:16 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/276856501.shtml)
+- 2026-06-29 19:27 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/971278812488.shtml)
+- 2026-06-29 19:28 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/83425914698.shtml)
+- 2026-06-29 19:27 - [我和我的家乡](http://www.share.minike.top/Article/details/67343486990.shtml)
+- 2026-06-29 19:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/400914499.shtml)
+- 2026-06-29 19:36 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/555196923554.shtml)
+- 2026-06-29 19:30 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/73417713265.shtml)
+- 2026-06-29 19:32 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/427110.shtml)
+- 2026-06-29 19:31 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/752586644.shtml)

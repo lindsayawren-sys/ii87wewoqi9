@@ -1,59 +1,59 @@
-# 巴西税收创历史新高，受石油暴利推动
+# 两岸企业苏州寻“智造”协同之道
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-周四公布的官方数据显示，受与石油相关的收入增加推动，巴西4月份联邦税收大幅增长。与美国和以色列对伊朗战争相关的原油价格上涨，提升了总统Luiz Inacio Lula da Silva领导下的政府财政收入。 总税收达到2788.23亿雷亚尔（558.6亿美元），经通胀调整后同比增长7.82%，创下该月份的历史新高，延续了今年迄今为止每个月都出现的创纪录态势。 4月份由联邦税务局
+中新社苏州5月12日电 (记者 钟升)“台企在硬件制造上有着雄厚的实力，但在大数据模型等‘软实力’上则有所欠缺，而这恰好是大陆企业的长处所在。我们希望可以通过两岸企业的协力，‘软硬兼施’、取长补短，在智能制造协同创新上取得1加1大于2的成果。”苏州市台湾同胞投资企业协会(简称“台协会”)执行会长钱永昌12日接受中新社记者采访时说。当日，苏州市“两岸两链”协同发展大会——AI赋能
 
 ## 正文
 
-周四公布的官方数据显示，受与石油相关的收入增加推动，巴西4月份联邦税收大幅增长。
+中新社苏州5月12日电 (记者 钟升)“台企在硬件制造上有着雄厚的实力，但在大数据模型等‘软实力’上则有所欠缺，而这恰好是大陆企业的长处所在。
 
-与美国和以色列对伊朗战争相关的原油价格上涨，提升了总统Luiz Inacio Lula da Silva领导下的政府财政收入。
+我们希望可以通过两岸企业的协力，‘软硬兼施’、取长补短，在智能制造协同创新上取得1加1大于2的成果。
 
-总税收达到2788.23亿雷亚尔（558.6亿美元），经通胀调整后同比增长7.82%，创下该月份的历史新高，延续了今年迄今为止每个月都出现的创纪录态势。
+”苏州市台湾同胞投资企业协会(简称“台协会”)执行会长钱永昌12日接受中新社记者采访时说。
 
-4月份由联邦税务局管理的税收收入经通胀调整后增长7.31%，而主要由石油特许权使用费推动的其他机构征收的收入则跃升14.89%。
+当日，苏州市“两岸两链”协同发展大会——AI赋能智造友达专场活动举行。
 
-作为石油净出口国，这个拉丁美洲最大的经济体一直预期在中东冲突相关的商品价格波动中获得更高的收入。
+两岸企业家代表300余人展开一对一精准对接交流，以期深化两岸企业在智能制造、人工智能领域的深度融合与协作。
 
-税务局表示，在各行业中，“石油和天然气开采”的税款缴纳较上年同期飙升约541%，是所有行业中百分比增幅最大的。
+目前，苏州市已集聚人工智能(AI)相关企业超2100家，形成“百模千景万算”的业态，为两岸协同创新提供了坚实的支撑和广阔的舞台。
 
-政府还指出，企业所得税征收增加、社会保障收入提高以及对固定收益投资征税增加是推动4月份业绩的关键因素。
+苏州市台办副主任黄振全表示，人工智能是时代的最大变量，更是高质量发展的最大增量。
 
-Lula政府一直在寻求主要通过增加收入来改善公共财政，此前政府提高了部分税收并取消了税收减免。
+深化两岸产业链融合，正是把“最大变量”转为“最大增量”的重要路径。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 19:18 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 19:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 19:28 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 19:09 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 19:10 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 19:14 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 19:16 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 19:08 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 19:20 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 19:17 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 19:15 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 19:07 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 19:34 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 19:23 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 19:27 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 19:40 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 19:20 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 19:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 19:18 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 19:36 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 19:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 19:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 19:21 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 19:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 19:29 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:21 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/040621.shtml)
-- 2026-06-29 19:07 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/43506971448.shtml)
-- 2026-06-29 19:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/198859.shtml)
-- 2026-06-29 19:26 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/225004.shtml)
-- 2026-06-29 19:14 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/7473449.shtml)
-- 2026-06-29 19:29 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/60329754.shtml)
-- 2026-06-29 19:22 - [金牌调解](https://www.blog.minike.top/Article/details/9340209.shtml)
-- 2026-06-29 19:34 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/76283089388.shtml)
-- 2026-06-29 19:20 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/403203203.shtml)
-- 2026-06-29 19:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/086693.shtml)
-- 2026-06-29 19:29 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/0294145.shtml)
-- 2026-06-29 19:35 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/9923739.shtml)
-- 2026-06-29 19:29 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/914523.shtml)
-- 2026-06-29 19:12 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/019183.shtml)
-- 2026-06-29 19:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/22495227.shtml)
+- 2026-06-29 19:14 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/420495263.shtml)
+- 2026-06-29 19:37 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/4035254170.shtml)
+- 2026-06-29 19:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/268596359826.shtml)
+- 2026-06-29 19:34 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/107599639.shtml)
+- 2026-06-29 19:40 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/889833.shtml)
+- 2026-06-29 19:24 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/88083.shtml)
+- 2026-06-29 19:21 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/12216749203.shtml)
+- 2026-06-29 19:21 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/428840653.shtml)
+- 2026-06-29 19:27 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/259214.shtml)
+- 2026-06-29 19:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/44960089197.shtml)
+- 2026-06-29 19:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/382877.shtml)
+- 2026-06-29 19:18 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/58512195679.shtml)
+- 2026-06-29 19:36 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/233812.shtml)
+- 2026-06-29 19:33 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/710237800.shtml)
+- 2026-06-29 19:34 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/734806.shtml)

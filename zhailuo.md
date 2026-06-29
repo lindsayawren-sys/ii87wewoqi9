@@ -1,49 +1,59 @@
-# 珀莱雅：拟3.51亿元收购花知晓公司12.55%股份
+# 五角大楼部署Anthropic公司的Mythos系统以弥补网络安全漏洞，同时计划终止与该公司的合作
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：蓝鲸新闻 珀莱雅5月21日公告，公司旗下全资子公司珀莱雅（海南）投资有限公司（以下简称“珀莱雅（海南）”），于2026年5月21日与自然人杨子枫，签订了《关于深圳花知晓电子商务有限公司之股权转让协议》，珀莱雅（海南）拟以自有资金通过支付现金方式受让杨子枫持有的花知晓公司12.5479%的股权，交易金额
+美国国防部首席技术官员周二表示，五角大楼正部署Anthropic公司的Mythos网络安全模型，用于发现并修复美国政府各机构的软件漏洞。 据Anthropic介绍，Mythos于4月7日发布，作为该公司“Project Glasswing”计划的一部分正在部署。这是一项受控计划，允许选定的组织使用尚未发布的Claude Mythos Preview模型，用于防御性网络安全目的。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国国防部首席技术官员周二表示，五角大楼正部署Anthropic公司的Mythos网络安全模型，用于发现并修复美国政府各机构的软件漏洞。
 
-来源：蓝鲸新闻 珀莱雅5月21日公告，公司旗下全资子公司珀莱雅（海南）投资有限公司（以下简称“珀莱雅（海南）”），于2026年5月21日与自然人杨子枫，签订了《关于深圳花知晓电子商务有限公司之股权转让协议》，珀莱雅（海南）拟以自有资金通过支付现金方式受让杨子枫持有的花知晓公司12.5479%的股权，交易金额为3.51亿元。
+据Anthropic介绍，Mythos于4月7日发布，作为该公司“Project Glasswing”计划的一部分正在部署。
 
-上述股权转让交割完成后，公司通过全资子公司珀莱雅（海南）持有花知晓公司51%的股权，花知晓公司纳入公司合并报表范围。
+这是一项受控计划，允许选定的组织使用尚未发布的Claude Mythos Preview模型，用于防御性网络安全目的。
 
-责任编辑：杨红卜
+据Anthropic介绍，Mythos能够检测出存在于网页浏览器、基础设施和软件中长达数十年的漏洞。
+
+美国国防部首席技术官兼研究与工程次长埃米尔·迈克尔表示，五角大楼将继续执行其计划，在未来数月内将Anthropic的产品从 项目中移除。
+
+但他指出，Mythos事件“关乎国家安全”，政府已因此加强了网络防护，因为该模型具备专门发现网络漏洞并进行修补的能力。
+
+迈克尔在华盛顿特区的一场会议上向与会者表示，虽然这些漏洞一直存在，但像Mythos这样的人工智能工具意味着现在可以更快地发现并修复它们——但也意味着漏洞会被更快地利用。
+
+迈克尔还表示，Anthropic的优势只是暂时的，并补充说OpenAI、xAI和谷歌的模型很快就会面世。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 19:11 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 19:12 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 19:19 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 19:27 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 19:25 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 19:29 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 19:15 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 19:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 19:06 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 19:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 19:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 19:27 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 19:15 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 19:21 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 19:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 19:35 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 19:22 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 19:34 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 19:12 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 19:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 19:31 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 19:41 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 19:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/326491.shtml)
-- 2026-06-29 19:22 - [NBA交易](http://www.blog.minike.top/Article/details/0021092.shtml)
-- 2026-06-29 19:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/6577315394.shtml)
-- 2026-06-29 19:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/40514836.shtml)
-- 2026-06-29 19:21 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/67026.shtml)
-- 2026-06-29 19:33 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/380395592.shtml)
-- 2026-06-29 19:13 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/88771121258.shtml)
-- 2026-06-29 19:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/13405572.shtml)
-- 2026-06-29 19:07 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/7986175384.shtml)
-- 2026-06-29 19:11 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/254854705965.shtml)
-- 2026-06-29 19:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/71086.shtml)
-- 2026-06-29 19:09 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/98131.shtml)
-- 2026-06-29 19:07 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/76213732.shtml)
-- 2026-06-29 19:29 - [沙丘](https://www.share.kurohicncr.top/Article/details/004825521826.shtml)
-- 2026-06-29 19:20 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/6099614.shtml)
+- 2026-06-29 19:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/24622651413.shtml)
+- 2026-06-29 19:23 - [北京市发布雷电黄色预警](http://www.share.minike.top/Article/details/237307.shtml)
+- 2026-06-29 19:20 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/14553291157.shtml)
+- 2026-06-29 19:23 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/90899587.shtml)
+- 2026-06-29 19:18 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/700080589717.shtml)
+- 2026-06-29 19:38 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/8562091745.shtml)
+- 2026-06-29 19:30 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/25368.shtml)
+- 2026-06-29 19:20 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/641493.shtml)
+- 2026-06-29 19:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/32135605342.shtml)
+- 2026-06-29 19:41 - [送你一朵小红花](https://www.blog.minike.top/Article/details/176299921368.shtml)
+- 2026-06-29 19:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/5816986619.shtml)
+- 2026-06-29 19:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/305605832.shtml)
+- 2026-06-29 19:32 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/4984369083.shtml)
+- 2026-06-29 19:17 - [逆天祖国人](http://www.blog.minike.top/Article/details/40468.shtml)
+- 2026-06-29 19:31 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/274291221.shtml)

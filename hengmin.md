@@ -1,57 +1,56 @@
-# 美军计划在日本部署“堤丰”中导系统 中方坚决反对
+# Coherus目标2026年LOQTORZI季度销售额达1500万美元，管线数据年中密集读出
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电 (记者 郭超凯)中国外交部发言人郭嘉昆22日主持例行记者会。 有记者提问：据报道，美军计划6月至9月在日本鹿儿岛县鹿屋航空基地部署“堤丰”中导系统，用于美日联合演习。演习结束后，“堤丰”中导系统将转移至驻日美军基地。请问中方对此有何评论？ 郭嘉昆：我们注意到有关报道。中方坚决反对美国在亚洲国家部署中导系统，并已多次就有关问题表明关切。“堤丰”中导系统是战
+Coherus Oncology周二公布一季度财报，重申2026年核心产品LOQTORZI季度销售额目标为约1500万美元，同时预计年中将迎来多项关键管线数据读出，包括casdozokitug和tagmokitug的临床进展。 LOQTORZI：一季度销售环比回落，新启动患者创新高 财报显示，LOQTORZI第一季度净销售额为1180万美元，较去年第四季度的1240万美元有所回
 
 ## 正文
 
-中新网北京5月22日电 (记者 郭超凯)中国外交部发言人郭嘉昆22日主持例行记者会。
+Coherus Oncology周二公布一季度财报，重申2026年核心产品LOQTORZI季度销售额目标为约1500万美元，同时预计年中将迎来多项关键管线数据读出，包括casdozokitug和tagmokitug的临床进展。
 
-有记者提问：据报道，美军计划6月至9月在日本鹿儿岛县鹿屋航空基地部署“堤丰”中导系统，用于美日联合演习。
+LOQTORZI：一季度销售环比回落，新启动患者创新高 财报显示，LOQTORZI第一季度净销售额为1180万美元，较去年第四季度的1240万美元有所回落，但同比增长61%。
 
-演习结束后，“堤丰”中导系统将转移至驻日美军基地。
+公司首席商务官Sameer Goregaoker将环比下滑归因于正常的一季度季节性和恶劣天气影响。
 
-请问中方对此有何评论？
+尽管销售额环比回落，LOQTORZI新启动患者数仍创下历史新高，订购账户宽度和深度均增长21%。
 
-郭嘉昆：我们注意到有关报道。
+公司重申全年季度需求增长预期为10%至15%，2026年目标季度销售额约为1500万美元，2027年目标提升至3000万至3500万美元，2028年峰值季度销售额预计达约4400万美元。
 
-中方坚决反对美国在亚洲国家部署中导系统，并已多次就有关问题表明关切。
+管线进展：casdozokitug与tagmokitug年中数据读出在即 公司管线进展备受市场关注。
 
-“堤丰”中导系统是战略进攻性武器，损害他国正当安全利益，威胁地区战略安全，加剧军事对抗和军备竞赛风险，对于地区和平稳定有百害而无一利。
+Casdozokitug联合toripalimab和贝伐珠单抗一线治疗不可切除肝细胞癌的随机二期试验已完成患者入组，预计于2026年年中首次数据读出。
 
-长期以来，包括日本在内的亚洲多国民众反对声音不绝于耳。
+此前公布的数据显示，在标准治疗基础上加入casdozokitug后，总缓解率达38%，完全缓解率达17%。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 19:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 19:34 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 19:10 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 19:20 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 19:18 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 19:29 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 19:20 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 19:13 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 19:08 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 19:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 19:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 19:28 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 19:23 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:31 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 19:13 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 19:28 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 19:25 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 19:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 19:28 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 19:31 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/85715332575.shtml)
-- 2026-06-29 19:32 - [王俊凯命名方式](http://www.share.minike.top/Article/details/720884.shtml)
-- 2026-06-29 19:20 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/65862.shtml)
-- 2026-06-29 19:24 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/890452515.shtml)
-- 2026-06-29 19:22 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/210438150756.shtml)
-- 2026-06-29 19:35 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/652278856.shtml)
-- 2026-06-29 19:20 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/909328368.shtml)
-- 2026-06-29 19:17 - [周生如故](http://www.blog.minike.top/Article/details/76882698689.shtml)
-- 2026-06-29 19:15 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/701417473613.shtml)
-- 2026-06-29 19:14 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/075465555.shtml)
-- 2026-06-29 19:12 - [金刚川](http://www.blog.minike.top/Article/details/323294.shtml)
-- 2026-06-29 19:06 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/83528642472.shtml)
-- 2026-06-29 19:19 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/622554645550.shtml)
-- 2026-06-29 19:32 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/104620595.shtml)
-- 2026-06-29 19:12 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/6839486.shtml)
+- 2026-06-29 19:15 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/6643853898.shtml)
+- 2026-06-29 19:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/739877961236.shtml)
+- 2026-06-29 19:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/8218934522.shtml)
+- 2026-06-29 19:15 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/330198582.shtml)
+- 2026-06-29 19:36 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/00638974191.shtml)
+- 2026-06-29 19:38 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/327306466.shtml)
+- 2026-06-29 19:28 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/745689.shtml)
+- 2026-06-29 19:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/99697870.shtml)
+- 2026-06-29 19:12 - [中方向委方追加1亿元援助](http://www.share.minike.top/Article/details/86107.shtml)
+- 2026-06-29 19:39 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/255124.shtml)
+- 2026-06-29 19:17 - [千与千寻](https://www.share.minike.top/Article/details/521516264755.shtml)
+- 2026-06-29 19:28 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/6408408667.shtml)
+- 2026-06-29 19:21 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/539624533004.shtml)
+- 2026-06-29 19:21 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/6200171485.shtml)
+- 2026-06-29 19:29 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/291366126.shtml)

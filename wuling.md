@@ -1,59 +1,59 @@
-# 美国鸡蛋因供应过剩价格暴跌 生产商称成本上涨挤压利润
+# 公募REITs二级市场继续小幅调整，算力REITs获政策明确支持
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-核心要点 对消费者而言，鸡蛋价格终于回落，是可喜的变化。 但生产商正面临新困境：供应过剩叠加生产成本上升，行业陷入被动。 市场从去年禽流感导致的短缺，快速转为供应过剩。生产商表示，超市零售价走低的背后，是成本通胀带来的利润挤压。 “一年前，所有人都在说鸡蛋有多贵，因为大量蛋鸡不幸病死。” 鸡蛋生产商 Pete & Gerry’s 首席执行官托马斯・弗洛科说。 “现在我们面临供应
+每经记者|李蕾 每经编辑|彭水萍 上周公募REITs二级市场继续小幅调整。截至上周五（5月8日），中证REITs（收盘）指数收于767.6点，环比下跌0.02%；中证REITs全收益指数收于1011.7点，环比上涨0.06%。 来自国信证券的数据显示，从主要指数周涨跌幅对比来看，中证转债>沪深300>中证全债>中证REITs。 据Wind数据，已上市的81只公募REITs产品中
 
 ## 正文
 
-核心要点 对消费者而言，鸡蛋价格终于回落，是可喜的变化。
+每经记者|李蕾 每经编辑|彭水萍 上周公募REITs二级市场继续小幅调整。
 
-但生产商正面临新困境：供应过剩叠加生产成本上升，行业陷入被动。
+截至上周五（5月8日），中证REITs（收盘）指数收于767.6点，环比下跌0.02%；中证REITs全收益指数收于1011.7点，环比上涨0.06%。
 
-市场从去年禽流感导致的短缺，快速转为供应过剩。
+来自国信证券的数据显示，从主要指数周涨跌幅对比来看，中证转债>沪深300>中证全债>中证REITs。
 
-生产商表示，超市零售价走低的背后，是成本通胀带来的利润挤压。
+据Wind数据，已上市的81只公募REITs产品中，环比上涨的为38只。
 
-“一年前，所有人都在说鸡蛋有多贵，因为大量蛋鸡不幸病死。
+涨幅最大的三只产品分别为国泰君安东久新经济REIT、华夏中国交建高速REIT和中金中国绿发消费REIT，周内分别上涨2.43%、1.85%和1.37%。
 
-” 鸡蛋生产商 Pete & Gerry’s 首席执行官托马斯・弗洛科说。
+环比下跌的也是38只，还有5只表现持平。
 
-“现在我们面临供应过剩，部分地区一打鸡蛋价格甚至跌破 1 美元。
+行业方面，上周长城华能燃煤发电、华夏华润电力燃煤发电、华夏蜀道集团高速等3单REITs申报。
 
-” 弗洛科表示。
+上周，公募REITs二级市场继续小幅调整。
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 19:22 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 19:21 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 19:22 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 19:29 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 19:11 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 19:16 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 19:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 19:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:11 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 19:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 19:07 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 19:12 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 19:23 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 19:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 19:19 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 19:34 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 19:35 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 19:19 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 19:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 19:17 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 19:40 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 19:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 19:27 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 19:39 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/182735824.shtml)
-- 2026-06-29 19:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/15829323.shtml)
-- 2026-06-29 19:27 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/389595.shtml)
-- 2026-06-29 19:23 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/4245745249.shtml)
-- 2026-06-29 19:14 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/24844841.shtml)
-- 2026-06-29 19:17 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/50609.shtml)
-- 2026-06-29 19:17 - [沙丘](http://www.share.minike.top/Article/details/203231948.shtml)
-- 2026-06-29 19:28 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/214231.shtml)
-- 2026-06-29 19:29 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/1576868.shtml)
-- 2026-06-29 19:10 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/15134662.shtml)
-- 2026-06-29 19:18 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/547315959204.shtml)
-- 2026-06-29 19:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/05885762857.shtml)
-- 2026-06-29 19:29 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/351453359121.shtml)
-- 2026-06-29 19:18 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/690369500.shtml)
-- 2026-06-29 19:21 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/3745252143.shtml)
+- 2026-06-29 19:12 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/530629.shtml)
+- 2026-06-29 19:25 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/733895886.shtml)
+- 2026-06-29 19:31 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/97011379406.shtml)
+- 2026-06-29 19:29 - [TTG KSG](https://www.blog.minike.top/Article/details/483348.shtml)
+- 2026-06-29 19:18 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/25047712.shtml)
+- 2026-06-29 19:18 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/78850890.shtml)
+- 2026-06-29 19:32 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/442853527513.shtml)
+- 2026-06-29 19:24 - [欧洲安装一台空调要花近8000元](https://www.share.minike.top/Article/details/903123.shtml)
+- 2026-06-29 19:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/19583.shtml)
+- 2026-06-29 19:33 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/46742279880.shtml)
+- 2026-06-29 19:40 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/47797307269.shtml)
+- 2026-06-29 19:28 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/806211.shtml)
+- 2026-06-29 19:39 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/807764.shtml)
+- 2026-06-29 19:37 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/21763100864.shtml)
+- 2026-06-29 19:36 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/662595.shtml)

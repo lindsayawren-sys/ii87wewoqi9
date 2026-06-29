@@ -1,57 +1,59 @@
-# 默沙东肺癌联合疗法III期研究成功，肿瘤进展风险降低65%
+# 韩正同文莱王储比拉举行会谈
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-默沙东于5月21日宣布，其与科伦博泰合作开发的抗体偶联药物sacituzumab tirumotecan联合Keytruda，在治疗非小细胞肺癌的III期研究中取得积极结果。受此消息提振，默沙东股价当日上涨逾3%。 研究数据显示，与Keytruda单药治疗相比，sac-TMT联合疗法可将患者的疾病进展或死亡风险显著降低65%。联合治疗组的客观缓解率达70.2%，而Keytrud
+新华社北京5月12日电 5月12日，国家副主席韩正在北京同文莱王储比拉举行会谈。 韩正表示，中文友谊根植于跨越千年的友好交往，是国家间平等相待、互利共赢的典范。去年习近平主席同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，为中文关系发展擘画了新蓝图。习近平主席刚刚同你会见，就中文关系发展提出了重要意见。今年是中文建交35周年，中方愿同文方共同落实好两国元首重要共识，传承传统友谊
 
 ## 正文
 
-默沙东于5月21日宣布，其与科伦博泰合作开发的抗体偶联药物sacituzumab tirumotecan联合Keytruda，在治疗非小细胞肺癌的III期研究中取得积极结果。
+新华社北京5月12日电 5月12日，国家副主席韩正在北京同文莱王储比拉举行会谈。
 
-受此消息提振，默沙东股价当日上涨逾3%。
+韩正表示，中文友谊根植于跨越千年的友好交往，是国家间平等相待、互利共赢的典范。
 
-研究数据显示，与Keytruda单药治疗相比，sac-TMT联合疗法可将患者的疾病进展或死亡风险显著降低65%。
+去年习近平主席同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，为中文关系发展擘画了新蓝图。
 
-联合治疗组的客观缓解率达70.2%，而Keytruda单药组为42%。
+习近平主席刚刚同你会见，就中文关系发展提出了重要意见。
 
-在总生存期方面，联合方案也呈现出获益趋势。
+今年是中文建交35周年，中方愿同文方共同落实好两国元首重要共识，传承传统友谊，增进战略合作，推动中文命运共同体建设迈上新台阶。
 
-该研究是一项在中国开展的随机、开放标签、多中心III期临床试验，共纳入413例既往未经治疗的PD-L1阳性晚期非小细胞肺癌患者。
+韩正表示，两国要在涉及彼此核心利益问题上相互支持，发挥好中文政府间联合指导委员会机制作用，深入推动共建“一带一路”旗舰项目，拓展人工智能、数字经济、绿色经济、能源、农业等领域合作。
 
-研究达到了无进展生存期的主要终点，这是全球首个在肺癌一线治疗中取得成功的ADC联合免疫疗法III期研究。
+办好建交35周年系列庆祝活动，加强旅游、教育、地方、体育等交流合作，进一步便利人员往来。
 
-sac-TMT是一款靶向TROP2的新型ADC药物，由科伦博泰发现并授权给默沙东在全球范围内共同开发。
+双方要密切多边协作，携手应对全球和地区性挑战，加快构建更为紧密的中国－东盟命运共同体，促进地区稳定与繁荣。
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 19:16 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 19:15 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 19:17 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 19:35 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 19:23 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 19:11 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 19:19 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 19:15 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 19:30 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 19:10 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 19:25 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 19:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 19:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:41 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 19:29 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 19:14 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 19:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 19:26 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 19:23 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 19:41 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 19:12 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 19:33 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 19:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/6601726335.shtml)
-- 2026-06-29 19:26 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/4262854746.shtml)
-- 2026-06-29 19:17 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/24792766.shtml)
-- 2026-06-29 19:17 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/84722344.shtml)
-- 2026-06-29 19:26 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/1084157409.shtml)
-- 2026-06-29 19:06 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/569721115.shtml)
-- 2026-06-29 19:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/729069552.shtml)
-- 2026-06-29 19:35 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/119027660.shtml)
-- 2026-06-29 19:26 - [TOP Prada](http://www.share.minike.top/Article/details/76552.shtml)
-- 2026-06-29 19:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/39374.shtml)
-- 2026-06-29 19:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/290539.shtml)
-- 2026-06-29 19:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/386727.shtml)
-- 2026-06-29 19:17 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/12853863.shtml)
-- 2026-06-29 19:20 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/450672901184.shtml)
-- 2026-06-29 19:11 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/632357936.shtml)
+- 2026-06-29 19:39 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/55242374402.shtml)
+- 2026-06-29 19:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/6482870.shtml)
+- 2026-06-29 19:34 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/1000682.shtml)
+- 2026-06-29 19:37 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/554501.shtml)
+- 2026-06-29 19:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/4821603517.shtml)
+- 2026-06-29 19:13 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/2162451.shtml)
+- 2026-06-29 19:40 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/9847923358.shtml)
+- 2026-06-29 19:35 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/14086936066.shtml)
+- 2026-06-29 19:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/994136472644.shtml)
+- 2026-06-29 19:20 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/95685.shtml)
+- 2026-06-29 19:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/39864403962.shtml)
+- 2026-06-29 19:38 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/997374202236.shtml)
+- 2026-06-29 19:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/566413795.shtml)
+- 2026-06-29 19:23 - [沙丘](http://www.share.minike.top/Article/details/373901.shtml)
+- 2026-06-29 19:29 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/7060934.shtml)

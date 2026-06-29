@@ -1,50 +1,61 @@
-# 大美边疆看我家丨内蒙古锡林浩特：碧波荡漾 群鸟欢腾
+# 欧盟负责人加大施压，整治社交媒体成瘾化设计
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 17:44 来源：中国新闻网 5月20日，在内蒙古自治区锡林浩特市，巴彦淖尔湖碧波荡漾、微风送爽，一幅人与自然和谐共生的生态画卷徐徐铺展。犹如天空之境的澄澈湖面上，成群的翘鼻麻鸭、赤麻鸭、长脚鹬、银鸥自在嬉戏，或逐波戏水或低空盘旋，灵动身影与粼粼波光相映成趣，为草原湖泊注入盎然生机。(作者：穆仁 崔巍光 萨其日 梁初一） 责任编辑：【魏聪聪】
+欧盟委员会主席乌尔苏拉・冯德莱恩周二表示，欧盟正制定新规，保护儿童免受TikTok、Meta以及X平台等社交媒体成瘾化设计的侵害。 冯德莱恩在哥本哈根发表演讲时称： “睡眠不足、抑郁、焦虑、自残、成瘾行为、网络霸凌、网络诱骗、人身剥削、自杀风险——各类风险正快速激增。” “这些风险就是数字世界的现实。它们并非偶然发生，而是商业模式造成的结果：这类商业模式把我们孩子的注意力当成了
 
 ## 正文
 
-发布时间：2026年05月21日 17:44 来源：中国新闻网 5月20日，在内蒙古自治区锡林浩特市，巴彦淖尔湖碧波荡漾、微风送爽，一幅人与自然和谐共生的生态画卷徐徐铺展。
+欧盟委员会主席乌尔苏拉・冯德莱恩周二表示，欧盟正制定新规，保护儿童免受TikTok、Meta以及X平台等社交媒体成瘾化设计的侵害。
 
-犹如天空之境的澄澈湖面上，成群的翘鼻麻鸭、赤麻鸭、长脚鹬、银鸥自在嬉戏，或逐波戏水或低空盘旋，灵动身影与粼粼波光相映成趣，为草原湖泊注入盎然生机。
+冯德莱恩在哥本哈根发表演讲时称： “睡眠不足、抑郁、焦虑、自残、成瘾行为、网络霸凌、网络诱骗、人身剥削、自杀风险——各类风险正快速激增。
 
-(作者：穆仁 崔巍光 萨其日 梁初一） 责任编辑：【魏聪聪】
+” “这些风险就是数字世界的现实。
+
+它们并非偶然发生，而是商业模式造成的结果：这类商业模式把我们孩子的注意力当成了可售卖的商品。
+
+” 冯德莱恩表示，欧盟委员会将在《数字公平法案》中专门整治具有成瘾性和危害性的产品设计套路，该法案预计将于今年年底提交草案。
+
+她还称，《数字公平法案》也将对社交媒体领域的人工智能应用设置严格限制，同时欧盟正倡导设立社交媒体使用最低准入年龄。
+
+冯德莱恩提出，欧盟必须考虑设定社交媒体准入最低年龄，并补充说，在专家小组提出相关建议后，欧盟委员会或于今年夏季就此问题提出立法提案。
+
+她表示：“问题不在于年轻人该不该使用社交媒体，而在于社交媒体该不该触达未成年人。
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 19:16 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 19:35 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 19:11 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 19:27 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 19:21 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 19:08 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 19:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 19:20 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 19:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 19:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 19:31 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 19:06 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 19:17 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 19:34 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 19:38 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 19:15 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 19:25 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 19:35 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 19:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 19:34 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 19:36 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 19:37 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 19:21 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 19:38 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 19:15 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 19:25 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 19:19 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 19:28 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [周生如故](https://www.blog.minike.top/Article/details/407188443710.shtml)
-- 2026-06-29 19:16 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/7165731.shtml)
-- 2026-06-29 19:11 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/82875594799.shtml)
-- 2026-06-29 19:21 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/97499.shtml)
-- 2026-06-29 19:17 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/31818989569.shtml)
-- 2026-06-29 19:08 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/401582442485.shtml)
-- 2026-06-29 19:31 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/115414.shtml)
-- 2026-06-29 19:06 - [美人鱼](https://www.share.kurohicncr.top/Article/details/1481977.shtml)
-- 2026-06-29 19:25 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/676891023600.shtml)
-- 2026-06-29 19:19 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/624361.shtml)
-- 2026-06-29 19:30 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/42049.shtml)
-- 2026-06-29 19:13 - [TOP Prada](http://www.blog.minike.top/Article/details/53250914028.shtml)
-- 2026-06-29 19:27 - [永远有话聊的原因](http://www.share.minike.top/Article/details/8753817.shtml)
-- 2026-06-29 19:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/171141.shtml)
-- 2026-06-29 19:07 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/1793728063.shtml)
+- 2026-06-29 19:17 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/780592252342.shtml)
+- 2026-06-29 19:37 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/8695277033.shtml)
+- 2026-06-29 19:21 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/6854332.shtml)
+- 2026-06-29 19:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/7383977.shtml)
+- 2026-06-29 19:31 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/03188.shtml)
+- 2026-06-29 19:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/9469416706.shtml)
+- 2026-06-29 19:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/729479516088.shtml)
+- 2026-06-29 19:39 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/799782.shtml)
+- 2026-06-29 19:26 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/85869781731.shtml)
+- 2026-06-29 19:36 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/174727.shtml)
+- 2026-06-29 19:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/87765.shtml)
+- 2026-06-29 19:31 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/417652.shtml)
+- 2026-06-29 19:15 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/5224761.shtml)
+- 2026-06-29 19:38 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/6616177.shtml)
+- 2026-06-29 19:37 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/974560.shtml)

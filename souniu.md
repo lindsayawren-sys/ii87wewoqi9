@@ -1,54 +1,57 @@
-# 樊敏华：香港正从海南“超级联系人”升级为“超级增值人”
+# 北辰商管朱钦：除租金，企业关心多方面发展问题
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 19:50 来源：中国新闻网 5月21日，琼港企业家合作大会暨粤港澳大湾区企业家联盟海南行活动在海口举行。全国政协委员、香港中华总商会副会长樊敏华在分享琼港投资经验时表示，香港正在从海南的 “超级联系人” 升级为“超级增值人”。对海南来说，香港可以在几个方面发挥 “增值” 作用。一是品牌建设，香港有成熟的品牌运营经验和国际营销网络，可以帮助海南
+专题：2026观点商办暨资管大会 2026观点商办暨资管大会·现场快讯：5月12日，2026观点商办暨资管大会在北京召开，会议主题为“破局重构·长效共生”。 活动现场，北京北辰商业管理有限公司副总经理朱钦，在主题讨论会上对生态赋能做了分享。 朱钦表示，实际招商中，写字楼租金只是企业很小的一部分成本。企业最关心的是在经济下行时期如何生存、如何找到新订单、如何快速发展。现在企业入驻
 
 ## 正文
 
-发布时间：2026年05月21日 19:50 来源：中国新闻网 5月21日，琼港企业家合作大会暨粤港澳大湾区企业家联盟海南行活动在海口举行。
+专题：2026观点商办暨资管大会 2026观点商办暨资管大会·现场快讯：5月12日，2026观点商办暨资管大会在北京召开，会议主题为“破局重构·长效共生”。
 
-全国政协委员、香港中华总商会副会长樊敏华在分享琼港投资经验时表示，香港正在从海南的 “超级联系人” 升级为“超级增值人”。
+活动现场，北京北辰商业管理有限公司副总经理朱钦，在主题讨论会上对生态赋能做了分享。
 
-对海南来说，香港可以在几个方面发挥 “增值” 作用。
+朱钦表示，实际招商中，写字楼租金只是企业很小的一部分成本。
 
-一是品牌建设，香港有成熟的品牌运营经验和国际营销网络，可以帮助海南企业和产品建立国际品牌形象；二是规则衔接 ，香港的普通法体系和国际化标准，可以协助海南对接国际高标准经贸规则；三是人才汇聚，香港汇聚全球专业人才，可以为海南引进国际化的管理和技术团队。
+企业最关心的是在经济下行时期如何生存、如何找到新订单、如何快速发展。
 
-樊敏华建议，要打造大湾区规则衔接的示范平台，便利科研跨境流动，促进琼港粤三地青年交流。
+现在企业入驻写字楼，更多关心找政策、找投资、找场景、找订单。
 
-(记者 林士杰） 责任编辑：【李季】
+因此从这些维度出发，商管企业首先要做的是政策引领，“我们的产业团队精准整理了北京市和朝阳区所有相关政策库。
+
+”； 第二是金融对接。
+
+“我们与政府充分合作，朝阳区有引导基金和金融服务矩阵。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 19:14 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 19:22 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 19:24 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 19:28 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 19:13 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 19:09 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 19:35 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 19:07 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 19:24 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 19:31 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 19:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 19:40 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 19:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 19:25 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 19:16 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 19:15 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 19:12 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 19:22 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 19:17 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 19:27 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 19:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 19:25 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/5711594.shtml)
-- 2026-06-29 19:32 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/216619514647.shtml)
-- 2026-06-29 19:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/4844606.shtml)
-- 2026-06-29 19:34 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/044862.shtml)
-- 2026-06-29 19:06 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/5827189.shtml)
-- 2026-06-29 19:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/10028019587.shtml)
-- 2026-06-29 19:25 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/833971.shtml)
-- 2026-06-29 19:33 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/693258586.shtml)
-- 2026-06-29 19:08 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/17192051260.shtml)
-- 2026-06-29 19:08 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/06673.shtml)
-- 2026-06-29 19:33 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/954763096159.shtml)
-- 2026-06-29 19:22 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/8065857919.shtml)
-- 2026-06-29 19:30 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/14124750.shtml)
-- 2026-06-29 19:22 - [爱很美味](https://www.share.minike.top/Article/details/2481535027.shtml)
-- 2026-06-29 19:07 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/76945080.shtml)
+- 2026-06-29 19:36 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/94280935742.shtml)
+- 2026-06-29 19:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/450446.shtml)
+- 2026-06-29 19:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2489382.shtml)
+- 2026-06-29 19:14 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/745411.shtml)
+- 2026-06-29 19:24 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/77074.shtml)
+- 2026-06-29 19:40 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/57534566.shtml)
+- 2026-06-29 19:13 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/2367994865.shtml)
+- 2026-06-29 19:28 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/56623243320.shtml)
+- 2026-06-29 19:24 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/6110839.shtml)
+- 2026-06-29 19:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/9710291.shtml)
+- 2026-06-29 19:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/682147321514.shtml)
+- 2026-06-29 19:36 - [女生每天戴耳机18小时突发耳聋](http://www.share.minike.top/Article/details/518247080.shtml)
+- 2026-06-29 19:37 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/6374896478.shtml)
+- 2026-06-29 19:31 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/105359.shtml)
+- 2026-06-29 19:29 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/9309179.shtml)

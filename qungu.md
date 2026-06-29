@@ -1,45 +1,58 @@
-# 中国建设银行广东省分行原资深副经理李宝生接受审查调查
+# 四川累计推动超百万民众远离地灾威胁
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 据中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委消息：中国建设银行广东省分行原资深副经理李宝生涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国建设银行纪检监察组纪律审查和广东省东莞市监察委员会监察调查。
+中新网成都5月12日电 5月12日，四川省自然资源厅发布消息称，自2008年汶川8.0级特大地震以来，十八年间，四川累计让超百万民众远离地质灾害威胁，四川全省地灾年均伤亡人数较“十一五”时期下降83.6%。 四川是全国地质灾害最严重的省份之一，全省近96%的国土处于地质灾害易发区，隐患点多面广、威胁范围大、成灾风险高。“宁可十防九空，不可失防万一”。四川的避险搬迁之路正是在这样
 
 ## 正文
 
-中新网5月22日电 据中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委消息：中国建设银行广东省分行原资深副经理李宝生涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国建设银行纪检监察组纪律审查和广东省东莞市监察委员会监察调查。
+中新网成都5月12日电 5月12日，四川省自然资源厅发布消息称，自2008年汶川8.0级特大地震以来，十八年间，四川累计让超百万民众远离地质灾害威胁，四川全省地灾年均伤亡人数较“十一五”时期下降83.6%。
+
+四川是全国地质灾害最严重的省份之一，全省近96%的国土处于地质灾害易发区，隐患点多面广、威胁范围大、成灾风险高。
+
+“宁可十防九空，不可失防万一”。
+
+四川的避险搬迁之路正是在这样的困境中艰难前行。
+
+2007年，四川已在全国率先出台省级地质灾害避险搬迁管理办法，将这项工作纳入省级民生工程。
+
+汶川地震之后，面对山体松动、隐患点激增的严峻形势，四川在极重灾区率先探索“临时安置用地先行使用、旧宅基地复垦落实占补平衡”的用地模式。
+
+这个从废墟中摸索出的经验，为山区搬迁安置积累了一批宝贵的“实战经验”。
+
+2023年，四川印发《四川省受山洪地质灾害威胁村(居)民避险搬迁总体规划(2023—2027年)》，明确搬迁约5.9万户、22.6万人，这也是四川单次规划的最大规模山洪地灾避险搬迁。
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 19:24 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 19:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 19:27 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 19:14 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 19:34 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 19:23 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 19:25 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 19:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 19:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 19:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 19:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 19:30 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 19:36 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 19:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 19:24 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 19:28 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 19:32 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 19:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 19:21 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 19:22 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 19:31 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 19:33 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 19:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 19:35 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/687880.shtml)
-- 2026-06-29 19:32 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/73754012.shtml)
-- 2026-06-29 19:29 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/65773933323.shtml)
-- 2026-06-29 19:33 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/26862365.shtml)
-- 2026-06-29 19:12 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/92131205.shtml)
-- 2026-06-29 19:30 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/574806269.shtml)
-- 2026-06-29 19:09 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/00907284.shtml)
-- 2026-06-29 19:19 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/15843030443.shtml)
-- 2026-06-29 19:26 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/559783311.shtml)
-- 2026-06-29 19:28 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/6678510.shtml)
-- 2026-06-29 19:07 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/1327895232.shtml)
-- 2026-06-29 19:28 - [这一刀 会很帅](http://www.share.minike.top/Article/details/9132087.shtml)
-- 2026-06-29 19:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/651548171.shtml)
-- 2026-06-29 19:20 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/97339928895.shtml)
-- 2026-06-29 19:31 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/8783625937.shtml)
+- 2026-06-29 19:15 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/4258161953.shtml)
+- 2026-06-29 19:15 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/12560631.shtml)
+- 2026-06-29 19:16 - [天道](https://www.blog.kurohicncr.top/Article/details/16147552358.shtml)
+- 2026-06-29 19:14 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/73065862.shtml)
+- 2026-06-29 19:14 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/23001.shtml)
+- 2026-06-29 19:18 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/344202.shtml)
+- 2026-06-29 19:25 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/46575687663.shtml)
+- 2026-06-29 19:39 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/2469506147.shtml)
+- 2026-06-29 19:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/06548.shtml)
+- 2026-06-29 19:22 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/64863404975.shtml)
+- 2026-06-29 19:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/321180009731.shtml)
+- 2026-06-29 19:15 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/76118459325.shtml)
+- 2026-06-29 19:18 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/03687.shtml)
+- 2026-06-29 19:21 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/12212235286.shtml)
+- 2026-06-29 19:29 - [金牌调解](https://www.share.kurohicncr.top/Article/details/14494.shtml)

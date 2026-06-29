@@ -1,50 +1,52 @@
-# 证监会拟对老虎、富途、长桥严厉处罚
+# 千元A股+1！300308，大涨超7%
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 19:06 来源：中国新闻网 证监会22日宣布，老虎、富途、长桥境内外相关主体未经证监会核准，未取得经营证券经纪业务许可、经营证券融资融券业务许可，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，构成非法经营证券业务。此外，三家机构境内外相关主体还构成非法从事公募基金销售业务、非法从事期货经纪业务。证监会拟决定没收老虎
+又一只千元A股。 5月12日，光模块龙头中际旭创（300308）盘中大涨超7%，股价突破1000元，成为A股市场又一只千元股，也是创业板第二只千元股（第一只为爱美客，后因实施高送转除权，股价回至千元下方）。 Wind统计数据显示，自去年4月创下阶段低点以来，中际旭创自低点最高涨幅超过1400%，今年以来，公司股价累计涨幅超过65%。 今年一季度，中际旭创实现营业收入194.96
 
 ## 正文
 
-发布时间：2026年05月22日 19:06 来源：中国新闻网 证监会22日宣布，老虎、富途、长桥境内外相关主体未经证监会核准，未取得经营证券经纪业务许可、经营证券融资融券业务许可，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，构成非法经营证券业务。
+又一只千元A股。
 
-此外，三家机构境内外相关主体还构成非法从事公募基金销售业务、非法从事期货经纪业务。
+5月12日，光模块龙头中际旭创（300308）盘中大涨超7%，股价突破1000元，成为A股市场又一只千元股，也是创业板第二只千元股（第一只为爱美客，后因实施高送转除权，股价回至千元下方）。
 
-证监会拟决定没收老虎、富途、长桥境内外相关主体全部违法所得，并依法严厉处罚。
+Wind统计数据显示，自去年4月创下阶段低点以来，中际旭创自低点最高涨幅超过1400%，今年以来，公司股价累计涨幅超过65%。
 
-美股盘前，截至发稿时，富途控股、老虎证券均跌超30%。
+今年一季度，中际旭创实现营业收入194.96亿元，同比增长192.12%；归母净利润57.35亿元，同比增长262.28%。
 
-(记者 谢艺观） 责任编辑：【宋宇晟】
+综合自：公司公告
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 19:21 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 19:09 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 19:14 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 19:35 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 19:25 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 19:20 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 19:16 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 19:26 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 19:08 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 19:27 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 19:30 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 19:41 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 19:38 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 19:36 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:13 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 19:35 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 19:31 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 19:38 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 19:40 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 19:34 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 19:24 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/193649494.shtml)
-- 2026-06-29 19:23 - [美人鱼](http://www.share.minike.top/Article/details/32490565293.shtml)
-- 2026-06-29 19:11 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/886053.shtml)
-- 2026-06-29 19:07 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/244613388.shtml)
-- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/55187644.shtml)
-- 2026-06-29 19:09 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/56472394.shtml)
-- 2026-06-29 19:26 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/286218.shtml)
-- 2026-06-29 19:19 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/7986716936.shtml)
-- 2026-06-29 19:28 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/48064909.shtml)
-- 2026-06-29 19:07 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/024498139863.shtml)
-- 2026-06-29 19:15 - [我们的少年时代2](https://www.share.minike.top/Article/details/670354.shtml)
-- 2026-06-29 19:10 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/7365800.shtml)
-- 2026-06-29 19:17 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/45736.shtml)
-- 2026-06-29 19:28 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/1263310725.shtml)
-- 2026-06-29 19:16 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/691175796.shtml)
+- 2026-06-29 19:30 - [天道](https://www.share.kurohicncr.top/Article/details/5854813304.shtml)
+- 2026-06-29 19:23 - [周生如故](https://www.share.minike.top/Article/details/70113.shtml)
+- 2026-06-29 19:40 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/6830542.shtml)
+- 2026-06-29 19:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/673470.shtml)
+- 2026-06-29 19:16 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/21140.shtml)
+- 2026-06-29 19:41 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/472777048.shtml)
+- 2026-06-29 19:20 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/18533019.shtml)
+- 2026-06-29 19:33 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/6721141.shtml)
+- 2026-06-29 19:40 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/96383977717.shtml)
+- 2026-06-29 19:39 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/339027665655.shtml)
+- 2026-06-29 19:13 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/608210.shtml)
+- 2026-06-29 19:35 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/463745579.shtml)
+- 2026-06-29 19:15 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/40547468.shtml)
+- 2026-06-29 19:40 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/610148791.shtml)
+- 2026-06-29 19:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/157150.shtml)

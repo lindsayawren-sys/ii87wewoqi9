@@ -1,61 +1,60 @@
-# 国际油价直线上涨，美股芯片股盘前多数飘红，中概股走弱，蔚来逆势涨近5%
+# 银河娱乐第一季度净收益为124亿港元 按年上升11%
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间5月21日傍晚，美股三大期货全线转跌，截至18点40分，道指期货跌0.28%，标普500期货跌0.42%，纳指期货跌0.59%。 芯片股盘前多数上涨，美光科技、ARM涨超2%，闪迪、迈威尔科技涨超1%，英伟达涨约0.7%，希捷科技、西部数据等同步上涨。昨夜大涨的英特尔、AMD盘前回落。 量子计算概念
+银河娱乐（00027）发布公告，于2026年第一季度，集团录得净收益为124亿港元，按年上升11%，按季下跌10%。经调整EBITDA为36亿港元，按年增长8%，按季下跌17%。业绩的季度变动受到运气因素的影响。于2025年第四季度，集团的经调整EBITDA为43亿港元，其中包括因净赢率偏高而增加了约7.3亿港元；然而在第一季度却因净赢率偏低而减少了约200万港元。撇除赢率的因
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+银河娱乐（00027）发布公告，于2026年第一季度，集团录得净收益为124亿港元，按年上升11%，按季下跌10%。
 
-北京时间5月21日傍晚，美股三大期货全线转跌，截至18点40分，道指期货跌0.28%，标普500期货跌0.42%，纳指期货跌0.59%。
+经调整EBITDA为36亿港元，按年增长8%，按季下跌17%。
 
-芯片股盘前多数上涨，美光科技、ARM涨超2%，闪迪、迈威尔科技涨超1%，英伟达涨约0.7%，希捷科技、西部数据等同步上涨。
+业绩的季度变动受到运气因素的影响。
 
-昨夜大涨的英特尔、AMD盘前回落。
+于2025年第四季度，集团的经调整EBITDA为43亿港元，其中包括因净赢率偏高而增加了约7.3亿港元；然而在第一季度却因净赢率偏低而减少了约200万港元。
 
-量子计算概念股盘前集体大涨，IBM大涨8%，RGTI、QBTS、QUBT涨超10%。
+撇除赢率的因素，经调整EBITDA与上一季持平。
 
-据报道，美国将向9家量子计算公司划拨20亿美元，政府将获得股权。
+农历新年期间业务表现稳健，并与去年相近，假期後业务表现持续走强。
 
-中概股方面，蔚来美股盘前上涨近5%，据证券时报，蔚来一季度实现经营利润6680万元，连续两个季度盈利；一季度总营收255.3亿元，同比增长112.2%。
+银娱的资产负债表维持健康及高流动性，持有之现金及流动投资为392亿港元。
 
-其他热门中概股走弱，阿里巴巴、百度跌超4%，哔哩哔哩跌近4%，贝壳、网易跌超3%。
+此财务实力让我们有能力投资未来发展、探讨海外机遇、以及透过股息向股东回馈资本。
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 19:16 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 19:33 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 19:19 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 19:23 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 19:35 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 19:28 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 19:30 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 19:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 19:31 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 19:28 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 19:34 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 19:08 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 19:18 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 19:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 19:20 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 19:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 19:20 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 19:38 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 19:40 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 19:21 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 19:34 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 19:17 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 19:35 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 19:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 19:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 19:21 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 19:32 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/4288622.shtml)
-- 2026-06-29 19:20 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/87617.shtml)
-- 2026-06-29 19:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/4239690683.shtml)
-- 2026-06-29 19:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/2246607.shtml)
-- 2026-06-29 19:29 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/444541469.shtml)
-- 2026-06-29 19:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/47746820185.shtml)
-- 2026-06-29 19:21 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/6718725148.shtml)
-- 2026-06-29 19:16 - [金刚川](http://www.share.kurohicncr.top/Article/details/772145524.shtml)
-- 2026-06-29 19:21 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/12560699895.shtml)
-- 2026-06-29 19:26 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/0501892892.shtml)
-- 2026-06-29 19:34 - [扫黑风暴](https://www.blog.minike.top/Article/details/919572257.shtml)
-- 2026-06-29 19:24 - [小娘惹](https://www.share.minike.top/Article/details/1240602.shtml)
-- 2026-06-29 19:06 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/21619.shtml)
-- 2026-06-29 19:22 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/7040283456.shtml)
-- 2026-06-29 19:12 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/557802967.shtml)
+- 2026-06-29 19:15 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/3582464025.shtml)
+- 2026-06-29 19:25 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/767210.shtml)
+- 2026-06-29 19:20 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/045060296.shtml)
+- 2026-06-29 19:33 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/979339.shtml)
+- 2026-06-29 19:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/712710.shtml)
+- 2026-06-29 19:16 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/67242768186.shtml)
+- 2026-06-29 19:28 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/337172.shtml)
+- 2026-06-29 19:18 - [沙丘](http://www.blog.minike.top/Article/details/15881331.shtml)
+- 2026-06-29 19:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/94157870027.shtml)
+- 2026-06-29 19:23 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/23077.shtml)
+- 2026-06-29 19:19 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/95097.shtml)
+- 2026-06-29 19:24 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/72395.shtml)
+- 2026-06-29 19:24 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/507055372.shtml)
+- 2026-06-29 19:40 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/99294.shtml)
+- 2026-06-29 19:38 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/430244509670.shtml)

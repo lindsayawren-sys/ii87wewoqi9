@@ -1,57 +1,56 @@
-# 见义勇为医疗费也能报销？多地惠民保升级到“夯”
+# 英派药业-B首挂上市 早盘高开76.62%
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-来源：北京商报 作者：李秀梅 惠民保，又称城市定制型商业医疗保险，是由地方政府相关部门指导、保险公司商业运作、居民自愿参保的一种补充医疗保险产品。5月21日，北京商报记者注意到，近期，多地相继发布新版惠民保，迭代升级后的产品在延续亲民保费基础上，保障内容的实质性升级成为新一轮竞争主旋律。通过扩大特药目录、降低起付门槛、拓展保障范围以及升级健康管理服务等一系列举措，惠民保在“惠民
+英派药业-B（07630）首挂上市，公告显示，每股定价20.1港元，共发行4197.7万股股份，每手200股，所得款项净额约7.6亿港元。截至发稿，股价上涨76.62%，报35.5港元，成交额2.07亿港元。 公开资料显示，英派药业是一家处于商业化阶段的生物技术公司，致力于在全球范围内推进基于合成致死机制的精准抗癌疗法，打造创新疗法，以满足癌症患者未被满足的医疗需求。公司的核心
 
 ## 正文
 
-来源：北京商报 作者：李秀梅 惠民保，又称城市定制型商业医疗保险，是由地方政府相关部门指导、保险公司商业运作、居民自愿参保的一种补充医疗保险产品。
+英派药业-B（07630）首挂上市，公告显示，每股定价20.1港元，共发行4197.7万股股份，每手200股，所得款项净额约7.6亿港元。
 
-5月21日，北京商报记者注意到，近期，多地相继发布新版惠民保，迭代升级后的产品在延续亲民保费基础上，保障内容的实质性升级成为新一轮竞争主旋律。
+截至发稿，股价上涨76.62%，报35.5港元，成交额2.07亿港元。
 
-通过扩大特药目录、降低起付门槛、拓展保障范围以及升级健康管理服务等一系列举措，惠民保在“惠民”的方向上前进了一步。
+公开资料显示，英派药业是一家处于商业化阶段的生物技术公司，致力于在全球范围内推进基于合成致死机制的精准抗癌疗法，打造创新疗法，以满足癌症患者未被满足的医疗需求。
 
-拓宽服务边界 “保费不变，保障升级”是当前惠民保产品中最常见的宣传语。
+公司的核心产品塞纳帕利于2025年1月获批用于中国卵巢癌 “全人群” 一线维持治疗后正式启动商业化。
 
-随着一年一度产品升级迭代，各地惠民保项目的保障和服务不断加码。
+截至最后实际可行日期，英派药业已构建了1款商业化产品、4款临床阶段产品、7款临床前产品的管线矩阵，覆盖PARP1/2、PARP1、 ATR、WEE1、PKMYT1/WEE1等关键合成致死靶点的小分子抑制剂。
 
-5月20日，国家金融监督管理总局青岛监管局发文表示，推动城市定制型医疗保险扩面提质，召开“琴岛e保”专题推进会议，指导共保体优化产品设计，进一步降低起付线，扩大报销范围，新增见义勇为关怀保障、少儿特定重疾补偿、救护车费用保障等责任条款。
+同时布局ADC及蛋白降解剂候选药物等新兴疗法。
 
-具体细节中，“琴岛e保”见义勇为关怀保障保额10万元。
+公司是全球仅有的三家同时拥有商业化阶段PARP1/2抑制剂及临床阶段下一代PARP1选择性抑制剂的企业之一。
 
-因见义勇为行为导致人身伤害所产生的医保范围内个人负担医疗费用，可100%报销。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 19:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 19:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 19:15 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 19:14 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 19:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 19:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 19:28 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 19:23 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 19:35 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 19:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 19:31 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 19:14 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 19:27 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 19:17 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 19:12 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:33 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 19:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 19:18 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 19:22 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 19:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/583731049535.shtml)
-- 2026-06-29 19:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/00886.shtml)
-- 2026-06-29 19:27 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/958944701.shtml)
-- 2026-06-29 19:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/881068166765.shtml)
-- 2026-06-29 19:24 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/037808.shtml)
-- 2026-06-29 19:17 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/12803.shtml)
-- 2026-06-29 19:06 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/43584408266.shtml)
-- 2026-06-29 19:19 - [逃狱兄弟](http://www.blog.minike.top/Article/details/6490603.shtml)
-- 2026-06-29 19:22 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/051064420646.shtml)
-- 2026-06-29 19:14 - [斛珠夫人](https://www.blog.minike.top/Article/details/783786831.shtml)
-- 2026-06-29 19:13 - [人形机器人](https://www.share.kurohicncr.top/Article/details/677760938159.shtml)
-- 2026-06-29 19:11 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/74594078.shtml)
-- 2026-06-29 19:27 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/280647471.shtml)
-- 2026-06-29 19:15 - [极限挑战第一季](https://www.share.minike.top/Article/details/48998718279.shtml)
-- 2026-06-29 19:08 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/22612698.shtml)
+- 2026-06-29 19:34 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/9925853.shtml)
+- 2026-06-29 19:12 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/53045279.shtml)
+- 2026-06-29 19:38 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/4218646.shtml)
+- 2026-06-29 19:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/29750146.shtml)
+- 2026-06-29 19:21 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/9694390.shtml)
+- 2026-06-29 19:36 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/5535748.shtml)
+- 2026-06-29 19:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/33643674245.shtml)
+- 2026-06-29 19:22 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/66974.shtml)
+- 2026-06-29 19:39 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/73117.shtml)
+- 2026-06-29 19:13 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/43212.shtml)
+- 2026-06-29 19:39 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/907584588594.shtml)
+- 2026-06-29 19:35 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/34621102.shtml)
+- 2026-06-29 19:17 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/516817.shtml)
+- 2026-06-29 19:37 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/198153750.shtml)
+- 2026-06-29 19:29 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/8345975.shtml)

@@ -1,57 +1,59 @@
-# 滇西物流咽喉装上“数字心脏”：5G生产专网打通运输堵点
+# 尼泊尔西部一大巴事故已致4亡26伤
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-中新网云南保山5月22日电 (时文枝 李烨)“过去在园区等货源，一耗就是好几个小时；现在一部手机就能完成预约入场、车辆排队、账单查询等业务，再也不用多次跑腿。”站在云南省保山市蒲缥公铁联运物流园(以下简称园区)的货车司机王全安感慨，依托园区新搭建的数字化运营平台，“找货难”“等货久”正成为历史。 蒲缥公铁联运物流园是云南大瑞铁路末端的核心节点，也是中缅印度洋公铁海多式联运的“咽
+中新社加德满都5月12日电 (记者 崔楠)尼泊尔西部蓝毗尼省阿尔加坎奇县12日发生一起大巴坠落事故，已造成4人遇难、26人受伤。 当地警方称，事故车辆载有30人，事发时正从阿尔加坎奇县苏帕德乌拉利寺返回帕尔巴特县。大巴在行驶途中偏离道路，坠下约100米高的山崖。 警方表示，事故造成两名乘客当场身亡，另有两人在送医后因伤势过重宣告不治。目前，伤者正在当地医院接受治疗，部分人员伤势
 
 ## 正文
 
-中新网云南保山5月22日电 (时文枝 李烨)“过去在园区等货源，一耗就是好几个小时；现在一部手机就能完成预约入场、车辆排队、账单查询等业务，再也不用多次跑腿。
+中新社加德满都5月12日电 (记者 崔楠)尼泊尔西部蓝毗尼省阿尔加坎奇县12日发生一起大巴坠落事故，已造成4人遇难、26人受伤。
 
-”站在云南省保山市蒲缥公铁联运物流园(以下简称园区)的货车司机王全安感慨，依托园区新搭建的数字化运营平台，“找货难”“等货久”正成为历史。
+当地警方称，事故车辆载有30人，事发时正从阿尔加坎奇县苏帕德乌拉利寺返回帕尔巴特县。
 
-蒲缥公铁联运物流园是云南大瑞铁路末端的核心节点，也是中缅印度洋公铁海多式联运的“咽喉”。
+大巴在行驶途中偏离道路，坠下约100米高的山崖。
 
-自2023年4月投运以来，园区立足滇西、面向南亚东南亚，加快构建集铁路货运、公路转运、仓储配送、智慧管理于一体的现代化物流枢纽。
+警方表示，事故造成两名乘客当场身亡，另有两人在送医后因伤势过重宣告不治。
 
-数智赋能之下，中缅公铁海跨境多式联运持续优化，铁矿石、煤炭、白糖等大宗物资在此运输愈发高效顺畅。
+目前，伤者正在当地医院接受治疗，部分人员伤势严重。
 
-公开数据显示，截至今年4月，园区累计货物到发量已突破682万吨，月均运货量由18.56万吨升至23.46万吨，业务增长26%。
+目前，警方正对事故车辆进行机械检查，以进一步查明事故原因。
 
-“通过打造全省首张公铁联运5G生产专网，我们一举破解传统物流园信息化水平低、多系统信息脱节等难题，实现从智能场站作业到全程运输可视化的高效协同。
-
-”云南瑞和锦程实业股份有限公司蒲缥公铁联运物流园副总经理刘建锋介绍，目前，园区集装箱装卸效率提升17%，整列火车卸车时间从5小时压缩至3.5小时，大宗物流运输时间缩短一半。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 19:23 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 19:31 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 19:06 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 19:16 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 19:35 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 19:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 19:17 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 19:21 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 19:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 19:35 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 19:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 19:25 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 19:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 19:24 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 19:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 19:23 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 19:28 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 19:41 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 19:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 19:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 19:34 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 19:39 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 19:37 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 19:13 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 19:41 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/5232329795.shtml)
-- 2026-06-29 19:17 - [官方通报一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/27702083.shtml)
-- 2026-06-29 19:18 - [千与千寻](http://www.share.minike.top/Article/details/093799292.shtml)
-- 2026-06-29 19:34 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/9250766314.shtml)
-- 2026-06-29 19:08 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/424904.shtml)
-- 2026-06-29 19:07 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/277622.shtml)
-- 2026-06-29 19:23 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/3250129462.shtml)
-- 2026-06-29 19:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/673673894896.shtml)
-- 2026-06-29 19:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/3628206128.shtml)
-- 2026-06-29 19:17 - [周生如故](http://www.share.kurohicncr.top/Article/details/82181168.shtml)
-- 2026-06-29 19:28 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/9347581.shtml)
-- 2026-06-29 19:13 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/58123870.shtml)
-- 2026-06-29 19:28 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/1809610855.shtml)
-- 2026-06-29 19:09 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/42292126.shtml)
-- 2026-06-29 19:06 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/007168477.shtml)
+- 2026-06-29 19:12 - [逆天祖国人](http://www.share.minike.top/Article/details/35270.shtml)
+- 2026-06-29 19:13 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/91086263413.shtml)
+- 2026-06-29 19:40 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/118686966661.shtml)
+- 2026-06-29 19:37 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/275435593.shtml)
+- 2026-06-29 19:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/69422401698.shtml)
+- 2026-06-29 19:14 - [沙丘](http://www.share.minike.top/Article/details/236701079.shtml)
+- 2026-06-29 19:24 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/33096.shtml)
+- 2026-06-29 19:30 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/78696467885.shtml)
+- 2026-06-29 19:13 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/160863437.shtml)
+- 2026-06-29 19:14 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/66242949997.shtml)
+- 2026-06-29 19:15 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/07228.shtml)
+- 2026-06-29 19:14 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/14107.shtml)
+- 2026-06-29 19:38 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/58784.shtml)
+- 2026-06-29 19:19 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/446314500.shtml)
+- 2026-06-29 19:15 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/99758242.shtml)

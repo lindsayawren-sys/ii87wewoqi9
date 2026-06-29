@@ -1,50 +1,59 @@
-# “2026·中欧人权研讨会”在法国巴黎举行
+# 开盘：美股周三开盘涨跌不一，英伟达领涨芯片股
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 10:01 来源：中国新闻网 “2026·中欧人权研讨会”当地时间5月21日在法国巴黎举行。本次研讨会由中国人权研究会和法国海外科学院主办，来自中国和20余个欧洲国家及国际组织的百余位专家学者围绕“国际秩序演变与人权未来”这一主题展开深入研讨。 会议设有主旨发言环节，并围绕中欧共同面临的人权挑战与应负责任，多边主义下的主权与人权，传统人权观念的
+北京时间5月13日晚，美股周三开盘涨跌不一。芯片股上涨带动纳指走高。美国4月PPI同比飙升6%，创2022年以来最大涨幅。 道指跌143.24点，跌幅为0.29%，报49617.32点；标普500指数涨3.43点，涨幅为0.05%，报7404.39点；纳指涨50.60点，涨幅为0.19%，报26138.803点。 英伟达股价上涨超过2%。AMD上涨近2%，美光科技上涨超过5%。
 
 ## 正文
 
-发布时间：2026年05月22日 10:01 来源：中国新闻网 “2026·中欧人权研讨会”当地时间5月21日在法国巴黎举行。
+北京时间5月13日晚，美股周三开盘涨跌不一。
 
-本次研讨会由中国人权研究会和法国海外科学院主办，来自中国和20余个欧洲国家及国际组织的百余位专家学者围绕“国际秩序演变与人权未来”这一主题展开深入研讨。
+芯片股上涨带动纳指走高。
 
-会议设有主旨发言环节，并围绕中欧共同面临的人权挑战与应负责任，多边主义下的主权与人权，传统人权观念的历史价值与现代发展，博爱、国际团结与人类命运共同体等相关议题展开平行研讨。
+美国4月PPI同比飙升6%，创2022年以来最大涨幅。
 
-中国人权研究会、法国海外科学院等多家中欧人权研究机构在会议前夕共同发布《国际秩序演变与人权未来》智库报告。
+道指跌143.24点，跌幅为0.29%，报49617.32点；标普500指数涨3.43点，涨幅为0.05%，报7404.39点；纳指涨50.60点，涨幅为0.19%，报26138.803点。
 
-(记者 李洋 制作 侯诗蕊) 责任编辑：【罗攀】
+英伟达股价上涨超过2%。
+
+AMD上涨近2%，美光科技上涨超过5%。
+
+VanEck半导体ETF（SMH）上涨2%。
+
+据报道，英伟达首席执行官黄仁勋随同美国总统特朗普访华。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 19:14 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 19:26 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 19:21 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 19:18 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 19:20 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 19:15 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 19:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 19:13 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 19:07 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 19:31 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 19:13 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 19:24 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 19:23 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 19:37 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 19:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 19:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 19:19 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 19:32 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 19:23 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 19:28 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 19:30 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 19:12 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/42349244745.shtml)
-- 2026-06-29 19:18 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/728998.shtml)
-- 2026-06-29 19:06 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/98019217923.shtml)
-- 2026-06-29 19:12 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/028425929681.shtml)
-- 2026-06-29 19:21 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/0422201.shtml)
-- 2026-06-29 19:20 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/70101110664.shtml)
-- 2026-06-29 19:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/281405629862.shtml)
-- 2026-06-29 19:09 - [TOP Prada](http://www.blog.minike.top/Article/details/3993621.shtml)
-- 2026-06-29 19:22 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/23174970562.shtml)
-- 2026-06-29 19:31 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/14901.shtml)
-- 2026-06-29 19:29 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/750989767.shtml)
-- 2026-06-29 19:18 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/889717638503.shtml)
-- 2026-06-29 19:07 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/6066982.shtml)
-- 2026-06-29 19:16 - [周生如故](https://www.blog.kurohicncr.top/Article/details/55524233371.shtml)
-- 2026-06-29 19:18 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/38206816.shtml)
+- 2026-06-29 19:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/954199168755.shtml)
+- 2026-06-29 19:31 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/394090734.shtml)
+- 2026-06-29 19:24 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/100997978656.shtml)
+- 2026-06-29 19:35 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/84239162.shtml)
+- 2026-06-29 19:14 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/198281308.shtml)
+- 2026-06-29 19:40 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/74947541.shtml)
+- 2026-06-29 19:30 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/26920.shtml)
+- 2026-06-29 19:24 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/99198.shtml)
+- 2026-06-29 19:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/78952463541.shtml)
+- 2026-06-29 19:23 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/7585694038.shtml)
+- 2026-06-29 19:25 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/08965584587.shtml)
+- 2026-06-29 19:12 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/467291799583.shtml)
+- 2026-06-29 19:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/02449.shtml)
+- 2026-06-29 19:13 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/52011684.shtml)
+- 2026-06-29 19:17 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/125895.shtml)

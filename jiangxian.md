@@ -1,57 +1,58 @@
-# 沃尔玛电商业务发力，整体营收稳步上涨
+# Evercore给予希捷科技1000美元新目标价
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 零售商称，最新季度消费者带动食品百货、日用商品及线上销售额同步走高 内容速览 消费者追求高性价比消费、线上购物需求攀升，推动沃尔玛最新季度销售额实现增长。 截至 5 月 1 日的最新财季，沃尔玛美国市场同店销售额（开业满一年及以上门店与线上渠道销售额）同比上涨 4.1%。 公司表示，旗下各大主营品类与线上业务销量均实现增长，高收入群体消费拉
+Evercore ISI在近期与希捷科技首席财务官Gianluca Romano及投资者关系团队会面后，将该股目标价从750美元上调至1000美元，并维持“跑赢大盘”评级。 四大看点支撑长期增长 Evercore分析师Amit Daryanani在会后指出，支撑希捷长期增长的核心逻辑清晰：一是有效的供应管理维持了市场供需平衡；二是面密度技术和热辅助磁记录（HAMR）等关键技术突
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 零售商称，最新季度消费者带动食品百货、日用商品及线上销售额同步走高 内容速览 消费者追求高性价比消费、线上购物需求攀升，推动沃尔玛最新季度销售额实现增长。
+Evercore ISI在近期与希捷科技首席财务官Gianluca Romano及投资者关系团队会面后，将该股目标价从750美元上调至1000美元，并维持“跑赢大盘”评级。
 
-截至 5 月 1 日的最新财季，沃尔玛美国市场同店销售额（开业满一年及以上门店与线上渠道销售额）同比上涨 4.1%。
+四大看点支撑长期增长 Evercore分析师Amit Daryanani在会后指出，支撑希捷长期增长的核心逻辑清晰：一是有效的供应管理维持了市场供需平衡；二是面密度技术和热辅助磁记录（HAMR）等关键技术突破持续推进；三是AI驱动的数据存储需求“强劲”；四是公司长期协议已覆盖至2027年，为未来盈利提供了可见性。
 
-公司表示，旗下各大主营品类与线上业务销量均实现增长，高收入群体消费拉动效应尤为明显。
+首席财务官在会中强调，希捷当前产能已“完全被客户长期预订”，表明其在高性能存储市场的供应主导地位稳固。
 
-新兴业务成为业绩重要助力：本财季沃尔玛美国市场电商销售额大涨 26%，广告业务扩张与第三方线上交易规模提升是主要驱动力。
+AI算力需求引爆存储市场 随着AI应用爆发式增长，企业对海量数据存储和处理的需求激增。
 
-沃尔玛于周四维持全年财务业绩预期不变。
+希捷作为全球领先的硬盘驱动器供应商，其HAMR技术的大规模部署被市场视为满足下一代数据中心高密度存储需求的关键。
 
-食品生鲜、服饰家居等日用百货品类，成为其核心本土业务营收增长主力。
+Evercore预计，随着面密度持续提升，公司毛利率有望进一步改善。
 
-近些年不少消费者缩减非必需消费，曾导致这类商品销售表现疲软。
+业绩超预期与市场表现 希捷于4月底发布的最新季报显示，其每股收益达4.10美元，远超市场预期的3.51美元；营收达31.1亿美元，同比增长44.1%。
 
-本财季沃尔玛总营收同比增长 7.3%，达到 1778 亿美元。
+公司对第四季度的每股收益指引为4.80至5.20美元，同样超出分析师预期。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 19:25 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 19:08 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 19:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 19:35 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 19:12 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 19:16 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 19:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 19:18 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 19:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 19:29 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 19:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 19:37 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 19:22 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 19:27 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 19:19 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 19:38 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 19:13 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 19:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 19:37 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 19:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 19:29 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 19:30 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/99680.shtml)
-- 2026-06-29 19:12 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/7242328.shtml)
-- 2026-06-29 19:11 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/84257779155.shtml)
-- 2026-06-29 19:14 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/086425352561.shtml)
-- 2026-06-29 19:13 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/7396809941.shtml)
-- 2026-06-29 19:35 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/8946191.shtml)
-- 2026-06-29 19:31 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/987508.shtml)
-- 2026-06-29 19:08 - [TTG KSG](http://www.blog.minike.top/Article/details/365579036758.shtml)
-- 2026-06-29 19:09 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/700733336.shtml)
-- 2026-06-29 19:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/22039217599.shtml)
-- 2026-06-29 19:20 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/172802626034.shtml)
-- 2026-06-29 19:32 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/175178269.shtml)
-- 2026-06-29 19:17 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/5329603.shtml)
-- 2026-06-29 19:30 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/68898501.shtml)
-- 2026-06-29 19:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/87078033.shtml)
+- 2026-06-29 19:21 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/770270905552.shtml)
+- 2026-06-29 19:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/23460.shtml)
+- 2026-06-29 19:18 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/241268161697.shtml)
+- 2026-06-29 19:12 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/473991691409.shtml)
+- 2026-06-29 19:38 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/8961357.shtml)
+- 2026-06-29 19:28 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/880173950848.shtml)
+- 2026-06-29 19:30 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/3727796.shtml)
+- 2026-06-29 19:35 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/23576476.shtml)
+- 2026-06-29 19:14 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/36252955.shtml)
+- 2026-06-29 19:23 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/3003044527.shtml)
+- 2026-06-29 19:33 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/138947.shtml)
+- 2026-06-29 19:35 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/1861346.shtml)
+- 2026-06-29 19:17 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/16556127.shtml)
+- 2026-06-29 19:16 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/10319.shtml)
+- 2026-06-29 19:14 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/8116999.shtml)

@@ -1,61 +1,57 @@
-# 603256，年内大涨超330%！这一概念集体爆发，多只翻倍股诞生
+# 2026商办资产运营表现30 北京中海金融中心、深圳卓越世纪中心T1领衔
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周，A股大幅震荡，上证指数回撤至4100点附近整固，科创综指在连续创历史新高后短线也出现一定回吐，深证成指、创业板指均在高位震荡，周成交略减少至15.23万亿元，仍位居历史周成交第四。 虽然本周市场有一定调整，但杠杆资金继续加仓A股，再度融资净买入逾191亿元，连续第7周净买入，融资余额不断刷新历史纪录。
+专题：2026观点商办暨资管大会 来源：观点指数 摘要：北京中海金融中心、京城大厦、科学之门A塔、深圳卓越世纪中心T1、亚洲金融大厦等为代表的30个写字楼项目脱颖而出，领衔破局。 观点指数 步入存量深度竞争阶段，国内商办市场告别规模扩张与地段红利依赖，叠加供应高位、空置承压、价格内卷、招商去化遇阻等多重挑战，资产分化愈发明显。 能否以精细化运营夯实经营底盘、以产业集聚提升圈层价
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：2026观点商办暨资管大会 来源：观点指数 摘要：北京中海金融中心、京城大厦、科学之门A塔、深圳卓越世纪中心T1、亚洲金融大厦等为代表的30个写字楼项目脱颖而出，领衔破局。
 
-本周，A股大幅震荡，上证指数回撤至4100点附近整固，科创综指在连续创历史新高后短线也出现一定回吐，深证成指、创业板指均在高位震荡，周成交略减少至15.23万亿元，仍位居历史周成交第四。
+观点指数 步入存量深度竞争阶段，国内商办市场告别规模扩张与地段红利依赖，叠加供应高位、空置承压、价格内卷、招商去化遇阻等多重挑战，资产分化愈发明显。
 
-虽然本周市场有一定调整，但杠杆资金继续加仓A股，再度融资净买入逾191亿元，连续第7周净买入，融资余额不断刷新历史纪录。
+能否以精细化运营夯实经营底盘、以产业集聚提升圈层价值、以专业资管筑牢周期韧性，已然成为衡量优质商办资产的核心标尺。
 
-电子行业一枝独秀，获得逾205亿元净买入，超过其他行业净买入总和，通信获得逾30亿元净买入，机械设备获得逾12亿元净买入，基础化工、医药生物等也获得超亿元净买入。
+基于此，观点指数研究院依托全国重点城市商办资产长期监测数据库与量化评估体系，构建起涵盖运营实效、盈利质量、管理能力、创新能力、品牌影响力、绿色ESG、产业导入、资本潜力等多维度评估体系，对市场主流项目进行全面、客观、专业的综合测评，旨在甄选出真正具备周期韧性、标杆示范效应与长期价值增长潜力的优质资产，为行业转型提供可参考、可复制的实践范本。
 
-有色金属遭融资净卖出逾28亿元，国防军工、电力设备均净卖出超10亿元。
+“2026商办资产运营表现30”研究样本聚焦全国重点城市，涵盖北京、上海、广州、深圳等一线城市，以及成都、重庆、南京、杭州、武汉、长沙、珠海、厦门、苏州等重点城市的核心商办市场，从中客观评估，严选出30个表现突出的写字楼项目，汇聚成研究成果。
 
-另据Wind数据统计，电子行业依旧遥遥领先，全周获得逾1297亿元主力资金净流入，机械设备获得逾454亿元净流入，电力设备获得逾237亿元净流入，基础化工、汽车、有色金属、计算机四行业也获得超百亿元净流入。
+最终以北京中海金融中心、京城大厦、科学之门A塔、深圳卓越世纪中心T1、亚洲金融大厦等为代表的30个写字楼，凭借卓越的运营策略、突出的资产效能和强大的市场影响力等优势脱颖而出，成为行业发展的标杆案例。
 
-建筑装饰遭主力资金净流出逾31亿元，农林牧渔、通信均净流出超20亿元，银行、石油石化也都净流出超10亿元。
+北京作为全国商务核心高地，入围阵容囊括北京保利国际广场、北京合景国际金融广场、北京招商局大厦、北京中海金融中心、北京中信大厦、京城大厦、亚洲金融大厦等标杆项目。
 
-概念板块方面，消费电子板块本周获得逾888亿元主力资金净流入，华为概念获得逾795亿元净流入，AI手机获得逾672亿元净流入，5G概念获得逾596亿元净流入。
+其中北京中海金融中心立足城市核心板块，是期内首都二环内唯一新建的TOD综合体，总建筑面积约36.6万平方米，融汇国际5A甲级写字楼、合院商业街区大吉巷、文化保护区及城市绿地景观，将国家级“零碳”科技与百年宣南文脉融为一体，打破了传统商务建筑的冰冷边界，让高端商务与市井生活在此和谐共生。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 19:14 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 19:21 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 19:08 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 19:30 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 19:11 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 19:27 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 19:13 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 19:34 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 19:31 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 19:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 19:08 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 19:13 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 19:29 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 19:34 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 19:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 19:24 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 19:22 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 19:12 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 19:41 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 19:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 19:35 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 19:37 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 19:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 19:15 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 19:23 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/137103487.shtml)
-- 2026-06-29 19:25 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/4304422.shtml)
-- 2026-06-29 19:32 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/90104783827.shtml)
-- 2026-06-29 19:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/825520299.shtml)
-- 2026-06-29 19:24 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/48272.shtml)
-- 2026-06-29 19:25 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/62853.shtml)
-- 2026-06-29 19:28 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/16081028.shtml)
-- 2026-06-29 19:06 - [AG 宫斗](http://www.share.minike.top/Article/details/9425621319.shtml)
-- 2026-06-29 19:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/276615.shtml)
-- 2026-06-29 19:25 - [T1零封KC MSI](http://www.share.minike.top/Article/details/65134902330.shtml)
-- 2026-06-29 19:23 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/42030594.shtml)
-- 2026-06-29 19:15 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/15177109610.shtml)
-- 2026-06-29 19:29 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/359465.shtml)
-- 2026-06-29 19:21 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/3330197.shtml)
-- 2026-06-29 19:13 - [主力抛售电子和通信板块](http://www.blog.kurohicncr.top/Article/details/5696985.shtml)
+- 2026-06-29 19:20 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/78566.shtml)
+- 2026-06-29 19:37 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/66875103.shtml)
+- 2026-06-29 19:15 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/9172044.shtml)
+- 2026-06-29 19:12 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/842546.shtml)
+- 2026-06-29 19:29 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/35402700.shtml)
+- 2026-06-29 19:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/42341580.shtml)
+- 2026-06-29 19:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/794303683.shtml)
+- 2026-06-29 19:25 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/531250734236.shtml)
+- 2026-06-29 19:37 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/01715917.shtml)
+- 2026-06-29 19:37 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/338655637833.shtml)
+- 2026-06-29 19:12 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/89556224.shtml)
+- 2026-06-29 19:31 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/51139742.shtml)
+- 2026-06-29 19:22 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/27969.shtml)
+- 2026-06-29 19:37 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/01261898.shtml)
+- 2026-06-29 19:41 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/6713004921.shtml)

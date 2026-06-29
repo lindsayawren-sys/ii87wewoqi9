@@ -1,48 +1,60 @@
-# 广西财政国库再向柳州调度抗震救灾资金3000万元
+# 大宗商品综述：油价上涨 铜价逼近历史高位 金价下跌
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-记者从广西壮族自治区财政厅获悉，5月21日，国家防灾减灾救灾委员会针对柳州市柳南区连续发生5.2级地震启动国家四级救灾应急响应。广西壮族自治区财政国库再次向柳州市紧急调度应急救灾资金3000万元，累计专项调度资金5000万元，支持柳州市统筹做好转移安置受灾人员、排危除险等应急处置工作，开展次生灾害隐患排查、倒损民房修复和受灾群众救助等工作，全力保障人民群众生命财产安全。 (总台
+原油上涨，因为美伊和平协议仍难达成，加剧霍尔木兹海峡在更长期受阻的风险。铜价升破每吨14，000美元，逼近历史高位，受需求回暖和供应风险加剧影响。金价下跌，美国通胀加速推动美元和美债收益率走高。 原油：WTI延续涨势 美伊和平协议仍难达成 原油上涨，美国与伊朗达成和平协议仍遥遥无期，导致至关重要的霍尔木兹海峡仍处于实际关闭状态，全球能源运输持续受扰。 布伦特原油上涨3.4%，结
 
 ## 正文
 
-记者从广西壮族自治区财政厅获悉，5月21日，国家防灾减灾救灾委员会针对柳州市柳南区连续发生5.2级地震启动国家四级救灾应急响应。
+原油上涨，因为美伊和平协议仍难达成，加剧霍尔木兹海峡在更长期受阻的风险。
 
-广西壮族自治区财政国库再次向柳州市紧急调度应急救灾资金3000万元，累计专项调度资金5000万元，支持柳州市统筹做好转移安置受灾人员、排危除险等应急处置工作，开展次生灾害隐患排查、倒损民房修复和受灾群众救助等工作，全力保障人民群众生命财产安全。
+铜价升破每吨14，000美元，逼近历史高位，受需求回暖和供应风险加剧影响。
 
-(总台记者 李健飞 孔祥新)
+金价下跌，美国通胀加速推动美元和美债收益率走高。
+
+原油：WTI延续涨势 美伊和平协议仍难达成 原油上涨，美国与伊朗达成和平协议仍遥遥无期，导致至关重要的霍尔木兹海峡仍处于实际关闭状态，全球能源运输持续受扰。
+
+布伦特原油上涨3.4%，结算价接近每桶108美元，而WTI收于102美元附近。
+
+美国总统唐纳德·特朗普表示，伊朗屈服“只是时间问题”。
+
+就在一天前，特朗普称德黑兰与华盛顿之间脆弱的停火“处于严重依赖生命维持设备的状态”。
+
+双方自4月初以来维持停火，即便最近发生一系列包括船只遇袭在内的暴力升级事件，停火仍得以维持。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 19:09 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 19:13 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 19:27 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 19:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 19:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 19:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 19:19 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 19:08 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 19:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 19:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 19:37 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 19:12 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 19:14 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 19:34 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 19:19 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 19:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 19:12 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 19:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 19:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 19:39 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 19:17 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 19:18 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 19:34 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 19:32 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/37717409362.shtml)
-- 2026-06-29 19:17 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/45237474.shtml)
-- 2026-06-29 19:25 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/4528893598.shtml)
-- 2026-06-29 19:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/662501940791.shtml)
-- 2026-06-29 19:17 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/1044122186.shtml)
-- 2026-06-29 19:18 - [斛珠夫人](http://www.share.minike.top/Article/details/902418.shtml)
-- 2026-06-29 19:32 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/372232996553.shtml)
-- 2026-06-29 19:17 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/37131906241.shtml)
-- 2026-06-29 19:17 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/8094049905.shtml)
-- 2026-06-29 19:15 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/227559447.shtml)
-- 2026-06-29 19:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/029598049377.shtml)
-- 2026-06-29 19:35 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/5705386.shtml)
-- 2026-06-29 19:30 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/264963.shtml)
-- 2026-06-29 19:14 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/768903307036.shtml)
-- 2026-06-29 19:26 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/040584990.shtml)
+- 2026-06-29 19:36 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/107016.shtml)
+- 2026-06-29 19:39 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/76387472.shtml)
+- 2026-06-29 19:39 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/271608517432.shtml)
+- 2026-06-29 19:13 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/974526811987.shtml)
+- 2026-06-29 19:14 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/160623595755.shtml)
+- 2026-06-29 19:16 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/51753.shtml)
+- 2026-06-29 19:34 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/979455633.shtml)
+- 2026-06-29 19:36 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/92397.shtml)
+- 2026-06-29 19:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/038784.shtml)
+- 2026-06-29 19:13 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/004850613.shtml)
+- 2026-06-29 19:29 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/49677902167.shtml)
+- 2026-06-29 19:14 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/447434601948.shtml)
+- 2026-06-29 19:14 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/75646.shtml)
+- 2026-06-29 19:18 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/15389786923.shtml)
+- 2026-06-29 19:18 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/435867882.shtml)

@@ -1,59 +1,61 @@
-# 《我记得你眼里的光芒》用25位文化名人访谈见证一个时代
+# 辽宁公安2025年破获经济案2500余起 挽回企业损失超7亿元
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 (记者 应妮)《我记得你眼里的光芒》日前由生活·读书·新知三联书店出版。书中收录了女作家淡巴菰于2002至2005年间对25位中国文化人物的深度访谈——陈忠实、余光中、史铁生、黄永玉、周汝昌、汪国真、葛存壮……这些名字串联起的是一段从20世纪中叶绵延至今的文化记忆。 21日的新书发布会上，久未露面的演员葛优和作家陈建功双双现身。 葛存壮演了一辈子反派，却
+中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。 经济安全是国家安全的基础。赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风
 
 ## 正文
 
-中新网北京5月21日电 (记者 应妮)《我记得你眼里的光芒》日前由生活·读书·新知三联书店出版。
+中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。
 
-书中收录了女作家淡巴菰于2002至2005年间对25位中国文化人物的深度访谈——陈忠实、余光中、史铁生、黄永玉、周汝昌、汪国真、葛存壮……这些名字串联起的是一段从20世纪中叶绵延至今的文化记忆。
+辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。
 
-21日的新书发布会上，久未露面的演员葛优和作家陈建功双双现身。
+经济安全是国家安全的基础。
 
-葛存壮演了一辈子反派，却说当年的表演“有些脸谱化，包括我演的反面形象也太过夸张”。
+赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风险化解、严厉打击经济犯罪、严格规范执法行为，有力维护了辽宁省经济安全和市场秩序。
 
-他认为儿子葛优“算不上最好”，比不上陈道明、姜文、李保田。
+在金融领域，辽宁公安联合金融监管、行业主管部门构建“四位一体”联动机制，发起多波次集中收网。
 
-葛优说：“演员，在荧屏里演的是人，在生活中没有理由不像人。
+2025年以来，共破获金融“黑灰产”领域案件20余起，采取刑事强制措施142人，打掉犯罪团伙7个，成功侦办“屹腾惠民”等一批非法经营案。
 
-……老爷子教我八个字——谦虚谨慎，戒骄戒躁。
+同时，依托“歼击”专项行动，健全警汇战略合作机制，成功侦破系列地下钱庄案；严打假币犯罪，打掉多个制售假币犯罪团伙。
 
-”他在现场回忆家中趣事，“我爸平时总会说我，你现在有点出息了，院子里见到叔叔阿姨要叫”。
+护企安商是优化法治化营商环境的关键一环。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 19:22 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 19:30 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 19:18 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 19:23 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 19:27 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 19:34 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 19:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 19:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 19:18 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 19:29 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 19:16 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 19:21 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 19:24 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 19:16 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 19:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 19:39 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 19:18 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 19:31 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 19:25 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:32 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 19:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 19:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 19:34 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 19:26 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 19:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 19:35 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 19:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/9831804.shtml)
-- 2026-06-29 19:31 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/229229035339.shtml)
-- 2026-06-29 19:18 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/55744.shtml)
-- 2026-06-29 19:23 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/9837981319.shtml)
-- 2026-06-29 19:24 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/75354709.shtml)
-- 2026-06-29 19:17 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/8912763769.shtml)
-- 2026-06-29 19:11 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/08253.shtml)
-- 2026-06-29 19:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/409566504257.shtml)
-- 2026-06-29 19:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/78443546314.shtml)
-- 2026-06-29 19:25 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/412035630.shtml)
-- 2026-06-29 19:30 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/301548416899.shtml)
-- 2026-06-29 19:33 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/565865641.shtml)
-- 2026-06-29 19:08 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/5195868.shtml)
-- 2026-06-29 19:07 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/271915835721.shtml)
-- 2026-06-29 19:33 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/5217933.shtml)
+- 2026-06-29 19:25 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/250278017.shtml)
+- 2026-06-29 19:15 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/5849614.shtml)
+- 2026-06-29 19:20 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/493141358.shtml)
+- 2026-06-29 19:30 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1479853.shtml)
+- 2026-06-29 19:12 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/126889120.shtml)
+- 2026-06-29 19:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/30553974.shtml)
+- 2026-06-29 19:36 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/1394538.shtml)
+- 2026-06-29 19:25 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/23497368.shtml)
+- 2026-06-29 19:16 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/00783.shtml)
+- 2026-06-29 19:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/24941863826.shtml)
+- 2026-06-29 19:18 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/1782497.shtml)
+- 2026-06-29 19:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/736490186671.shtml)
+- 2026-06-29 19:41 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/6881995966.shtml)
+- 2026-06-29 19:31 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/9366520.shtml)
+- 2026-06-29 19:14 - [东方风云榜](http://www.blog.minike.top/Article/details/895997552.shtml)

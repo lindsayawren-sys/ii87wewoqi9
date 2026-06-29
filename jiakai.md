@@ -1,48 +1,60 @@
-# 礼来下一代减肥药取得进展
+# 华泰期货：市场整体情绪偏乐观 铜价维持偏强格局
 
-> 更新时间：2026-06-29 19:36:02 UTC+8
+> 更新时间：2026-06-29 19:42:02 UTC+8
 
 ## 摘要
 
-礼来公司（LLY）表示，其每周注射一次的retatrutide药物达到了III期临床试验的关键终点，在80周内使患者平均体重最多下降28.3%。这一结果将该药物向提交上市申请又推进了一步。责任编辑：张俊 SF065
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-05-11，沪铜主力合约开于 104500元/吨，收于 104620元/吨，较前一交易日收盘0.07%，昨日夜盘沪铜主力合约开于 105，500元/吨，收于 106，770 元/吨，较昨日午后收盘上涨3.01%。 现货情况： 据 SMM 讯，昨早盘沪期铜 2605 合约横盘震荡后小幅上行，开盘 104250
 
 ## 正文
 
-礼来公司（LLY）表示，其每周注射一次的retatrutide药物达到了III期临床试验的关键终点，在80周内使患者平均体重最多下降28.3%。
+来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-05-11，沪铜主力合约开于 104500元/吨，收于 104620元/吨，较前一交易日收盘0.07%，昨日夜盘沪铜主力合约开于 105，500元/吨，收于 106，770 元/吨，较昨日午后收盘上涨3.01%。
 
-这一结果将该药物向提交上市申请又推进了一步。
+现货情况： 据 SMM 讯，昨早盘沪期铜 2605 合约横盘震荡后小幅上行，开盘 104250 元 / 吨，区间震荡后冲高至 104730 元 / 吨，收报 104680 元 / 吨；隔月 Contango 月差区间 20-70 元 / 吨，当月进口盈亏维持亏损 200 至 250 元 / 吨。
 
-责任编辑：张俊 SF065
+上海电解铜销售情绪环比微升、采购情绪小幅回落。
+
+早盘持货商首轮高报后连续下调升水，平水铜品牌报价分化、好铜报价偏高，湿法铜货源稀缺报价坚挺；后市报价继续走低，部分品牌出现贴水，非注册铜成交贴水幅度较大。
+
+今日来看，下游高价位接货意愿偏弱、仅刚需采购，现货升水重心回落。
+
+临近本周五合约最后交易日，交割逻辑逐步凸显，对现货升贴水形成支撑。
+
+预计沪铜现货延续弱势整理，下行空间受交割预期约束有限。
+
+重要资讯汇总： 地缘方面，外交部发言人宣布：应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 19:23 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 19:34 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 19:09 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 19:28 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 19:32 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 19:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 19:35 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 19:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 19:19 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 19:16 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 19:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 19:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 19:16 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 19:19 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 19:20 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 19:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 19:33 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 19:24 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 19:27 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 19:27 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 19:32 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 19:30 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 19:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 19:29 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 19:40 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/75675.shtml)
-- 2026-06-29 19:08 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/605788295.shtml)
-- 2026-06-29 19:16 - [青春环游记第三季](https://www.blog.minike.top/Article/details/958946759.shtml)
-- 2026-06-29 19:23 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/830182497.shtml)
-- 2026-06-29 19:35 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/0388706.shtml)
-- 2026-06-29 19:32 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/1611461.shtml)
-- 2026-06-29 19:20 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.kurohicncr.top/Article/details/856457362128.shtml)
-- 2026-06-29 19:32 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/060834949.shtml)
-- 2026-06-29 19:30 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/584805107835.shtml)
-- 2026-06-29 19:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/036110483.shtml)
-- 2026-06-29 19:10 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/10149902.shtml)
-- 2026-06-29 19:09 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/76405194.shtml)
-- 2026-06-29 19:13 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/46785760037.shtml)
-- 2026-06-29 19:21 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.kurohicncr.top/Article/details/3457392.shtml)
-- 2026-06-29 19:34 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/756513989527.shtml)
+- 2026-06-29 19:39 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/9788890.shtml)
+- 2026-06-29 19:32 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/457098924.shtml)
+- 2026-06-29 19:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/64349359901.shtml)
+- 2026-06-29 19:29 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/36188056762.shtml)
+- 2026-06-29 19:17 - [TFING全员黑西装](https://www.share.minike.top/Article/details/74438462098.shtml)
+- 2026-06-29 19:24 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/83966450.shtml)
+- 2026-06-29 19:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/2538983.shtml)
+- 2026-06-29 19:14 - [千与千寻](http://www.share.kurohicncr.top/Article/details/9225627038.shtml)
+- 2026-06-29 19:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/161800426.shtml)
+- 2026-06-29 19:39 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/1925979107.shtml)
+- 2026-06-29 19:18 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/655614506483.shtml)
+- 2026-06-29 19:23 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/14428.shtml)
+- 2026-06-29 19:37 - [女心理师](http://www.blog.kurohicncr.top/Article/details/4171108.shtml)
+- 2026-06-29 19:25 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/4517418.shtml)
+- 2026-06-29 19:17 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/099717474.shtml)
