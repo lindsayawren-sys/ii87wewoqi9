@@ -1,61 +1,43 @@
-# 微软下周将推出全新代码模型
+# 伊朗外长阿拉格齐将访华
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-微软将于下周在旧金山举办的年度开发者大会Build上，正式发布多款自研人工智能模型，此番举措意在争取开发者群体的认可。 据了解相关规划的知情人士透露，微软计划推出一款代码专用模型，以此提升旗下代码助手GitHub Copilot的竞争力。这款工具曾在AI代码辅助领域占据先发优势，如今市场份额却被Cursor与Claude Code不断蚕食。 该知情人士还表示，微软还将发布多款不
+外交部发言人宣布： 伊朗外长阿拉格齐将于5月6日应邀访华，中共中央政治局委员、外交部长王毅将同其举行会谈。
 
 ## 正文
 
-微软将于下周在旧金山举办的年度开发者大会Build上，正式发布多款自研人工智能模型，此番举措意在争取开发者群体的认可。
-
-据了解相关规划的知情人士透露，微软计划推出一款代码专用模型，以此提升旗下代码助手GitHub Copilot的竞争力。
-
-这款工具曾在AI代码辅助领域占据先发优势，如今市场份额却被Cursor与Claude Code不断蚕食。
-
-该知情人士还表示，微软还将发布多款不同参数规格的全新模型，分别专攻语音转写、逻辑推理、语音处理及图像生成等场景。
-
-这一系列新模型，是在微软今年早些时候对外展示的自研模型基础上迭代升级而来。
-
-正如斯蒂芬妮在周三的报道中详细解读的那样，语音处理与语音转写功能目前已成为开发者关注的热门方向。
-
-微软官方发言人对此不予置评。
-
-而微软人工智能业务负责人穆斯塔法·苏莱曼已按捺不住，于本周二提前曝光了一款即将上线的图像生成模型。
+外交部发言人宣布： 伊朗外长阿拉格齐将于5月6日应邀访华，中共中央政治局委员、外交部长王毅将同其举行会谈。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 23:33 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 23:21 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 23:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 23:39 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 23:41 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 23:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 23:26 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 23:41 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 23:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 23:12 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 23:34 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 23:22 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 23:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 23:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 23:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 23:23 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 23:23 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 23:19 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 23:19 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 23:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 23:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 23:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 23:34 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:45 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 23:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/85906.shtml)
-- 2026-06-29 23:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/019609.shtml)
-- 2026-06-29 23:15 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/085022.shtml)
-- 2026-06-29 23:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/616935085952.shtml)
-- 2026-06-29 23:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/95378876.shtml)
-- 2026-06-29 23:19 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/938587367.shtml)
-- 2026-06-29 23:35 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/5623647.shtml)
-- 2026-06-29 23:34 - [TOP Prada](http://www.blog.minike.top/Article/details/384371917.shtml)
-- 2026-06-29 23:19 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/728560984924.shtml)
-- 2026-06-29 23:22 - [月亮](https://www.share.kurohicncr.top/Article/details/44096128.shtml)
-- 2026-06-29 23:19 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/98305546.shtml)
-- 2026-06-29 23:20 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/9820251044.shtml)
-- 2026-06-29 23:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/8284854403.shtml)
-- 2026-06-29 23:18 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/05962596.shtml)
-- 2026-06-29 23:41 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/16848548277.shtml)
+- 2026-06-29 23:26 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/2884341223.shtml)
+- 2026-06-29 23:24 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/284069189.shtml)
+- 2026-06-29 23:31 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/56215.shtml)
+- 2026-06-29 23:31 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/96737.shtml)
+- 2026-06-29 23:42 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/658659805593.shtml)
+- 2026-06-29 23:28 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6021127.shtml)
+- 2026-06-29 23:33 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/058607.shtml)
+- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/644159579.shtml)
+- 2026-06-29 23:35 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/96670191.shtml)
+- 2026-06-29 23:19 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/12357811761.shtml)
+- 2026-06-29 23:28 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/1006011946.shtml)
+- 2026-06-29 23:37 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/7170808.shtml)
+- 2026-06-29 23:18 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/3089625619.shtml)
+- 2026-06-29 23:43 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/29391.shtml)
+- 2026-06-29 23:33 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/25916007.shtml)

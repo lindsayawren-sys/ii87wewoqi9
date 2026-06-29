@@ -1,61 +1,51 @@
-# 结直肠癌早筛早治是关键 专家教你科学守护肠道健康
+# 各地陆续迎返程高峰 今天全国高速公路车流量约6300万辆次
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-朝“问”健康丨结直肠癌早筛早治是关键 专家教你科学守护肠道健康 今天(29日)是世界肠道健康日。肠道被誉为人体第二大脑，也是重要免疫器官。结直肠癌发病形势不容乐观，依据国家卫健委相关筛查方案监测数据，2022年我国新发结直肠癌51.71万例，占全部恶性肿瘤新发病例10.7%，发病数量逐年攀升，现已成为发病率仅次于肺癌的第二大恶性肿瘤。 该病早期症状隐匿，仅会出现排便异常、便秘等
+假期第四天，记者从交通运输部路网中心了解到，今天全国高速公路车流量约6300万辆次。 交通运输部预计，“五一”假期返程高峰为今天和明天的16点到18点。绕城高速、主要进城通道、景区连接线、省界枢纽等节点易发生时段性拥堵，同时部分地区正值农忙时节，务农务工出行也将较为集中。提醒大家提前关注路况信息，安排好自己的行程。(央视新闻客户端)
 
 ## 正文
 
-朝“问”健康丨结直肠癌早筛早治是关键 专家教你科学守护肠道健康 今天(29日)是世界肠道健康日。
+假期第四天，记者从交通运输部路网中心了解到，今天全国高速公路车流量约6300万辆次。
 
-肠道被誉为人体第二大脑，也是重要免疫器官。
+交通运输部预计，“五一”假期返程高峰为今天和明天的16点到18点。
 
-结直肠癌发病形势不容乐观，依据国家卫健委相关筛查方案监测数据，2022年我国新发结直肠癌51.71万例，占全部恶性肿瘤新发病例10.7%，发病数量逐年攀升，现已成为发病率仅次于肺癌的第二大恶性肿瘤。
+绕城高速、主要进城通道、景区连接线、省界枢纽等节点易发生时段性拥堵，同时部分地区正值农忙时节，务农务工出行也将较为集中。
 
-该病早期症状隐匿，仅会出现排便异常、便秘等表现，容易被忽视，待到便血症状出现时，大多已发展至晚期。
+提醒大家提前关注路况信息，安排好自己的行程。
 
-北京友谊医院消化中心副主任医师 信亮亮：肠道肿瘤始于黏膜层病变，黏膜增生隆起就会形成肠息肉，其中腺瘤性息肉癌变风险最高。
-
-这类息肉若没能及时发现干预，会逐步发展为恶性肿瘤。
-
-病变周期可达10至15年，在此期间及时干预，都能有效控制病情。
-
-专家表示，结直肠癌主要由息肉恶变、肠道炎症、遗传因素三类原因引发，多数病例可防可控，定期筛查能有效降低患病风险。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 23:25 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 23:30 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 23:34 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 23:36 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 23:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 23:32 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 23:19 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 23:14 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 23:35 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 23:18 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 23:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 23:24 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 23:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 23:18 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 23:23 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 23:29 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 23:42 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 23:39 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 23:46 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 23:32 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 23:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 23:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 23:44 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 23:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 23:47 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/4129404953.shtml)
-- 2026-06-29 23:40 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/542631.shtml)
-- 2026-06-29 23:19 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/828559537069.shtml)
-- 2026-06-29 23:14 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/2240392084.shtml)
-- 2026-06-29 23:27 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/741585345922.shtml)
-- 2026-06-29 23:32 - [天道](http://www.blog.minike.top/Article/details/052686.shtml)
-- 2026-06-29 23:32 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/990336066099.shtml)
-- 2026-06-29 23:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/53447264888.shtml)
-- 2026-06-29 23:18 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/93031443378.shtml)
-- 2026-06-29 23:36 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/93986782607.shtml)
-- 2026-06-29 23:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/92984.shtml)
-- 2026-06-29 23:37 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/5643391.shtml)
-- 2026-06-29 23:40 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/23030487.shtml)
-- 2026-06-29 23:35 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/229088322200.shtml)
-- 2026-06-29 23:36 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/255665872431.shtml)
+- 2026-06-29 23:40 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/09624948.shtml)
+- 2026-06-29 23:47 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/804642580075.shtml)
+- 2026-06-29 23:25 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/01838880785.shtml)
+- 2026-06-29 23:43 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/369632907.shtml)
+- 2026-06-29 23:19 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/461159666.shtml)
+- 2026-06-29 23:22 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/318594.shtml)
+- 2026-06-29 23:44 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/0067893.shtml)
+- 2026-06-29 23:24 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/4039741.shtml)
+- 2026-06-29 23:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/592330292.shtml)
+- 2026-06-29 23:43 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/8889110.shtml)
+- 2026-06-29 23:33 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/197348.shtml)
+- 2026-06-29 23:19 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/16407428.shtml)
+- 2026-06-29 23:26 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/7199939696.shtml)
+- 2026-06-29 23:42 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/24661609241.shtml)
+- 2026-06-29 23:31 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/866608288187.shtml)

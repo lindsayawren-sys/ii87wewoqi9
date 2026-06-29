@@ -1,60 +1,46 @@
-# 威创股份索赔时效仅剩半年，已有一审胜诉判决
+# 陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师代理的威创股份虚假陈述案，近日收到一批胜诉判决。即便已退市，威创股份仍面临投资者的依法索赔。（刘鹏律师专栏） 依据判决于2023年6月19日-2023年12月22日期间买入，并在2023年12月23日之后卖出或仍持有而亏损的投资者还可加入。（威创股份维权入口） 鉴于已有一审胜诉判决，后续同类型案件也将更
+发布时间：2026年05月05日 12:41 来源：中国新闻网 近年来，榆林大力推进能源结构优化调整，一场深刻的绿电革命正在这片厚重的黄土地上蓬勃展开。作为榆林能源电力保障的中坚力量，国网榆林供电公司始终坚守绿色发展底线，以坚强电网为硬核支撑，全力保障风光项目接得进、送得出、消纳好；科学统筹风光火多能互补协同调度，健全新能源优先消纳机制，全力推动绿电全额并网、足额外送，为地方能
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师代理的威创股份虚假陈述案，近日收到一批胜诉判决。
+发布时间：2026年05月05日 12:41 来源：中国新闻网 近年来，榆林大力推进能源结构优化调整，一场深刻的绿电革命正在这片厚重的黄土地上蓬勃展开。
 
-即便已退市，威创股份仍面临投资者的依法索赔。
+作为榆林能源电力保障的中坚力量，国网榆林供电公司始终坚守绿色发展底线，以坚强电网为硬核支撑，全力保障风光项目接得进、送得出、消纳好；科学统筹风光火多能互补协同调度，健全新能源优先消纳机制，全力推动绿电全额并网、足额外送，为地方能源转型和“双碳”目标落地筑牢坚实电力保障。
 
-（刘鹏律师专栏） 依据判决于2023年6月19日-2023年12月22日期间买入，并在2023年12月23日之后卖出或仍持有而亏损的投资者还可加入。
-
-（威创股份维权入口） 鉴于已有一审胜诉判决，后续同类型案件也将更快获得处理，符合要求的可积极参与。
-
-值得注意的是该案诉讼时效将在2026年12月到期，仅剩半年，符合要求的投资者建议尽早参与索赔。
-
-回溯威创股份退市前，2023年12月23日，威创股份发布了一则公告，其中不仅公司实际控制人发生了变更，而且新实控人划走了公司13亿现金未归还。
-
-同日，公司收到证监会立案调查通知。
-
-2025年2月21日，公司收到证监会广东监管局下发的《行政处罚决定书》，广东证监局依法对公司及相关人员作出行政处罚及采取市场禁入措施，对公司及相关人员开出合计5670万元的“罚单”，惩罚金额接近顶格。
+(记者 梅镱泷） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 23:14 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 23:14 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 23:31 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 23:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 23:20 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 23:25 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 23:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 23:30 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 23:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 23:16 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 23:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 23:26 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 23:32 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 23:37 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 23:39 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 23:18 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 23:34 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 23:19 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 23:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 23:26 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 23:47 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 23:30 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/8062521938.shtml)
-- 2026-06-29 23:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/34196176377.shtml)
-- 2026-06-29 23:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/84763629431.shtml)
-- 2026-06-29 23:34 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/31287.shtml)
-- 2026-06-29 23:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/974053.shtml)
-- 2026-06-29 23:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/336073607.shtml)
-- 2026-06-29 23:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/39003.shtml)
-- 2026-06-29 23:21 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/921060454336.shtml)
-- 2026-06-29 23:16 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/134489885736.shtml)
-- 2026-06-29 23:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/49041943.shtml)
-- 2026-06-29 23:15 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/4830421.shtml)
-- 2026-06-29 23:27 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/433992434.shtml)
-- 2026-06-29 23:35 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/47662133.shtml)
-- 2026-06-29 23:15 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/345994.shtml)
-- 2026-06-29 23:40 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/967417762.shtml)
+- 2026-06-29 23:32 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/9090321.shtml)
+- 2026-06-29 23:39 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/53825203369.shtml)
+- 2026-06-29 23:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/969492863437.shtml)
+- 2026-06-29 23:39 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/97368.shtml)
+- 2026-06-29 23:29 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4459880.shtml)
+- 2026-06-29 23:38 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/70070892.shtml)
+- 2026-06-29 23:19 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/11432796458.shtml)
+- 2026-06-29 23:47 - [爱很美味](https://www.share.minike.top/Article/details/5542630935.shtml)
+- 2026-06-29 23:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/8987026.shtml)
+- 2026-06-29 23:34 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/06242656270.shtml)
+- 2026-06-29 23:32 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/95401438222.shtml)
+- 2026-06-29 23:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/934130.shtml)
+- 2026-06-29 23:18 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/2140771934.shtml)
+- 2026-06-29 23:18 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/90685643.shtml)
+- 2026-06-29 23:29 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/131386.shtml)

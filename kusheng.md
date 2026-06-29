@@ -1,59 +1,61 @@
-# Salesforce应对AI颠覆：不招工程师、砸钱回购，市场仍在观望
+# 香港北都首个大型运输基建项目正式通车
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-华尔街正密切关注Salesforce（CRM）如何在人工智能浪潮中自我重塑。尽管这家云软件巨头交出了一份超预期的季报，但市场对其AI战略的疑虑，连同业绩指引的微妙信号，使其股价近期承压。 激进转型：停招工程师，押注AI代理 Salesforce的AI转型决心在招聘策略上体现得尤为彻底。公司首席执行官马克·贝尼奥夫明确表示，2026财年公司将不再招聘新工程师。这一反硅谷常规的决定
+短评：欧洲议会的“选择性失明”东京审判为何关乎今天？爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避
 
 ## 正文
 
-华尔街正密切关注Salesforce（CRM）如何在人工智能浪潮中自我重塑。
+短评：欧洲议会的“选择性失明”东京审判为何关乎今天？
 
-尽管这家云软件巨头交出了一份超预期的季报，但市场对其AI战略的疑虑，连同业绩指引的微妙信号，使其股价近期承压。
+爱奇艺，到底在急什么？
 
-激进转型：停招工程师，押注AI代理 Salesforce的AI转型决心在招聘策略上体现得尤为彻底。
+榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
 
-公司首席执行官马克·贝尼奥夫明确表示，2026财年公司将不再招聘新工程师。
+从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
 
-这一反硅谷常规的决定，源于AI工具已为开发工作带来超过30%的效率提升。
+“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
 
-目前，AI代理已承担了公司内部30%至50%的工作，并直接导致客户支持人员数量从9000人缩减至5000人。
+这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
 
-这种“效率优先”的理念，正通过其核心AI产品Agentforce推向客户。
+上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
 
-Agentforce旨在部署能独立完成销售线索筛选、客户服务等任务的AI“数字劳动力”。
+孩子吃饭少、长不高、脾气暴？
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 23:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 23:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 23:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 23:16 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 23:41 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 23:18 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 23:27 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 23:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 23:33 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 23:18 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 23:19 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 23:27 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 23:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 23:20 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 23:26 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 23:29 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 23:22 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 23:24 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 23:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 23:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 23:19 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 23:25 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 23:31 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 23:18 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 23:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 23:37 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 23:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/6183133386.shtml)
-- 2026-06-29 23:26 - [沉睡花园](https://www.share.minike.top/Article/details/8792810399.shtml)
-- 2026-06-29 23:20 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/4372049891.shtml)
-- 2026-06-29 23:37 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/75077.shtml)
-- 2026-06-29 23:24 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/01543152.shtml)
-- 2026-06-29 23:32 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/556159966.shtml)
-- 2026-06-29 23:17 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/002150939885.shtml)
-- 2026-06-29 23:17 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/570274943.shtml)
-- 2026-06-29 23:21 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/4136299.shtml)
-- 2026-06-29 23:22 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/77122226.shtml)
-- 2026-06-29 23:31 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/96601231429.shtml)
-- 2026-06-29 23:36 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/5790368.shtml)
-- 2026-06-29 23:28 - [周生如故](http://www.share.minike.top/Article/details/514365729464.shtml)
-- 2026-06-29 23:23 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/2150461.shtml)
-- 2026-06-29 23:18 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/399073308386.shtml)
+- 2026-06-29 23:27 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/055742829435.shtml)
+- 2026-06-29 23:47 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/37925.shtml)
+- 2026-06-29 23:43 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/007174279128.shtml)
+- 2026-06-29 23:40 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/731738392000.shtml)
+- 2026-06-29 23:28 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/91634388.shtml)
+- 2026-06-29 23:24 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/748486911338.shtml)
+- 2026-06-29 23:29 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/236549199.shtml)
+- 2026-06-29 23:23 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/7771122.shtml)
+- 2026-06-29 23:21 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/748543792.shtml)
+- 2026-06-29 23:33 - [乔家的儿女](http://www.share.minike.top/Article/details/272943202320.shtml)
+- 2026-06-29 23:34 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/3130747.shtml)
+- 2026-06-29 23:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/4555172434.shtml)
+- 2026-06-29 23:36 - [月亮](http://www.share.kurohicncr.top/Article/details/133414.shtml)
+- 2026-06-29 23:19 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/4921260.shtml)
+- 2026-06-29 23:20 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/20645.shtml)

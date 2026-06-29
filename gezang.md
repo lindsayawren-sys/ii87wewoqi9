@@ -1,59 +1,57 @@
-# 中邮基金80后总经理亲自做视频号，打破了金融圈的高冷结界 很靠谱很接地气！
+# 社区咖啡店成杭州“五一”打卡新宠
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：今晚吃基 在大家传统的印象里，基金公司的总经理都是那种西装革履、正襟危坐，每天对着K线图和监管文件眉头紧锁的大佬，离咱们普通老百姓隔着十万八千里。 但是！中邮基金的总经理张志名偏偏不按套路出牌，直接亲自下场做起了视频号。 这位掌管着近900亿资产的大佬，在镜头前完全没有一点架子，不像是在做严肃的金融汇
+中新社杭州5月4日电 (奚金燕 林姝妤)“五一”假期，杭州的社区咖啡店成为新晋走红的游客打卡点。 “这些天明显感觉新面孔多了，不少人拖着行李箱专程找来。”刻雾咖啡店主理人钟文辉说，这些顾客“在店里点一杯咖啡，休憩片刻、拍一组美照，之后还会逛逛周边的街巷，品尝定胜糕等本地小吃，把喝咖啡变成深度感受杭城烟火的一部分。” “刻雾咖啡”位于杭州沈塘桥路小区，没有临街的醒目招牌，却凭借独
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社杭州5月4日电 (奚金燕 林姝妤)“五一”假期，杭州的社区咖啡店成为新晋走红的游客打卡点。
 
-来源：今晚吃基 在大家传统的印象里，基金公司的总经理都是那种西装革履、正襟危坐，每天对着K线图和监管文件眉头紧锁的大佬，离咱们普通老百姓隔着十万八千里。
+“这些天明显感觉新面孔多了，不少人拖着行李箱专程找来。
 
-但是！
+”刻雾咖啡店主理人钟文辉说，这些顾客“在店里点一杯咖啡，休憩片刻、拍一组美照，之后还会逛逛周边的街巷，品尝定胜糕等本地小吃，把喝咖啡变成深度感受杭城烟火的一部分。
 
-中邮基金的总经理张志名偏偏不按套路出牌，直接亲自下场做起了视频号。
+” “刻雾咖啡”位于杭州沈塘桥路小区，没有临街的醒目招牌，却凭借独有的氛围感成为社交平台上的“宝藏打卡地”。
 
-这位掌管着近900亿资产的大佬，在镜头前完全没有一点架子，不像是在做严肃的金融汇报，倒像是个特别实在的邻家大哥，跟你掏心窝子地聊人生、聊职场、聊投资。
+杭州的社区咖啡店往往既有邻里间的温情，也有独特的审美格调，可以串联起城市文旅与市井生活，游客们可以在店里感知杭州的“本色”模样。
 
-先说说这位“网红”总经理的背景，那可是相当硬核。
+“门对青山千里秀，马驰大道万家春。
 
-张志名是妥妥的“固收系”科班出身，80后，南开大学保险精算专业毕业。
+”在位于杭州上城区的鄰居咖啡店，门口贴着这样一副对联。
 
-从2008年开始，他就在首创证券深耕固收益领域，从最基层的投资经理一路“打怪升级”，做到了最年轻的副总经理。
+咖啡店主理人杜苏说，对联出自一位斯洛伐克常客奥马。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 23:18 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 23:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 23:20 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 23:14 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 23:14 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 23:41 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 23:13 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 23:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 23:21 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 23:31 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 23:15 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 23:17 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 23:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 23:21 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 23:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 23:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 23:29 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 23:23 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 23:35 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 23:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 23:23 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 23:47 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 23:43 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:20 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/175331182980.shtml)
-- 2026-06-29 23:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/418554195819.shtml)
-- 2026-06-29 23:33 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/494813030.shtml)
-- 2026-06-29 23:15 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/350521.shtml)
-- 2026-06-29 23:37 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/52067.shtml)
-- 2026-06-29 23:32 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/14953499.shtml)
-- 2026-06-29 23:26 - [起风了](http://www.share.minike.top/Article/details/54552231922.shtml)
-- 2026-06-29 23:39 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/923938603592.shtml)
-- 2026-06-29 23:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/4022111144.shtml)
-- 2026-06-29 23:15 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/75371835.shtml)
-- 2026-06-29 23:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/7025607222.shtml)
-- 2026-06-29 23:20 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/953372.shtml)
-- 2026-06-29 23:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/385878443166.shtml)
-- 2026-06-29 23:22 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/5783167716.shtml)
-- 2026-06-29 23:19 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/56499043.shtml)
+- 2026-06-29 23:39 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/35660.shtml)
+- 2026-06-29 23:41 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/030857796136.shtml)
+- 2026-06-29 23:21 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/677493074.shtml)
+- 2026-06-29 23:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/05857953.shtml)
+- 2026-06-29 23:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/6664665748.shtml)
+- 2026-06-29 23:21 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/705160342035.shtml)
+- 2026-06-29 23:35 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/60701.shtml)
+- 2026-06-29 23:30 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/267644038.shtml)
+- 2026-06-29 23:33 - [东方风云榜直播](https://www.share.minike.top/Article/details/8279731.shtml)
+- 2026-06-29 23:36 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/228790839.shtml)
+- 2026-06-29 23:26 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/684065282842.shtml)
+- 2026-06-29 23:29 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/558783.shtml)
+- 2026-06-29 23:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/09416102526.shtml)
+- 2026-06-29 23:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/91949.shtml)
+- 2026-06-29 23:25 - [美股](http://www.share.minike.top/Article/details/022209.shtml)

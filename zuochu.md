@@ -1,59 +1,61 @@
-# 瑞银砍黄金目标价：5900变5500，理由是“黄金不生息”这个老问题又回来了
+# 酒价内参5月6日价格发布：五粮液1618小幅下跌1元
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-文章来源：金十数据 瑞银（UBS）调整了对黄金价格的判断，在维持长期看涨立场的同时，下调了中期目标水平，并将这一变化归因于利率与汇率环境带来的持续压制。 瑞银将2026年底的金价预期从每盎司5900美元下调至5500美元。分析师多米尼克·施奈德（Dominic Schnider）和韦恩·戈登（Wayne Gordon）解释称，美国国债收益率维持高位、美元持续走强，使黄金面临明显
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。 今日白酒市场11大单品六涨五跌，赢家略占上风。上
 
 ## 正文
 
-文章来源：金十数据 瑞银（UBS）调整了对黄金价格的判断，在维持长期看涨立场的同时，下调了中期目标水平，并将这一变化归因于利率与汇率环境带来的持续压制。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。
 
-瑞银将2026年底的金价预期从每盎司5900美元下调至5500美元。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。
 
-分析师多米尼克·施奈德（Dominic Schnider）和韦恩·戈登（Wayne Gordon）解释称，美国国债收益率维持高位、美元持续走强，使黄金面临明显压力。
+市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。
 
-两人在报告中指出：“市场正在重新发现机会成本的概念，随着实际利率维持在高位，黄金不生息的特点正再次成为一个更重要的考量因素。
+今日白酒市场11大单品六涨五跌，赢家略占上风。
 
-”在这种背景下，资金正从黄金转向其他具备收益的资产。
+上涨方面，青花郎涨幅居前，上涨6元/瓶，价格创下20余日以来新高；习酒君品上涨5元/瓶；国窖1573上涨4元/瓶，重返900元大关以上；水晶剑南春上涨3元/瓶；古井贡古20上涨2元/瓶，逼近一个月来最高纪录；洋河梦之蓝M6+上涨1元/瓶。
 
-需求端的变化也印证了这一趋势。
+下跌方面，青花汾20与精品茅台均下跌5元/瓶；飞天茅台下跌2元/瓶；五粮液普五八代与五粮液1618均小幅下跌1元/瓶。
 
-ETF以及期货市场的资金流明显转弱，即便近期出现一定程度的企稳，也不足以恢复2026年初的上涨动能。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-不过，瑞银并未否定黄金的长期上涨逻辑。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 23:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 23:25 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 23:26 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 23:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 23:25 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 23:14 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 23:35 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 23:40 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 23:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 23:38 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 23:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 23:17 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 23:40 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 23:24 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 23:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 23:31 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 23:22 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 23:27 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 23:28 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 23:24 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 23:38 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 23:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 23:38 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 23:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 23:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 23:47 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 23:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/429348.shtml)
-- 2026-06-29 23:23 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/0213505.shtml)
-- 2026-06-29 23:35 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/3676522.shtml)
-- 2026-06-29 23:36 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/4944576170.shtml)
-- 2026-06-29 23:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/25659732.shtml)
-- 2026-06-29 23:16 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/00173891.shtml)
-- 2026-06-29 23:37 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/6117333137.shtml)
-- 2026-06-29 23:25 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/72028.shtml)
-- 2026-06-29 23:31 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/969405.shtml)
-- 2026-06-29 23:17 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/854131276062.shtml)
-- 2026-06-29 23:33 - [千与千寻](http://www.share.minike.top/Article/details/121010205.shtml)
-- 2026-06-29 23:37 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/00109.shtml)
-- 2026-06-29 23:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/014444154725.shtml)
-- 2026-06-29 23:24 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/103738.shtml)
-- 2026-06-29 23:14 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/919293295798.shtml)
+- 2026-06-29 23:26 - [女心理师](https://www.blog.kurohicncr.top/Article/details/99907104233.shtml)
+- 2026-06-29 23:36 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/85984600.shtml)
+- 2026-06-29 23:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/9427949330.shtml)
+- 2026-06-29 23:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/93140.shtml)
+- 2026-06-29 23:38 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/59212019070.shtml)
+- 2026-06-29 23:32 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/5760623.shtml)
+- 2026-06-29 23:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/95525.shtml)
+- 2026-06-29 23:24 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/012803.shtml)
+- 2026-06-29 23:19 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/287837.shtml)
+- 2026-06-29 23:18 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/96963.shtml)
+- 2026-06-29 23:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/0295415062.shtml)
+- 2026-06-29 23:27 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/029536118.shtml)
+- 2026-06-29 23:43 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/79335772677.shtml)
+- 2026-06-29 23:28 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/274575911398.shtml)
+- 2026-06-29 23:26 - [美人鱼](https://www.share.kurohicncr.top/Article/details/3405814833.shtml)

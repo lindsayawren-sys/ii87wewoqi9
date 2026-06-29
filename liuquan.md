@@ -1,58 +1,47 @@
-# 交银国际：滔博维持“中性”投资评级 目标价2.98港元
+# 湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-交银国际发布研报称，下调滔博（06110）2027-28年盈利预测5-11%，并引入2029年预测，基于2027财年盈利预测的13倍目标市盈率，维持目标价2.98港元及“中性”的投资评级。虽然公司仍面临不确定性，但逾10%的预期股息率将为股价提供充份的下行保护。 滔博2026财年营业收入为257.4亿元人民币（下同），同比减少4.7%，符合该行先前预期，其中下半财年营收跌幅收窄
+发布时间：2026年05月05日 17:47 来源：中国新闻网 5月5日，湖南长沙召开新闻发布会，相关负责人通报浏阳烟花厂爆炸事故最新情况。截至目前，爆炸事故已致26人死亡，61人受伤。(记者 傅煜 唐小晴 杨华峰 徐志雄 制作 刘映含） 责任编辑：【卢岩】
 
 ## 正文
 
-交银国际发布研报称，下调滔博（06110）2027-28年盈利预测5-11%，并引入2029年预测，基于2027财年盈利预测的13倍目标市盈率，维持目标价2.98港元及“中性”的投资评级。
+发布时间：2026年05月05日 17:47 来源：中国新闻网 5月5日，湖南长沙召开新闻发布会，相关负责人通报浏阳烟花厂爆炸事故最新情况。
 
-虽然公司仍面临不确定性，但逾10%的预期股息率将为股价提供充份的下行保护。
+截至目前，爆炸事故已致26人死亡，61人受伤。
 
-滔博2026财年营业收入为257.4亿元人民币（下同），同比减少4.7%，符合该行先前预期，其中下半财年营收跌幅收窄至3.7%。
-
-归母净利年减1.5%至12.7亿元，净利率较去年同期改善0.1个百分点至4.9%，大致符合该行预期。
-
-该行指，管理阶层表示，滔博2027财年收入端存在一定压力，公司将延续效率优先的策略，透过折扣管理和全局运营优化效率，争取全年利润金额较去年同期稳定，带动净利率较去年同期改善。
-
-近期销售趋势来看，管理层表示春节后终端需求放缓，且当前618活动整体折扣力道无明显缩窄。
-
-责任编辑：卢昱君
+(记者 傅煜 唐小晴 杨华峰 徐志雄 制作 刘映含） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 23:34 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 23:36 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 23:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 23:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 23:29 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 23:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 23:32 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 23:39 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 23:20 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 23:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 23:17 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 23:16 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 23:33 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 23:24 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 23:47 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 23:45 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 23:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 23:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 23:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 23:25 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 23:25 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 23:19 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 23:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 23:33 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 23:32 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/749989.shtml)
-- 2026-06-29 23:31 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/4767807.shtml)
-- 2026-06-29 23:35 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/769941.shtml)
-- 2026-06-29 23:14 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/78069467495.shtml)
-- 2026-06-29 23:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/3429101590.shtml)
-- 2026-06-29 23:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/336204788526.shtml)
-- 2026-06-29 23:33 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/5646952584.shtml)
-- 2026-06-29 23:12 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/1609155719.shtml)
-- 2026-06-29 23:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/1013003.shtml)
-- 2026-06-29 23:27 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/65327762945.shtml)
-- 2026-06-29 23:35 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/4753770082.shtml)
-- 2026-06-29 23:16 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/566287593.shtml)
-- 2026-06-29 23:36 - [美人鱼](https://www.share.minike.top/Article/details/207836521.shtml)
-- 2026-06-29 23:14 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/9783584.shtml)
-- 2026-06-29 23:12 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/99734838.shtml)
+- 2026-06-29 23:27 - [恋与深空致歉](http://www.share.minike.top/Article/details/673976655845.shtml)
+- 2026-06-29 23:38 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/6475890432.shtml)
+- 2026-06-29 23:45 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/690183361424.shtml)
+- 2026-06-29 23:24 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/8670199577.shtml)
+- 2026-06-29 23:41 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/84542.shtml)
+- 2026-06-29 23:19 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/759426240.shtml)
+- 2026-06-29 23:37 - [刘宇宁 好听](http://www.share.minike.top/Article/details/6493376.shtml)
+- 2026-06-29 23:21 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/7702612827.shtml)
+- 2026-06-29 23:29 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/096494.shtml)
+- 2026-06-29 23:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/9883655600.shtml)
+- 2026-06-29 23:38 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/3306570.shtml)
+- 2026-06-29 23:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/5112021.shtml)
+- 2026-06-29 23:27 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/50407531.shtml)
+- 2026-06-29 23:22 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/7662004.shtml)
+- 2026-06-29 23:25 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/036610851471.shtml)

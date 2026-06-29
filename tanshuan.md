@@ -1,56 +1,57 @@
-# 光大期货：能源化工类日报5.28
+# 水磨腔贴近童心 昆曲儿童剧《跃龙门》升级上演
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周三油价重心继续下挫，其中WTI 7月合约收盘下跌5.21美元至88.68美元/桶，跌幅5.55%。布伦特7月合约收盘下跌5.29美元至94.29美元/桶，跌幅5.31%。SC2607以595元/桶收盘，下跌2.3元/桶，跌幅0.39%。航运数据显示，尽管整体油轮通航量仍然有限，但霍尔木兹海峡航
+中新网苏州5月3日电 (记者 钟升)昆曲儿童剧《跃龙门》经过打磨升级后，2日在昆山梁辰鱼昆曲剧场亮相，正式拉开昆山当代昆剧院庆祝昆曲被列入联合国教科文组织“人类口头和非物质遗产代表作”25周年系列活动的序幕。 《跃龙门》是昆山当代昆剧院首部专为儿童量身定制的昆曲剧目，改编自“鲤鱼跃龙门”的古老传说，讲述小鱼赤鳞在朋友的帮助下逆流而上的成长故事，将昆曲的典雅与儿童剧的童趣融入水磨
 
 ## 正文
 
-原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周三油价重心继续下挫，其中WTI 7月合约收盘下跌5.21美元至88.68美元/桶，跌幅5.55%。
+中新网苏州5月3日电 (记者 钟升)昆曲儿童剧《跃龙门》经过打磨升级后，2日在昆山梁辰鱼昆曲剧场亮相，正式拉开昆山当代昆剧院庆祝昆曲被列入联合国教科文组织“人类口头和非物质遗产代表作”25周年系列活动的序幕。
 
-布伦特7月合约收盘下跌5.29美元至94.29美元/桶，跌幅5.31%。
+《跃龙门》是昆山当代昆剧院首部专为儿童量身定制的昆曲剧目，改编自“鲤鱼跃龙门”的古老传说，讲述小鱼赤鳞在朋友的帮助下逆流而上的成长故事，将昆曲的典雅与儿童剧的童趣融入水磨腔的一咏三叹之中。
 
-SC2607以595元/桶收盘，下跌2.3元/桶，跌幅0.39%。
+如何让孩子们坐得住、看得懂、喜欢看？
 
-航运数据显示，尽管整体油轮通航量仍然有限，但霍尔木兹海峡航运活动仍在继续。
+青年主创团队从文本、表演、声音等多方面做了调整和思考，在保留昆曲唱念做打的同时，让《跃龙门》更富有童趣、联动生活日常、互动感更强。
 
-据央视新闻客户端报道，当地时间27日，伊朗伊斯兰革命卫队海军公共关系部称，过去24小时内，包括油轮、集装箱船和其他商船在内的23艘船只在获得许可后，在伊朗伊斯兰革命卫队海军的协调和安全保障下通过了霍尔木兹海峡。
+导演胡翰驰说：“大家努力寻找平衡传统昆曲美学与现代舞台语汇，力求打造一部老少咸宜的作品，把孩子们带进昆曲世界，沉浸式感受传统文化魅力。
 
-API公布数据显示，上周美国原油库存连续第六周下降。
+” 舞台上，赤鳞不畏困难、逆流而上、重情重义深深打动了观众。
 
-截至5月22日当周，美国原油库存减少280万桶，汽油库存减少320万桶，而馏分油库存增加110万桶。
+主演邹译瑶介绍，赤鳞这个角色打破了传统行当的束缚，有小花旦的唱念、娃娃生的表演、武旦的开打以及武生的厚底大靠，很有挑战性。
 
-分析师预计，截至5月22日当周，美国原油库存减少约410万桶，汽油库存减少约240万桶，馏分油库存减少约100万桶。
+为了表现赤鳞在水里欢快打转时水面和鱼鳞波光粼粼的画面，团队特别设计了带斗篷的转卧鱼，希望通过这些精心打磨的细节呈现更生动的角色形象，让观众全情投入剧情。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 23:33 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 23:17 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 23:12 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 23:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 23:31 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 23:18 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 23:36 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 23:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 23:27 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 23:30 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 23:33 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 23:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 23:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 23:26 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 23:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 23:24 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 23:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 23:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 23:25 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:36 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/500137.shtml)
-- 2026-06-29 23:40 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/9216228.shtml)
-- 2026-06-29 23:19 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/728003.shtml)
-- 2026-06-29 23:41 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/33406910386.shtml)
-- 2026-06-29 23:21 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/916017.shtml)
-- 2026-06-29 23:19 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/35799.shtml)
-- 2026-06-29 23:33 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/23445685.shtml)
-- 2026-06-29 23:19 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/70284214074.shtml)
-- 2026-06-29 23:32 - [美股](http://www.share.kurohicncr.top/Article/details/198797634.shtml)
-- 2026-06-29 23:29 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/151347966.shtml)
-- 2026-06-29 23:12 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/339655.shtml)
-- 2026-06-29 23:14 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/30811.shtml)
-- 2026-06-29 23:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/930025.shtml)
-- 2026-06-29 23:24 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/24577.shtml)
-- 2026-06-29 23:31 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/82484.shtml)
+- 2026-06-29 23:46 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/358347993.shtml)
+- 2026-06-29 23:41 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/262393329.shtml)
+- 2026-06-29 23:46 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/564856.shtml)
+- 2026-06-29 23:47 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/28854.shtml)
+- 2026-06-29 23:44 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/1763561.shtml)
+- 2026-06-29 23:33 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5235903.shtml)
+- 2026-06-29 23:40 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/759173.shtml)
+- 2026-06-29 23:37 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/3300561.shtml)
+- 2026-06-29 23:44 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/6652150.shtml)
+- 2026-06-29 23:31 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/4474892.shtml)
+- 2026-06-29 23:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/2626859371.shtml)
+- 2026-06-29 23:47 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/593811067.shtml)
+- 2026-06-29 23:37 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/686335464.shtml)
+- 2026-06-29 23:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/69491607535.shtml)
+- 2026-06-29 23:41 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/446757798109.shtml)

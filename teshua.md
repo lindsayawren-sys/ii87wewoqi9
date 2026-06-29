@@ -1,58 +1,61 @@
-# 今起实施 12306“敬”字票能省多少钱？优惠购票攻略请查收
+# “五一”假期银川文旅业态融合升级 消费市场活力十足
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-今起 铁路部门推出的 “老年旅客淡季周中购票优惠服务” 正式实施在5月29日至6月30日期间，年满60周岁及以上的旅客，在每周一中午到周五中午时段出行，可以享受动车组列车执行票价九折的优惠，以及普通常旅客会员3倍积分优惠。 老年旅客如何购买优惠车票？ 一起了解 记者登录铁路12306网站看到，部分列车车次已经标注了绿色的“敬”字，年满60周岁及以上的旅客，购买相关车次的车票，订
+中新网银川5月4日电 (记者 李佩珊)记者4日从宁夏银川市获悉，今年“五一”假期，宁夏银川市紧抓文旅消费热潮，深度推进“商文旅农体酒”业态融合，通过丰富文旅产品、创新消费场景、推动市县联动、落实文化惠民等举措，打造多元沉浸式文旅体验，全域文旅市场热度攀升，“塞上湖城 大美银川”城市品牌吸引力持续增强。 假期期间，银川围绕“举杯贺兰山”主题，整合景区、商圈、交通枢纽等资源，推出四
 
 ## 正文
 
-今起 铁路部门推出的 “老年旅客淡季周中购票优惠服务” 正式实施在5月29日至6月30日期间，年满60周岁及以上的旅客，在每周一中午到周五中午时段出行，可以享受动车组列车执行票价九折的优惠，以及普通常旅客会员3倍积分优惠。
+中新网银川5月4日电 (记者 李佩珊)记者4日从宁夏银川市获悉，今年“五一”假期，宁夏银川市紧抓文旅消费热潮，深度推进“商文旅农体酒”业态融合，通过丰富文旅产品、创新消费场景、推动市县联动、落实文化惠民等举措，打造多元沉浸式文旅体验，全域文旅市场热度攀升，“塞上湖城 大美银川”城市品牌吸引力持续增强。
 
-老年旅客如何购买优惠车票？
+假期期间，银川围绕“举杯贺兰山”主题，整合景区、商圈、交通枢纽等资源，推出四大版块四十余项特色活动，满足全年龄段出游需求。
 
-一起了解 记者登录铁路12306网站看到，部分列车车次已经标注了绿色的“敬”字，年满60周岁及以上的旅客，购买相关车次的车票，订单和车票页面将显示“长者优惠”字样，购票旅客可在既有折扣的基础上再享受一轮优惠。
+漫葡·看见贺兰3.0版沉浸式演艺、西夏陵实景演艺与战马巡游、贺兰山岩画游园会等项目，让游客感受特色文旅魅力。
 
-国铁哈尔滨局大庆车务段大庆东站客运主任 曹阳：在每周一的中午到周五的中午，这个周中时段出行，给予动车组列车执行票价九折的优惠，符合条件的老年旅客还可以叠加残疾军人等优待对象的折上折。
+览山公园万人烧烤节、森林公园咖啡音乐嘉年华、凤凰幻城解压生活节等城市节庆活动，集聚青年消费群体。
 
-这个“周中”时段，指的是每周一中午12点至周五中午12点之间的车票，可以享受折上折的优惠，同时需要注意的是，6月18日至22日端午出行高峰期不享受优惠。
+同时，银川机场开展文旅迎宾活动，为游客提供一站式文旅服务。
 
-那么符合条件的老年旅客，购买“敬”字头车票到底可以省多少钱呢？
+为激活消费潜力，银川精准出台文旅惠民政策，统筹50万元专项资金发放消费券，推出景区门票满减、票务折扣等福利。
 
-一张原价100元的动车票，符合条件的老年旅客仅需支付90元，如果这名旅客同时持有残疾军人证，还可在九折基础上再享九折优惠，实际支付81元。
+依托“宁超”赛事，银川联动多家景区推出观赛门票优惠，串联美食、文创、葡萄酒等产业，打造多元消费链条。
 
-银发列车焕新上线 多项优惠激发消费活力 “敬”字头列车推出的“长者优惠”，对于老年旅客来说，一方面提升了购票体验，另一方面降低了出行成本。
+各大景区持续创新体验业态，酒庄研学、实景解谜、民俗演绎、主题闯关等项目轮番上线，不断拓宽文旅消费场景，带动市场消费升温。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 23:30 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 23:39 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 23:28 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 23:16 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 23:36 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 23:17 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 23:30 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 23:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 23:41 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 23:26 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 23:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 23:44 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 23:19 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 23:39 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 23:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 23:19 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 23:44 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 23:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 23:39 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 23:40 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 23:29 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 23:37 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 23:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 23:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 23:19 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 23:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/413593.shtml)
-- 2026-06-29 23:13 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/340490.shtml)
-- 2026-06-29 23:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/4367476674.shtml)
-- 2026-06-29 23:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/2513128.shtml)
-- 2026-06-29 23:30 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/1628691267.shtml)
-- 2026-06-29 23:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/01461218.shtml)
-- 2026-06-29 23:35 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/89100033.shtml)
-- 2026-06-29 23:36 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/5564543093.shtml)
-- 2026-06-29 23:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/39642393.shtml)
-- 2026-06-29 23:22 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/655768370.shtml)
-- 2026-06-29 23:20 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/851279.shtml)
-- 2026-06-29 23:19 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/10300.shtml)
-- 2026-06-29 23:15 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/582958.shtml)
-- 2026-06-29 23:35 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/394545.shtml)
-- 2026-06-29 23:18 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/0836984913.shtml)
+- 2026-06-29 23:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/5544181.shtml)
+- 2026-06-29 23:34 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/307646233976.shtml)
+- 2026-06-29 23:37 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/5748605.shtml)
+- 2026-06-29 23:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/341589.shtml)
+- 2026-06-29 23:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/0930150959.shtml)
+- 2026-06-29 23:25 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/014976.shtml)
+- 2026-06-29 23:47 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/60333289.shtml)
+- 2026-06-29 23:30 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/8597688.shtml)
+- 2026-06-29 23:39 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/569467645.shtml)
+- 2026-06-29 23:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/29651.shtml)
+- 2026-06-29 23:35 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/421328.shtml)
+- 2026-06-29 23:21 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/964174702260.shtml)
+- 2026-06-29 23:20 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/029432087.shtml)
+- 2026-06-29 23:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/51841514.shtml)
+- 2026-06-29 23:30 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/71216148783.shtml)

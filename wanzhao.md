@@ -1,60 +1,56 @@
-# 格桑花开，换了人间——写于西藏和平解放75周年
+# BioNTech将裁员25% 新冠疫苗需求下滑致亏损扩大
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-今年是西藏和平解放75周年。1951年，中央人民政府与西藏地方政府签订《十七条协议》，西藏实现和平解放，雪域高原的命运从此改写。75年来，西藏从政教合一的封建农奴制社会，跨越式进入社会主义社会。如今，听亲历者再讲起往事，听孩子们畅想未来，我们会发现历史的印记经久不灭，而生活面貌早已焕然一新。和平解放改天换地 “那时候大家听到很多传言，但当我亲眼见到解放军，他们纪律严明、和老百姓
+德国生物技术公司BioNTech周二宣布，因新冠疫苗需求持续下滑，计划关闭多个生产基地，涉及裁员最多1860人，约占员工总数的25%。公司一季度净亏损扩大至5.32亿欧元，股价应声下跌。 根据财报，公司第一季度营收同比骤降35%至1.181亿欧元，远低于分析师预期的1.68亿欧元，净亏损从去年同期的4.16亿欧元扩大至5.32亿欧元。这一业绩主要受到新冠疫苗在欧美市场需求大幅下
 
 ## 正文
 
-今年是西藏和平解放75周年。
+德国生物技术公司BioNTech周二宣布，因新冠疫苗需求持续下滑，计划关闭多个生产基地，涉及裁员最多1860人，约占员工总数的25%。
 
-1951年，中央人民政府与西藏地方政府签订《十七条协议》，西藏实现和平解放，雪域高原的命运从此改写。
+公司一季度净亏损扩大至5.32亿欧元，股价应声下跌。
 
-75年来，西藏从政教合一的封建农奴制社会，跨越式进入社会主义社会。
+根据财报，公司第一季度营收同比骤降35%至1.181亿欧元，远低于分析师预期的1.68亿欧元，净亏损从去年同期的4.16亿欧元扩大至5.32亿欧元。
 
-如今，听亲历者再讲起往事，听孩子们畅想未来，我们会发现历史的印记经久不灭，而生活面貌早已焕然一新。
+这一业绩主要受到新冠疫苗在欧美市场需求大幅下降的拖累。
 
-和平解放改天换地 “那时候大家听到很多传言，但当我亲眼见到解放军，他们纪律严明、和老百姓相处融洽，我就明白了——这支部队不一样。
+公司将全年新冠疫苗收入预期进一步下调。
 
-解放军在江对面的山头驻扎，村民们看见了，却谁也没去向藏军报信……”在西藏自治区昌都市江达县岗托镇的自家客厅里，江拥次仁老人娓娓道来。
+作为重组计划的一部分，BioNTech将在2027年底前关闭位于德国伊达尔-奥伯施泰因、马尔堡和图宾根的三处工厂，其新加坡工厂也将在明年一季度停止运营。
 
-岗托镇坐落在金沙江畔，是西藏第一面五星红旗升起的地方。
+公司正在为这些工厂寻找买家，包括整体或部分出售的可能性。
 
-解放军渡江当晚就驻扎在这里的岗托村。
+公司表示，预计到2029年，通过关闭工厂和整合生产网络，每年可节省约5亿欧元成本。
 
 ## 相关推荐
 
-- 2026-06-29 23:35 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 23:38 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 23:24 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 23:31 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 23:16 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 23:17 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 23:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 23:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 23:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 23:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 23:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 23:40 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 23:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 23:38 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 23:36 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 23:39 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 23:46 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 23:36 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 23:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 23:45 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 23:35 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 23:20 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 23:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 23:46 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:39 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/34760.shtml)
-- 2026-06-29 23:40 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/4491187710.shtml)
-- 2026-06-29 23:36 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/71094.shtml)
-- 2026-06-29 23:39 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/701841064423.shtml)
-- 2026-06-29 23:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/967906.shtml)
-- 2026-06-29 23:39 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/403244.shtml)
-- 2026-06-29 23:24 - [啊啊啊](https://www.blog.minike.top/Article/details/175169766.shtml)
-- 2026-06-29 23:33 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/3952379.shtml)
-- 2026-06-29 23:21 - [恋与深空 日服](http://www.blog.minike.top/Article/details/357334527.shtml)
-- 2026-06-29 23:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/42172.shtml)
-- 2026-06-29 23:34 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/409570035.shtml)
-- 2026-06-29 23:30 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/5734153.shtml)
-- 2026-06-29 23:25 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/95984.shtml)
-- 2026-06-29 23:30 - [第一炉香](https://www.share.kurohicncr.top/Article/details/1742569990.shtml)
-- 2026-06-29 23:41 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/355717218.shtml)
+- 2026-06-29 23:28 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/4659718318.shtml)
+- 2026-06-29 23:44 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/34040248239.shtml)
+- 2026-06-29 23:31 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/823146414918.shtml)
+- 2026-06-29 23:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/7383970132.shtml)
+- 2026-06-29 23:18 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/67956.shtml)
+- 2026-06-29 23:27 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/191528.shtml)
+- 2026-06-29 23:35 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/795609543448.shtml)
+- 2026-06-29 23:43 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/666496.shtml)
+- 2026-06-29 23:45 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/643197.shtml)
+- 2026-06-29 23:38 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/104196.shtml)
+- 2026-06-29 23:26 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/90892492.shtml)
+- 2026-06-29 23:35 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/899743184.shtml)
+- 2026-06-29 23:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/174114590.shtml)
+- 2026-06-29 23:42 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/82049817.shtml)
+- 2026-06-29 23:26 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/086606.shtml)

@@ -1,58 +1,59 @@
-# 伊朗与美国互袭空军基地，周四油价应声上涨
+# 特朗普：将很快审查伊朗刚刚提交的结束冲突新方案，难以想像方案能被接受 美国可能重启空袭
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-周四，在伊朗革命卫队宣称对一处美国空军基地实施打击以报复美军在阿巴斯港市的袭击后，油价跳涨超过2%。 截至格林尼治标准时间07：01，国际基准布伦特原油期货上涨2.34美元，涨幅2.48%，报每桶96.63美元；更为活跃的8月合约上涨2.24美元，涨幅2.43%，报94.49美元。7月合约将于周五到期。 美国西德克萨斯中质原油期货上涨2.26美元，涨幅2.55%，报90.94美
+原标题：特朗普：将很快审查伊朗刚刚提交的结束冲突新方案，难以想像方案能被接受；美国可能重启空袭；伊朗方案总计14点提议，划出坚定的“红线” 来源：国是直通车 特朗普称将审查伊朗提出的结束冲突新方案 当地时间5月2日，美国总统特朗普表示，已得知伊朗方面提出了一项协议“概念框架”，并称伊朗将提供更具体的协议。 特朗普表示，将很快审查伊朗方面刚刚提交的解决冲突方案，但对其可接受性表示
 
 ## 正文
 
-周四，在伊朗革命卫队宣称对一处美国空军基地实施打击以报复美军在阿巴斯港市的袭击后，油价跳涨超过2%。
+原标题：特朗普：将很快审查伊朗刚刚提交的结束冲突新方案，难以想像方案能被接受；美国可能重启空袭；伊朗方案总计14点提议，划出坚定的“红线” 来源：国是直通车 特朗普称将审查伊朗提出的结束冲突新方案 当地时间5月2日，美国总统特朗普表示，已得知伊朗方面提出了一项协议“概念框架”，并称伊朗将提供更具体的协议。
 
-截至格林尼治标准时间07：01，国际基准布伦特原油期货上涨2.34美元，涨幅2.48%，报每桶96.63美元；更为活跃的8月合约上涨2.24美元，涨幅2.43%，报94.49美元。
+特朗普表示，将很快审查伊朗方面刚刚提交的解决冲突方案，但对其可接受性表示怀疑。
 
-7月合约将于周五到期。
+特朗普称，难以想象该方案能被接受。
 
-美国西德克萨斯中质原油期货上涨2.26美元，涨幅2.55%，报90.94美元。
+当天稍早时，伊朗方面披露称，伊朗已经由斡旋方巴基斯坦向美国转交的最新谈判方案内容，总计14点提议，聚焦“结束战争”。
 
-此前一交易日，由于美伊可能达成协议以结束战争并重新开放霍尔木兹海峡，两大基准油价均下跌超过5%，触及一个月低点。
+伊朗正在等待美方正式回应。
 
-据塔斯尼姆通讯社报道，伊朗伊斯兰革命卫队周四表示，在所谓的“美国凌晨对阿巴斯港机场附近发动袭击”之后，他们袭击了一处美国空军基地。
+伊方提议的主要内容包括确保不再发生军事侵略、美军从伊朗周边地区撤出、解除海上封锁、解冻伊朗被冻结资产、支付赔偿、取消制裁、在所有战线（包括黎巴嫩）实现和平、建立霍尔木兹海峡新的管理机制等。
 
-革命卫队警告称，任何侵略行为的重复都将招致“更果断的”回应。
+伊朗通过这一方案划出坚定的“红线”“就结束这场强加的战争提出明确的路线图”。
 
-一名美国官员告诉路透社，美军对伊朗境内一处军事据点发动了新一轮打击。
+特朗普称美国有可能重启对伊朗空袭 美东时间2日傍晚，美国总统特朗普在佛罗里达州一座机场接受采访时称，存在美国重启对伊朗空袭的可能性。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 23:18 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 23:33 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 23:36 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 23:12 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 23:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 23:27 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 23:14 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 23:26 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 23:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 23:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 23:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 23:28 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 23:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 23:39 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 23:29 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 23:37 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 23:26 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 23:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 23:20 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 23:26 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 23:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 23:47 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 23:35 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 23:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/189486656.shtml)
-- 2026-06-29 23:20 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/66511.shtml)
-- 2026-06-29 23:17 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/21429407344.shtml)
-- 2026-06-29 23:17 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/611630535030.shtml)
-- 2026-06-29 23:16 - [东方风云榜直播](https://www.share.minike.top/Article/details/16114954695.shtml)
-- 2026-06-29 23:13 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/50723145351.shtml)
-- 2026-06-29 23:25 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/6268348.shtml)
-- 2026-06-29 23:16 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/994119092.shtml)
-- 2026-06-29 23:30 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/07842.shtml)
-- 2026-06-29 23:34 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/59539848.shtml)
-- 2026-06-29 23:39 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/966066974348.shtml)
-- 2026-06-29 23:30 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/270589.shtml)
-- 2026-06-29 23:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/136349392.shtml)
-- 2026-06-29 23:40 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/7638653.shtml)
-- 2026-06-29 23:15 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/4791385.shtml)
+- 2026-06-29 23:18 - [恋与深空回应争议](https://www.share.minike.top/Article/details/39680870.shtml)
+- 2026-06-29 23:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/83597683320.shtml)
+- 2026-06-29 23:38 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/09220546197.shtml)
+- 2026-06-29 23:41 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/3540413.shtml)
+- 2026-06-29 23:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/27100.shtml)
+- 2026-06-29 23:45 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/810355110347.shtml)
+- 2026-06-29 23:40 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/59207046.shtml)
+- 2026-06-29 23:46 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/9129966.shtml)
+- 2026-06-29 23:31 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/428432688.shtml)
+- 2026-06-29 23:19 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/98404201961.shtml)
+- 2026-06-29 23:39 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/07924596044.shtml)
+- 2026-06-29 23:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/612311497365.shtml)
+- 2026-06-29 23:45 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/036408961498.shtml)
+- 2026-06-29 23:18 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/5709529.shtml)
+- 2026-06-29 23:26 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/4376916351.shtml)

@@ -1,60 +1,48 @@
-# 大型影视公司撤离好莱坞，转投新泽西优厚税收优惠
+# 励晶太平洋建议采纳受限制股份单位计划
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-影视制作在全美多地大幅萎缩，这座 “花园之州” 正向网飞等企业敞开大门 编剧萨沙・彭在好莱坞从业数十年，如今为执导星兹新剧《权欲：起源》，他将在全美影视产业唯一保持蓬勃发展的新泽西州驻扎八个月。 市场研究机构普罗德普罗的数据显示，受流媒体平台缩减制作量、大片转向海外拍摄以压缩成本影响，去年全美影视制作总支出同比下降 20%，好莱坞大本营洛杉矶的行业遭到重创。 而新泽西州意外成为
+励晶太平洋（00575）发布公告，于2026年5月4日，励晶太平洋集团有限公司（本公司，连同其附属公司统称“本集团”）董事会议决，建议本公司采纳受限制股份单位计划，目的是认可及奖励若干合资格参与者对本集团的增长及发展所作出的贡献，并为本集团的持续运营及发展，对其作出激励，以挽留相关人才，以及为本集团的进一步发展吸引合适的人才。责任编辑：卢昱君
 
 ## 正文
 
-影视制作在全美多地大幅萎缩，这座 “花园之州” 正向网飞等企业敞开大门 编剧萨沙・彭在好莱坞从业数十年，如今为执导星兹新剧《权欲：起源》，他将在全美影视产业唯一保持蓬勃发展的新泽西州驻扎八个月。
+励晶太平洋（00575）发布公告，于2026年5月4日，励晶太平洋集团有限公司（本公司，连同其附属公司统称“本集团”）董事会议决，建议本公司采纳受限制股份单位计划，目的是认可及奖励若干合资格参与者对本集团的增长及发展所作出的贡献，并为本集团的持续运营及发展，对其作出激励，以挽留相关人才，以及为本集团的进一步发展吸引合适的人才。
 
-市场研究机构普罗德普罗的数据显示，受流媒体平台缩减制作量、大片转向海外拍摄以压缩成本影响，去年全美影视制作总支出同比下降 20%，好莱坞大本营洛杉矶的行业遭到重创。
-
-而新泽西州意外成为影视行业的亮眼增长点，原因很简单：这里拥有目前全美成效最突出的税收激励政策。
-
-去年，共有 17 部制作成本不低于 1000 万美元的影视项目落地新泽西，总投入接近 10 亿美元，规模较 2024 年近乎翻倍。
-
-以往好莱坞影视公司为兼顾效率，大多选择在洛杉矶总部周边取景制作。
-
-如今选址的核心考量变成哪里的税收优惠力度最大。
-
-进入 21 世纪以来，各国、美国各州及加拿大各省纷纷打响 “影视招商战”。
-
-影视项目耗资动辄数千万乃至上亿美元，能吸纳数千名从业人员，还能带动文旅热度，各方竞争不断升级。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 23:13 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 23:28 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 23:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:28 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 23:36 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 23:31 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 23:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 23:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 23:18 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 23:30 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 23:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 23:39 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 23:16 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 23:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 23:40 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 23:46 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 23:20 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 23:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 23:47 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 23:30 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 23:37 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 23:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 23:22 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 23:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 23:18 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 23:45 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 23:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/826038.shtml)
-- 2026-06-29 23:23 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/665559972.shtml)
-- 2026-06-29 23:22 - [金牌调解](http://www.share.kurohicncr.top/Article/details/741066.shtml)
-- 2026-06-29 23:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/825587425159.shtml)
-- 2026-06-29 23:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/04235730.shtml)
-- 2026-06-29 23:15 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/7620194.shtml)
-- 2026-06-29 23:37 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/927662192769.shtml)
-- 2026-06-29 23:24 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/053407.shtml)
-- 2026-06-29 23:34 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/264891121.shtml)
-- 2026-06-29 23:27 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/14962.shtml)
-- 2026-06-29 23:40 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/970280491.shtml)
-- 2026-06-29 23:33 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/74033685814.shtml)
-- 2026-06-29 23:38 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/77097296157.shtml)
-- 2026-06-29 23:38 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/7701820497.shtml)
-- 2026-06-29 23:36 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/9822780.shtml)
+- 2026-06-29 23:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/9266514.shtml)
+- 2026-06-29 23:36 - [《贺子珍》](http://www.blog.minike.top/Article/details/2212717915.shtml)
+- 2026-06-29 23:19 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/7289535878.shtml)
+- 2026-06-29 23:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/78164.shtml)
+- 2026-06-29 23:18 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/59694.shtml)
+- 2026-06-29 23:35 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/5488345.shtml)
+- 2026-06-29 23:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/9248604.shtml)
+- 2026-06-29 23:42 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/94770736509.shtml)
+- 2026-06-29 23:46 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/9453088.shtml)
+- 2026-06-29 23:27 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/4591762649.shtml)
+- 2026-06-29 23:36 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/3843550.shtml)
+- 2026-06-29 23:24 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/7962215.shtml)
+- 2026-06-29 23:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/15238437513.shtml)
+- 2026-06-29 23:44 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/5227818.shtml)
+- 2026-06-29 23:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/75044900046.shtml)

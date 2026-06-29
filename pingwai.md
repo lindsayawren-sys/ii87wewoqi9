@@ -1,59 +1,57 @@
-# 火车票显示“车内换座”是啥意思？什么情况需下车？一文了解
+# 亿联银行2025年净亏损扩大至14.75亿，总资产下降近五成
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-12306上标的“车内换座”，是什么情况？ 最近，有旅客乘车时 发现自己中转换乘的车票 在到达换乘车站时 竟然不用下车 只需要更换一下座位 就能继续接下来的行程 这到底是什么回事？ 那么 中转换乘为什么不用下车？ 车次为什么变了？ 听小编为你详细解答 中转换乘，什么情况下不用下车？ 旅客在铁路12306购买火车票 并选择“中转”时 会发现三种方式 “同城换乘”“同站换乘” 以及
+东北首家民营银行亿联银行的业绩仍在探底。 4月30日，吉林亿联银行（下称亿联银行）披露的2025年年报显示，2025年，该银行实现营业收入5.10亿元，同比下降53.24%；净利润为-14.75亿元，较2024年的-5.90亿元进一步扩大亏损。 这意味着，继2024年由盈转亏后，亿联银行2025年的亏损幅度进一步扩大。2023年，该银行尚实现净利润1.40亿元。短短两年间，亿联
 
 ## 正文
 
-12306上标的“车内换座”，是什么情况？
+东北首家民营银行亿联银行的业绩仍在探底。
 
-最近，有旅客乘车时 发现自己中转换乘的车票 在到达换乘车站时 竟然不用下车 只需要更换一下座位 就能继续接下来的行程 这到底是什么回事？
+4月30日，吉林亿联银行（下称亿联银行）披露的2025年年报显示，2025年，该银行实现营业收入5.10亿元，同比下降53.24%；净利润为-14.75亿元，较2024年的-5.90亿元进一步扩大亏损。
 
-那么 中转换乘为什么不用下车？
+这意味着，继2024年由盈转亏后，亿联银行2025年的亏损幅度进一步扩大。
 
-车次为什么变了？
+2023年，该银行尚实现净利润1.40亿元。
 
-听小编为你详细解答 中转换乘，什么情况下不用下车？
+短短两年间，亿联银行从盈利转入深度亏损。
 
-旅客在铁路12306购买火车票 并选择“中转”时 会发现三种方式 “同城换乘”“同站换乘” 以及“车内换座” 车内换座：即乘坐同一车次时，分段购票，中途旅客无需下车，直接在车内更换座位。
+从营业收入来看，2025年，亿联银行基本盘明显收缩，实现利息净收入4.79亿元，同比下降49.73%；非利息净收入为3132.2万元，同比下降77.38%。
 
-选择车内换座的旅客在提交购票信息时，也会收到相应提示，旅客只需根据第二程信息，找到对应席位即可。
+值得关注的是，在收入大幅下降的同时，亿联银行的费用端却并未同步收缩。
 
-若旅客购买中转换乘 “车内换座”的车票时 请先准确核对好车次信息 选择相应的车站和车次 铁路12306App会弹出温馨提示 点击“同意”即可 另外 旅客在购买显示“车内换座”的车票时 还可能会遇到一种情况 那就是车次发生了变更 遇到车次变更的情况 旅客到达换乘车站 在确认是同一列车后 同样直接在车内更换座位即可 另外需注意的是 由于重联列车 8号车厢和9号车厢之间不互通 部分旅客车内换座也需要下车 从站台去往 下一程座位所在车厢 车次为什么会变更？
+2025年，该银行的营业支出为18.10亿元，同比仅下降5.95%；其中，业务及管理费6.03亿元，同比增长37.03%，资产减值损失11.99亿元，同比下降18.49%。
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 23:18 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 23:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 23:19 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 23:21 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 23:16 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 23:27 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 23:20 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 23:30 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 23:15 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 23:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 23:36 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 23:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 23:44 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 23:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 23:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 23:41 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 23:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 23:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 23:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 23:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 23:46 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 23:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 23:20 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/574490.shtml)
-- 2026-06-29 23:35 - [金刚川](http://www.blog.minike.top/Article/details/924026.shtml)
-- 2026-06-29 23:15 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/122695846623.shtml)
-- 2026-06-29 23:29 - [第一炉香](https://www.blog.minike.top/Article/details/058618180.shtml)
-- 2026-06-29 23:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/7322926.shtml)
-- 2026-06-29 23:26 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/0540561726.shtml)
-- 2026-06-29 23:31 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/8691510459.shtml)
-- 2026-06-29 23:32 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/2079951.shtml)
-- 2026-06-29 23:34 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/4257067322.shtml)
-- 2026-06-29 23:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/23125865.shtml)
-- 2026-06-29 23:18 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/38706872.shtml)
-- 2026-06-29 23:28 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/865179.shtml)
-- 2026-06-29 23:12 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/686680271660.shtml)
-- 2026-06-29 23:32 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/68307.shtml)
-- 2026-06-29 23:16 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/754750.shtml)
+- 2026-06-29 23:46 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/3027005.shtml)
+- 2026-06-29 23:22 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/33716899.shtml)
+- 2026-06-29 23:43 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/34360.shtml)
+- 2026-06-29 23:42 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/88552227527.shtml)
+- 2026-06-29 23:41 - [青春环游记第三季](https://www.share.minike.top/Article/details/69499.shtml)
+- 2026-06-29 23:24 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/31019.shtml)
+- 2026-06-29 23:23 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/54106486.shtml)
+- 2026-06-29 23:33 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/44537321104.shtml)
+- 2026-06-29 23:30 - [刘念回应](http://www.share.minike.top/Article/details/915031809.shtml)
+- 2026-06-29 23:23 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/1954301.shtml)
+- 2026-06-29 23:41 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/965182919.shtml)
+- 2026-06-29 23:35 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/12570927169.shtml)
+- 2026-06-29 23:44 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/587677846534.shtml)
+- 2026-06-29 23:19 - [美股](https://www.blog.kurohicncr.top/Article/details/1011041.shtml)
+- 2026-06-29 23:42 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/52886244.shtml)

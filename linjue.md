@@ -1,49 +1,56 @@
-# A股开盘：三大指数集体高开，超2600只个股上涨
+# 巴菲特：如今民众投机赌博情绪，史上前所未有
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-A股开盘：三大指数集体高开，超2600只个股上涨；贵金属板块大涨，汽车、房地产上涨，酒类、石油天然气下跌 29日，A股三大指数集体高开。Wind数据显示，上证指数高开0.29%，深证成指高开0.60%，创业板指高开0.41%。全市超2600只个股上涨。 板块方面，贵金属、休闲用品、建材、电脑硬件等板块上涨；日用化工、石油天然气、食品、酒类等板块跌幅居前。
+专题：巴菲特2026年股东大会重磅来袭 2026 年 5 月 2 日，内布拉斯加州奥马哈，伯克希尔・哈撒韦年度股东大会期间，沃伦・巴菲特接受 CNBC 记者贝基・奎克专访。 午休访谈环节中，巴菲特将当下市场比作附带赌场的教堂，把传统价值投资热潮，与当下市场热衷短期期权交易、预测市场热度飙升的风气做了鲜明区分。 他表示：“人们可以在教堂和赌场之间来回切换。可以说，坚守价值投资‘教
 
 ## 正文
 
-A股开盘：三大指数集体高开，超2600只个股上涨；贵金属板块大涨，汽车、房地产上涨，酒类、石油天然气下跌 29日，A股三大指数集体高开。
+专题：巴菲特2026年股东大会重磅来袭 2026 年 5 月 2 日，内布拉斯加州奥马哈，伯克希尔・哈撒韦年度股东大会期间，沃伦・巴菲特接受 CNBC 记者贝基・奎克专访。
 
-Wind数据显示，上证指数高开0.29%，深证成指高开0.60%，创业板指高开0.41%。
+午休访谈环节中，巴菲特将当下市场比作附带赌场的教堂，把传统价值投资热潮，与当下市场热衷短期期权交易、预测市场热度飙升的风气做了鲜明区分。
 
-全市超2600只个股上涨。
+他表示：“人们可以在教堂和赌场之间来回切换。
 
-板块方面，贵金属、休闲用品、建材、电脑硬件等板块上涨；日用化工、石油天然气、食品、酒类等板块跌幅居前。
+可以说，坚守价值投资‘教堂’的人仍多于投身投机‘赌场’的人，但这座赌场如今已变得极具诱惑力。
+
+买卖单日期权，既不算投资，也算不上普通投机，这纯粹就是赌博。
+
+” 巴菲特直言，当下市场的赌博投机风气已达到顶峰。
+
+“人们的投机赌徒心态，从来没有像现在这么浓烈过。
+
+” 巴菲特还点评了近期一起案件：一名美军士兵涉嫌利用委内瑞拉军事行动相关机密信息，在预测市场获利 40 万美元。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 23:26 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 23:41 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 23:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 23:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 23:19 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 23:15 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 23:19 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 23:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 23:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 23:19 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 23:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 23:37 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 23:26 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 23:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 23:20 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 23:45 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 23:47 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 23:26 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 23:25 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 23:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/9893474.shtml)
-- 2026-06-29 23:31 - [请回答王牌2019](https://www.share.minike.top/Article/details/821112.shtml)
-- 2026-06-29 23:15 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/510794.shtml)
-- 2026-06-29 23:25 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/6543073455.shtml)
-- 2026-06-29 23:26 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/895100613.shtml)
-- 2026-06-29 23:19 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/759406.shtml)
-- 2026-06-29 23:26 - [绘画区你赢了](https://www.share.minike.top/Article/details/5095242011.shtml)
-- 2026-06-29 23:33 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/76354249801.shtml)
-- 2026-06-29 23:17 - [毒液2](https://www.blog.kurohicncr.top/Article/details/97271955108.shtml)
-- 2026-06-29 23:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/741801.shtml)
-- 2026-06-29 23:21 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/0242342063.shtml)
-- 2026-06-29 23:37 - [金刚川](https://www.blog.minike.top/Article/details/1063099225.shtml)
-- 2026-06-29 23:25 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/61208372.shtml)
-- 2026-06-29 23:28 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/6107629.shtml)
-- 2026-06-29 23:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/74978644864.shtml)
+- 2026-06-29 23:27 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/632892114951.shtml)
+- 2026-06-29 23:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/484389846682.shtml)
+- 2026-06-29 23:33 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/82380546.shtml)
+- 2026-06-29 23:19 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/7127330109.shtml)
+- 2026-06-29 23:19 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/208637765922.shtml)
+- 2026-06-29 23:20 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/15929156.shtml)
+- 2026-06-29 23:41 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/8423101093.shtml)
+- 2026-06-29 23:25 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/06772349.shtml)
+- 2026-06-29 23:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/6478656.shtml)
+- 2026-06-29 23:47 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/292303.shtml)
+- 2026-06-29 23:41 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/505058652631.shtml)
+- 2026-06-29 23:18 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/049986.shtml)
+- 2026-06-29 23:45 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/9826153573.shtml)
+- 2026-06-29 23:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/19116982.shtml)
+- 2026-06-29 23:23 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/996037.shtml)

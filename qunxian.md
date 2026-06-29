@@ -1,59 +1,58 @@
-# 铝业龙头领涨，华峰铝业涨停！华宝基金有色ETF（159876）上探1.5%，机构：行业基本面扎实，静待后市修复
+# 5月5日美股成交额前20：美光创历史新高，公司CEO看好高速内存需求前景
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-今日（5月29日）市场盘整，揽尽有色金属行业龙头的有色ETF华宝（159876）场内涨幅早盘一度上探1.55%，后随市盘整回调，当前在水面附近震荡，场内价格现跌0.29%，实时成交额超7700万元，交投火热。 成份股方面，铝业龙头显著领涨，华峰铝业涨停，南山铝业涨超3%，神火股份、中国铝业涨逾2%；此外，钨业龙头厦门钨业涨近6%，铜业龙头铜陵有色涨超4%。另一方面，金钼股份一度
+周一美股成交额第1名美光收高6.31%，股价创历史新高，成交264.4亿美元。分析师称，三大核心原因推动美光（以及闪迪）股价大涨。 首先，亚洲存储巨头SK海力士周一暴涨12%，市值突破千亿韩元大关，直接提振市场情绪。此外美国科技四巨头预告7000亿美元资本支出，进一步推动了炒作热情。 其次，美光CEO表示AI仍处早期阶段，推理需求将大幅增加对高速内存的需求，而当前内存供应十分紧
 
 ## 正文
 
-今日（5月29日）市场盘整，揽尽有色金属行业龙头的有色ETF华宝（159876）场内涨幅早盘一度上探1.55%，后随市盘整回调，当前在水面附近震荡，场内价格现跌0.29%，实时成交额超7700万元，交投火热。
+周一美股成交额第1名美光收高6.31%，股价创历史新高，成交264.4亿美元。
 
-成份股方面，铝业龙头显著领涨，华峰铝业涨停，南山铝业涨超3%，神火股份、中国铝业涨逾2%；此外，钨业龙头厦门钨业涨近6%，铜业龙头铜陵有色涨超4%。
+分析师称，三大核心原因推动美光（以及闪迪）股价大涨。
 
-另一方面，金钼股份一度跌停，有研新材、中稀有色跌超5%，跌幅居前，拖累指数表现。
+首先，亚洲存储巨头SK海力士周一暴涨12%，市值突破千亿韩元大关，直接提振市场情绪。
 
-中证有色金属指数，自年内高点回撤幅度已超20%，板块年内收益大幅缩水，仅剩余3%的涨幅。
+此外美国科技四巨头预告7000亿美元资本支出，进一步推动了炒作热情。
 
-本轮有色板块集体走弱，核心源于多重宏观利空共振，中东美伊地缘冲突持续扰动全球市场，推升国际油价进而加剧美国通胀压力，叠加新任美联储主席履职，市场降息预期消退、加息缩表预期升温，直接压制大宗商品及贵金属价格。
+其次，美光CEO表示AI仍处早期阶段，推理需求将大幅增加对高速内存的需求，而当前内存供应十分紧张，预计缺货状况将持续至2027年。
 
-尽管短期板块波动剧烈，但不少机构认为，有色行业底层基本面仍然扎实，或可静待价值回归。
+美光正为英伟达新平台提供HBM4内存，并开发下一代产品。
 
-黄金具备长期配置支撑，铜铝等工业金属供给端存在刚性约束，随着宏观流动性预期逐步修复，板块有望迎来价值回归。
+最后，分析师看好存储行业结构性转变：内存正从同质化商品变为差异化产品，HBM在AI数据中心应用使其同质化特征减弱，NAND涨价也对这些股票构成利好。
 
-以铝为例，方正证券指出，行业层面，美伊冲突已导致海外供给出现实质性减产，截至目前中东已确认电解铝停产产能达222万吨，约占全球供给3%，在中东冲突仍在持续的情况下，存在停产产能扩大的潜在风险。
+第2名英伟达收高0.05%，成交244.96亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 23:41 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 23:22 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 23:30 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 23:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 23:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 23:29 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 23:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 23:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 23:16 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 23:22 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 23:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 23:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 23:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 23:47 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 23:32 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 23:45 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 23:41 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 23:27 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 23:18 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 23:36 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 23:20 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 23:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 23:24 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 23:42 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 23:38 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:24 - [一生一世](http://www.blog.kurohicncr.top/Article/details/063264.shtml)
-- 2026-06-29 23:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/9565018859.shtml)
-- 2026-06-29 23:29 - [男子称在京东买到“同仁堂”假药](https://www.blog.minike.top/Article/details/72919348.shtml)
-- 2026-06-29 23:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/65411.shtml)
-- 2026-06-29 23:40 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/97976965.shtml)
-- 2026-06-29 23:29 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/527357785.shtml)
-- 2026-06-29 23:13 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/86283154232.shtml)
-- 2026-06-29 23:23 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/36091885.shtml)
-- 2026-06-29 23:31 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/197820182932.shtml)
-- 2026-06-29 23:14 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/4344026507.shtml)
-- 2026-06-29 23:27 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/87828983.shtml)
-- 2026-06-29 23:25 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/82001.shtml)
-- 2026-06-29 23:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/333804815072.shtml)
-- 2026-06-29 23:25 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/7421456.shtml)
-- 2026-06-29 23:40 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/286583656.shtml)
+- 2026-06-29 23:41 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/200928472205.shtml)
+- 2026-06-29 23:39 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/844422701696.shtml)
+- 2026-06-29 23:43 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/20720.shtml)
+- 2026-06-29 23:24 - [田曦薇没招了](https://www.share.minike.top/Article/details/82206.shtml)
+- 2026-06-29 23:40 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/24327332265.shtml)
+- 2026-06-29 23:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/52261405049.shtml)
+- 2026-06-29 23:20 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/81596.shtml)
+- 2026-06-29 23:32 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/632024.shtml)
+- 2026-06-29 23:31 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/80624927.shtml)
+- 2026-06-29 23:44 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/6588878096.shtml)
+- 2026-06-29 23:24 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/43445.shtml)
+- 2026-06-29 23:19 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/698347.shtml)
+- 2026-06-29 23:38 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/42073.shtml)
+- 2026-06-29 23:32 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/005581856671.shtml)
+- 2026-06-29 23:42 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/7741990560.shtml)

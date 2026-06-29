@@ -1,59 +1,60 @@
-# 王毅会见巴基斯坦副总理兼外长达尔
+# 美国否认伊朗关于美国海军舰艇被导弹击中的报道
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新社纽约5月28日电 (记者 廖攀)当地时间28日，中共中央政治局委员、外交部长王毅在纽约会见巴基斯坦副总理兼外长达尔。 王毅表示，夏巴兹总理成功访华，两国领导人达成新的重要共识，将中巴命运共同体建设推上新水平。巴方积极参加此次安理会高级别会议和“全球治理之友小组”会议，同各方发出重振联合国权威和核心地位、改革完善全球治理的共同声音。巴方作为安理会非常任理事国，承担起维护国际
+Axios援引美国一名高级官员报道称，美国周一否认伊朗媒体有关该国用导弹击中一艘美国海军舰艇的报道。油价和股市随后回吐部分早前涨跌幅。 此前伊朗法尔斯通讯社报道称，在伊朗海军警告遭无视后，伊朗在阿曼湾贾斯克港附近袭击了一艘美国护卫舰，布伦特原油一度上涨约5%，超过每桶113美元，股市则下跌。法尔斯援引未具名消息人士称，该美方舰艇被迫撤离该区域。 就在不久前，另一家伊朗通讯社塔斯
 
 ## 正文
 
-中新社纽约5月28日电 (记者 廖攀)当地时间28日，中共中央政治局委员、外交部长王毅在纽约会见巴基斯坦副总理兼外长达尔。
+Axios援引美国一名高级官员报道称，美国周一否认伊朗媒体有关该国用导弹击中一艘美国海军舰艇的报道。
 
-王毅表示，夏巴兹总理成功访华，两国领导人达成新的重要共识，将中巴命运共同体建设推上新水平。
+油价和股市随后回吐部分早前涨跌幅。
 
-巴方积极参加此次安理会高级别会议和“全球治理之友小组”会议，同各方发出重振联合国权威和核心地位、改革完善全球治理的共同声音。
+此前伊朗法尔斯通讯社报道称，在伊朗海军警告遭无视后，伊朗在阿曼湾贾斯克港附近袭击了一艘美国护卫舰，布伦特原油一度上涨约5%，超过每桶113美元，股市则下跌。
 
-巴方作为安理会非常任理事国，承担起维护国际和平与安全的责任，中方对此表示赞赏。
+法尔斯援引未具名消息人士称，该美方舰艇被迫撤离该区域。
 
-王毅表示，中巴友好合作是全方位、全天候、全领域的，两国在双边、地区、国际层面始终相互信任、相互团结、相互支持，这是中巴铁杆友谊的底色和战略伙伴关系的价值。
+就在不久前，另一家伊朗通讯社塔斯尼姆称，政府已在霍尔木兹海峡“重新界定管控区域”，实际上划定了将由德黑兰监管航运的海上边界。
 
-中方愿同巴方一道，以两国领导人重要共识为指引，保持高层交往，深化政治互信，拓展务实合作，增强巴方自主发展能力，加快构建新时代更加紧密的中巴命运共同体。
+这些事态发展加剧了紧张局势。
 
-达尔表示，夏巴兹总理访华取得巨大成功，彰显巴中友谊与团结，感谢中方热情友好接待。
+数小时前，美国总统唐纳德·特朗普表示，美国将协助滞留在波斯湾的船只通过海峡，并称此举为“人道主义姿态”。
 
-当前多边体系被削弱，改革任务更加迫切。
+这一行动命名为“自由计划”（Project Freedom），定于周一启动，美国军方承诺提供支持，包括动用导弹驱逐舰、飞机和无人机。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 23:14 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 23:33 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 23:17 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 23:13 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 23:41 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 23:31 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 23:22 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 23:15 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 23:17 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 23:36 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 23:39 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 23:19 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 23:47 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 23:43 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 23:28 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 23:37 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 23:47 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 23:26 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 23:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 23:29 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 23:46 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 23:45 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 23:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 23:38 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 23:38 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:28 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/65077892.shtml)
-- 2026-06-29 23:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/094181432.shtml)
-- 2026-06-29 23:33 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/839634612.shtml)
-- 2026-06-29 23:20 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/65797632218.shtml)
-- 2026-06-29 23:37 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/080583232.shtml)
-- 2026-06-29 23:24 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/891479.shtml)
-- 2026-06-29 23:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/630117486556.shtml)
-- 2026-06-29 23:16 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/492522325.shtml)
-- 2026-06-29 23:14 - [这一刀 会很帅](https://www.share.minike.top/Article/details/7712655.shtml)
-- 2026-06-29 23:15 - [一生一世](https://www.share.kurohicncr.top/Article/details/5314298538.shtml)
-- 2026-06-29 23:23 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/99447049.shtml)
-- 2026-06-29 23:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/1083476.shtml)
-- 2026-06-29 23:18 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/77414.shtml)
-- 2026-06-29 23:14 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/53888.shtml)
-- 2026-06-29 23:15 - [我和我的家乡](http://www.share.minike.top/Article/details/42839.shtml)
+- 2026-06-29 23:41 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/87506.shtml)
+- 2026-06-29 23:20 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/57443263969.shtml)
+- 2026-06-29 23:34 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/3812330.shtml)
+- 2026-06-29 23:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/978458166.shtml)
+- 2026-06-29 23:29 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/3596172.shtml)
+- 2026-06-29 23:32 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/57355469760.shtml)
+- 2026-06-29 23:42 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/55931.shtml)
+- 2026-06-29 23:34 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/6383134.shtml)
+- 2026-06-29 23:41 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/92866561.shtml)
+- 2026-06-29 23:44 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/524191746214.shtml)
+- 2026-06-29 23:47 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/92849.shtml)
+- 2026-06-29 23:43 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/637318887.shtml)
+- 2026-06-29 23:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/51185551620.shtml)
+- 2026-06-29 23:25 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/12342769202.shtml)
+- 2026-06-29 23:21 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/20925.shtml)

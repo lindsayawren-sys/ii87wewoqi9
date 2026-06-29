@@ -1,60 +1,57 @@
-# 深交所理事长沙雁：已受理改革落地后的首批优质创新企业IPO申请 争取尽快形成一批典型案例
+# 蔚来-SW4月交付29356辆汽车 同比增长22.8%
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，深交所2026全球投资者大会举行，深交所理事长沙雁表示，深交所创业板是中国资本市场最早设立的支持科技创新的特色板块，经过16年的改革发展，上市公司达到1398家，总市值超过21万亿元，高新技术企业占比约九成、战
+蔚来-SW（09866）发布公告，本公司于2026年4月交付29356辆汽车，同比增长22.8%。有关交付包括本公司旗下蔚来品牌的高端智能电动汽车19024辆，本公司旗下乐道品牌的家庭智能电动汽车5352辆，以及本公司旗下萤火虫品牌的智能电动高端小车4980辆。截至2026年4月30日，本公司累计汽车交付量达111.04万辆。 2026年4月23日，蔚来全新ES8历时215天达
 
 ## 正文
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+蔚来-SW（09866）发布公告，本公司于2026年4月交付29356辆汽车，同比增长22.8%。
 
-5月28日，深交所2026全球投资者大会举行，深交所理事长沙雁表示，深交所创业板是中国资本市场最早设立的支持科技创新的特色板块，经过16年的改革发展，上市公司达到1398家，总市值超过21万亿元，高新技术企业占比约九成、战略新兴产业企业占比约七成，吸引和培育了一大批实现跨越式发展的龙头科技企业，在新一代信息技术、新能源、医药生物和高端设备制造等领域形成了4个万亿级市值的产业链集群。
+有关交付包括本公司旗下蔚来品牌的高端智能电动汽车19024辆，本公司旗下乐道品牌的家庭智能电动汽车5352辆，以及本公司旗下萤火虫品牌的智能电动高端小车4980辆。
 
-2025年，创业板上市公司营收、净利润同比增长11.48%和21.56%，海外业务收入同比增长16.88%，研发投入同比增长9.8%，分红金额5627.61亿元，上市公司质量和回报水平都在不断提升。
+截至2026年4月30日，本公司累计汽车交付量达111.04万辆。
 
-上个月，中国证监会发布深化创业板改革意见，进一步提升创业板的包容性、适应性和吸引力。
+2026年4月23日，蔚来全新ES8历时215天达成第10万台新车交付里程碑，不仅刷新了中国乘用车市场40万元以上高端车型的销售和交付纪录，同时也进一步夯实了全新ES8在高端纯电SUV市场的领先地位。
 
-增设创业板第四套上市标准，不设盈利要求，强化成长性、创新性指标，引入创业板IPO预先审阅机制，更好满足新兴产业和未来产业领域优质创新创业企业的需求。
+2026年4月9日，蔚来科技行政旗舰SUV ES9开启预售。
 
-提升上市公司再融资、并购重组的便利性，完善大宗交易、盘后固定价格交易机制等，更好适配中长期资金交易特点。
+作为十余年技术创新的集大成之作，ES9以标志性的设计、卓越的空间、前沿的智能技术、舒适的体验与全域安全，重新定义旗舰SUV的标杆。
 
-在服务科技创新的同时，积极支持新型消费、现代服务业等领域优质创新创业企业登陆创业板。
+ES9搭载超过40项行业首发技术及近40项同级领先配置，将引领行政旗舰SUV进入纯电时代。
 
-这次改革也特别注重投资者权益保护，加强全过程、各环节、各参与主体的监管力度。
+2026年4月28日，智能双舱大五座旗舰SUV乐道L80开启预售。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 23:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 23:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 23:35 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 23:26 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 23:20 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 23:12 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 23:15 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 23:12 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 23:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 23:22 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 23:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 23:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 23:15 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 23:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 23:45 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 23:37 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 23:42 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 23:35 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 23:48 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 23:40 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 23:18 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 23:18 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 23:23 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 23:30 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/985688693.shtml)
-- 2026-06-29 23:24 - [第一炉香](http://www.blog.minike.top/Article/details/384066405366.shtml)
-- 2026-06-29 23:33 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/921012466.shtml)
-- 2026-06-29 23:34 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/2928328.shtml)
-- 2026-06-29 23:37 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/4537626266.shtml)
-- 2026-06-29 23:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/095648190.shtml)
-- 2026-06-29 23:41 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/5669476904.shtml)
-- 2026-06-29 23:41 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/9122145026.shtml)
-- 2026-06-29 23:28 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/662293066258.shtml)
-- 2026-06-29 23:28 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/725648.shtml)
-- 2026-06-29 23:38 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/9653914024.shtml)
-- 2026-06-29 23:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/43990.shtml)
-- 2026-06-29 23:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/15050.shtml)
-- 2026-06-29 23:33 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/32811695697.shtml)
-- 2026-06-29 23:36 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/780795142.shtml)
+- 2026-06-29 23:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/150067.shtml)
+- 2026-06-29 23:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/69178801553.shtml)
+- 2026-06-29 23:44 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/943763835844.shtml)
+- 2026-06-29 23:22 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/369531260.shtml)
+- 2026-06-29 23:36 - [东方风云榜](http://www.share.minike.top/Article/details/184107.shtml)
+- 2026-06-29 23:36 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/07015307449.shtml)
+- 2026-06-29 23:30 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/64892568946.shtml)
+- 2026-06-29 23:21 - [电影后室值得看吗](http://www.share.minike.top/Article/details/52399.shtml)
+- 2026-06-29 23:41 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/20399676.shtml)
+- 2026-06-29 23:19 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/6336986.shtml)
+- 2026-06-29 23:32 - [逃狱兄弟](https://www.share.minike.top/Article/details/610298792.shtml)
+- 2026-06-29 23:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/1959597282.shtml)
+- 2026-06-29 23:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/752601227.shtml)
+- 2026-06-29 23:43 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/984749392.shtml)
+- 2026-06-29 23:32 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/2778114.shtml)

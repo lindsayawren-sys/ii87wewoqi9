@@ -1,57 +1,56 @@
-# （友城故事）中德友城对话：古城保护利用要讲究“平衡之道”
+# 中国抽水蓄能电站最深竖井实现全线贯通
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新社安徽黄山5月28日电 (张俊 唐雨弦)“既要守护城市风貌，也要推动城市发展，这是我们共同的理念和使命。”德国施特拉尔松德市市长亚历山大·巴德罗(Alexander Badrow)28日在世界市长对话·黄山活动中说。 2015年，安徽黄山与施特拉尔松德缔结为友好城市。在此次活动期间，施特拉尔松德市代表团走进黄山屯溪老街，双方围绕古城保护、文化传承等议题开展交流。 屯溪老街保
+中新社北京5月2日电 (陶思阅)中国长江三峡集团有限公司2日消息，在智能作业设备“天工号”的助力下，浙江松阳抽水蓄能电站2号竖井实现贯通。至此，该电站布置的两条竖井全线贯通，掘进深度创中国抽水蓄能行业之最，标志着中国在超深竖井智能建造领域取得新突破。 松阳抽水蓄能电站由上水库、下水库、输水系统、地下厂房和地面开关站等建筑物组成，其引水系统采用一级竖井布置——1号和2号竖井深度均
 
 ## 正文
 
-中新社安徽黄山5月28日电 (张俊 唐雨弦)“既要守护城市风貌，也要推动城市发展，这是我们共同的理念和使命。
+中新社北京5月2日电 (陶思阅)中国长江三峡集团有限公司2日消息，在智能作业设备“天工号”的助力下，浙江松阳抽水蓄能电站2号竖井实现贯通。
 
-”德国施特拉尔松德市市长亚历山大·巴德罗(Alexander Badrow)28日在世界市长对话·黄山活动中说。
+至此，该电站布置的两条竖井全线贯通，掘进深度创中国抽水蓄能行业之最，标志着中国在超深竖井智能建造领域取得新突破。
 
-2015年，安徽黄山与施特拉尔松德缔结为友好城市。
+松阳抽水蓄能电站由上水库、下水库、输水系统、地下厂房和地面开关站等建筑物组成，其引水系统采用一级竖井布置——1号和2号竖井深度均为637米，相当于将两幢200多层的高楼垂直嵌入山体。
 
-在此次活动期间，施特拉尔松德市代表团走进黄山屯溪老街，双方围绕古城保护、文化传承等议题开展交流。
+据了解，施工中应用的智能作业设备“天工号”采用独特的锥形刀盘设计，能够自适应复杂岩层条件，并通过五层平台集成布置，融合推进、支护、供水、电气控制、5G通信网络等子系统，实现“井下无人、井上操控”智能成井。
 
-屯溪老街保留徽派建筑风貌，汇聚传统业态与历史记忆，是古建筑保护与利用的典型代表。
+“与‘天工号’协同作业的700米级智能竖井提升系统，如同深入地下的‘智能电梯’，最大起升高度700米，具备人员安全运输与60吨级重物吊装能力，解决了超深竖井施工中人员与物料安全高效输送的难题。
 
-施特拉尔松德中世纪老城举世闻名，经过几十年的修复，古城风貌得以完整保护。
+”三峡集团所属三峡建工松阳公司总经理孙会想说。
 
-据亚历山大·巴德罗介绍，这是他第4次来黄山。
+据悉，“天工号”在完成松阳抽蓄电站建设任务后，将整体转运至其他项目继续使用。
 
-他表示，黄山通过古建筑保护与利用让历史遗迹和文化遗产可触摸、可使用，相关经验值得借鉴。
+这意味着中国超深竖井智能建造装备已具备标准化、可复制的工程应用条件，可为后续同类型项目建设提供成熟可靠的技术支撑。
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 23:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 23:37 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 23:18 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 23:32 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 23:41 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 23:19 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 23:22 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 23:27 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 23:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 23:37 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 23:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 23:29 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 23:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 23:23 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 23:40 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 23:34 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 23:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 23:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 23:25 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 23:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/1338327.shtml)
-- 2026-06-29 23:18 - [曼城官宣马雷斯卡出任主教练](http://www.share.minike.top/Article/details/59722595755.shtml)
-- 2026-06-29 23:39 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/0340945.shtml)
-- 2026-06-29 23:33 - [小娘惹](http://www.share.minike.top/Article/details/051387.shtml)
-- 2026-06-29 23:26 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/14360016.shtml)
-- 2026-06-29 23:24 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/47555.shtml)
-- 2026-06-29 23:17 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/866052.shtml)
-- 2026-06-29 23:21 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/649919635.shtml)
-- 2026-06-29 23:25 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/70456457.shtml)
-- 2026-06-29 23:37 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/576736.shtml)
-- 2026-06-29 23:27 - [田曦薇没招了](https://www.blog.minike.top/Article/details/161488071.shtml)
-- 2026-06-29 23:30 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/558741.shtml)
-- 2026-06-29 23:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/1601513378.shtml)
-- 2026-06-29 23:30 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/437814255851.shtml)
-- 2026-06-29 23:24 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/698085812600.shtml)
+- 2026-06-29 23:29 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/0073971796.shtml)
+- 2026-06-29 23:26 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/93628011306.shtml)
+- 2026-06-29 23:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/877695528.shtml)
+- 2026-06-29 23:20 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/210180.shtml)
+- 2026-06-29 23:25 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/47116.shtml)
+- 2026-06-29 23:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/3496539.shtml)
+- 2026-06-29 23:46 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/264027.shtml)
+- 2026-06-29 23:20 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/74296197.shtml)
+- 2026-06-29 23:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/459634.shtml)
+- 2026-06-29 23:30 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/0907239714.shtml)
+- 2026-06-29 23:35 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/9296535.shtml)
+- 2026-06-29 23:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/7696639490.shtml)
+- 2026-06-29 23:38 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/3848012114.shtml)
+- 2026-06-29 23:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/6181524.shtml)
+- 2026-06-29 23:36 - [急先锋](https://www.blog.minike.top/Article/details/506909.shtml)

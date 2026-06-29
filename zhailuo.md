@@ -1,58 +1,61 @@
-# 立体交通织就发展新图景 无锡阳山借路网蝶变激活江南桃源新活力
+# “毒马铃薯”只是前菜，美国零关税花生又将来袭，台湾食安再遭“背刺”！
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-近日，盐泰锡常宜铁路惠山段建设取得重要进展，锡澄运河特大桥无锡段首个连续梁0号块顺利完成浇筑，大桥正式转入上部结构施工阶段。作为贯通江苏多地的关键城际通道，盐泰锡常宜铁路全线计划2030年6月建成通车，设于无锡市惠山区阳山生态休闲旅游度假区的太湖西站将同步投入运营。这座定位鲜明的旅游特色高铁站落地，不仅意味着无锡第七座高铁站即将亮相，更让素有“江南桃花源”美誉的阳山生态休闲旅游
+“毒马铃薯”风波未平，来自美国的零关税花生又将来袭，给台湾本就严峻的食品安全和农业危机新添了一把火…… 三成价格降维打击，台湾农户直呼“只能喝西北风” 根据所谓“美台对等贸易协议”(ART)，美国花生即将零关税入台。 有人算了一笔账。台湾本地花生每公斤成本约150至160元(新台币，下同)，美国去壳花生每公斤仅需47元，价格不到本地三成。台湾约三万人从事花生种植，一旦美国花生零
 
 ## 正文
 
-近日，盐泰锡常宜铁路惠山段建设取得重要进展，锡澄运河特大桥无锡段首个连续梁0号块顺利完成浇筑，大桥正式转入上部结构施工阶段。
+“毒马铃薯”风波未平，来自美国的零关税花生又将来袭，给台湾本就严峻的食品安全和农业危机新添了一把火…… 三成价格降维打击，台湾农户直呼“只能喝西北风” 根据所谓“美台对等贸易协议”(ART)，美国花生即将零关税入台。
 
-作为贯通江苏多地的关键城际通道，盐泰锡常宜铁路全线计划2030年6月建成通车，设于无锡市惠山区阳山生态休闲旅游度假区的太湖西站将同步投入运营。
+有人算了一笔账。
 
-这座定位鲜明的旅游特色高铁站落地，不仅意味着无锡第七座高铁站即将亮相，更让素有“江南桃花源”美誉的阳山生态休闲旅游度假区，迎来以交通赋能全域、驱动高质量发展的重大机遇。
+台湾本地花生每公斤成本约150至160元(新台币，下同)，美国去壳花生每公斤仅需47元，价格不到本地三成。
 
-交通掣肘逐步破除 高铁打通发展新通道 地处长三角腹地的阳山生态休闲旅游度假区，是闻名遐迩的水蜜桃之乡。
+台湾约三万人从事花生种植，一旦美国花生零关税入台，当地花生产业将遭“降维打击”。
 
-区域内亿年火山、万亩桃林相映成画，千年古刹、百年书院文脉绵延，得天独厚的生态资源与厚重人文底蕴，使其成为长三角游客青睐的休闲度假目的地。
+台农业部门声称要用“价值战”取代“价格战”，但在现实市场，花生油、花生酱等加工业者势必倒向廉价进口原料。
 
-长期以来，受地理区位与交通条件限制，当地对外连通能力偏弱，客流主要依靠自驾、短途班车输送，难以形成规模化、持续性的人流与物流集聚，优质农文旅资源的价值未能充分释放。
+台湾云林县县长张丽善痛心疾首直言，这是“灭农”噩耗。
 
-随着长三角区域一体化发展不断走深走实，盐泰锡常宜铁路的规划建设，为当地破解发展瓶颈带来历史性契机。
+对此，台农业部门官员竟轻飘飘甩出一句“去种别的就好啦”。
 
-这条线路全长约311公里，设计时速350公里，北起盐城、南抵宜兴，全线设置10座车站，纵向串联苏北、苏中、苏南三大板块。
+“今年花生早已下种，采收时美国花生已兵临城下，农业部门慢拍却要由农民吞苦果？
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 23:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 23:35 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 23:38 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 23:20 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 23:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 23:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 23:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 23:32 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 23:12 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 23:29 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 23:39 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 23:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 23:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 23:44 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 23:33 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 23:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 23:45 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 23:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 23:42 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 23:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 23:26 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 23:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 23:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 23:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 23:28 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 23:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/71765.shtml)
-- 2026-06-29 23:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/053782.shtml)
-- 2026-06-29 23:40 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/687218.shtml)
-- 2026-06-29 23:18 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/019794626851.shtml)
-- 2026-06-29 23:33 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/32353.shtml)
-- 2026-06-29 23:41 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/872972226596.shtml)
-- 2026-06-29 23:37 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/18256.shtml)
-- 2026-06-29 23:38 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/7992811.shtml)
-- 2026-06-29 23:38 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/21929749.shtml)
-- 2026-06-29 23:27 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/18288739752.shtml)
-- 2026-06-29 23:41 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/824517793087.shtml)
-- 2026-06-29 23:30 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/08497.shtml)
-- 2026-06-29 23:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/09101.shtml)
-- 2026-06-29 23:34 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/2407320855.shtml)
-- 2026-06-29 23:20 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/488912.shtml)
+- 2026-06-29 23:38 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/86103068173.shtml)
+- 2026-06-29 23:26 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/669285797335.shtml)
+- 2026-06-29 23:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/1544644003.shtml)
+- 2026-06-29 23:25 - [一生一世](https://www.share.minike.top/Article/details/7727100844.shtml)
+- 2026-06-29 23:31 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/586837754.shtml)
+- 2026-06-29 23:32 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/961170873600.shtml)
+- 2026-06-29 23:35 - [斗破苍穹](http://www.share.minike.top/Article/details/216488.shtml)
+- 2026-06-29 23:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/2861534565.shtml)
+- 2026-06-29 23:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/76140180.shtml)
+- 2026-06-29 23:38 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/543470.shtml)
+- 2026-06-29 23:47 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/71307590953.shtml)
+- 2026-06-29 23:33 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/023320182943.shtml)
+- 2026-06-29 23:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/7868173.shtml)
+- 2026-06-29 23:43 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/713801.shtml)
+- 2026-06-29 23:18 - [流金岁月](https://www.blog.minike.top/Article/details/053874727261.shtml)

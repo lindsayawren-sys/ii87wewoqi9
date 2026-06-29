@@ -1,44 +1,59 @@
-# 七台河职业学院党委书记宋诗利接受审查调查
+# 看非遗、玩非遗 传统文化吸睛“出圈” “国潮热”为假日经济添活力
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据黑龙江省纪委监委消息：七台河职业学院党委书记宋诗利涉嫌严重违纪违法，目前正接受黑龙江省纪委监委纪律审查和监察调查。
+央视网消息：“五一”假期，各地非遗场馆成为文旅消费的热门打卡地，沉浸式互动、亲手体验制作，传统文化走出展柜、走进生活，在假期里焕发别样生机。 “五一”假期走进福建泉州非遗馆，游客们不仅可以观看精彩的非遗布袋戏木偶表演，还能与演员现场互动，上手体验操控木偶；同时可挑选心仪的木偶样式，用画笔勾勒五官、设计造型，打造专属特色木偶。 除了掌中木偶，古朴雅致的红砖拓印、流光溢彩的烧箔画、
 
 ## 正文
 
-中新网5月29日电 据黑龙江省纪委监委消息：七台河职业学院党委书记宋诗利涉嫌严重违纪违法，目前正接受黑龙江省纪委监委纪律审查和监察调查。
+央视网消息：“五一”假期，各地非遗场馆成为文旅消费的热门打卡地，沉浸式互动、亲手体验制作，传统文化走出展柜、走进生活，在假期里焕发别样生机。
+
+“五一”假期走进福建泉州非遗馆，游客们不仅可以观看精彩的非遗布袋戏木偶表演，还能与演员现场互动，上手体验操控木偶；同时可挑选心仪的木偶样式，用画笔勾勒五官、设计造型，打造专属特色木偶。
+
+除了掌中木偶，古朴雅致的红砖拓印、流光溢彩的烧箔画、精致小巧的油纸灯笼等非遗手作项目，也备受游客青睐。
+
+在体验过程中，游客既能近距离感受传统技艺的匠心，还能将亲手制作的作品带回家。
+
+假期走进浙江省非遗馆的互动体验区，一件件精美的翻簧竹雕作品整齐陈列。
+
+小朋友们在传承人的悉心指导下，握紧刻刀，在薄薄的竹簧上一笔一画勾线打磨。
+
+馆内配备的一台台“AI非遗体验一体机”化身为专业竹编导师，不仅详细讲解技艺要领，还能实时捕捉体验者动作，通过语音提示辅助完成作品，让非遗体验更具趣味性和专业性。
+
+据了解，这个“五一”假期，浙江省非遗馆除了常态化开展30多个体验项目外，还专门开设13项非遗主题系列活动，满足不同群体的体验需求。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 23:38 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 23:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 23:39 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 23:32 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 23:24 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 23:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 23:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 23:35 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 23:18 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 23:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 23:14 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 23:19 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 23:26 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 23:26 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 23:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 23:21 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 23:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 23:44 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 23:46 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 23:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 23:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 23:47 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 23:33 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 23:38 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/3849765.shtml)
-- 2026-06-29 23:34 - [金牌调解](http://www.share.kurohicncr.top/Article/details/415845538361.shtml)
-- 2026-06-29 23:39 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/26097.shtml)
-- 2026-06-29 23:21 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/65349765089.shtml)
-- 2026-06-29 23:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/3982319.shtml)
-- 2026-06-29 23:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/2568482999.shtml)
-- 2026-06-29 23:40 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/156393.shtml)
-- 2026-06-29 23:30 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/0228149.shtml)
-- 2026-06-29 23:19 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/402878.shtml)
-- 2026-06-29 23:41 - [斛珠夫人](https://www.share.minike.top/Article/details/806469480.shtml)
-- 2026-06-29 23:14 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/0194293.shtml)
-- 2026-06-29 23:36 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/859487.shtml)
-- 2026-06-29 23:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/11023782300.shtml)
-- 2026-06-29 23:12 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/57881883.shtml)
-- 2026-06-29 23:30 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/199265.shtml)
+- 2026-06-29 23:31 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/927159762.shtml)
+- 2026-06-29 23:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/4224072270.shtml)
+- 2026-06-29 23:45 - [极限挑战第一季](https://www.blog.minike.top/Article/details/932007663656.shtml)
+- 2026-06-29 23:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/0785109246.shtml)
+- 2026-06-29 23:41 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/235202.shtml)
+- 2026-06-29 23:21 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/6573387.shtml)
+- 2026-06-29 23:30 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/29363209.shtml)
+- 2026-06-29 23:20 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/659783359612.shtml)
+- 2026-06-29 23:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/9692217564.shtml)
+- 2026-06-29 23:34 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/4634738.shtml)
+- 2026-06-29 23:27 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/3277827940.shtml)
+- 2026-06-29 23:43 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/525116880.shtml)
+- 2026-06-29 23:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/43558848.shtml)
+- 2026-06-29 23:37 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/242449332.shtml)
+- 2026-06-29 23:33 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/72347.shtml)

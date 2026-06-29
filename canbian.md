@@ -1,58 +1,55 @@
-# 富途、长桥清理虚假证明材料开户和空账户
+# 花旗：中国海外发展给予“买入”评级 目标价14.2港元
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在中国证监会封堵非法跨境证券业务后，第一财经获悉，近日富途、长桥均已对使用虚假证明材料开户的账户、无资产和持仓的空账户开展清理，对两类账户进行销户处理。 同时，记者注意到，富途牛牛APP在“账户”栏新增了一项“更新身份信息”快捷入口，并配套一份“关于更新身份
+花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。该行现予目标价14.2港元及“买入”评级。 公司今年首季销售强劲，达511亿元人民币，同比增长11%。该行预期在3月强劲销售后，次季销售将持续强劲。另外，公司资产负债表强劲，使其有能力在核心城市承接大型综合项目。同时，公司成本管理有效，销
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。
 
-在中国证监会封堵非法跨境证券业务后，第一财经获悉，近日富途、长桥均已对使用虚假证明材料开户的账户、无资产和持仓的空账户开展清理，对两类账户进行销户处理。
+该行现予目标价14.2港元及“买入”评级。
 
-同时，记者注意到，富途牛牛APP在“账户”栏新增了一项“更新身份信息”快捷入口，并配套一份“关于更新身份信息的说明”，提示客户若持有符合要求的境外身份证明，信息更新完成后，账户交易、资金存取等各项业务与功能均不受任何影响。
+公司今年首季销售强劲，达511亿元人民币，同比增长11%。
 
-持有境外身份证明不受新规影响 上述说明显示：“近期我们留意到，部分客户在开户后取得了境外身份及相关证件，但部分账户仍留存较为早期的身份信息。
+该行预期在3月强劲销售后，次季销售将持续强劲。
 
-为保障您的账户合规管理，特此提醒大家及时更新身份信息。
+另外，公司资产负债表强劲，使其有能力在核心城市承接大型综合项目。
 
-” 该说明提示，如客户同时持有以下任一境外身份证明，建议及时完成资料更新：一是中国香港永久性居民身份证；二是中国香港非永久性居民身份证（临时身份证）；三是中国香港工作签证/留学签证；四是新加坡永久居民身份证（PR）/新加坡工作准证（EP/SP/WP）/学生准证等；五是其他境外合法身份证明。
+同时，公司成本管理有效，销售及管理费用比率和融资成本均为行业最低水平，加上全产业链扩张，租金收入不断提升，并已发行商业房地产投资信托基金。
 
-富途牛牛客服人员对第一财经表示，上述新增窗口是为方便客户快速找到更新身份信息的位置，此前这一功能在“开户资料”中也有，但没有上述详细提示。
-
-对于中国证监会及中国香港证监会于5月22日就内地投资者跨境证券期货基金经营活动事宜向全行业作出指引更新的影响范围，该客服人员称，两份新规只影响“只持有中国内地身份证或内地护照的投资者”，其他身份类别不受影响。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 23:16 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 23:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 23:35 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 23:39 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 23:24 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 23:18 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 23:25 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 23:23 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 23:25 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 23:31 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 23:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 23:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 23:44 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 23:34 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 23:33 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 23:23 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 23:30 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 23:27 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 23:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 23:25 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 23:45 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 23:33 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/85699.shtml)
-- 2026-06-29 23:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/0697776.shtml)
-- 2026-06-29 23:22 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/96555.shtml)
-- 2026-06-29 23:20 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/501185.shtml)
-- 2026-06-29 23:38 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/7210212420.shtml)
-- 2026-06-29 23:21 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/4847453.shtml)
-- 2026-06-29 23:41 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/461074667284.shtml)
-- 2026-06-29 23:28 - [青春环游记第三季](http://www.blog.minike.top/Article/details/232546027.shtml)
-- 2026-06-29 23:26 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/23361.shtml)
-- 2026-06-29 23:34 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/86936.shtml)
-- 2026-06-29 23:32 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/748966.shtml)
-- 2026-06-29 23:28 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/29242974.shtml)
-- 2026-06-29 23:28 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/7136848.shtml)
-- 2026-06-29 23:28 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/68104.shtml)
-- 2026-06-29 23:21 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/91042.shtml)
+- 2026-06-29 23:22 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/8045159075.shtml)
+- 2026-06-29 23:38 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/2613377982.shtml)
+- 2026-06-29 23:23 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/57923377.shtml)
+- 2026-06-29 23:37 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/41776715262.shtml)
+- 2026-06-29 23:20 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/12483696736.shtml)
+- 2026-06-29 23:27 - [急先锋](http://www.share.minike.top/Article/details/60929.shtml)
+- 2026-06-29 23:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/13760.shtml)
+- 2026-06-29 23:25 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/944490.shtml)
+- 2026-06-29 23:42 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/80341.shtml)
+- 2026-06-29 23:32 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/68834.shtml)
+- 2026-06-29 23:18 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/0908589337.shtml)
+- 2026-06-29 23:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/589387.shtml)
+- 2026-06-29 23:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/023142.shtml)
+- 2026-06-29 23:47 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/35846659809.shtml)
+- 2026-06-29 23:26 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/046498333973.shtml)

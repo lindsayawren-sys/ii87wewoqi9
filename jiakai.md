@@ -1,56 +1,54 @@
-# 西锐午前大涨超20% 第一季度交付飞机196架同比增长30.67%
+# 剑桥科技午后涨超14% 公司高速光模块业务规模显著增加
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-西锐（02507）早盘大涨超20%，截至发稿，股价上涨20.27%，现报39.04港元，成交额2.49亿港元。 5月28日，美国通用航空制造商协会（GAMA）发布了2026年第一季度通用航空飞机出货与账单报告。2026年前三个月的结果与2025年同期相比，活塞飞机和公务机行业的出货量增加，飞机出货总值也有所提升。数据显示，西锐（Cirrus Aircraft ）2026年第一季
+剑桥科技（06166）午后一度涨近17%，截至发稿，股价上涨14.59%，报139.80港元，成交额5.42亿港元。 剑桥科技此前披露第一季度业绩，期内公司实现营业收入12.87亿元，同比增长43.98%；归属于上市公司股东的净利润为1.18亿元，同比大增276.44%。业绩高增长的主要驱动力是高速光模块业务规模显著增加，全球数据中心对800G和1.6T高速光模块需求持续旺盛。
 
 ## 正文
 
-西锐（02507）早盘大涨超20%，截至发稿，股价上涨20.27%，现报39.04港元，成交额2.49亿港元。
+剑桥科技（06166）午后一度涨近17%，截至发稿，股价上涨14.59%，报139.80港元，成交额5.42亿港元。
 
-5月28日，美国通用航空制造商协会（GAMA）发布了2026年第一季度通用航空飞机出货与账单报告。
+剑桥科技此前披露第一季度业绩，期内公司实现营业收入12.87亿元，同比增长43.98%；归属于上市公司股东的净利润为1.18亿元，同比大增276.44%。
 
-2026年前三个月的结果与2025年同期相比，活塞飞机和公务机行业的出货量增加，飞机出货总值也有所提升。
+业绩高增长的主要驱动力是高速光模块业务规模显著增加，全球数据中心对800G和1.6T高速光模块需求持续旺盛。
 
-数据显示，西锐（Cirrus Aircraft ）2026年第一季度共交付飞机196架，同比增长30.67%。
+公开资料显示，当前，全球数据中心对800G和1.6T高速光模块的需求持续旺盛，剑桥科技正持续扩产，其嘉善、马来西亚工厂产能逐步释放，并积极推进墨西哥生产基地的产能建设，以应对市场交付压力。
 
-其中SR20交付49架、SR22交付31架、SR22T交付95架、愿景喷气机（SF50）交付21架。
-
-西部证券此前研报指出，长期行业竞争格局稳固，西锐品牌&制造端优势明显，份额优势有望持续维系，看好西锐长期稳健增长能力；与此同时，公司边际上正逐步推进产能扩张，以及服务网络建设，伴随未来交付能力&产品矩阵丰富度提升，业绩增长动能充足。
+公司预计，800G光模块在2026年仍是其出货主力。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 23:41 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 23:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 23:25 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 23:34 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 23:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 23:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 23:14 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 23:18 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 23:27 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 23:17 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 23:32 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 23:42 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 23:22 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 23:25 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 23:47 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 23:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 23:41 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 23:18 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 23:26 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 23:30 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 23:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 23:44 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:29 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:19 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/64357254.shtml)
-- 2026-06-29 23:26 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/5086791.shtml)
-- 2026-06-29 23:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/31533.shtml)
-- 2026-06-29 23:28 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/2366033.shtml)
-- 2026-06-29 23:23 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/07102941455.shtml)
-- 2026-06-29 23:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/97976.shtml)
-- 2026-06-29 23:38 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/68979.shtml)
-- 2026-06-29 23:36 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/1378762.shtml)
-- 2026-06-29 23:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/45109092.shtml)
-- 2026-06-29 23:19 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/376748078.shtml)
-- 2026-06-29 23:31 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/3751373.shtml)
-- 2026-06-29 23:36 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/944200940360.shtml)
-- 2026-06-29 23:13 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/952748905777.shtml)
-- 2026-06-29 23:21 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/71125.shtml)
-- 2026-06-29 23:23 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/688195595728.shtml)
+- 2026-06-29 23:24 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/335007.shtml)
+- 2026-06-29 23:38 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/636993.shtml)
+- 2026-06-29 23:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/1251079.shtml)
+- 2026-06-29 23:42 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/32585143400.shtml)
+- 2026-06-29 23:32 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/888466.shtml)
+- 2026-06-29 23:18 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/73097041982.shtml)
+- 2026-06-29 23:41 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/529067206508.shtml)
+- 2026-06-29 23:40 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/99411.shtml)
+- 2026-06-29 23:23 - [刘念回应](https://www.blog.minike.top/Article/details/7673030.shtml)
+- 2026-06-29 23:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/3996494973.shtml)
+- 2026-06-29 23:22 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/470608850419.shtml)
+- 2026-06-29 23:41 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/98189.shtml)
+- 2026-06-29 23:34 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/9978547.shtml)
+- 2026-06-29 23:25 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/21409842568.shtml)
+- 2026-06-29 23:46 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/9089118.shtml)

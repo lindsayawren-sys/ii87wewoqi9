@@ -1,56 +1,47 @@
-# 王毅同美国各界人士座谈
+# FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新社纽约5月28日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间同美国战略和工商界人士举行座谈。 王毅表示，此次来纽约主持安理会高级别会议，与会各方的一致呼声就是重温宪章初心，重振联合国权威，践行多边主义。重振联合国首要是重振安理会，关键是常任理事国之间能够协调合作，其中中美关系的走向至关重要。事实证明，中美关系超越双边范畴，影响世界
+美国联邦通信委员会（FCC）委员Anna Gomez在声明中表示，FCC应对拟议中的派拉蒙-华纳兄弟探索合并案背后的外国利益进行审查。 声明称，根据联邦法律，外国政府及其代表不得持有派拉蒙子公司CBS所拥有的、受FCC监管的广播牌照． “任何超过25%的间接外资持股，都需要委员会批准，并需经过严格审查，以判断该安排是否符合美国公众利益并保障国家安全，”她还表示．责任编辑：李桐
 
 ## 正文
 
-中新社纽约5月28日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间同美国战略和工商界人士举行座谈。
+美国联邦通信委员会（FCC）委员Anna Gomez在声明中表示，FCC应对拟议中的派拉蒙-华纳兄弟探索合并案背后的外国利益进行审查。
 
-王毅表示，此次来纽约主持安理会高级别会议，与会各方的一致呼声就是重温宪章初心，重振联合国权威，践行多边主义。
-
-重振联合国首要是重振安理会，关键是常任理事国之间能够协调合作，其中中美关系的走向至关重要。
-
-事实证明，中美关系超越双边范畴，影响世界和平，关乎人类命运。
-
-实现中美关系健康、稳定、可持续发展，是国际社会的共同期待，也是中美两国应当承担的使命。
-
-王毅表示，中美元首在北京举行历史性会晤，就事关中美关系以及世界和平发展的重大问题进行了坦诚、深入、建设性、战略性沟通，达成一系列重要共识。
-
-双方同意将“中美建设性战略稳定关系”作为两国关系新定位，希望朝着合作为主、竞争有度、分歧可控、和平可期的方向作出努力，共同探索新时代大国正确相处之道。
-
-习近平主席指出，实现中华民族伟大复兴和让美国再次伟大，可以并行不悖、相互成就、造福世界。
+声明称，根据联邦法律，外国政府及其代表不得持有派拉蒙子公司CBS所拥有的、受FCC监管的广播牌照． “任何超过25%的间接外资持股，都需要委员会批准，并需经过严格审查，以判断该安排是否符合美国公众利益并保障国家安全，”她还表示．责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 23:36 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 23:14 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 23:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 23:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 23:30 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 23:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 23:40 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 23:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 23:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 23:19 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 23:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 23:29 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 23:33 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 23:37 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 23:45 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 23:37 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 23:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 23:46 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 23:40 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 23:20 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 23:41 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 23:29 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/58270776.shtml)
-- 2026-06-29 23:41 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/18001864776.shtml)
-- 2026-06-29 23:19 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/3608737960.shtml)
-- 2026-06-29 23:22 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/26685971723.shtml)
-- 2026-06-29 23:22 - [美股](https://www.share.minike.top/Article/details/661852.shtml)
-- 2026-06-29 23:30 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/59993258.shtml)
-- 2026-06-29 23:15 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/8637173626.shtml)
-- 2026-06-29 23:38 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/2751496040.shtml)
-- 2026-06-29 23:18 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/5584239.shtml)
-- 2026-06-29 23:17 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/8656607025.shtml)
-- 2026-06-29 23:34 - [东方风云榜](http://www.blog.minike.top/Article/details/25311.shtml)
-- 2026-06-29 23:32 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/251814786.shtml)
-- 2026-06-29 23:27 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/90685828067.shtml)
-- 2026-06-29 23:26 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/99374207714.shtml)
-- 2026-06-29 23:16 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/00077699.shtml)
+- 2026-06-29 23:22 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/749858164.shtml)
+- 2026-06-29 23:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/773249786930.shtml)
+- 2026-06-29 23:47 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/56841498293.shtml)
+- 2026-06-29 23:40 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/1683735.shtml)
+- 2026-06-29 23:20 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/409250196216.shtml)
+- 2026-06-29 23:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/1206018904.shtml)
+- 2026-06-29 23:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4918660265.shtml)
+- 2026-06-29 23:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/064384.shtml)
+- 2026-06-29 23:35 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/329424.shtml)
+- 2026-06-29 23:19 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/30296881532.shtml)
+- 2026-06-29 23:32 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6313449774.shtml)
+- 2026-06-29 23:38 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/2586829.shtml)
+- 2026-06-29 23:35 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/15201633.shtml)
+- 2026-06-29 23:18 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/382319356789.shtml)
+- 2026-06-29 23:26 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/243758947.shtml)

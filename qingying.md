@@ -1,56 +1,59 @@
-# 从赛场到民间 一颗网球传递中塞跨国温情
+# 中信建投期货：5月6日能化早报
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-视频丨从赛场到民间 一颗网球传递中塞跨国温情 近日，塞尔维亚总统武契奇访华，再次让中塞“铁杆友谊”成为焦点。在文体交流领域，两国合作正从国家层面延伸至民间。近年来，网球在中国深受大众喜爱，而在世界网坛版图上，塞尔维亚是一个不可忽视的名字。这个不到700万人口的国度，诞生了德约科维奇、伊万诺维奇等巨星。 和这些巨星曾在一个俱乐部训练的塞尔维亚教练米利·维尔伊科维奇，最近四年一直在
+PX： 供需面供减需增。亚洲行业负荷环比减少1.7pct至64.5%，已降至五年同期低位。中国PX行业负荷环比减少0.4pct 至 80.4%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。需求端，PTA计划外检修增多将对PX需求产生阶段性压制。PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。假期期间美伊对峙升级
 
 ## 正文
 
-视频丨从赛场到民间 一颗网球传递中塞跨国温情 近日，塞尔维亚总统武契奇访华，再次让中塞“铁杆友谊”成为焦点。
+PX： 供需面供减需增。
 
-在文体交流领域，两国合作正从国家层面延伸至民间。
+亚洲行业负荷环比减少1.7pct至64.5%，已降至五年同期低位。
 
-近年来，网球在中国深受大众喜爱，而在世界网坛版图上，塞尔维亚是一个不可忽视的名字。
+中国PX行业负荷环比减少0.4pct 至 80.4%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。
 
-这个不到700万人口的国度，诞生了德约科维奇、伊万诺维奇等巨星。
+需求端，PTA计划外检修增多将对PX需求产生阶段性压制。
 
-和这些巨星曾在一个俱乐部训练的塞尔维亚教练米利·维尔伊科维奇，最近四年一直在深圳罗湖执教。
+PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。
 
-他用一颗网球在中国交下挚友，也见证着两国民间情谊的生根发芽。
+假期期间美伊对峙升级，但昨日出现缓和迹象，特朗普称与伊朗取得进展，“自由计划”将短期暂停，美国国务卿鲁比奥也确认对伊朗的“史诗怒火”军事行动已结束。
 
-在深圳罗湖区的一家网球场上，64岁的塞尔维亚教练米利·维尔伊科维奇正在给中国孩子上课。
+不过，后续谈判进程预计仍不顺利，布伦特原油价格维持高位震荡。
 
-米利是国际职业网球教练组织最高级别认证教练。
+短期内，PX 现货流动性较为充裕，只有当库存去化速度加快时，才是较好的入场时机。
 
 ## 相关推荐
 
-- 2026-06-29 23:15 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 23:17 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 23:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 23:13 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 23:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 23:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 23:22 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 23:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 23:31 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 23:26 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 23:42 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 23:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 23:45 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 23:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 23:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 23:24 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 23:35 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-29 23:21 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 23:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 23:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 23:35 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 23:23 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 23:43 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/54909.shtml)
-- 2026-06-29 23:18 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/272359891972.shtml)
-- 2026-06-29 23:13 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/77292849.shtml)
-- 2026-06-29 23:28 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/35936880.shtml)
-- 2026-06-29 23:41 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/380723.shtml)
-- 2026-06-29 23:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/29827.shtml)
-- 2026-06-29 23:37 - [世界杯](https://www.blog.minike.top/Article/details/654506215874.shtml)
-- 2026-06-29 23:17 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/51617996.shtml)
-- 2026-06-29 23:27 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/15210365.shtml)
-- 2026-06-29 23:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/239171256872.shtml)
-- 2026-06-29 23:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/58036201536.shtml)
-- 2026-06-29 23:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/95342918.shtml)
-- 2026-06-29 23:41 - [恋与深空 日服](https://www.share.minike.top/Article/details/359462.shtml)
-- 2026-06-29 23:22 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/2801534.shtml)
-- 2026-06-29 23:30 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/095146.shtml)
+- 2026-06-29 23:31 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/1563359.shtml)
+- 2026-06-29 23:39 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/58628825101.shtml)
+- 2026-06-29 23:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/6970407581.shtml)
+- 2026-06-29 23:38 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/4875324517.shtml)
+- 2026-06-29 23:36 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/483149.shtml)
+- 2026-06-29 23:42 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/50129068467.shtml)
+- 2026-06-29 23:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/38227609.shtml)
+- 2026-06-29 23:21 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/843508323.shtml)
+- 2026-06-29 23:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/5505941580.shtml)
+- 2026-06-29 23:36 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/8261818.shtml)
+- 2026-06-29 23:22 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/23520535.shtml)
+- 2026-06-29 23:43 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/904229333831.shtml)
+- 2026-06-29 23:43 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/1915556.shtml)
+- 2026-06-29 23:20 - [时光音乐会](http://www.blog.minike.top/Article/details/9751056525.shtml)
+- 2026-06-29 23:18 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/83159493.shtml)

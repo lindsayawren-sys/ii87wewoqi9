@@ -1,61 +1,61 @@
-# 王毅会见塞尔维亚外长久里奇
+# 奥迪维持全年业绩指引 警示地缘政治与经济动荡带来冲击
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见塞尔维亚外长久里奇。 王毅感谢久里奇专程出席中方倡议举办的安理会高级别会议，表示武契奇总统正在中国访问，此访对促进双边关系具有里程碑意义。两国元首深入战略沟通，增进了互信友谊，达成广泛共识。习近平主席还亲自向武契奇总统授予中华人民共和国“友谊勋章”。两国发表两份重磅合作文件，塞方成为首个同中方就支
+专题：聚焦美股2026年第一季度财报 奥迪本季度品牌汽车交付量 360，106 辆，同比下滑 6.1% 内容概要 尽管面临地缘政治与经济动荡，奥迪仍维持全年业绩指引，并表示亟需对成本结构采取紧急应对措施。 奥迪在持续推进降本计划的同时，坚守全年业绩预期，但警告动荡的地缘政治与经济环境已对业务产生明显冲击。 奥迪首席财务官 于尔根・里特斯贝格尔表示：“过去那些确定性因素 —— 例
 
 ## 正文
 
-新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见塞尔维亚外长久里奇。
+专题：聚焦美股2026年第一季度财报 奥迪本季度品牌汽车交付量 360，106 辆，同比下滑 6.1% 内容概要 尽管面临地缘政治与经济动荡，奥迪仍维持全年业绩指引，并表示亟需对成本结构采取紧急应对措施。
 
-王毅感谢久里奇专程出席中方倡议举办的安理会高级别会议，表示武契奇总统正在中国访问，此访对促进双边关系具有里程碑意义。
+奥迪在持续推进降本计划的同时，坚守全年业绩预期，但警告动荡的地缘政治与经济环境已对业务产生明显冲击。
 
-两国元首深入战略沟通，增进了互信友谊，达成广泛共识。
+奥迪首席财务官 于尔根・里特斯贝格尔表示：“过去那些确定性因素 —— 例如稳定的销售市场、可预判的经营环境，如今已不复存在。
 
-习近平主席还亲自向武契奇总统授予中华人民共和国“友谊勋章”。
+” “我们必须立刻行动，正在优化成本结构，并大力推行各项增效措施。
 
-两国发表两份重磅合作文件，塞方成为首个同中方就支持四大全球倡议发表联合声明的国家，充分体现了中塞关系的特殊性和高水平。
+” 奥迪集团旗下包含奥迪、宾利、兰博基尼、杜卡迪四大品牌。
 
-王毅表示，中方坚定支持塞方维护国家主权和领土完整，赞赏塞方恪守一个中国原则。
+公司去年公布未来数年裁员至多 7500 人的计划，同时采取多项举措提升德国工厂的生产效率、周转速度与灵活度。
 
-下阶段，双方重要任务是把两国元首共识落到实处，密切各层级交往，推进匈塞铁路建设，拓展人工智能、新能源等领域合作，加强在联合国等平台协调合作，推进新时代中塞命运共同体建设。
+中期目标是每年节省超 10 亿欧元（约 11.7 亿美元）成本，以对冲美国关税壁垒及中国市场激烈竞争带来的逆风压力。
 
-久里奇表示，很荣幸受邀参加安理会高级别会议，同中方一起发出维护联合国宪章、坚持多边主义的共同声音。
+奥迪近期完成产品阵容更新以提振增长，今年还将持续推出多款新车，面向核心市场布局纯电动、插电混动及燃油版全新车型。
 
 ## 相关推荐
 
-- 2026-06-29 23:21 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 23:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 23:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 23:30 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 23:14 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 23:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 23:14 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 23:26 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 23:13 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 23:20 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 23:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 23:41 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 23:33 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 23:18 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 23:21 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 23:21 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 23:45 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 23:32 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 23:43 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 23:39 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 23:34 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 23:29 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 23:26 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 23:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 23:27 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 23:27 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 23:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 23:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 23:24 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 23:46 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/99600.shtml)
-- 2026-06-29 23:31 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/99746.shtml)
-- 2026-06-29 23:20 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/31651687.shtml)
-- 2026-06-29 23:18 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/113535116546.shtml)
-- 2026-06-29 23:27 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/00480605.shtml)
-- 2026-06-29 23:38 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/502740.shtml)
-- 2026-06-29 23:18 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/204950262316.shtml)
-- 2026-06-29 23:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/874262.shtml)
-- 2026-06-29 23:33 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/50755631194.shtml)
-- 2026-06-29 23:38 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/05405281917.shtml)
-- 2026-06-29 23:16 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/8584196.shtml)
-- 2026-06-29 23:24 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/16205.shtml)
-- 2026-06-29 23:15 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/88105.shtml)
-- 2026-06-29 23:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/2082709334.shtml)
-- 2026-06-29 23:23 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/350713.shtml)
+- 2026-06-29 23:24 - [千与千寻](https://www.share.kurohicncr.top/Article/details/578648.shtml)
+- 2026-06-29 23:46 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/860453327033.shtml)
+- 2026-06-29 23:27 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/740268115795.shtml)
+- 2026-06-29 23:42 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/84539.shtml)
+- 2026-06-29 23:32 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/0809056.shtml)
+- 2026-06-29 23:33 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1105877.shtml)
+- 2026-06-29 23:39 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/92869966860.shtml)
+- 2026-06-29 23:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/7100369691.shtml)
+- 2026-06-29 23:41 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/7189255.shtml)
+- 2026-06-29 23:18 - [肝不好身体这几处会“说话”](http://www.share.minike.top/Article/details/5167619.shtml)
+- 2026-06-29 23:18 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/467662066.shtml)
+- 2026-06-29 23:30 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/939738187.shtml)
+- 2026-06-29 23:38 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/31248105.shtml)
+- 2026-06-29 23:25 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/70641.shtml)
+- 2026-06-29 23:31 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/266025690833.shtml)

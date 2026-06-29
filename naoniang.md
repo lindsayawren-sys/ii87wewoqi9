@@ -1,57 +1,61 @@
-# 汽车之家-S午后涨超7% 全面推进一站式交易服务平台转型
+# 全国大部降水增多 冷空气将自北向南制造降温
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。 5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。财报显示，公司第一季度总营收为10.5亿元人民币。此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日
+中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。 南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。 随着
 
 ## 正文
 
-汽车之家-S（02518）午后涨超7%，截至发稿，股价上涨7.36%，现报33.86港元。
+中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。
 
-5月28日晚，汽车之家披露2026年第一季度未经审计财务业绩。
+随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。
 
-财报显示，公司第一季度总营收为10.5亿元人民币。
+南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。
 
-此外，为持续回馈股东、兑现长期价值承诺，结合公司股息政策，董事会已批准派发每股美国存托股0.66美元，或每股普通股0.1650美元的现金分红，将以美元支付给于2026年7月2日休市后登记在册的美国存托股及普通股持有人，分红总金额约为人民币5亿元。
+随着暖湿气流加强北上、冷空气南下，今起三天，南方地区自西向东将有新一轮降水过程，部分地区有暴雨，并伴有短时强降水、雷暴大风等强对流天气。
 
-值得一提的是，汽车之家全面推进一站式交易服务平台转型，业务边界从传统信息服务，拓展为“内容+交易+服务”一体化综合平台。
+在北方，今天降水范围有所扩大，强度总体不强，明天起大部地区将回归晴朗。
 
-另外，近期品牌焕新发布会顺利举办，全新LOGO与升级后的APP正式亮相，平台进一步聚焦用户场景与购车全链路服务，精准匹配市场消费需求。
+中央气象台预计，今天，西藏中西部、新疆南疆高海拔山区、青海东部和南部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；东北地区中东部、陕西中南部、河北南部、山东中北部、重庆东北部、江汉大部、贵州中东部、湖南中北部、广西北部、西藏东南部等地部分地区有中到大雨，其中，湖北中部、湖南西部和北部、贵州中部等地部分地区有暴雨。
 
-此次升级不仅实现用户体验的全面革新，也是平台价值从“信息中介”向“服务基础设施”的历史性跨越。
+明天，西藏中部、青海大部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；湖北东部、安徽南部、江南大部、广西中东部、广东中北部等地部分地区有中到大雨，其中，湖南南部、江西东北部、浙江西南部、福建西北部、广东中北部等地部分地区有暴雨。
 
-责任编辑：卢昱君
+后天，西藏东北部、青海南部和东部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；福建东南部、广东南部、广西东南部、海南岛北部、台湾岛东部、云南南部等地部分地区有中到大雨，其中，广东西南部和东北部等地部分地区有暴雨。
 
 ## 相关推荐
 
-- 2026-06-29 23:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 23:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 23:31 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 23:28 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 23:31 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 23:28 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 23:17 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 23:13 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 23:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 23:41 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 23:33 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 23:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 23:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 23:18 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 23:31 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 23:27 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 23:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 23:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 23:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 23:31 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 23:23 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 23:21 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 23:32 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 23:22 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 23:46 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 23:26 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:15 - [送你一朵小红花](https://www.blog.minike.top/Article/details/9727334.shtml)
-- 2026-06-29 23:33 - [东方风云榜直播](http://www.blog.minike.top/Article/details/391474575908.shtml)
-- 2026-06-29 23:13 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/7777202.shtml)
-- 2026-06-29 23:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/67029597482.shtml)
-- 2026-06-29 23:15 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/773845015251.shtml)
-- 2026-06-29 23:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/23680564.shtml)
-- 2026-06-29 23:37 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/5572514777.shtml)
-- 2026-06-29 23:38 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/318308467.shtml)
-- 2026-06-29 23:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/95192.shtml)
-- 2026-06-29 23:13 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/539918979.shtml)
-- 2026-06-29 23:29 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/6947053.shtml)
-- 2026-06-29 23:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/4862858.shtml)
-- 2026-06-29 23:30 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/4464127.shtml)
-- 2026-06-29 23:17 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/74973345.shtml)
-- 2026-06-29 23:26 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/2651804100.shtml)
+- 2026-06-29 23:41 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/1550772182.shtml)
+- 2026-06-29 23:47 - [新官上任三把火](http://www.share.minike.top/Article/details/37265.shtml)
+- 2026-06-29 23:29 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/9520127183.shtml)
+- 2026-06-29 23:47 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/89990.shtml)
+- 2026-06-29 23:21 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/71635499502.shtml)
+- 2026-06-29 23:18 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/124681.shtml)
+- 2026-06-29 23:38 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/47150013.shtml)
+- 2026-06-29 23:32 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/20604211.shtml)
+- 2026-06-29 23:36 - [极限挑战第一季](http://www.blog.minike.top/Article/details/68722087.shtml)
+- 2026-06-29 23:21 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/0435014418.shtml)
+- 2026-06-29 23:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/793689986.shtml)
+- 2026-06-29 23:35 - [天道](https://www.share.minike.top/Article/details/13541.shtml)
+- 2026-06-29 23:27 - [沙丘](http://www.share.minike.top/Article/details/94577.shtml)
+- 2026-06-29 23:37 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/66914.shtml)
+- 2026-06-29 23:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/3579575.shtml)

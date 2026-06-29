@@ -1,54 +1,56 @@
-# 台湾史学伉俪徐泓、王芝芝三万余册藏书“落户”浙大“中西书库”
+# 金融时报：美利坚的法老时代
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月28日 20:24 来源：中国新闻网 5月27日，台湾著名历史学者徐泓、王芝芝夫妇毕生所藏三万余册书籍“落户”浙江大学“中西书库”。2023年9月，80岁的徐泓曾发文为这批藏书寻找归宿，老友、浙大中西书院院长刘东得知后积极对接。历时两年多，这批图书跨越海峡抵达浙大，书院特设“中西书库”收藏。在揭幕仪式上，徐泓感慨，许多早年从大陆购回的书籍“又回到了老家
+在美国政治的传统叙事中，总统被视为公仆、宪法执行官和三权分立的制衡者。然而，自特朗普重返白宫以来，一个迥然不同的形象正在成型——不是公仆，而是君主；不是制衡者，而是权力集中者。 “帝王总统”的登基 特朗普第二任期的执政风格，正被越来越多的观察者贴上“帝王总统”的标签。从上任首日签署行政令废除“出生公民权”，到援引《国际紧急经济权力法》大幅提高对所有贸易伙伴的关税，再到宣布“国家
 
 ## 正文
 
-发布时间：2026年05月28日 20:24 来源：中国新闻网 5月27日，台湾著名历史学者徐泓、王芝芝夫妇毕生所藏三万余册书籍“落户”浙江大学“中西书库”。
+在美国政治的传统叙事中，总统被视为公仆、宪法执行官和三权分立的制衡者。
 
-2023年9月，80岁的徐泓曾发文为这批藏书寻找归宿，老友、浙大中西书院院长刘东得知后积极对接。
+然而，自特朗普重返白宫以来，一个迥然不同的形象正在成型——不是公仆，而是君主；不是制衡者，而是权力集中者。
 
-历时两年多，这批图书跨越海峡抵达浙大，书院特设“中西书库”收藏。
+“帝王总统”的登基 特朗普第二任期的执政风格，正被越来越多的观察者贴上“帝王总统”的标签。
 
-在揭幕仪式上，徐泓感慨，许多早年从大陆购回的书籍“又回到了老家”。
+从上任首日签署行政令废除“出生公民权”，到援引《国际紧急经济权力法》大幅提高对所有贸易伙伴的关税，再到宣布“国家紧急状态”以绕开国会直接行动——总统权力被推向极致。
 
-他表示“两岸是一家人”，希望借此加强两岸学术文化的联结与协作。
+有评论指出，特朗普转发的那张并不存在的《时代》周刊国王封面，或许并非玩笑，而是一种自我定位的宣示。
 
-(孙琳茹 杨程晨 朱贺) 责任编辑：【罗攀】
+数据显示，截至2025年底，特朗普已签署220项行政令，是其第一任期首年的4倍之多。
+
+治国靠行政令、决策靠直觉、人事靠忠诚筛选，已成为特朗普2.0的治理公式。
+
+从总统到法老的质变 3月10日，伊朗最高领袖哈梅内伊在其X平台账号上发布了一幅漫画：特朗普被描绘成一具木乃伊，躺在开裂的埃及石棺中，配文是“如法老一般”。
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 23:30 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 23:33 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 23:23 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 23:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 23:39 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 23:16 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 23:30 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 23:12 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 23:28 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 23:19 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 23:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 23:30 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 23:40 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 23:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 23:35 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 23:32 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 23:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 23:42 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 23:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 23:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 23:33 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:19 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/5959106370.shtml)
-- 2026-06-29 23:32 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/18922.shtml)
-- 2026-06-29 23:23 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/82372846.shtml)
-- 2026-06-29 23:37 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/2269577324.shtml)
-- 2026-06-29 23:13 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/415680288.shtml)
-- 2026-06-29 23:28 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/41656020376.shtml)
-- 2026-06-29 23:22 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/150592927280.shtml)
-- 2026-06-29 23:39 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/7554069.shtml)
-- 2026-06-29 23:21 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/9223392485.shtml)
-- 2026-06-29 23:19 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/736245.shtml)
-- 2026-06-29 23:40 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/036382.shtml)
-- 2026-06-29 23:21 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/37877573150.shtml)
-- 2026-06-29 23:14 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/351751.shtml)
-- 2026-06-29 23:20 - [青春环游记第三季](https://www.blog.minike.top/Article/details/4492696950.shtml)
-- 2026-06-29 23:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/8539960867.shtml)
+- 2026-06-29 23:46 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/609304834.shtml)
+- 2026-06-29 23:42 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/56662.shtml)
+- 2026-06-29 23:20 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/449799657483.shtml)
+- 2026-06-29 23:38 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/136201358.shtml)
+- 2026-06-29 23:25 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/0282523370.shtml)
+- 2026-06-29 23:22 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/793410472114.shtml)
+- 2026-06-29 23:33 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/9059188.shtml)
+- 2026-06-29 23:23 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/7833831.shtml)
+- 2026-06-29 23:34 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/306488.shtml)
+- 2026-06-29 23:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/9355093.shtml)
+- 2026-06-29 23:21 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/3042675249.shtml)
+- 2026-06-29 23:44 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/73075962.shtml)
+- 2026-06-29 23:36 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.minike.top/Article/details/602127007.shtml)
+- 2026-06-29 23:41 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/9037990204.shtml)
+- 2026-06-29 23:39 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/58190563.shtml)

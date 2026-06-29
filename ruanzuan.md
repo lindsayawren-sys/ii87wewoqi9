@@ -1,58 +1,56 @@
-# 山东足疗巨头华夏良子准备冲刺“足疗第一股”，三重考验待解
+# 香港多个社团共办音乐会弘扬五四精神
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-来源：未名财经 华夏良子 ©互联网 史蕾和她的团队，必须在递交招股书之前，交出一份经得起推敲、经得起追问、经得起时间的答卷。 观察员|三畏 审校|王恒 “洗脚”生意，正在叩响港交所的大门。 5月23日，山东卫视《新闻联播》披露，中泰国际与华夏良子正式签订上市保荐协议，明确计划登陆香港资本市场。 若此次IPO成功，这家总部位于济南、拥有约400家门店的足疗保健连锁品牌，将填补内地
+中新网香港5月5日电 为纪念五四运动107周年，以“致青春·正青春——青春光影·时代强音”为主题的五四青年节音乐会4日晚在香港尖沙咀街坊福利会会堂举行。 音乐会以一段深沉有力的朗诵开篇。节目以1919年巴黎和会中国外交失败后，爱国青年发出“誓死力争，还我青岛”的呐喊为背景，号召当代青年“有一分热，发一分光”。 香港青年乐团先后演绎了《泰坦尼克号》《侏罗纪公园》《加勒比海盗》等电
 
 ## 正文
 
-来源：未名财经 华夏良子 ©互联网 史蕾和她的团队，必须在递交招股书之前，交出一份经得起推敲、经得起追问、经得起时间的答卷。
+中新网香港5月5日电 为纪念五四运动107周年，以“致青春·正青春——青春光影·时代强音”为主题的五四青年节音乐会4日晚在香港尖沙咀街坊福利会会堂举行。
 
-观察员|三畏 审校|王恒 “洗脚”生意，正在叩响港交所的大门。
+音乐会以一段深沉有力的朗诵开篇。
 
-5月23日，山东卫视《新闻联播》披露，中泰国际与华夏良子正式签订上市保荐协议，明确计划登陆香港资本市场。
+节目以1919年巴黎和会中国外交失败后，爱国青年发出“誓死力争，还我青岛”的呐喊为背景，号召当代青年“有一分热，发一分光”。
 
-若此次IPO成功，这家总部位于济南、拥有约400家门店的足疗保健连锁品牌，将填补内地及香港资本市场足疗保健服务板块的空白，成为“足疗保健第一股”。
+香港青年乐团先后演绎了《泰坦尼克号》《侏罗纪公园》《加勒比海盗》等电影的配乐，以及致敬奋斗精神的《狮子山下》，充分展现香港青年的艺术风采。
 
-一场两代人的资本接力 公开信息显示，华夏良子由山东聊城人史英建创立，其早年曾就职于中国农业信托投资公司。
+音乐会下半场，香港青年音乐家马航带领慈航筝团以古筝演奏《云宫迅音》《倩女幽魂》《青城山下白素贞》等多首经典曲目。
 
-1997年公司解散后，他便转向足疗养生行业，在济南创立了一家190平方米的小店。
+活动总策划、全国青联委员、香港湖南青年会会长孙秀祖表示，活动通过融合朗诵、交响乐、民乐等多元艺术形式，重温五四运动光辉历史，激励香港青年胸怀理想、矢志奋斗，为国家发展和香港繁荣贡献青春力量。
 
-凭借金融从业者特有的标准化思维，2006年，华夏良子成为国内足疗行业首家通过ISO9000国际质量标准认证的企业，并参与了山东省足疗行业标准的起草。
+音乐会由香港湖南联谊总会、香港湖南青年会、香港江西社团(联谊)总会青年事务委员会、泰山学子基金、香港山东青年会、香港山东社团总会青年事务委员会、香港工商总会青年网络、香港湖北青年会联合主办。
 
-2010年，史英建退休，其31岁的女儿史蕾正式接班。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 23:22 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 23:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 23:22 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 23:30 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 23:36 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 23:16 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 23:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 23:33 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 23:35 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 23:37 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 23:21 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 23:30 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 23:18 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 23:34 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 23:42 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 23:46 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 23:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 23:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 23:21 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 23:44 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 23:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/92343258799.shtml)
-- 2026-06-29 23:22 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/41464772910.shtml)
-- 2026-06-29 23:40 - [我和我的家乡](https://www.share.minike.top/Article/details/07969521155.shtml)
-- 2026-06-29 23:17 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/5073956460.shtml)
-- 2026-06-29 23:36 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/47267594.shtml)
-- 2026-06-29 23:14 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/934767846459.shtml)
-- 2026-06-29 23:24 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/58367.shtml)
-- 2026-06-29 23:30 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/40707091.shtml)
-- 2026-06-29 23:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/32975257382.shtml)
-- 2026-06-29 23:15 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/45399.shtml)
-- 2026-06-29 23:41 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/480379.shtml)
-- 2026-06-29 23:37 - [一生一世](https://www.blog.minike.top/Article/details/36287239.shtml)
-- 2026-06-29 23:23 - [炽夏](https://www.share.minike.top/Article/details/693504483.shtml)
-- 2026-06-29 23:13 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/58295748.shtml)
-- 2026-06-29 23:18 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/07961341517.shtml)
+- 2026-06-29 23:25 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/23692577061.shtml)
+- 2026-06-29 23:40 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/879459521295.shtml)
+- 2026-06-29 23:40 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/53866.shtml)
+- 2026-06-29 23:43 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/4904135.shtml)
+- 2026-06-29 23:33 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/2212733.shtml)
+- 2026-06-29 23:27 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/02128152.shtml)
+- 2026-06-29 23:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/124902.shtml)
+- 2026-06-29 23:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/55014316.shtml)
+- 2026-06-29 23:22 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/2043828.shtml)
+- 2026-06-29 23:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/89642455.shtml)
+- 2026-06-29 23:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/68359448478.shtml)
+- 2026-06-29 23:24 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/96140.shtml)
+- 2026-06-29 23:46 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/35844.shtml)
+- 2026-06-29 23:34 - [天道](http://www.share.kurohicncr.top/Article/details/075916406.shtml)
+- 2026-06-29 23:26 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/8771492567.shtml)

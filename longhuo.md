@@ -1,60 +1,59 @@
-# Kohl’s转型成效显现，季度亏损收窄
+# 从打卡到“沉浸” 江西古村“质感慢游”受青睐
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 这家百货连锁企业截至 5 月 2 日的季度亏损为 1400 万美元，去年同期亏损 1500 万美元 凭借同店销售额表现改善，Kohl’s本季度亏损有所收窄。 百货连锁品牌Kohl’s（KSS） 最新季度亏损收窄，同店销售额创下多年新高，标志着公司转型工作稳步落地。 财报显示，截至 5 月 2 日的一季度，公司亏损1400 万美元；去年同期亏
+中新社江西婺源5月4日电 (朱莹)“五一”假期，游客黄跃茹在江西婺源篁岭古村学做清明粿、做游戏赢“粮票”、兑换特色小吃……她说，在这里不用刻意找风景，整个村子就是能深度参与的“生活片场”。 从“打卡式旅游”到“沉浸式放松”，今年“五一”假期，不少游客选择古村慢游。 篁岭景区官方数据显示，“五一”假期前两天，景区累计接待游客量超5万人次。游客陈嘉义表示，青石板路、老宅天井、袅袅炊
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 这家百货连锁企业截至 5 月 2 日的季度亏损为 1400 万美元，去年同期亏损 1500 万美元 凭借同店销售额表现改善，Kohl’s本季度亏损有所收窄。
+中新社江西婺源5月4日电 (朱莹)“五一”假期，游客黄跃茹在江西婺源篁岭古村学做清明粿、做游戏赢“粮票”、兑换特色小吃……她说，在这里不用刻意找风景，整个村子就是能深度参与的“生活片场”。
 
-百货连锁品牌Kohl’s（KSS） 最新季度亏损收窄，同店销售额创下多年新高，标志着公司转型工作稳步落地。
+从“打卡式旅游”到“沉浸式放松”，今年“五一”假期，不少游客选择古村慢游。
 
-财报显示，截至 5 月 2 日的一季度，公司亏损1400 万美元；去年同期亏损 1500 万美元。
+篁岭景区官方数据显示，“五一”假期前两天，景区累计接待游客量超5万人次。
 
-本季度每股亏损 0.13 美元，低于 FactSet 统计的分析师预期（每股亏损 0.16 美元）。
+游客陈嘉义表示，青石板路、老宅天井、袅袅炊烟，这些是城市商业景区无法复制的。
 
-季度营收同比下滑 1.7%，至 30 亿美元，与市场预期基本持平。
+江西共有中国传统村落413个，省级传统村落155个。
 
-剔除门店增减影响的同店销售额下降 1.1%，优于分析师此前预测的 1.7% 降幅。
+始建于唐末的吉安钓源古村，以古建筑和深厚的庐陵文化闻名，青砖黛瓦掩映于古樟树之间，百年老宅风姿各异，游人们乐游其间。
 
-首席执行官迈克尔・本德表示，这是公司四年多以来同店销售的最佳表现，小幅下滑源于业务优化调整阶段的正常现象。
+“钓源古村·十里芳菲”景区品宣部经理罗水清说，仅假期第一天，景区客流量就接近1万人次，“早在4月中旬，客房就已全部订满”。
 
-他补充道：“此外，公司持续精细化运营，成本管控成效显著，库存结构进一步优化，资产负债表状况也得到改善。
+来自广东佛山的游客张致远一家五口在村里住了三天。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 23:28 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 23:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 23:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 23:33 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 23:37 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 23:18 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 23:32 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 23:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 23:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 23:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 23:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 23:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 23:29 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 23:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 23:20 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 23:32 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 23:27 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 23:35 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 23:47 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 23:47 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 23:44 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 23:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 23:47 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 23:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 23:37 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 23:42 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/081512508.shtml)
-- 2026-06-29 23:12 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/489261024.shtml)
-- 2026-06-29 23:23 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/7009796350.shtml)
-- 2026-06-29 23:31 - [急先锋](http://www.blog.kurohicncr.top/Article/details/658819462633.shtml)
-- 2026-06-29 23:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/801057.shtml)
-- 2026-06-29 23:35 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/74227832.shtml)
-- 2026-06-29 23:32 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/020098.shtml)
-- 2026-06-29 23:27 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/0746446.shtml)
-- 2026-06-29 23:40 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/482367869.shtml)
-- 2026-06-29 23:31 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/926595.shtml)
-- 2026-06-29 23:36 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/49617262531.shtml)
-- 2026-06-29 23:26 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/52500041.shtml)
-- 2026-06-29 23:30 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/2864393.shtml)
-- 2026-06-29 23:35 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/618919915.shtml)
-- 2026-06-29 23:24 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/154351.shtml)
+- 2026-06-29 23:25 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/72087422.shtml)
+- 2026-06-29 23:18 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/39289011709.shtml)
+- 2026-06-29 23:25 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/8916356653.shtml)
+- 2026-06-29 23:31 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/2459811510.shtml)
+- 2026-06-29 23:25 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/52472472775.shtml)
+- 2026-06-29 23:45 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/07171.shtml)
+- 2026-06-29 23:18 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/99363105406.shtml)
+- 2026-06-29 23:43 - [金牌调解](http://www.share.kurohicncr.top/Article/details/7461313029.shtml)
+- 2026-06-29 23:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/3924307038.shtml)
+- 2026-06-29 23:34 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/774898707394.shtml)
+- 2026-06-29 23:18 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/13729757884.shtml)
+- 2026-06-29 23:45 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/493647.shtml)
+- 2026-06-29 23:36 - [恋与深空 巧合](http://www.share.minike.top/Article/details/57416411792.shtml)
+- 2026-06-29 23:41 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/30816098.shtml)
+- 2026-06-29 23:23 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/373009078.shtml)

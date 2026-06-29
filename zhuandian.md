@@ -1,57 +1,45 @@
-# 欧洲4月汽车销量连续第三个月增长 纯电动车交付量激增38%
+# 对美联储与财政部“协议”概念的质疑
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-欧洲汽车市场在4月实现连续第三个月增长，消费者持续转向纯电动和混合动力车型。 欧洲汽车制造商协会周三公布，4月新车注册量同比增长7%，达到115万辆。德国和英国等主要市场销售回升明显，其中纯电动车交付量激增38%。 强劲需求对欧洲汽车制造商来说是个好兆头，这些车企正疲于应对产能过剩、美国关税以及销售下滑等问题。随着更多平价车型上市，电动汽车销量正在增长，相关车型既来自大众汽车、
+几位美联储官员相继表示担忧：提名为主席的凯文·沃什（Kevin Warsh）的做法可能会限制美联储资产负债表的自主权，花旗集团（Citigroup）等市场参与者正在关注这一潜在的政策转变。责任编辑：张俊 SF065
 
 ## 正文
 
-欧洲汽车市场在4月实现连续第三个月增长，消费者持续转向纯电动和混合动力车型。
+几位美联储官员相继表示担忧：提名为主席的凯文·沃什（Kevin Warsh）的做法可能会限制美联储资产负债表的自主权，花旗集团（Citigroup）等市场参与者正在关注这一潜在的政策转变。
 
-欧洲汽车制造商协会周三公布，4月新车注册量同比增长7%，达到115万辆。
-
-德国和英国等主要市场销售回升明显，其中纯电动车交付量激增38%。
-
-强劲需求对欧洲汽车制造商来说是个好兆头，这些车企正疲于应对产能过剩、美国关税以及销售下滑等问题。
-
-随着更多平价车型上市，电动汽车销量正在增长，相关车型既来自大众汽车、Stellantis NV等本土制造商，也来自比亚迪等品牌。
-
-在欧洲最大的市场德国，由于新的补贴政策到位，电动汽车销量跃升41%。
-
-目前仍不清楚，中东冲突在多大程度上影响了欧洲消费者的购买决策；这场冲突已带动亚洲等地区消费者对电动汽车的兴趣升温。
-
-与此同时，行业研究称，如果战争持续更长时间，也会构成风险。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 23:16 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 23:29 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 23:13 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 23:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 23:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 23:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 23:21 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 23:19 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 23:41 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 23:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 23:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 23:26 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 23:42 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 23:20 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 23:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 23:34 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 23:27 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 23:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 23:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 23:40 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 23:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/29439.shtml)
-- 2026-06-29 23:20 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/861097.shtml)
-- 2026-06-29 23:41 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/97137463027.shtml)
-- 2026-06-29 23:34 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/857061.shtml)
-- 2026-06-29 23:32 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/359982793904.shtml)
-- 2026-06-29 23:36 - [存储三巨头被告了](https://www.share.minike.top/Article/details/52886.shtml)
-- 2026-06-29 23:35 - [乔家的儿女](http://www.share.minike.top/Article/details/43629.shtml)
-- 2026-06-29 23:38 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/42399217343.shtml)
-- 2026-06-29 23:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/96632.shtml)
-- 2026-06-29 23:38 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/788267.shtml)
-- 2026-06-29 23:17 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/465717.shtml)
-- 2026-06-29 23:23 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/006459460743.shtml)
-- 2026-06-29 23:20 - [男子称在京东买到“同仁堂”假药](http://www.blog.minike.top/Article/details/0536857559.shtml)
-- 2026-06-29 23:29 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/259576123.shtml)
-- 2026-06-29 23:36 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/901847137462.shtml)
+- 2026-06-29 23:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/2203245.shtml)
+- 2026-06-29 23:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/75898350610.shtml)
+- 2026-06-29 23:45 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/089023996664.shtml)
+- 2026-06-29 23:44 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/109621.shtml)
+- 2026-06-29 23:31 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/887275.shtml)
+- 2026-06-29 23:22 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/354433882.shtml)
+- 2026-06-29 23:26 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/110842778.shtml)
+- 2026-06-29 23:41 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/403127872486.shtml)
+- 2026-06-29 23:37 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/89186812.shtml)
+- 2026-06-29 23:31 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/3416177945.shtml)
+- 2026-06-29 23:21 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/5895651.shtml)
+- 2026-06-29 23:45 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/24299723.shtml)
+- 2026-06-29 23:24 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/240390349.shtml)
+- 2026-06-29 23:21 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/821069.shtml)
+- 2026-06-29 23:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/331299262704.shtml)

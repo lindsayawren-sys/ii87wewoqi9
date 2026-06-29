@@ -1,44 +1,59 @@
-# 国际油价27日大幅下跌
+# 乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月28日 09:33 来源：央视新闻 责任编辑：【王祎】
+中新网巴彦淖尔5月4日电 题：乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元 中新网记者 张林虎 “五一”假期，内蒙古自治区巴彦淖尔市乌拉特前旗的乌梁素海湖面上，游船穿梭如织，停车场一位难求。操着各地口音的游客，在这片被称为“塞外明珠”的水域流连忘返。 “昨天客流量比去年同期增长18%，营业额增长44%。截至5月3日下午，我们的营业额已达去年同期的93%，今年的总收入肯定
 
 ## 正文
 
-发布时间：2026年05月28日 09:33 来源：央视新闻 责任编辑：【王祎】
+中新网巴彦淖尔5月4日电 题：乌梁素海“五一”见闻：湖清鸟归游人至 7船日入4万元 中新网记者 张林虎 “五一”假期，内蒙古自治区巴彦淖尔市乌拉特前旗的乌梁素海湖面上，游船穿梭如织，停车场一位难求。
+
+操着各地口音的游客，在这片被称为“塞外明珠”的水域流连忘返。
+
+“昨天客流量比去年同期增长18%，营业额增长44%。
+
+截至5月3日下午，我们的营业额已达去年同期的93%，今年的总收入肯定会超过去年。
+
+”乌梁素海生态旅游景区执行总经理聂鹏看着实时数据，满心欢喜。
+
+乌梁素海是黄河流域最大的淡水湖，也是地球同一纬度最大的湿地。
+
+前些年，因过度开垦和污水排放，乌梁素海生态一度恶化。
+
+随着山水林田湖草沙一体化治理工程推进，乌梁素海水质从劣Ⅴ类提升到整体Ⅴ类、局部Ⅳ类，湖区面积稳定在293平方公里，每年有60多万只鸟类在此栖息繁衍。
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 23:14 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 23:24 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 23:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 23:26 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 23:36 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 23:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 23:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 23:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 23:36 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 23:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 23:31 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 23:42 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 23:42 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 23:44 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 23:34 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 23:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 23:45 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 23:47 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 23:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 23:20 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 23:47 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 23:35 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 23:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 23:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:29 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/507422568251.shtml)
-- 2026-06-29 23:37 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/137308037575.shtml)
-- 2026-06-29 23:24 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/79787857859.shtml)
-- 2026-06-29 23:18 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/974992998788.shtml)
-- 2026-06-29 23:30 - [美人鱼](http://www.share.kurohicncr.top/Article/details/6228629802.shtml)
-- 2026-06-29 23:23 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.kurohicncr.top/Article/details/742853650.shtml)
-- 2026-06-29 23:42 - [千与千寻](https://www.share.minike.top/Article/details/5934210127.shtml)
-- 2026-06-29 23:24 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/6639623323.shtml)
-- 2026-06-29 23:36 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/8424055.shtml)
-- 2026-06-29 23:16 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/793047360987.shtml)
-- 2026-06-29 23:39 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/8951132018.shtml)
-- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/28911.shtml)
-- 2026-06-29 23:19 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/497302.shtml)
-- 2026-06-29 23:24 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/956525.shtml)
-- 2026-06-29 23:14 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/42262446961.shtml)
+- 2026-06-29 23:30 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/4665524613.shtml)
+- 2026-06-29 23:40 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/184890.shtml)
+- 2026-06-29 23:24 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/87993787.shtml)
+- 2026-06-29 23:34 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/72088679.shtml)
+- 2026-06-29 23:40 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/528356303.shtml)
+- 2026-06-29 23:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/320864654.shtml)
+- 2026-06-29 23:19 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/55689324.shtml)
+- 2026-06-29 23:28 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/66710.shtml)
+- 2026-06-29 23:47 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/2048869724.shtml)
+- 2026-06-29 23:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/22259.shtml)
+- 2026-06-29 23:29 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/5469658989.shtml)
+- 2026-06-29 23:26 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/705172779.shtml)
+- 2026-06-29 23:43 - [TOP Prada](https://www.share.minike.top/Article/details/3554621404.shtml)
+- 2026-06-29 23:19 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/21326354.shtml)
+- 2026-06-29 23:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/047198326244.shtml)

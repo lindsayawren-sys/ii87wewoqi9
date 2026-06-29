@@ -1,57 +1,50 @@
-# 观点汇总|国泰海通秦和平最新研判：存储类股票估值范式切换，美伊冲突只是噪音，下半年紧盯两大方向
+# “五一”假期首日高速公路充电量同比增长55.6%
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，美联储下半年政策路径的核心判断是什么？美股港股科技板块将如何演绎？新浪证券对话国泰海通证券海外科技首席分析师秦和平为投资者深度解析>>视频直播 秦和平指出，近期海外科技市场变化较多，核心亮点集中在火爆的算力板块，尤其是存储赛道。近期英伟达业绩指引释放出明确数据，带动Rubin价值重估，直接推动美
+中新网5月2日电 据国家能源局微信公众号消息，“五一”假期首日，全国高速公路迎来出行高峰。国家能源局提前部署、精准施策，指导各地提前开展服务区充电设施检修维护，加强充电车辆调度引导，全力保障人民群众绿色出行、安心出游。通过对纳入国家充电设施监测服务平台的5.76万个高速公路充电设施(枪)进行统计分析，“五一”假期首日(5月1日0时至24时)，高速公路新能源汽车充电量达到2303
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网5月2日电 据国家能源局微信公众号消息，“五一”假期首日，全国高速公路迎来出行高峰。
 
-5月28日，美联储下半年政策路径的核心判断是什么？
+国家能源局提前部署、精准施策，指导各地提前开展服务区充电设施检修维护，加强充电车辆调度引导，全力保障人民群众绿色出行、安心出游。
 
-美股港股科技板块将如何演绎？
+通过对纳入国家充电设施监测服务平台的5.76万个高速公路充电设施(枪)进行统计分析，“五一”假期首日(5月1日0时至24时)，高速公路新能源汽车充电量达到2303.39万千瓦时，同比增长55.6%，充电服务次数超94.63万次，刷新“五一”假期首日充电量历史纪录。
 
-新浪证券对话国泰海通证券海外科技首席分析师秦和平为投资者深度解析>>视频直播 秦和平指出，近期海外科技市场变化较多，核心亮点集中在火爆的算力板块，尤其是存储赛道。
-
-近期英伟达业绩指引释放出明确数据，带动Rubin价值重估，直接推动美股半导体ETF大幅上涨。
-
-这一行情也传导至A股，带动存储、PCB、MLCC等产业链龙头同步走高。
-
-经过我们测算，本轮板块上涨的核心动力，源于AI超级周期下的商业范式迁移，和传统SaaS时代完全不同。
-
-传统SaaS服务中，软件增值服务占比70%，算力成本仅占30%；但进入AI Agent时代，成本结构彻底反转，70%的应用服务成本由算力基础设施构成，软件增值服务占比从70%降至30%，算力在整体应用服务成本中的占比提升两倍多。
+下一步，国家能源局将会同有关方面持续强化高速公路充电设施监测，加强应急充电资源动态调配，全力做好“五一”假期后续充电服务保障工作。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 23:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 23:22 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 23:25 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 23:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 23:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 23:26 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 23:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 23:14 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 23:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 23:14 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 23:46 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 23:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 23:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 23:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 23:32 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 23:24 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 23:48 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 23:31 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 23:43 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 23:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 23:31 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 23:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/4284419086.shtml)
-- 2026-06-29 23:20 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/667184241.shtml)
-- 2026-06-29 23:30 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/5506403.shtml)
-- 2026-06-29 23:22 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/47242608882.shtml)
-- 2026-06-29 23:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/877141120780.shtml)
-- 2026-06-29 23:35 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/158721905.shtml)
-- 2026-06-29 23:35 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/08811346537.shtml)
-- 2026-06-29 23:38 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/97648.shtml)
-- 2026-06-29 23:23 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/305436408.shtml)
-- 2026-06-29 23:21 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/285546257917.shtml)
-- 2026-06-29 23:38 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/29860110.shtml)
-- 2026-06-29 23:24 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/395442.shtml)
-- 2026-06-29 23:14 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/536550733.shtml)
-- 2026-06-29 23:18 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/61518993.shtml)
-- 2026-06-29 23:39 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/706720412182.shtml)
+- 2026-06-29 23:38 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/53154541.shtml)
+- 2026-06-29 23:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/2422729.shtml)
+- 2026-06-29 23:40 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/04551265285.shtml)
+- 2026-06-29 23:22 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/3194755093.shtml)
+- 2026-06-29 23:39 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/50310.shtml)
+- 2026-06-29 23:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/34926549.shtml)
+- 2026-06-29 23:32 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/539075299683.shtml)
+- 2026-06-29 23:27 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/965319492.shtml)
+- 2026-06-29 23:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/220210327886.shtml)
+- 2026-06-29 23:41 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/68515091917.shtml)
+- 2026-06-29 23:42 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/67305.shtml)
+- 2026-06-29 23:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/53453.shtml)
+- 2026-06-29 23:46 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/30372488.shtml)
+- 2026-06-29 23:31 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/56532634.shtml)
+- 2026-06-29 23:29 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/6009438699.shtml)

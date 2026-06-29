@@ -1,58 +1,54 @@
-# 伯克希尔的另一位“查理”：保险巨头的继任人选
+# 瀑布秋千绳索断裂致游客坠亡，四川华蓥：涉事公园已停业整顿
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-通用再保险董事长查理・沙米耶将在阿吉特・贾恩退休后，接手伯克希尔的保险业务 内容速览 伯克希尔・哈撒韦已选定查理・沙米耶，作为保险业务负责人阿吉特・贾恩的继任者。 数十年来，保险业务始终是沃伦・巴菲特旗下这家综合集团的核心支柱。如今，查理・沙米耶被确定为该板块未来的掌舵人，他未来将直面各类重大灾害与风险挑战。 而过往经历，早已让他积累了丰富的应对经验。 21 世纪初，沙米耶任职
+央视网消息：近日，一条“高空项目绳索断裂游客坠落”的视频引发网络关注。据华蓥市“5·3”事故调查组5月5日通报：5月3日下午，华蓥市玛琉岩探险公园发生一起人员伤亡事故，游客刘某某（女）在体验瀑布秋千项目时受伤，送医途中死亡，对此我们深感痛心。事故发生后，华蓥市立即成立调查组，对事故原因进行深入调查。初步认定，该事故是一起企业生产安全责任事故，相关责任单位和责任人员正在依法依规调
 
 ## 正文
 
-通用再保险董事长查理・沙米耶将在阿吉特・贾恩退休后，接手伯克希尔的保险业务 内容速览 伯克希尔・哈撒韦已选定查理・沙米耶，作为保险业务负责人阿吉特・贾恩的继任者。
+央视网消息：近日，一条“高空项目绳索断裂游客坠落”的视频引发网络关注。
 
-数十年来，保险业务始终是沃伦・巴菲特旗下这家综合集团的核心支柱。
+据华蓥市“5·3”事故调查组5月5日通报：5月3日下午，华蓥市玛琉岩探险公园发生一起人员伤亡事故，游客刘某某（女）在体验瀑布秋千项目时受伤，送医途中死亡，对此我们深感痛心。
 
-如今，查理・沙米耶被确定为该板块未来的掌舵人，他未来将直面各类重大灾害与风险挑战。
+事故发生后，华蓥市立即成立调查组，对事故原因进行深入调查。
 
-而过往经历，早已让他积累了丰富的应对经验。
+初步认定，该事故是一起企业生产安全责任事故，相关责任单位和责任人员正在依法依规调查处理中。
 
-21 世纪初，沙米耶任职慕尼黑再保险期间，协助公司渡过评级遭大幅下调的危机。
+目前，我们已会同家属妥善处理善后事宜，公园已停业整顿。
 
-2008 至 2009 年金融危机前夕，他加入美国国际集团（AIG），见证并参与了这家险企濒临破产后的全面复苏。
+为尊重逝者隐私，请大家不要转发相关照片、视频。
 
-沙米耶出生于黎巴嫩，年少时还亲身经历过战乱与社会动荡。
-
-据《华尔街曰报》本月早些时候报道，现年 59 岁的通用再保险董事长沙米耶，被伯克希尔选定为 74 岁的保险业传奇人物阿吉特・贾恩的接班人，待贾恩宣布退休后正式接棒。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 23:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 23:16 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 23:15 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 23:19 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 23:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 23:38 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 23:24 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 23:21 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 23:22 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 23:33 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 23:22 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 23:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 23:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 23:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 23:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 23:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 23:30 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 23:20 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 23:36 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 23:42 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 23:29 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:41 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/965468167.shtml)
-- 2026-06-29 23:24 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/15399.shtml)
-- 2026-06-29 23:36 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/49963267592.shtml)
-- 2026-06-29 23:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/59104485.shtml)
-- 2026-06-29 23:30 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/16738.shtml)
-- 2026-06-29 23:35 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/23854740.shtml)
-- 2026-06-29 23:35 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/118260165.shtml)
-- 2026-06-29 23:20 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/918494789495.shtml)
-- 2026-06-29 23:24 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/1361218.shtml)
-- 2026-06-29 23:20 - [勇敢的心第二部](http://www.share.minike.top/Article/details/73339562279.shtml)
-- 2026-06-29 23:15 - [乔家的儿女](https://www.blog.minike.top/Article/details/18107.shtml)
-- 2026-06-29 23:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/6587083600.shtml)
-- 2026-06-29 23:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/28914396866.shtml)
-- 2026-06-29 23:38 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/78394779256.shtml)
-- 2026-06-29 23:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/81393919777.shtml)
+- 2026-06-29 23:23 - [田曦薇没招了](http://www.blog.minike.top/Article/details/29120428099.shtml)
+- 2026-06-29 23:28 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/877630.shtml)
+- 2026-06-29 23:21 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/3350791.shtml)
+- 2026-06-29 23:41 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/4940627950.shtml)
+- 2026-06-29 23:25 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/05012.shtml)
+- 2026-06-29 23:34 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/57509.shtml)
+- 2026-06-29 23:20 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/9226630097.shtml)
+- 2026-06-29 23:20 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/9215219602.shtml)
+- 2026-06-29 23:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/83691480344.shtml)
+- 2026-06-29 23:21 - [流金岁月](https://www.share.minike.top/Article/details/825956916.shtml)
+- 2026-06-29 23:36 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/12317939744.shtml)
+- 2026-06-29 23:25 - [天道](https://www.blog.minike.top/Article/details/9999885079.shtml)
+- 2026-06-29 23:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/447044.shtml)
+- 2026-06-29 23:46 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/81654248.shtml)
+- 2026-06-29 23:23 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/19422650.shtml)

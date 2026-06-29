@@ -1,57 +1,58 @@
-# 高考临近 多家AI平台涉考功能“限时上锁”
+# “24小时打卡6地”！外国人偷偷爱上中国小城
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-高考临近，近日“高考期间AI工具将禁用”相关话题引起广泛关注。不少网友对此感到疑惑。记者向多个AI平台核实得知，相关举措并不是“一刀切”的全面禁用，而是在考试时段对答题、拍题等涉考功能“限时上锁”。这一举措能否守护高考公平？来听总台记者报道。记者以用户身份向多家主流AI平台客服咨询，均得到了明确答复：高考期间，平台可正常使用，但针对涉考场景的功能会进行专项管控。除了AI平台，高
+中新经纬5月5日电 (李自曼 林琬斯)“在山西大同，我首先感到的是轻松。这里不像北京，去哪儿都需要花较长时间。小城市的好处在于生活气息更浓。”来自德国的Chrissi对中新经纬说，今年1月底，她花了一个周末的时间前往大同旅游，参观了云冈石窟、悬空寺等景点。 据央视网消息，据国家移民管理局预测，“五一”小长假全国口岸将迎来出入境客流高峰，预计日均出入境人员将达225万人次，单日最
 
 ## 正文
 
-高考临近，近日“高考期间AI工具将禁用”相关话题引起广泛关注。
+中新经纬5月5日电 (李自曼 林琬斯)“在山西大同，我首先感到的是轻松。
 
-不少网友对此感到疑惑。
+这里不像北京，去哪儿都需要花较长时间。
 
-记者向多个AI平台核实得知，相关举措并不是“一刀切”的全面禁用，而是在考试时段对答题、拍题等涉考功能“限时上锁”。
+小城市的好处在于生活气息更浓。
 
-这一举措能否守护高考公平？
+”来自德国的Chrissi对中新经纬说，今年1月底，她花了一个周末的时间前往大同旅游，参观了云冈石窟、悬空寺等景点。
 
-来听总台记者报道。
+据央视网消息，据国家移民管理局预测，“五一”小长假全国口岸将迎来出入境客流高峰，预计日均出入境人员将达225万人次，单日最高通关量将突破240万人次。
 
-记者以用户身份向多家主流AI平台客服咨询，均得到了明确答复：高考期间，平台可正常使用，但针对涉考场景的功能会进行专项管控。
+在入境游热潮中，越来越多外国游客不再满足于北京、上海等大城市，而是把目的地指向二三线城市，甚至四五线内陆小城。
 
-除了AI平台，高考期间，有中小学作业辅导工具也对答疑功能进行了限制。
+从“打卡”到“沉浸” Chrissi此前曾游览过北京、广州、重庆等地，如今她开始探索更多中国小城。
 
-据了解，各平台的这种管控实行“分时段”的精准限制，仅在考试时段，对拍题识图、试题解析等功能进行临时管控，日常聊天、生活问答等非涉考功能不受影响。
+作为一名素食主义者，Chrissi原以为在中国小城市吃饭会是个难题，但大同很快打消了她的顾虑。
 
 ## 相关推荐
 
-- 2026-06-29 23:25 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 23:14 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 23:38 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 23:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 23:37 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 23:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 23:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 23:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 23:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 23:15 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 23:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 23:40 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 23:33 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 23:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 23:40 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 23:41 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 23:43 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 23:40 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 23:40 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 23:31 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 23:37 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 23:46 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 23:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:40 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/2015269.shtml)
-- 2026-06-29 23:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/9095932377.shtml)
-- 2026-06-29 23:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/6389552682.shtml)
-- 2026-06-29 23:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/378003153.shtml)
-- 2026-06-29 23:30 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/429262743394.shtml)
-- 2026-06-29 23:12 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/56856.shtml)
-- 2026-06-29 23:36 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/7644216256.shtml)
-- 2026-06-29 23:41 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/3292004.shtml)
-- 2026-06-29 23:23 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/18323289020.shtml)
-- 2026-06-29 23:35 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/577439779843.shtml)
-- 2026-06-29 23:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/376069742.shtml)
-- 2026-06-29 23:38 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/53526.shtml)
-- 2026-06-29 23:12 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/84410933916.shtml)
-- 2026-06-29 23:15 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/00891689.shtml)
-- 2026-06-29 23:32 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/539519407505.shtml)
+- 2026-06-29 23:38 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/002741089.shtml)
+- 2026-06-29 23:25 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/37423523.shtml)
+- 2026-06-29 23:31 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/06888.shtml)
+- 2026-06-29 23:22 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/83771.shtml)
+- 2026-06-29 23:27 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/8332981.shtml)
+- 2026-06-29 23:31 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/55847840.shtml)
+- 2026-06-29 23:36 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/1799331.shtml)
+- 2026-06-29 23:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/86806286.shtml)
+- 2026-06-29 23:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/2516021740.shtml)
+- 2026-06-29 23:26 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/3038605203.shtml)
+- 2026-06-29 23:44 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/21241.shtml)
+- 2026-06-29 23:21 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/110805.shtml)
+- 2026-06-29 23:25 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/74125.shtml)
+- 2026-06-29 23:32 - [啊啊啊](http://www.share.minike.top/Article/details/2672614290.shtml)
+- 2026-06-29 23:21 - [急先锋](https://www.share.minike.top/Article/details/375042246551.shtml)

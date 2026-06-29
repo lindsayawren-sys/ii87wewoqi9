@@ -1,60 +1,58 @@
-# “十五五”开局，民营企业家与新的社会阶层人士共话新担当
+# 粤港湾控股午后涨幅扩大逾23% 公司受益AI产业高增长红利
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新网北京5月28日电 题：“十五五”开局，民营企业家与新的社会阶层人士共话新担当 中新网记者 张晓曦 一只“星星人”玩偶，被轻轻摆在发言席上。“我们希望未来能够有更多好的产品和服务，给这个世界带来更多美好和快乐。”泡泡玛特国际集团创始人、董事长兼首席执行官王宁对记者们表示。 5月28日下午，国务院新闻办公室举行“新征程上的奋斗者”中外记者见面会。5位民营企业家和新的社会阶层人
+粤港湾控股（01396）午后涨幅扩大逾25%，截至发稿，股价上涨23.14%，现报12.93港元，成交额1.94亿港元。 5月4日，豆包在免费服务基础上新增付费版本，每月收费从68元至500元不等，主要覆盖复杂任务和生产力场景，适应更多算力与推理的消耗需求。值得关注的是，豆包付费增值服务的背后，是Token（词元）价格不断攀升。特别是AI智能体的广泛应用，Token消耗规模的激
 
 ## 正文
 
-中新网北京5月28日电 题：“十五五”开局，民营企业家与新的社会阶层人士共话新担当 中新网记者 张晓曦 一只“星星人”玩偶，被轻轻摆在发言席上。
+粤港湾控股（01396）午后涨幅扩大逾25%，截至发稿，股价上涨23.14%，现报12.93港元，成交额1.94亿港元。
 
-“我们希望未来能够有更多好的产品和服务，给这个世界带来更多美好和快乐。
+5月4日，豆包在免费服务基础上新增付费版本，每月收费从68元至500元不等，主要覆盖复杂任务和生产力场景，适应更多算力与推理的消耗需求。
 
-”泡泡玛特国际集团创始人、董事长兼首席执行官王宁对记者们表示。
+值得关注的是，豆包付费增值服务的背后，是Token（词元）价格不断攀升。
 
-5月28日下午，国务院新闻办公室举行“新征程上的奋斗者”中外记者见面会。
+特别是AI智能体的广泛应用，Token消耗规模的激增直接推高了算力需求，进而传导至云计算服务价格。
 
-5位民营企业家和新的社会阶层人士代表坐到聚光灯下，围绕“奋进‘十五五’ 民企勇担当”发表见解。
+国海证券研报称，AI推理拐点已至，算力租赁进入量价齐升高景气周期，是当前AI产业链确定性较强的核心赛道。
 
-虽身处不同赛道，他们却有着相似气质——扎根主业、持续创新，以及对“中国企业走向世界”的信心。
+据悉，粤港湾控股有望深度受益AI产业的高增长红利。
 
-“让世界快乐”的中国IP 从北京一家小店，到如今在全球多个知名街区开出门店，泡泡玛特已走到第16个年头。
+该公司于去年10月收购天顿数据后，已从传统地产模式全面转型为稀缺资产型AI算力基础设施平台，天顿数据在并表后两个多月便贡献约6.17亿元收入，占集团总营收逾六成，推动公司一举实现扭亏为盈。
 
-王宁说，公司已经发展成为一个以IP为核心孵化运营的平台，携手全世界艺术家孵化了众多广受欢迎的IP，如拉布布、星星人等。
+国元国际认为，转型智算赛道后，公司估值体系有望切换至“算力+科技”框架，具备显著重估空间。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 23:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 23:33 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 23:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 23:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 23:16 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 23:28 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 23:16 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 23:40 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 23:33 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 23:35 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 23:38 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 23:38 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 23:13 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 23:46 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 23:34 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 23:45 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 23:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 23:22 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 23:23 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 23:27 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 23:21 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 23:38 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 23:23 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 23:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 23:32 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/893995430.shtml)
-- 2026-06-29 23:22 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/1238858.shtml)
-- 2026-06-29 23:21 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/83744760509.shtml)
-- 2026-06-29 23:17 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/01709128.shtml)
-- 2026-06-29 23:17 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/78087866.shtml)
-- 2026-06-29 23:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/423198900.shtml)
-- 2026-06-29 23:23 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/4656113955.shtml)
-- 2026-06-29 23:18 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/2965022.shtml)
-- 2026-06-29 23:18 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/156587.shtml)
-- 2026-06-29 23:21 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/4594238.shtml)
-- 2026-06-29 23:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/440428941.shtml)
-- 2026-06-29 23:14 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/04365304.shtml)
-- 2026-06-29 23:40 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/832841734.shtml)
-- 2026-06-29 23:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/989760099674.shtml)
-- 2026-06-29 23:34 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/2034501.shtml)
+- 2026-06-29 23:38 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/600989701731.shtml)
+- 2026-06-29 23:35 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/37395816.shtml)
+- 2026-06-29 23:40 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/12341.shtml)
+- 2026-06-29 23:34 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/84204.shtml)
+- 2026-06-29 23:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/694772533396.shtml)
+- 2026-06-29 23:24 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/83399.shtml)
+- 2026-06-29 23:19 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/3778736574.shtml)
+- 2026-06-29 23:18 - [《贺子珍》](https://www.share.minike.top/Article/details/6655043977.shtml)
+- 2026-06-29 23:43 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/4822348.shtml)
+- 2026-06-29 23:30 - [一生一世](https://www.blog.kurohicncr.top/Article/details/57262.shtml)
+- 2026-06-29 23:47 - [一生一世](https://www.share.kurohicncr.top/Article/details/6040105.shtml)
+- 2026-06-29 23:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/03397338.shtml)
+- 2026-06-29 23:47 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/12412.shtml)
+- 2026-06-29 23:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/97657052006.shtml)
+- 2026-06-29 23:38 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/26860.shtml)

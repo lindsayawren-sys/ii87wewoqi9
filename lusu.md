@@ -1,59 +1,60 @@
-# 中东冲突导致运费飙升 部分美国液化石油气买家取消发货
+# 策略师警告：央行加息应对伊朗石油冲击 或将引发经济衰退
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-由于中东冲突引发运费飙升，一些美国液化石油气（LPG）买家将原本打算运往亚洲的货物取消装运。 知情人士称，原定于下月从美湾出口码头装运的至少两批货物取消发货，部分买家也在洽谈终止更多装运。 伊朗战争导致霍尔木兹海峡几乎完全封闭，切断了波斯湾的液化石油气供应，亚洲买家被迫仓皇从美国获取更多供应。用于衡量美国向东亚出口天然气利润的关键指标远东指数-蒙特贝尔维尤价差收窄，而运费却大幅
+核心要点 分析师警示：各国央行为遏制能源价格飙升而加息，存在引发全球经济衰退的风险。 GAM 投资多元资产首席投资策略师朱利安・霍华德警告，随着市场加息预期升温，各国央行已濒临政策失误的边缘。 霍华德表示，本次能源价格上涨属于供给端冲击，若沿用传统应对方式 —— 通过大幅加息来压制能源成本，本身就是一种错误决策。 “想要高到足以抑制民众加油出行、减少航空出行需求的利率水平，必须
 
 ## 正文
 
-由于中东冲突引发运费飙升，一些美国液化石油气（LPG）买家将原本打算运往亚洲的货物取消装运。
+核心要点 分析师警示：各国央行为遏制能源价格飙升而加息，存在引发全球经济衰退的风险。
 
-知情人士称，原定于下月从美湾出口码头装运的至少两批货物取消发货，部分买家也在洽谈终止更多装运。
+GAM 投资多元资产首席投资策略师朱利安・霍华德警告，随着市场加息预期升温，各国央行已濒临政策失误的边缘。
 
-伊朗战争导致霍尔木兹海峡几乎完全封闭，切断了波斯湾的液化石油气供应，亚洲买家被迫仓皇从美国获取更多供应。
+霍华德表示，本次能源价格上涨属于供给端冲击，若沿用传统应对方式 —— 通过大幅加息来压制能源成本，本身就是一种错误决策。
 
-用于衡量美国向东亚出口天然气利润的关键指标远东指数-蒙特贝尔维尤价差收窄，而运费却大幅上涨，抹去了贸易商的丰厚回报。
+“想要高到足以抑制民众加油出行、减少航空出行需求的利率水平，必须抬升到极高、高到离谱的程度，而这必然诱发经济衰退。
 
-印度是液化石油气的主要进口国，伊朗战争前90%供应来自中东，战争爆发后转向美国来弥补部分缺口，但运费上涨推高了成本，压缩了该国国有炼油商的利润空间。
+” 尽管欧元区 4 月通胀率达 3%，欧洲央行上周仍维持利率不变；英国同样受高油价困扰，央行也选择按兵不动。
 
-对于亚洲买家而言，这一轮运费飙升几乎看不到缓解迹象。
+但目前投资者已定价欧洲央行 6 月加息。
 
-经巴拿马运河运往亚洲，要么排队时间比战前更长，要么支付高得惊人的费用“插队”。
+英国央行行长贝利在接受 CNBC 采访时坦言，若能源价格冲击长期持续，央行将不得不被迫上调利率。
 
-另一种选择是绕行好望角，但这会占用船只更长时间，加剧油轮紧张推高运费。
+澳大利亚央行已率先行动：受燃油价格上涨推动，该国 3 月整体通胀率由上月 3.7% 升至 4.6%，澳央行于周二加息 25 个基点，利率升至 4.35%。
 
 ## 相关推荐
 
-- 2026-06-29 23:27 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 23:35 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 23:21 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 23:23 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 23:13 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 23:30 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 23:40 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 23:21 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 23:30 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 23:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 23:19 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 23:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 23:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 23:21 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 23:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 23:45 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 23:32 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 23:46 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 23:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 23:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 23:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 23:47 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 23:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 23:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 23:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 23:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 23:37 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [金牌调解](https://www.share.kurohicncr.top/Article/details/094233930.shtml)
-- 2026-06-29 23:25 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/3994042.shtml)
-- 2026-06-29 23:25 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/728902.shtml)
-- 2026-06-29 23:27 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/2732286692.shtml)
-- 2026-06-29 23:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/2053407105.shtml)
-- 2026-06-29 23:20 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/517824115448.shtml)
-- 2026-06-29 23:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/02918305.shtml)
-- 2026-06-29 23:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/969078378069.shtml)
-- 2026-06-29 23:14 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/14886290.shtml)
-- 2026-06-29 23:17 - [恋与深空致歉](http://www.blog.minike.top/Article/details/503289.shtml)
-- 2026-06-29 23:14 - [急先锋](http://www.blog.kurohicncr.top/Article/details/0371006117.shtml)
-- 2026-06-29 23:19 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/109954246889.shtml)
-- 2026-06-29 23:14 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/19461.shtml)
-- 2026-06-29 23:30 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/33296463790.shtml)
-- 2026-06-29 23:15 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/853437220315.shtml)
+- 2026-06-29 23:38 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/168300.shtml)
+- 2026-06-29 23:38 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/2865070.shtml)
+- 2026-06-29 23:21 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/0468659.shtml)
+- 2026-06-29 23:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/25088977379.shtml)
+- 2026-06-29 23:35 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/2711541623.shtml)
+- 2026-06-29 23:18 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/610120514538.shtml)
+- 2026-06-29 23:37 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/8745546292.shtml)
+- 2026-06-29 23:44 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/81991193938.shtml)
+- 2026-06-29 23:47 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/73273073.shtml)
+- 2026-06-29 23:47 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/039279881.shtml)
+- 2026-06-29 23:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4587262317.shtml)
+- 2026-06-29 23:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/0257547.shtml)
+- 2026-06-29 23:30 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/36057625877.shtml)
+- 2026-06-29 23:46 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/734609332116.shtml)
+- 2026-06-29 23:23 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/5088932.shtml)

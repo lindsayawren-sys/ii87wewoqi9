@@ -1,56 +1,56 @@
-# 美媒称，美军再次打击伊朗
+# 光伏一季报交卷：通威、隆基连亏10个季度，“反内卷”复杂性超预期
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿5月27日电 据美联社等多家美国媒体报道，美军27日向伊朗南部港口城市阿巴斯港的一处地面无人机控制站实施打击。 这是美军三天之内第二次对伊朗发动短暂的军事打击。美军25日曾对伊朗南部的导弹发射阵地和布设水雷的船只发动“自卫性”打击。 美联社27日援引美方匿名官员的消息称，美军当天的行动同样属于“防御性质”。美军在霍尔木兹海峡击落了4架无人机，在伊方的地面无人机控制站
+2026年一季度光伏主产业链持续亏损，上游价跌与需求低迷双重施压，隆基、通威、TCL中环等龙头企业已经连续10个季度亏损，行业反内卷的复杂性超预期，产能去化效力的提升是供需格局反转的关键。 光伏行业“反内卷”持续近一年，政策效力与全行业自律减产，对行业供需格局的真实改善情况，随着光伏一季报披露完毕已全面揭晓。 2026年一季度，光伏主产业链在上游价格下跌、终端需求低迷的双重压力
 
 ## 正文
 
-中新社华盛顿5月27日电 据美联社等多家美国媒体报道，美军27日向伊朗南部港口城市阿巴斯港的一处地面无人机控制站实施打击。
+2026年一季度光伏主产业链持续亏损，上游价跌与需求低迷双重施压，隆基、通威、TCL中环等龙头企业已经连续10个季度亏损，行业反内卷的复杂性超预期，产能去化效力的提升是供需格局反转的关键。
 
-这是美军三天之内第二次对伊朗发动短暂的军事打击。
+光伏行业“反内卷”持续近一年，政策效力与全行业自律减产，对行业供需格局的真实改善情况，随着光伏一季报披露完毕已全面揭晓。
 
-美军25日曾对伊朗南部的导弹发射阵地和布设水雷的船只发动“自卫性”打击。
+2026年一季度，光伏主产业链在上游价格下跌、终端需求低迷的双重压力下持续亏损。
 
-美联社27日援引美方匿名官员的消息称，美军当天的行动同样属于“防御性质”。
+第一财经记者统计发现，光伏主产业链22家企业一季度合计实现营收958.56亿元，同比下降逾11%；归母净利润合计亏损105.54亿元，扣非后归母净利润亏损131.72亿元。
 
-美军在霍尔木兹海峡击落了4架无人机，在伊方的地面无人机控制站准备发射第5架无人机时，美军对其实施了打击。
+光伏周期底部不断延伸之际，到今年一季度末，通威股份（600438.SH）、隆基绿能（601012.SH）、TCL中环（002129.SZ）等龙头企业已经连续10个季度净亏损，这份经营成绩单亦反映光伏行业“反内卷”进程的复杂性和长期性。
 
-美国总统特朗普当天在白宫举行的内阁会议上表示，美伊谈判“进展顺利”，但并未透露更多细节。
+整体业绩承压，盈利质量持续弱化 从行业层面看，一季度，光伏产业链价格持续低迷，尤其硅料硅片大幅跌价，终端市场需求萎缩，导致企业收入下滑、毛利率承压。
 
-特朗普说，伊朗试图“拖延时间”，但不会成功。
+从光伏主产业链（覆盖硅料、硅片、电池、组件四大核心环节）维度看，2026年一季度业绩呈现“规模收缩、利润续亏”的特征，行业经营基本面仍然面临较大挑战。
 
-他不会因为中期选举临近就急于同伊朗达成协议。
+据记者统计，一季度光伏主产业链实现总营收958.56亿元，较2025年一季度的1085.16亿元，同比下降11.67%，22家上市公司首季度的营收平均下滑近22%，多数企业出现单季度环比、同比双下滑的情形。
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 23:41 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 23:30 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 23:40 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 23:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 23:18 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 23:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 23:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 23:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 23:12 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 23:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 23:27 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 23:31 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 23:20 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:41 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 23:47 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 23:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 23:34 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 23:39 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 23:43 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/553305.shtml)
-- 2026-06-29 23:16 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/287556618.shtml)
-- 2026-06-29 23:22 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/6506477872.shtml)
-- 2026-06-29 23:18 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/2493847426.shtml)
-- 2026-06-29 23:36 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/563787381902.shtml)
-- 2026-06-29 23:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/975638481.shtml)
-- 2026-06-29 23:21 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/67900.shtml)
-- 2026-06-29 23:14 - [明星大侦探第一季](http://www.share.minike.top/Article/details/589150.shtml)
-- 2026-06-29 23:41 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/383739.shtml)
-- 2026-06-29 23:32 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/51967.shtml)
-- 2026-06-29 23:25 - [沉睡花园](https://www.share.minike.top/Article/details/9712777958.shtml)
-- 2026-06-29 23:22 - [沙丘](https://www.blog.kurohicncr.top/Article/details/65975554717.shtml)
-- 2026-06-29 23:16 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/8447938.shtml)
-- 2026-06-29 23:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/6538264102.shtml)
-- 2026-06-29 23:39 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/283541284.shtml)
+- 2026-06-29 23:44 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/95519777.shtml)
+- 2026-06-29 23:30 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/603149.shtml)
+- 2026-06-29 23:45 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/376848522.shtml)
+- 2026-06-29 23:31 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/089966287999.shtml)
+- 2026-06-29 23:24 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/660006672.shtml)
+- 2026-06-29 23:47 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/48253.shtml)
+- 2026-06-29 23:26 - [小娘惹](https://www.share.kurohicncr.top/Article/details/177687.shtml)
+- 2026-06-29 23:33 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/6003086.shtml)
+- 2026-06-29 23:29 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/33979547.shtml)
+- 2026-06-29 23:21 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/30971047.shtml)
+- 2026-06-29 23:37 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/4806660932.shtml)
+- 2026-06-29 23:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/138689.shtml)
+- 2026-06-29 23:36 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/055401.shtml)
+- 2026-06-29 23:32 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/68819.shtml)
+- 2026-06-29 23:34 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/318876.shtml)

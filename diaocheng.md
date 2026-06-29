@@ -1,58 +1,59 @@
-# 韩国央行行长：人工智能热潮抵消伊朗局势冲突带来的冲击
+# 黄河实业订立股份互换及优先购买权协议
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-人工智能热潮带来的利好，足以抵消伊朗局势冲突对韩国经济的冲击，韩国央行行长如此表示。 韩国央行行长于周四主持就任后的首场货币政策会议，并在会后表态：人工智能行业繁荣推动半导体出口大增，预计将使韩国2026年国内生产总值（GDP）增速提升0.7个百分点。该正向提振，超过海湾危机预计对GDP造成的0.4个百分点拖累。 今年，人工智能所用高带宽内存芯片需求激增，持续提振韩国经济与股市
+黄河实业（00318）发布公告，本公司于2026年4月29日（交易时段结束后）订立了股份互换及优先购买权协议，据此： a） 本公司以2400万港元的价格从交易对手收购了 Slencor AI 40%的股权。 b） 本收购包括优先购买权，根据该优先购买权，本公司有权优先购买更多 Slencor AI 股份，行使该权利时的购买价格将参照第叁方的要约价格确定，但如果该价格超过与 Sl
 
 ## 正文
 
-人工智能热潮带来的利好，足以抵消伊朗局势冲突对韩国经济的冲击，韩国央行行长如此表示。
+黄河实业（00318）发布公告，本公司于2026年4月29日（交易时段结束后）订立了股份互换及优先购买权协议，据此： a） 本公司以2400万港元的价格从交易对手收购了 Slencor AI 40%的股权。
 
-韩国央行行长于周四主持就任后的首场货币政策会议，并在会后表态：人工智能行业繁荣推动半导体出口大增，预计将使韩国2026年国内生产总值（GDP）增速提升0.7个百分点。
+b） 本收购包括优先购买权，根据该优先购买权，本公司有权优先购买更多 Slencor AI 股份，行使该权利时的购买价格将参照第叁方的要约价格确定，但如果该价格超过与 Slencor AI 过往收益相联系的预定公式，则应向下调整，且在任何情况下，行使所有优先购买权的总额上限为 1.2 亿港元。
 
-该正向提振，超过海湾危机预计对GDP造成的0.4个百分点拖累。
+c） 本公司以2400万港元的价格向交易对手出售其在 VCFC 的 60%股权。
 
-今年，人工智能所用高带宽内存芯片需求激增，持续提振韩国经济与股市。
+收购和出售在签署协议时同时完成，各项代价透过相互抵销的方式处理。
 
-韩国一季度出口额达785亿美元，同比大涨139%。
+收购 Slencor AI 将使本集团能进一步扩展至快速演进的人工智能领域，特别是在需求日益增长的人工智能代理数据训练及人类回馈强化学习领域。
 
-本土两大芯片巨头三星与SK海力士的市值均已突破1万亿美元。
+董事会相信，此次收购将强化本集团的科技实力，使本集团能捕捉人工智能相关服务的新兴市场机遇，并与现有业务产生潜在的协同效应。
 
-受行业高额利润吸引，散户资金不断入场，韩国综合股价指数（KOSPI）在不到18个月内涨幅超两倍。
+此外，Slencor AI 管理与营运团队的专业知识与经验，预计将为本集团在人工智能及科技驱动解决方案方面的发展提供有力支持。
 
-韩国央行将2026年经济增长预期从2%上调至2.6%。
+与此同时，出售 VCFC 使本集团能够精简业务，并减少在非核心消费金融投资领域的风险。
 
 ## 相关推荐
 
-- 2026-06-29 23:29 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 23:23 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 23:34 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 23:22 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 23:33 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 23:34 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 23:21 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 23:35 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 23:13 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 23:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 23:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 23:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 23:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 23:42 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 23:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 23:35 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 23:31 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 23:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 23:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 23:43 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 23:31 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 23:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 23:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 23:29 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 23:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/78777.shtml)
-- 2026-06-29 23:29 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/17222257.shtml)
-- 2026-06-29 23:41 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/97715.shtml)
-- 2026-06-29 23:19 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/259808.shtml)
-- 2026-06-29 23:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/38964857.shtml)
-- 2026-06-29 23:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/54480187144.shtml)
-- 2026-06-29 23:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/695189.shtml)
-- 2026-06-29 23:18 - [恋与深空致歉](http://www.blog.minike.top/Article/details/6886141.shtml)
-- 2026-06-29 23:34 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/531959900.shtml)
-- 2026-06-29 23:21 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/11506.shtml)
-- 2026-06-29 23:38 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/72692.shtml)
-- 2026-06-29 23:27 - [存储三巨头被告了](http://www.share.minike.top/Article/details/354528.shtml)
-- 2026-06-29 23:36 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/80527.shtml)
-- 2026-06-29 23:39 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/5302778839.shtml)
-- 2026-06-29 23:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/5874595189.shtml)
+- 2026-06-29 23:31 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/6488863515.shtml)
+- 2026-06-29 23:29 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/025336974056.shtml)
+- 2026-06-29 23:26 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/27426564.shtml)
+- 2026-06-29 23:22 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/19496.shtml)
+- 2026-06-29 23:45 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/359403902.shtml)
+- 2026-06-29 23:26 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/74788.shtml)
+- 2026-06-29 23:23 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/174003466194.shtml)
+- 2026-06-29 23:46 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/29286922612.shtml)
+- 2026-06-29 23:32 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/071458850476.shtml)
+- 2026-06-29 23:18 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/844174.shtml)
+- 2026-06-29 23:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/820872986.shtml)
+- 2026-06-29 23:27 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/65025.shtml)
+- 2026-06-29 23:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/41477.shtml)
+- 2026-06-29 23:31 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/6055459918.shtml)
+- 2026-06-29 23:37 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/758403.shtml)

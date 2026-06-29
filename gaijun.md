@@ -1,58 +1,60 @@
-# 2026世界智能产业博览会同期活动《精益赋能·智能跃迁》智能工厂梯度培育闭门会在津举办
+# “龙江最美职工”徐旭：东极守光人 丹心映界江
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂
+中新网佳木斯5月3日电 题：“龙江最美职工”徐旭：东极守光人 丹心映界江 作者 韩睿 邱治博 当第一缕晨光刺破中俄界江薄雾，徐旭已踏着晨露走向259-5号界碑。从青春少年到两鬓染霜，22年扎根祖国陆地最东端，作为黑龙江出入境边防检查总站佳木斯边境管理支队黑瞎子岛边境派出所政治教导员，徐旭以界江为家、以界碑为伴，迎着第一缕晨光巡逻，伴着漫天星斗值守，将“把太阳迎进祖国”的誓言刻进
 
 ## 正文
 
-专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。
+中新网佳木斯5月3日电 题：“龙江最美职工”徐旭：东极守光人 丹心映界江 作者 韩睿 邱治博 当第一缕晨光刺破中俄界江薄雾，徐旭已踏着晨露走向259-5号界碑。
 
-本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂建设、智能化穿透管理落地路径、AI人才体系建设等核心议题展开深度研讨与分享，通过战略指引、标准解读、案例分享、圆桌对话、座谈研讨、工厂参观等形式，为制造业企业实现数智化跃迁注入全新动能。
+从青春少年到两鬓染霜，22年扎根祖国陆地最东端，作为黑龙江出入境边防检查总站佳木斯边境管理支队黑瞎子岛边境派出所政治教导员，徐旭以界江为家、以界碑为伴，迎着第一缕晨光巡逻，伴着漫天星斗值守，将“把太阳迎进祖国”的誓言刻进黑瞎子岛的每一寸土地。
 
-爱波瑞集团董事长、中国企业改革与发展研究会副会长王洪艳在开场主旨导引中指出，国家智能工厂梯度培育分为基础级、先进级、卓越级、领航级四个层级，尤其领航级工厂要求60%以上的场景融合AI技术，为企业运营模式升级树立了全新标杆。
+近日，由中共黑龙江省委宣传部、黑龙江省总工会联合主办的“劳动最美·向新而行”——2026年黑龙江省五一劳动奖、工人先锋号颁奖暨“龙江最美职工”先进事迹发布活动上，徐旭获评2026年“龙江最美职工”。
 
-她强调，精益是智能化落地的根基，智能化则为精益管理提质增效，二者相辅相成、双向赋能。
+2004年，刚走出校园的徐旭，主动请缨来到祖国最东端的乌苏镇边境派出所。
 
-企业想要穿越经营周期，核心在于三点：一是坚守经营本质，推动精益与人工智能深度融合、双向共生；二是激发创新活力，让愿景成为前行的内生动力；三是加速产业生态重构，重塑供需关系与价值逻辑，在协同共创中行稳致远，共探适配本土发展的中国式管理范式。
+迎接他的不是想象中的风光，而是“天当被、地当床”的帐篷值守，30公里边境线的日夜奔波，还有夏季铺天盖地的蚊虫、冬季刺骨难耐的严寒。
 
-国际欧亚科学院材料学部秘书长、中国电子企业协会国际合作专家会副主任阮汝祥在开场致辞中表示，新质生产力的核心在于科技创新，关键在于将科技成果高效转化为现实生产力，最终落脚在产业的转型升级与价值跃升上。
+初来的日子，帐篷被狂风掀飞是常事，夜里执勤只能点着艾蒿驱赶毒蚊，江上巡逻喝的是冰冷江水，吃的是简易干粮。
 
-精益管理是智能制造的基石，智能跃迁是精益管理的升华，二者不是简单的叠加关系，而是内在逻辑上的递进与耦合。
+老民警们擦拭界碑时的虔诚、救助群众时的急切，深深打动了徐旭。
 
-广大制造企业要坚持精益为本，夯实智能制造的管理根基；强化科技赋能，加快形成新质生产力。
+他苦练驾船技术、野外生存本领，渔季驻滩值守，走进渔民棚户，把“串百家门、熟百家情”做到极致。
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 23:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 23:12 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 23:15 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 23:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 23:14 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 23:16 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 23:20 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 23:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 23:31 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 23:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 23:18 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 23:22 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 23:26 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 23:28 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 23:23 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 23:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 23:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 23:43 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 23:19 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 23:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 23:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 23:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 23:30 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 23:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 23:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/7220092.shtml)
-- 2026-06-29 23:20 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/55838724.shtml)
-- 2026-06-29 23:28 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/43885525.shtml)
-- 2026-06-29 23:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/86082565178.shtml)
-- 2026-06-29 23:29 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/55960.shtml)
-- 2026-06-29 23:15 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/1215189001.shtml)
-- 2026-06-29 23:30 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/715346590205.shtml)
-- 2026-06-29 23:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/2905257.shtml)
-- 2026-06-29 23:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/0750626.shtml)
-- 2026-06-29 23:30 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/1971245575.shtml)
-- 2026-06-29 23:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/8116153038.shtml)
-- 2026-06-29 23:39 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/459092094635.shtml)
-- 2026-06-29 23:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/7387146.shtml)
-- 2026-06-29 23:14 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/93182.shtml)
-- 2026-06-29 23:35 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/448944223.shtml)
+- 2026-06-29 23:34 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/158937437.shtml)
+- 2026-06-29 23:18 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/0450461228.shtml)
+- 2026-06-29 23:18 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/80001.shtml)
+- 2026-06-29 23:28 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/686894604630.shtml)
+- 2026-06-29 23:19 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/123094251752.shtml)
+- 2026-06-29 23:43 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/82239574.shtml)
+- 2026-06-29 23:39 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/68895.shtml)
+- 2026-06-29 23:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/85398.shtml)
+- 2026-06-29 23:32 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/4597789.shtml)
+- 2026-06-29 23:31 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/9876972251.shtml)
+- 2026-06-29 23:24 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/78934081.shtml)
+- 2026-06-29 23:30 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/196717791.shtml)
+- 2026-06-29 23:22 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/09045443.shtml)
+- 2026-06-29 23:37 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/98429657.shtml)
+- 2026-06-29 23:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/5508067.shtml)

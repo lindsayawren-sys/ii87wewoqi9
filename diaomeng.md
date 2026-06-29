@@ -1,56 +1,59 @@
-# 金价，还在跌
+# 吉林百年剧场首次“出街”：高雅艺术浸润市井烟火
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-文章来源：中国经济网 国际金价与银价周三承压下跌，金价跌破每盎司4500美元关口。截至收盘，纽约商品交易所6月交割的黄金期价收于每盎司4448.40美元，跌幅为1.20%。 28日，现货黄金向下跌破4400美元，截至北京时间16时25分，现货黄金报4392.19美元/盎司。 媒体查询发现，28日，国内金饰价格同步大幅下跌，周生生单日下跌26元/克，老庙、老凤祥黄金单日下跌22元
+中新网长春5月3日电 (高龙安 李彦国)热烈欢腾的民乐合奏《金蛇狂舞》在繁华街市奏响，瞬间吸引往来游客驻足聆听。“第一次在街头欣赏专业乐团现场演奏，氛围感十足，听觉体验格外震撼。”游客王佳楠感慨道。 3日，吉林省音乐厅开启首次“出街”表演。在拥有近百年历史的老式建筑前，吉林省歌舞团、吉林省交响乐团先后登台，市民游客沐浴暖阳、伴着微风，沉浸式邂逅高雅艺术，感受艺术与市井交融的独特
 
 ## 正文
 
-文章来源：中国经济网 国际金价与银价周三承压下跌，金价跌破每盎司4500美元关口。
+中新网长春5月3日电 (高龙安 李彦国)热烈欢腾的民乐合奏《金蛇狂舞》在繁华街市奏响，瞬间吸引往来游客驻足聆听。
 
-截至收盘，纽约商品交易所6月交割的黄金期价收于每盎司4448.40美元，跌幅为1.20%。
+“第一次在街头欣赏专业乐团现场演奏，氛围感十足，听觉体验格外震撼。
 
-28日，现货黄金向下跌破4400美元，截至北京时间16时25分，现货黄金报4392.19美元/盎司。
+”游客王佳楠感慨道。
 
-媒体查询发现，28日，国内金饰价格同步大幅下跌，周生生单日下跌26元/克，老庙、老凤祥黄金单日下跌22元/克，相比5月内最高点已跌超100元。
+3日，吉林省音乐厅开启首次“出街”表演。
 
-金价横盘之下，多家国际投行近期纷纷下调了金价展望。
+在拥有近百年历史的老式建筑前，吉林省歌舞团、吉林省交响乐团先后登台，市民游客沐浴暖阳、伴着微风，沉浸式邂逅高雅艺术，感受艺术与市井交融的独特魅力。
 
-摩根士丹利则将下半年目标价从5700美元/盎司下调至5200美元/盎司；花旗将2026年金价“缓慢回落”作为基准情景，赋予50%的最高概率，目标价3650美元/盎司。
+据了解，本次表演为期两天，每日分两个时段上演精彩节目。
 
-伴随金价出现震荡下行，市场投资情绪也有所“降温”。
+上午场次呈现歌曲《映山红》《世界赠予我的》、舞蹈《向北行》《人参》以及魔术等多元节目；下午主打民乐合奏、弦乐重奏，竹笛、琵琶、双簧管等器乐独奏依次登场，经典乐章轮番演绎，艺术氛围浓厚。
 
-据悉，多家银行顺势调整积存金业务。
+现场主持人兼演员徐乃超介绍，此番“出街”是吉林省音乐厅推动文旅深度融合的全新探索。
 
 ## 相关推荐
 
-- 2026-06-29 23:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 23:13 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 23:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 23:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 23:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 23:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 23:35 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 23:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 23:34 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 23:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 23:30 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 23:29 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 23:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 23:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 23:44 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 23:21 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 23:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 23:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 23:43 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 23:34 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 23:41 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 23:25 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 23:24 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:36 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/2129702375.shtml)
-- 2026-06-29 23:32 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/381331699.shtml)
-- 2026-06-29 23:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/6361222686.shtml)
-- 2026-06-29 23:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/5198991723.shtml)
-- 2026-06-29 23:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/8217726494.shtml)
-- 2026-06-29 23:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/422040160404.shtml)
-- 2026-06-29 23:24 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/1683518.shtml)
-- 2026-06-29 23:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/623135874.shtml)
-- 2026-06-29 23:15 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.minike.top/Article/details/2005986325.shtml)
-- 2026-06-29 23:36 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/89685742.shtml)
-- 2026-06-29 23:39 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/09031.shtml)
-- 2026-06-29 23:25 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/3652567353.shtml)
-- 2026-06-29 23:33 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/426344714367.shtml)
-- 2026-06-29 23:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/614470.shtml)
-- 2026-06-29 23:14 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/879751282.shtml)
+- 2026-06-29 23:37 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/11916.shtml)
+- 2026-06-29 23:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/5314734.shtml)
+- 2026-06-29 23:38 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/491713.shtml)
+- 2026-06-29 23:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/807553708.shtml)
+- 2026-06-29 23:39 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/016691703.shtml)
+- 2026-06-29 23:33 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/780136.shtml)
+- 2026-06-29 23:32 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/70773.shtml)
+- 2026-06-29 23:25 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/31590.shtml)
+- 2026-06-29 23:21 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/837350033.shtml)
+- 2026-06-29 23:44 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/332482057619.shtml)
+- 2026-06-29 23:28 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/818337051066.shtml)
+- 2026-06-29 23:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/95017627.shtml)
+- 2026-06-29 23:24 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/95897261.shtml)
+- 2026-06-29 23:29 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/2021824.shtml)
+- 2026-06-29 23:45 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/06426.shtml)

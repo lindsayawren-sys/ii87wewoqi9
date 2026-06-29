@@ -1,58 +1,60 @@
-# 【好评中国】城市更新的“下半场”，赢在以人为本
+# 浙江台州武警官兵传承“五四”薪火：让青春在战位闪光
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-日前，国务院印发《城市更新“十五五”规划》，为未来几年的城市发展划定了路线图，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措，标志着我国城市建设转入提质增效的“下半场”。在“十五五”这一承上启下的关键时期，如何通过城市更新实现高质量发展，建设现代化人民城市，是对“人民城市人民建，人民城市为人民”的生动体现。过去几十年，中国经历了世界历史上规模最大、速度
+中新网台州5月4日电(傅飞扬 邓甫蓁 周浩业)正值五四青年节，武警浙江总队台州支队某中队训练场上战味浓郁，一场入团宣誓仪式在训练场庄严举行——新团员们身着迷彩服，整齐列队，面对鲜红团旗举起右拳，铿锵誓言在训练场上空久久回荡。 “我志愿加入中国共产主义青年团，坚决拥护中国共产党的领导……”宣誓声落，老团员代表走到队列前，逐一为新团员佩戴团徽。金色团徽与迷彩服交相辉映，映照着年轻战
 
 ## 正文
 
-日前，国务院印发《城市更新“十五五”规划》，为未来几年的城市发展划定了路线图，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措，标志着我国城市建设转入提质增效的“下半场”。
+中新网台州5月4日电(傅飞扬 邓甫蓁 周浩业)正值五四青年节，武警浙江总队台州支队某中队训练场上战味浓郁，一场入团宣誓仪式在训练场庄严举行——新团员们身着迷彩服，整齐列队，面对鲜红团旗举起右拳，铿锵誓言在训练场上空久久回荡。
 
-在“十五五”这一承上启下的关键时期，如何通过城市更新实现高质量发展，建设现代化人民城市，是对“人民城市人民建，人民城市为人民”的生动体现。
+“我志愿加入中国共产主义青年团，坚决拥护中国共产党的领导……”宣誓声落，老团员代表走到队列前，逐一为新团员佩戴团徽。
 
-过去几十年，中国经历了世界历史上规模最大、速度最快的城镇化进程。
+金色团徽与迷彩服交相辉映，映照着年轻战士们坚毅的面庞。
 
-当高楼大厦林立、基础设施骨架基本成型后，人民群众对城市的期待已不再仅仅是“有的住”，而是要“住得好”。
+新团员王泽望着胸前的团徽说：“这枚团徽不仅是荣誉，更是沉甸甸的责任。
 
-《规划》明确提出，到2030年人居环境明显改善，城市成为人民群众高品质生活的空间。
+我要以训练标兵为榜样，在各项技能课目中不断突破自我，早日成为中队的精武尖兵。
 
-“十五五”时期的城市更新，不是简单的“拆建”和“修补”，而是一场以“人民为中心”的具体实践。
+” “选择在训练场举行入团仪式，就是要让青年官兵时刻铭记‘战斗员’这个第一身份。
 
-无论是“好房子”建设，还是完整社区打造，都在于让城市生活更具温度、更有质感。
+”该中队指导员张弛说。
 
-激“需求”潜力，搅动释放城市的内生动力。
+仪式结束后，官兵们在“红肩章”宣讲员的带领下走进荣誉室，重温中队从剿匪战斗到抗台抢险的经历。
 
 ## 相关推荐
 
-- 2026-06-29 23:12 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 23:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 23:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 23:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 23:34 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 23:22 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 23:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 23:37 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 23:23 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 23:29 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 23:14 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 23:28 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 23:34 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 23:18 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 23:28 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 23:33 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 23:38 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 23:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 23:20 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 23:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 23:21 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 23:46 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 23:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 23:18 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 23:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 23:45 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/88037.shtml)
-- 2026-06-29 23:30 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/621733.shtml)
-- 2026-06-29 23:29 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/7674866756.shtml)
-- 2026-06-29 23:25 - [月亮](https://www.blog.kurohicncr.top/Article/details/849694.shtml)
-- 2026-06-29 23:30 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/9602150355.shtml)
-- 2026-06-29 23:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/209542501.shtml)
-- 2026-06-29 23:34 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/641143183.shtml)
-- 2026-06-29 23:27 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/47187.shtml)
-- 2026-06-29 23:17 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/0215567852.shtml)
-- 2026-06-29 23:21 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/095451740.shtml)
-- 2026-06-29 23:33 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/155681743981.shtml)
-- 2026-06-29 23:14 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/991292.shtml)
-- 2026-06-29 23:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/246612.shtml)
-- 2026-06-29 23:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/67078.shtml)
-- 2026-06-29 23:27 - [月亮](http://www.share.kurohicncr.top/Article/details/8983955.shtml)
+- 2026-06-29 23:44 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/16339801.shtml)
+- 2026-06-29 23:47 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/46327665640.shtml)
+- 2026-06-29 23:30 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/478145670.shtml)
+- 2026-06-29 23:31 - [天道](https://www.share.minike.top/Article/details/6727973.shtml)
+- 2026-06-29 23:45 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/89215336415.shtml)
+- 2026-06-29 23:39 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/28904549213.shtml)
+- 2026-06-29 23:25 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/02851.shtml)
+- 2026-06-29 23:40 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/793666123736.shtml)
+- 2026-06-29 23:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/90611.shtml)
+- 2026-06-29 23:43 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/896572.shtml)
+- 2026-06-29 23:29 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/3596836.shtml)
+- 2026-06-29 23:27 - [美人鱼](http://www.blog.minike.top/Article/details/813596.shtml)
+- 2026-06-29 23:43 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/838192082168.shtml)
+- 2026-06-29 23:35 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/106869.shtml)
+- 2026-06-29 23:40 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/84302358555.shtml)

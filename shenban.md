@@ -1,59 +1,59 @@
-# 英国前首相布莱尔发表5600词长文敲打工党 称逼宫斯塔默是在“玩火”
+# 高盛：料碳酸锂价今年上半年见顶 赣锋锂业目标价上调至60港元
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-英国前工党首相托尼·布莱尔批评这个他曾经领导的政党企图罢免现任首相基尔·斯塔默的做法是在“玩火”，同时也抨击现任政府缺乏明确的施政议程。 布莱尔在为其智库托尼·布莱尔全球变革研究所撰写的一篇5600词的文章中表示，工党需要迈向“激进的中间路线”，将廉价能源置于清洁能源之上，彻底改革规划审批制度，把经济增长置于政策核心，并削减福利开支。 布莱尔在周二晚间发布的文章中写道：“政府的
+高盛发布研报称，由于短期内缺乏绿地投资项目，预示锂长远供应弹性有限。因此，未来锂周期的走向将主要取决于需求强度。2026至2027年锂市场若要维持上升周期，储能系统（ESS）及电动车均需录得大幅度增长。赣锋锂业（01772） 目标价由35港元上调至60港元，评级“沽售”；天齐锂业（09696） 目标价由26港元上调至48港元，评级“沽售”。 该行基本情境预期基准碳酸锂价格在今年
 
 ## 正文
 
-英国前工党首相托尼·布莱尔批评这个他曾经领导的政党企图罢免现任首相基尔·斯塔默的做法是在“玩火”，同时也抨击现任政府缺乏明确的施政议程。
+高盛发布研报称，由于短期内缺乏绿地投资项目，预示锂长远供应弹性有限。
 
-布莱尔在为其智库托尼·布莱尔全球变革研究所撰写的一篇5600词的文章中表示，工党需要迈向“激进的中间路线”，将廉价能源置于清洁能源之上，彻底改革规划审批制度，把经济增长置于政策核心，并削减福利开支。
+因此，未来锂周期的走向将主要取决于需求强度。
 
-布莱尔在周二晚间发布的文章中写道：“政府的主要问题不在于基尔的个性。
+2026至2027年锂市场若要维持上升周期，储能系统（ESS）及电动车均需录得大幅度增长。
 
-问题在于，在一个快速变化的世界中，我们没有一套经过充分推敲、前后一致的国家治理方案，而且我们所处的政治位置也是错误的，这使我们既无法制定这样的方案，也无法赢得第二个任期。
+赣锋锂业（01772） 目标价由35港元上调至60港元，评级“沽售”；天齐锂业（09696） 目标价由26港元上调至48港元，评级“沽售”。
 
-” 布莱尔曾三次赢得大选，于1997年至2007年执政，是工党最成功的领导人。
+该行基本情境预期基准碳酸锂价格在今年上半年见顶，达每吨16.4万元人民币（约2.1万美元），其后在今年下半年至2028年回落至每吨碳酸锂当量1.01万至1.6万美元。
 
-布莱尔表示，工党“几乎拥有无限的自我欺骗能力”，并称“在我们尚不清楚将要提出什么政策方向之前，就试图逼迫首相下台，并非负责任的行事方式”。
+需求方面，该行数据显示，今年上半年全球锂市场将维持紧张，但预计在今年下半年及2027年将出现20%至22%的供应过剩。
 
-尽管如此，选民和相当一部分工党议员认为，斯塔默缺乏明确的执政愿景，也不是能够扭转英国经济停滞局面的合适人选。
+基于月度电动车销售及储能系统电池交付数据，该行估计今年首三个月全球锂需求同比增长25%。
 
-斯塔默一再表示，推动经济增长是其首要任务，但企业界批评他采取了一系列抑制增长的措施，包括上调用工税负、提高最低工资以及扩大劳动者权利，而这些措施共同作用，压低了就业。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 23:37 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 23:31 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 23:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 23:34 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-29 23:25 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 23:39 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 23:24 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 23:36 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 23:14 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 23:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 23:40 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 23:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 23:43 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 23:18 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 23:35 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 23:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 23:23 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-29 23:28 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 23:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 23:31 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 23:25 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 23:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 23:41 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 23:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 23:21 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/159514188.shtml)
-- 2026-06-29 23:40 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/2115638.shtml)
-- 2026-06-29 23:36 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/080602.shtml)
-- 2026-06-29 23:17 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/067569.shtml)
-- 2026-06-29 23:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/9043840892.shtml)
-- 2026-06-29 23:34 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/58343317.shtml)
-- 2026-06-29 23:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/043432807061.shtml)
-- 2026-06-29 23:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/113609.shtml)
-- 2026-06-29 23:40 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/83917228.shtml)
-- 2026-06-29 23:41 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/870125562515.shtml)
-- 2026-06-29 23:25 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/006812.shtml)
-- 2026-06-29 23:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/26207219.shtml)
-- 2026-06-29 23:30 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/113038.shtml)
-- 2026-06-29 23:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/5278784.shtml)
-- 2026-06-29 23:29 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/37965336.shtml)
+- 2026-06-29 23:45 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/774997863.shtml)
+- 2026-06-29 23:28 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/895394.shtml)
+- 2026-06-29 23:25 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/50545738087.shtml)
+- 2026-06-29 23:29 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/790755.shtml)
+- 2026-06-29 23:43 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/385660.shtml)
+- 2026-06-29 23:37 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/9321660744.shtml)
+- 2026-06-29 23:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/923296974.shtml)
+- 2026-06-29 23:46 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/68246.shtml)
+- 2026-06-29 23:21 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/81521.shtml)
+- 2026-06-29 23:18 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/019668612131.shtml)
+- 2026-06-29 23:27 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/757506701492.shtml)
+- 2026-06-29 23:39 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/75201567.shtml)
+- 2026-06-29 23:30 - [世界杯](https://www.share.kurohicncr.top/Article/details/0085336529.shtml)
+- 2026-06-29 23:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/297753068.shtml)
+- 2026-06-29 23:47 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/28426817799.shtml)

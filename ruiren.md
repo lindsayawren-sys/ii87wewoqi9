@@ -1,57 +1,44 @@
-# 全国城市联合招聘高校毕业生（重庆）春季专场活动举行
+# 速领！五一电影消费券来了
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月28日电 (记者 钟旖)28日，“渝”见Offer·职引未来——2026年全国城市联合招聘高校毕业生(重庆)春季专场活动在重庆举行。 作为全国城市联合招聘春季专场活动的重要组成部分，活动紧扣重庆“33618”现代制造业集群体系与“416”科技创新布局，“线上+线下”精准对接供需两端，形成“直播+宣讲+指导”全链条服务闭环。 活动现场组织50家用人单位提供就业岗位6
+截至5月3日9时 五一档总票房（含预售）突破3.92亿元 市场持续火热的同时 五一档首日全国平均票价36.8元 也创下近四年同期最低 除此之外，全国多地还推出 形式多样的消费券与观影补贴 这份全国电影消费券领取指南 速速收藏↓ ▌本文来源：央视新闻微信公众号 监制/李浙 主编/黄绪甜 制图/潘杨 ©央视新闻 🎬我们影院见！责任编辑：石秀珍 SF183
 
 ## 正文
 
-中新网重庆5月28日电 (记者 钟旖)28日，“渝”见Offer·职引未来——2026年全国城市联合招聘高校毕业生(重庆)春季专场活动在重庆举行。
+截至5月3日9时 五一档总票房（含预售）突破3.92亿元 市场持续火热的同时 五一档首日全国平均票价36.8元 也创下近四年同期最低 除此之外，全国多地还推出 形式多样的消费券与观影补贴 这份全国电影消费券领取指南 速速收藏↓ ▌本文来源：央视新闻微信公众号 监制/李浙 主编/黄绪甜 制图/潘杨 ©央视新闻 🎬我们影院见！
 
-作为全国城市联合招聘春季专场活动的重要组成部分，活动紧扣重庆“33618”现代制造业集群体系与“416”科技创新布局，“线上+线下”精准对接供需两端，形成“直播+宣讲+指导”全链条服务闭环。
-
-活动现场组织50家用人单位提供就业岗位600余个，线上同步邀请200家用人单位招聘，全力助推高校毕业生等青年人才留渝来渝就业创业。
-
-在线下，现场划分招聘服务区、专项培训区、互动体验区三大功能板块，聚焦毕业生求职需求，构建全流程一站式服务矩阵。
-
-线上则依托“渝悦·就业”数字化就业服务平台，开设重庆专属活动线上专区，集成简历投递、视频面试、在线签约等一站式功能。
-
-运用大数据技术绘制人才能力画像，实现岗位与人才的智能匹配和精准定向推送，推动就业服务从“人找岗位”向“岗位找人”转变。
-
-重庆市人才交流服务中心相关负责人介绍，近年来，重庆紧扣产业布局，打破传统招聘模式，聚焦重点领域精准挖潜拓岗，通过前置筛选、定向邀约、精准画像，实现人岗“双向奔赴”；同时，坚持市场化就业与政策性岗位并举，精准对接重庆特色产业需求，持续举办“小而精”“专而优”的行业专场及区域性招聘活动。
-
-全国城市联合招聘春季专场活动期间，重庆各区县人力社保部门同步行动，形成上下联动、全域覆盖的就业服务格局。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 23:24 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 23:29 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 23:20 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 23:16 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 23:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 23:18 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 23:24 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 23:26 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 23:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 23:13 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 23:39 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 23:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 23:35 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 23:19 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 23:38 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 23:27 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 23:32 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 23:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 23:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 23:34 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/8521244038.shtml)
-- 2026-06-29 23:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/511129.shtml)
-- 2026-06-29 23:25 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/5917210.shtml)
-- 2026-06-29 23:30 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/37815.shtml)
-- 2026-06-29 23:25 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/550118.shtml)
-- 2026-06-29 23:24 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/16366.shtml)
-- 2026-06-29 23:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/8594036193.shtml)
-- 2026-06-29 23:36 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/5305738.shtml)
-- 2026-06-29 23:22 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/11610403.shtml)
-- 2026-06-29 23:34 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/16085000.shtml)
-- 2026-06-29 23:24 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/30641.shtml)
-- 2026-06-29 23:20 - [东方风云榜](http://www.blog.minike.top/Article/details/0093810525.shtml)
-- 2026-06-29 23:32 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/443465410386.shtml)
-- 2026-06-29 23:39 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/72728482.shtml)
-- 2026-06-29 23:39 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/57874402.shtml)
+- 2026-06-29 23:42 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/08498014989.shtml)
+- 2026-06-29 23:39 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/7282317157.shtml)
+- 2026-06-29 23:41 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/8279938681.shtml)
+- 2026-06-29 23:33 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/065287.shtml)
+- 2026-06-29 23:18 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/173486.shtml)
+- 2026-06-29 23:37 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/2969552.shtml)
+- 2026-06-29 23:42 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/643113772.shtml)
+- 2026-06-29 23:26 - [速度与激情9](http://www.blog.minike.top/Article/details/17427.shtml)
+- 2026-06-29 23:27 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/875344694393.shtml)
+- 2026-06-29 23:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/31854239.shtml)
+- 2026-06-29 23:28 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/11315.shtml)
+- 2026-06-29 23:39 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/91322086.shtml)
+- 2026-06-29 23:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/95290025511.shtml)
+- 2026-06-29 23:21 - [长沙菜农公交的人间烟火气](https://www.share.minike.top/Article/details/268474948.shtml)
+- 2026-06-29 23:19 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/095396.shtml)

@@ -1,57 +1,61 @@
-# 河南多维金融举措支持豫企出海
+# Calamos动态可转债与收益基金宣布月度派息
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新网郑州5月28日电 (记者 韩章云)5月28日，记者从国家金融监督管理总局河南监管局(以下简称河南金融监管局)获悉，截至3月末，该省银行业支持外贸企业贷款余额，保险业短期出口信用保险累计保障外贸企业数量、承保金额同比均实现增长，金融支持企业“走出去”实现良好开局。近年来，河南金融监管局围绕跨境金融服务体系建设，多措并举为河南企业“扬帆出海”注入金融动能。 其中，2025年河
+Calamos投资公司宣布，旗下封闭式基金Calamos动态可转债与收益基金（CCD）将进行月度股息派发。 根据公司公告，CCD基金将于2026年5月21日向股东派发每股0.195美元的现金股息，股权登记日及除息日均为5月14日。该派息方案与基金长期以来的月度派息水平保持一致，数据显示，自2022年以来CCD基金一直维持每股0.195美元的稳定月度派息。 CCD基金成立于201
 
 ## 正文
 
-中新网郑州5月28日电 (记者 韩章云)5月28日，记者从国家金融监督管理总局河南监管局(以下简称河南金融监管局)获悉，截至3月末，该省银行业支持外贸企业贷款余额，保险业短期出口信用保险累计保障外贸企业数量、承保金额同比均实现增长，金融支持企业“走出去”实现良好开局。
+Calamos投资公司宣布，旗下封闭式基金Calamos动态可转债与收益基金（CCD）将进行月度股息派发。
 
-近年来，河南金融监管局围绕跨境金融服务体系建设，多措并举为河南企业“扬帆出海”注入金融动能。
+根据公司公告，CCD基金将于2026年5月21日向股东派发每股0.195美元的现金股息，股权登记日及除息日均为5月14日。
 
-其中，2025年河南印发《关于加强金融支持促进外贸稳定增长的指导意见》，围绕加大信贷投放、加强产品创新、提升服务质效等七大方面提出22条举措，明确将支持豫企“走出去”、积极布局海外市场作为工作重点，要求对有外贸实绩的企业做到金融服务全覆盖，全力以赴满足外贸企业金融需求。
+该派息方案与基金长期以来的月度派息水平保持一致，数据显示，自2022年以来CCD基金一直维持每股0.195美元的稳定月度派息。
 
-今年以来，河南银行保险机构紧跟豫企“走出去”实际需求，提供资源对接和金融支持。
+CCD基金成立于2015年3月27日，是一家多元化封闭式管理投资公司。
 
-截至2026年3月末，河南全省银行业支持外贸企业贷款余额3818亿元，较年初增加368亿元，同比增长10.7%；全省保险业短期出口信用保险累计保障外贸企业6032家、承保金额661.87亿元，同比分别增长9.7%、57%，金融支持企业“走出去”实现良好开局。
+基金的投资目标是通过资本增值和当期收益相结合的方式实现总回报。
 
-政策性金融机构发挥“前锋”优势，为出海项目提供长期限、低成本金融服务。
+根据公开披露信息，基金通常将至少80%的管理资产投资于可转换证券和收益型证券组合。
 
-如，国家开发银行河南省分行累计为郑州中欧班列集结中心等该省开放通道建设项目投放46.11亿元，有力支撑了“空、陆、海、网”四条丝绸之路关键节点建设。
+截至2026年3月31日，CCD基金净资产约为5.82亿美元，管理资产总额约9.03亿美元。
 
-除贷款支持外，河南积极发挥投行业务优势，协助企业进行境外融资。
+从股息构成来看，2026年5月派息中，约0.1004美元来自短期资本收益，约0.0946美元来自资本返还。
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 23:12 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 23:18 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 23:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 23:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 23:22 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 23:23 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 23:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 23:37 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 23:23 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 23:34 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 23:35 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 23:36 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 23:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 23:46 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 23:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:18 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 23:45 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 23:29 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 23:28 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 23:25 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 23:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 23:45 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 23:45 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 23:44 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 23:45 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/537682925448.shtml)
-- 2026-06-29 23:40 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/16738927620.shtml)
-- 2026-06-29 23:27 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/588578697613.shtml)
-- 2026-06-29 23:24 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/8400970.shtml)
-- 2026-06-29 23:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/06540.shtml)
-- 2026-06-29 23:16 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/97731314766.shtml)
-- 2026-06-29 23:41 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/6952591.shtml)
-- 2026-06-29 23:30 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/90790.shtml)
-- 2026-06-29 23:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/642733374.shtml)
-- 2026-06-29 23:14 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/98033208810.shtml)
-- 2026-06-29 23:17 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/94956.shtml)
-- 2026-06-29 23:24 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/14211361.shtml)
-- 2026-06-29 23:16 - [金牌调解](https://www.blog.minike.top/Article/details/874531282.shtml)
-- 2026-06-29 23:34 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/435850794288.shtml)
-- 2026-06-29 23:41 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/8481625389.shtml)
+- 2026-06-29 23:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/8457431202.shtml)
+- 2026-06-29 23:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/000226900.shtml)
+- 2026-06-29 23:24 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/335546755.shtml)
+- 2026-06-29 23:22 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/88953862.shtml)
+- 2026-06-29 23:41 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/85879.shtml)
+- 2026-06-29 23:32 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/952014434.shtml)
+- 2026-06-29 23:35 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/75184382.shtml)
+- 2026-06-29 23:45 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/935009.shtml)
+- 2026-06-29 23:47 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/294530815530.shtml)
+- 2026-06-29 23:44 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/4804911928.shtml)
+- 2026-06-29 23:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/279416967.shtml)
+- 2026-06-29 23:25 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/721407715.shtml)
+- 2026-06-29 23:42 - [周生如故](https://www.blog.kurohicncr.top/Article/details/0786629.shtml)
+- 2026-06-29 23:19 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/5879694370.shtml)
+- 2026-06-29 23:43 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/7890146560.shtml)

@@ -1,58 +1,61 @@
-# 笔墨架起友谊桥 RCEP成员国华人书画精品亮相皖南
+# 为什么景区步行街里，那么多“绿色”护手霜店？
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新网黄山5月28日电(记者 赵强)“此次书画展布置精良，风格雅致，与论坛开放合作的基调高度契合，也为RCEP成员国华人书画爱好者搭建了优质的互学互鉴平台。”缅甸安徽商会常务副会长王月财28日如是说。 “皖美如画·RCEP成员国华人书画大赛”优秀作品展近日在黄山开展。作为2026RCEP地方政府暨友城合作(黄山)论坛的重要人文展示板块，本次作品展以笔墨为媒搭建跨区域文化交流纽带
+中新经纬5月3日电 (周奕航 闫淑鑫)“我之前去北京旅游，在前门大街买了两罐‘北京限定’护手霜，后来去厦门旅游，又在中山路看到了一模一样的店，只是标语换成了‘厦门必买’。”杭州消费者李玲玲(化名)向中新经纬表示。 在北京南锣鼓巷、上海南京路、武汉江汉路等景区步行街，一家家绿色门头的护手霜专卖店高度相似。这些“扎堆”在景区步行街的护手霜，到底是不是当地特色品牌？为何门面长得几乎“
 
 ## 正文
 
-中新网黄山5月28日电(记者 赵强)“此次书画展布置精良，风格雅致，与论坛开放合作的基调高度契合，也为RCEP成员国华人书画爱好者搭建了优质的互学互鉴平台。
+中新经纬5月3日电 (周奕航 闫淑鑫)“我之前去北京旅游，在前门大街买了两罐‘北京限定’护手霜，后来去厦门旅游，又在中山路看到了一模一样的店，只是标语换成了‘厦门必买’。
 
-”缅甸安徽商会常务副会长王月财28日如是说。
+”杭州消费者李玲玲(化名)向中新经纬表示。
 
-“皖美如画·RCEP成员国华人书画大赛”优秀作品展近日在黄山开展。
+在北京南锣鼓巷、上海南京路、武汉江汉路等景区步行街，一家家绿色门头的护手霜专卖店高度相似。
 
-作为2026RCEP地方政府暨友城合作(黄山)论坛的重要人文展示板块，本次作品展以笔墨为媒搭建跨区域文化交流纽带。
+这些“扎堆”在景区步行街的护手霜，到底是不是当地特色品牌？
 
-作品展由安徽省文旅厅、黄山市政府主办，黄山市文旅局、中新社安徽分社承办。
+为何门面长得几乎“一模一样”？
 
-展览精选汇聚RCEP成员国华人书画精品，作品题材丰富、风格多元，兼具中华传统艺术韵味与各国异域人文风情。
+“景区步行街查重率100%” “全国各大城市的景区步行街，都被卖护手霜的占领了。
 
-王月财介绍说，本次展览展出了缅甸安徽商会会长的书画作品，其因公务行程繁忙未能亲临现场，由本人代为到场观展。
+”消费者秦天雅(化名)向中新经纬表示，她曾在上海、苏州、成都的景区步行街上，看到过这些护手霜品牌装修风格、产品售价几乎一模一样，有时候甚至分不清谁是谁。
 
-记者看到，现场展出的诸多作品深度传承中华笔墨文脉，坚守传统书画的笔墨意境、文化内涵与艺术精髓，同时巧妙融合RCEP各成员国的地域特色与人文风貌，实现了传统艺术与国际多元文化的交融碰撞。
+上海的李女士也向中新经纬分享了相关经历。
 
 ## 相关推荐
 
-- 2026-06-29 23:40 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 23:16 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 23:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 23:15 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 23:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 23:29 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 23:25 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 23:32 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 23:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 23:36 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 23:28 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 23:18 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 23:43 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 23:21 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 23:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 23:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 23:46 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 23:28 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 23:44 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 23:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 23:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 23:48 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 23:20 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 23:46 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 23:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 23:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 23:24 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/213170081600.shtml)
-- 2026-06-29 23:18 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.minike.top/Article/details/33333346622.shtml)
-- 2026-06-29 23:20 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/182477.shtml)
-- 2026-06-29 23:27 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/67268.shtml)
-- 2026-06-29 23:20 - [请回答王牌2019](http://www.blog.minike.top/Article/details/9223434.shtml)
-- 2026-06-29 23:21 - [流金岁月](http://www.share.kurohicncr.top/Article/details/961825.shtml)
-- 2026-06-29 23:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/927738.shtml)
-- 2026-06-29 23:40 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/6477553.shtml)
-- 2026-06-29 23:37 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/310429.shtml)
-- 2026-06-29 23:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/366864.shtml)
-- 2026-06-29 23:19 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/23778.shtml)
-- 2026-06-29 23:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/535433363.shtml)
-- 2026-06-29 23:15 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/5792073.shtml)
-- 2026-06-29 23:39 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/640618.shtml)
-- 2026-06-29 23:26 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/873134238.shtml)
+- 2026-06-29 23:18 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/473258420.shtml)
+- 2026-06-29 23:33 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/689683.shtml)
+- 2026-06-29 23:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/701268764.shtml)
+- 2026-06-29 23:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/7646923.shtml)
+- 2026-06-29 23:28 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/37968620.shtml)
+- 2026-06-29 23:44 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/78583169.shtml)
+- 2026-06-29 23:32 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/20115630.shtml)
+- 2026-06-29 23:18 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/7408437.shtml)
+- 2026-06-29 23:22 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/924274.shtml)
+- 2026-06-29 23:35 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/587224.shtml)
+- 2026-06-29 23:20 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/9663216.shtml)
+- 2026-06-29 23:26 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/734607482332.shtml)
+- 2026-06-29 23:34 - [金牌调解](https://www.share.kurohicncr.top/Article/details/23703.shtml)
+- 2026-06-29 23:21 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/471616250908.shtml)
+- 2026-06-29 23:39 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/040425308.shtml)

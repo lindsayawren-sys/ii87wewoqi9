@@ -1,61 +1,61 @@
-# AI 服务器销量激增，戴尔股价大涨近 40%
+# 辽宁沈阳“五一”假期海洋乐园吸引游客
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-市场对人工智能的旺盛需求，为戴尔的服务器、存储及网络业务注入强劲增长动力。在截至四月的财季里，公司总营收达438亿美元，同比大增88%，较此前预期高出逾80亿美元。 扣除特殊项目后，戴尔每股收益为4.86美元，远超此前2.90美元的预期。公司将全年营收增速预期从此前的23%上调至50%。财报发布后，戴尔股价大涨超38%。 搭载英伟达、超威半导体显卡的AI服务器本季销售额达161
+爱奇艺，到底在急什么？榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“
 
 ## 正文
 
-市场对人工智能的旺盛需求，为戴尔的服务器、存储及网络业务注入强劲增长动力。
+爱奇艺，到底在急什么？
 
-在截至四月的财季里，公司总营收达438亿美元，同比大增88%，较此前预期高出逾80亿美元。
+榴莲降价背后，一条互利共赢的“甜蜜链路”这个五一，AI把旅游玩明白了为什么景区步行街里，那么多“绿色”护手霜店？
 
-扣除特殊项目后，戴尔每股收益为4.86美元，远超此前2.90美元的预期。
+从《神秘的大佛》到《去有风的地方》，每一代人的旅行，都有一部“启蒙剧”台湾青年：五四精神跨越海峡，唤醒台湾民众民族认同感部分航线票价低至一折 假期机票怎么买最划算？
 
-公司将全年营收增速预期从此前的23%上调至50%。
+“拼小团”出游热度高，这份“避坑指南”请收好日均花费超千元 年轻人流行放假去酒店“运动度假”净移民近百年来首现负值，美国人为何“用脚投票”逃离美国？
 
-财报发布后，戴尔股价大涨超38%。
+这里藏过刘邦，也藏着白居易22年的青春……云南边境的目瑙纵歌，何以火爆全网？
 
-搭载英伟达、超威半导体显卡的AI服务器本季销售额达161亿美元，同比暴涨757%，环比增幅也接近80%。
+上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
 
-戴尔首席运营官杰夫・克拉克在财报电话会议上表示，AI服务器销量走高，主要源于客户加码开展智能代理程序研发等各类AI相关业务。
+孩子吃饭少、长不高、脾气暴？
 
-还有部分客户利用传统服务器，在应用场景中运行已训练完成的人工智能模型，也就是业内所说的推理运算。
+专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方台胞组团赴湖南郴州寻味地道酱板鸭如何把动车“开”走？
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 23:36 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 23:16 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 23:35 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 23:38 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 23:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 23:19 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 23:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 23:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 23:39 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 23:16 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 23:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 23:37 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 23:20 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 23:19 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 23:28 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 23:40 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 23:19 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 23:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 23:46 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 23:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 23:33 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 23:39 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 23:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 23:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 23:22 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 23:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 23:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 23:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 23:27 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/42583732027.shtml)
-- 2026-06-29 23:25 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/308701.shtml)
-- 2026-06-29 23:36 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/6973793.shtml)
-- 2026-06-29 23:32 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/08336530.shtml)
-- 2026-06-29 23:27 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/2616057567.shtml)
-- 2026-06-29 23:19 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/11881710.shtml)
-- 2026-06-29 23:23 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/565964.shtml)
-- 2026-06-29 23:33 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/24803414173.shtml)
-- 2026-06-29 23:15 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/516428066.shtml)
-- 2026-06-29 23:29 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/4996152984.shtml)
-- 2026-06-29 23:21 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/976255.shtml)
-- 2026-06-29 23:20 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/51340950.shtml)
-- 2026-06-29 23:28 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/512624234.shtml)
-- 2026-06-29 23:39 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/140187.shtml)
-- 2026-06-29 23:35 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/6732932.shtml)
+- 2026-06-29 23:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/91257.shtml)
+- 2026-06-29 23:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/070634915.shtml)
+- 2026-06-29 23:26 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/46329466668.shtml)
+- 2026-06-29 23:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/982953697712.shtml)
+- 2026-06-29 23:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/68816116.shtml)
+- 2026-06-29 23:22 - [金刚川](http://www.blog.minike.top/Article/details/636551.shtml)
+- 2026-06-29 23:38 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/67505551.shtml)
+- 2026-06-29 23:37 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/56545161.shtml)
+- 2026-06-29 23:38 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/574583450592.shtml)
+- 2026-06-29 23:22 - [东方风云榜直播](https://www.blog.minike.top/Article/details/56216.shtml)
+- 2026-06-29 23:21 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/251581521.shtml)
+- 2026-06-29 23:19 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/8948546.shtml)
+- 2026-06-29 23:41 - [天道](https://www.blog.minike.top/Article/details/137688.shtml)
+- 2026-06-29 23:24 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/2530625.shtml)
+- 2026-06-29 23:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/8910324.shtml)

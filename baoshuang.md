@@ -1,58 +1,57 @@
-# 唐嫣：不存在所谓的花期
+# 中国白银集团：部分完成根据特别授权认购新股份
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新网5月28日电(李秋莹 张曦)“剧名叫《爱情没有神话》，你怎么理解？” 面对这个问题，唐嫣几乎没有任何犹豫，就给出了答案。 “确实没有，既没有从天而降的神话，也没有一劳永逸的童话。人与人之间的相处，还是需要理解和包容。” 出道21年，从《仙剑奇侠传三》里为爱痴缠三生三世的女娲后人紫萱，《夏家三千金》里家境优越、单纯善良又迷糊的夏天美，《繁花》里风风火火且坚韧果敢的汪明珠，到
+中国白银集团（00815）发布公告，本公司已获得认购协议E（ 有关认购协议）项下的部分代价3315万港元（对应将予认购的6500万股股份）。由于有关认购协议所载的先决条件已获达成，于2026年5月5日，根据有关认购协议的条款及条件，有关认购协议已部分完成（若干认购事项完成）。 根据有关认购协议将予认购的6500万股股份（有关认购股份）（占本公司于紧接若干认购事项完成前已发行股本
 
 ## 正文
 
-中新网5月28日电(李秋莹 张曦)“剧名叫《爱情没有神话》，你怎么理解？
+中国白银集团（00815）发布公告，本公司已获得认购协议E（ 有关认购协议）项下的部分代价3315万港元（对应将予认购的6500万股股份）。
 
-” 面对这个问题，唐嫣几乎没有任何犹豫，就给出了答案。
+由于有关认购协议所载的先决条件已获达成，于2026年5月5日，根据有关认购协议的条款及条件，有关认购协议已部分完成（若干认购事项完成）。
 
-“确实没有，既没有从天而降的神话，也没有一劳永逸的童话。
+根据有关认购协议将予认购的6500万股股份（有关认购股份）（占本公司于紧接若干认购事项完成前已发行股本约2.14%及经根据若干认购事项完成发行有关认购股份扩大后的本公司已发行股本约2.10%）已按认购价每股认购股份0.51港元发行予有关认购人。
 
-人与人之间的相处，还是需要理解和包容。
+若干认购事项完成的所得款项净额（经扣除若干认购事项完成的相关费用及开支后）约3309万港元将按该等公告及通函所披露的方式应用。
 
-” 出道21年，从《仙剑奇侠传三》里为爱痴缠三生三世的女娲后人紫萱，《夏家三千金》里家境优越、单纯善良又迷糊的夏天美，《繁花》里风风火火且坚韧果敢的汪明珠，到《爱情没有神话》里被观众评价为"带刺玫瑰""不好惹"的金牌编辑林展翘。
+就认购协议项下余下合共8.45亿股股份的认购（余下认购事项）而言，预期完成将根据各有关认购协议的条款及条件发生。
 
-同一个唐嫣，演绎了多种截然不同的女性爱情观。
+本公司会于必要时就余下认购事项的完成作出进一步公告。
 
-我们和唐嫣聊了聊，对于爱情、对于独身、对于女演员的“花期”，她给出了一套属于自己的“清醒哲学”。
-
-2009年，《仙剑奇侠传三》让唐嫣被大众熟知。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 23:23 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 23:29 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 23:32 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 23:42 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 23:19 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 23:27 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 23:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 23:22 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 23:28 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 23:33 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 23:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 23:23 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 23:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 23:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 23:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 23:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 23:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 23:34 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 23:28 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 23:29 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 23:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 23:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 23:39 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 23:20 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/358439595.shtml)
-- 2026-06-29 23:21 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/20854710712.shtml)
-- 2026-06-29 23:37 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/70450969432.shtml)
-- 2026-06-29 23:26 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/39689.shtml)
-- 2026-06-29 23:30 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/351857.shtml)
-- 2026-06-29 23:32 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/0431215113.shtml)
-- 2026-06-29 23:31 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/628128.shtml)
-- 2026-06-29 23:40 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/84566.shtml)
-- 2026-06-29 23:22 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/43869105.shtml)
-- 2026-06-29 23:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/666856246.shtml)
-- 2026-06-29 23:33 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/77537.shtml)
-- 2026-06-29 23:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/73743634208.shtml)
-- 2026-06-29 23:20 - [这一刀 会很帅](https://www.share.minike.top/Article/details/89511109092.shtml)
-- 2026-06-29 23:29 - [记者：预计热火将追求小哈达威和康利](https://www.share.kurohicncr.top/Article/details/5978224283.shtml)
-- 2026-06-29 23:36 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/77700056.shtml)
+- 2026-06-29 23:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/2612348.shtml)
+- 2026-06-29 23:33 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/6923485923.shtml)
+- 2026-06-29 23:44 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/76288530.shtml)
+- 2026-06-29 23:31 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/05643.shtml)
+- 2026-06-29 23:27 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/787549440.shtml)
+- 2026-06-29 23:34 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/654414.shtml)
+- 2026-06-29 23:39 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/7979961.shtml)
+- 2026-06-29 23:45 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/90629809947.shtml)
+- 2026-06-29 23:30 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/66538088011.shtml)
+- 2026-06-29 23:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/64111604.shtml)
+- 2026-06-29 23:43 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/892851877.shtml)
+- 2026-06-29 23:33 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/651316.shtml)
+- 2026-06-29 23:32 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/46970.shtml)
+- 2026-06-29 23:41 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/432887558.shtml)
+- 2026-06-29 23:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/892765.shtml)

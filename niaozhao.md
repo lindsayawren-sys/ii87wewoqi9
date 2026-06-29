@@ -1,58 +1,60 @@
-# 习近平复信参加“共航蔚蓝：中美青年友谊行”活动的两国学生
+# 光大期货0506黄金点评：金价短线反弹，中期底部渐行渐近
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-新华社北京5月28日电 5月23日，国家主席习近平复信参加“共航蔚蓝：中美青年友谊行”活动的两国学生。 习近平表示，很高兴得知两国学生搭乘“中美青年友谊号”，共同经历了难忘的友谊之旅。中美友好的故事由人民书写，中美关系的未来由青年创造。2023年11月我提出“5年邀请5万名美国青少年来华交流学习”倡议以来，已有超过5万名美国青少年来华参访，提前两年半实现预期目标。在交往交流中，
+今早，外盘COMEX黄金短线显著走强，截至撰稿涨幅约1.3%。节后首个交易日，市场情绪有所修复，但金价能否就此走出趋势，仍需观察多重因素的演变。 从整体来看，黄金或处于中期底部的逐步确认阶段，4000至4500美元/盎司区间是目前较为稳健的筑底区域，在这一区间内我们也看到了央行购金力度加大的迹象，为金价提供了信用层面的底部支撑。然而，最终驱动方向仍依赖于地缘局势的演进与油价的边
 
 ## 正文
 
-新华社北京5月28日电 5月23日，国家主席习近平复信参加“共航蔚蓝：中美青年友谊行”活动的两国学生。
+今早，外盘COMEX黄金短线显著走强，截至撰稿涨幅约1.3%。
 
-习近平表示，很高兴得知两国学生搭乘“中美青年友谊号”，共同经历了难忘的友谊之旅。
+节后首个交易日，市场情绪有所修复，但金价能否就此走出趋势，仍需观察多重因素的演变。
 
-中美友好的故事由人民书写，中美关系的未来由青年创造。
+从整体来看，黄金或处于中期底部的逐步确认阶段，4000至4500美元/盎司区间是目前较为稳健的筑底区域，在这一区间内我们也看到了央行购金力度加大的迹象，为金价提供了信用层面的底部支撑。
 
-2023年11月我提出“5年邀请5万名美国青少年来华交流学习”倡议以来，已有超过5万名美国青少年来华参访，提前两年半实现预期目标。
+然而，最终驱动方向仍依赖于地缘局势的演进与油价的边际变化。
 
-在交往交流中，中美两国青少年双向奔赴，加深相互了解和理解，结下深厚友谊，书写了两国人民友好交流的崭新篇章。
+需要指出的是，当前油价上涨压低了市场对降息的预期，短期推高了实际利率预期，从而压缩了黄金的吸引力，但这并非黄金避险属性的根本性失效，而是市场从美国经济数据中更加关注通胀的变化，尚未看到明显衰退迹象，导致滞胀交易逻辑并不顺畅，资金暂时选择了规避当前阶段的博弈。
 
-习近平指出，青少年最富有朝气，最富有梦想，是中美关系的未来和希望，也是世界的未来和希望。
+不过，随着高油价持续运行，其对经济的负面影响可能逐渐显现。
 
-期待更多中美青少年接过两国友好事业的接力棒，相互学习、共同进步，成为跨越太平洋的“友谊使者”，为中美关系稳定健康可持续发展作出新的贡献。
+若通胀持续高企而经济前景转弱，美联储当前的政策僵持状态本身是否隐含了“犯错”的风险，最终是否会被迫再度转向降息预期，这一路径值得投资者深入思考，也是未来黄金有望重回上行通道的关键因子。
 
-近日，参加“共航蔚蓝：中美青年友谊行”活动的中美两国学生致信习近平主席，感谢“5年5万”倡议为两国青少年学习交流提供了宝贵机会。
+策略上，依然维系逢低配置的思路，不宜过度追高。
 
 ## 相关推荐
 
-- 2026-06-29 23:31 - [恋与深空致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 23:24 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 23:37 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 23:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 23:38 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 23:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 23:23 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 23:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 23:16 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 23:41 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 23:32 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 23:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 23:43 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 23:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 23:28 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 23:47 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 23:36 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 23:29 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 23:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 23:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 23:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-29 23:43 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 23:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 23:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 23:22 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 23:37 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/06534612.shtml)
-- 2026-06-29 23:15 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/02161.shtml)
-- 2026-06-29 23:39 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/257634371.shtml)
-- 2026-06-29 23:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/509971465091.shtml)
-- 2026-06-29 23:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/2826579.shtml)
-- 2026-06-29 23:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/578585352.shtml)
-- 2026-06-29 23:21 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/06410398.shtml)
-- 2026-06-29 23:38 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/2978058.shtml)
-- 2026-06-29 23:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/64080.shtml)
-- 2026-06-29 23:20 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/8240474130.shtml)
-- 2026-06-29 23:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/733809.shtml)
-- 2026-06-29 23:37 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/40382314.shtml)
-- 2026-06-29 23:13 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/10351.shtml)
-- 2026-06-29 23:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/8311653.shtml)
-- 2026-06-29 23:29 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/8392670267.shtml)
+- 2026-06-29 23:40 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/925552182298.shtml)
+- 2026-06-29 23:44 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/241337.shtml)
+- 2026-06-29 23:34 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/65386255755.shtml)
+- 2026-06-29 23:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/8092334442.shtml)
+- 2026-06-29 23:19 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/280110218423.shtml)
+- 2026-06-29 23:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/04933743467.shtml)
+- 2026-06-29 23:42 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/136614382.shtml)
+- 2026-06-29 23:43 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/2572699.shtml)
+- 2026-06-29 23:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/991787.shtml)
+- 2026-06-29 23:44 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/23620235.shtml)
+- 2026-06-29 23:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/87123.shtml)
+- 2026-06-29 23:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/2639745706.shtml)
+- 2026-06-29 23:42 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/39880257794.shtml)
+- 2026-06-29 23:22 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/5225957.shtml)
+- 2026-06-29 23:42 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/002786944509.shtml)

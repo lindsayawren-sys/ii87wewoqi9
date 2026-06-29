@@ -1,56 +1,56 @@
-# 美方称接近达成协议并重申军事威胁 伊方称最终文本尚未完成
+# OpenAI与Anthropic合资企业洽谈收购AI服务公司
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特・贝森特于当地时间周四向记者表示，美伊两国即将达成一份结束战事的协议，但特朗普总统尚未批准该协议，白宫希望最终方案能满足多项核心条件。 贝森特在白宫称：“我们目前已有达成协议的基础。”他同时透露，双方一直在互换提案。“一切都取决于总统的决定，特朗普总统绝不会接受一份有损利益的协议。” 贝森特提出，伊朗必须同意处置高浓缩铀、承诺永不研发核武器，并全面重启霍尔木兹
+OpenAI和Anthropic分别与私募股权公司成立的合资企业正在洽谈收购帮助企业管理人工智能系统的服务公司。此举标志着两家AI巨头从模型研发向大规模商业部署的战略延伸。 据五位知情人士透露，OpenAI的合资企业Deployment Company已从TPG、贝恩资本等19家投资者处筹集约40亿美元，估值达100亿美元，目前有三笔交易进入后期阶段，主要目标是将数百名工程师和
 
 ## 正文
 
-美国财政部长斯科特・贝森特于当地时间周四向记者表示，美伊两国即将达成一份结束战事的协议，但特朗普总统尚未批准该协议，白宫希望最终方案能满足多项核心条件。
+OpenAI和Anthropic分别与私募股权公司成立的合资企业正在洽谈收购帮助企业管理人工智能系统的服务公司。
 
-贝森特在白宫称：“我们目前已有达成协议的基础。
+此举标志着两家AI巨头从模型研发向大规模商业部署的战略延伸。
 
-”他同时透露，双方一直在互换提案。
+据五位知情人士透露，OpenAI的合资企业Deployment Company已从TPG、贝恩资本等19家投资者处筹集约40亿美元，估值达100亿美元，目前有三笔交易进入后期阶段，主要目标是将数百名工程师和顾问纳入麾下。
 
-“一切都取决于总统的决定，特朗普总统绝不会接受一份有损利益的协议。
+Anthropic则通过其合资企业筹集约15亿美元，投资者包括黑石集团、Hellman & Friedman和高盛。
 
-” 贝森特提出，伊朗必须同意处置高浓缩铀、承诺永不研发核武器，并全面重启霍尔木兹海峡通航。
+黑石总裁Jon Gray表示，此举有助于“打破企业采用AI的最大瓶颈”。
 
-美国官员此前表示，上述内容都会纳入这份意向备忘录。
+这一布局反映了企业AI行业的核心矛盾：虽然AI往往被描述为可取代传统顾问服务的高利润软件业务，但实际将大模型整合到企业数据和工作流程中，仍高度依赖工程师和顾问的定制化服务。
 
-此前有美国官员称，两国即将达成一份为期60天的协议，协议规定双方在首个30天内逐步解除在海峡实施的封锁。
+该模式效仿了Palantir将工程师嵌入客户运营的策略，预示着OpenAI和Anthropic或将通过并购整合分散的IT咨询市场。
 
-若协议最终敲定，这将成为一份分阶段框架协议的首个环节。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 23:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 23:27 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 23:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 23:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 23:35 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 23:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 23:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 23:39 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 23:33 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 23:21 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 23:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 23:31 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 23:37 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 23:47 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 23:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 23:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 23:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 23:23 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 23:27 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 23:43 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:31 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/931005047121.shtml)
-- 2026-06-29 23:31 - [天道](http://www.share.kurohicncr.top/Article/details/8594020.shtml)
-- 2026-06-29 23:41 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/5347910.shtml)
-- 2026-06-29 23:29 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/618262.shtml)
-- 2026-06-29 23:18 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/89052649207.shtml)
-- 2026-06-29 23:41 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/09808258731.shtml)
-- 2026-06-29 23:26 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/539286398282.shtml)
-- 2026-06-29 23:27 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/26365802014.shtml)
-- 2026-06-29 23:24 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/586162827089.shtml)
-- 2026-06-29 23:23 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/85893398055.shtml)
-- 2026-06-29 23:33 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/42900888067.shtml)
-- 2026-06-29 23:18 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/348663323.shtml)
-- 2026-06-29 23:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/45770164515.shtml)
-- 2026-06-29 23:30 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/1791943839.shtml)
-- 2026-06-29 23:40 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/7735703790.shtml)
+- 2026-06-29 23:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/9345345.shtml)
+- 2026-06-29 23:22 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/17750.shtml)
+- 2026-06-29 23:45 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/57585.shtml)
+- 2026-06-29 23:29 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/161200787.shtml)
+- 2026-06-29 23:37 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/25907542981.shtml)
+- 2026-06-29 23:45 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/29811071.shtml)
+- 2026-06-29 23:47 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/13775973.shtml)
+- 2026-06-29 23:43 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/251298985.shtml)
+- 2026-06-29 23:25 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/6619520080.shtml)
+- 2026-06-29 23:39 - [月亮](http://www.share.minike.top/Article/details/388375584.shtml)
+- 2026-06-29 23:23 - [金刚川](https://www.blog.minike.top/Article/details/45144.shtml)
+- 2026-06-29 23:45 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/71741263035.shtml)
+- 2026-06-29 23:30 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/23876198.shtml)
+- 2026-06-29 23:29 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/6145671.shtml)
+- 2026-06-29 23:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/329557066897.shtml)

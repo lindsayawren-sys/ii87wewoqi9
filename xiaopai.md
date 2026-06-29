@@ -1,61 +1,56 @@
-# 王毅会见古巴外长罗德里格斯
+# 伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见古巴外长罗德里格斯。 王毅转达习近平主席对劳尔同志和迪亚斯-卡内尔主席的诚挚问候，欢迎罗德里格斯出席安理会高级别会议，表示此次会议主题确定为“维护联合国宪章宗旨和原则、加强以联合国为核心的国际体系”，反映了各方的共同诉求，得到广泛响应支持。而要实现这一目标，就应坚持尊重各国主权独立，反对各种强权霸
+专题：巴菲特2026年股东大会重磅来袭 这家综合企业集团在年度股东大会前夕发布财报，新任首席执行官格雷格・阿贝尔将接替沃伦・巴菲特登台主持 格雷格・阿贝尔于今年早些时候接任沃伦・巴菲特，成为伯克希尔・哈撒韦首席执行官。 新任 CEO 格雷格・阿贝尔执掌下的首个季度，伯克希尔・哈撒韦（BRK.B）季度净利润翻倍以上，保险及铁路业务业绩走强成为主要驱动力。 净利润大幅改善，得益于投
 
 ## 正文
 
-新华社纽约5月27日电 当地时间27日，中共中央政治局委员、外交部长王毅在纽约会见古巴外长罗德里格斯。
+专题：巴菲特2026年股东大会重磅来袭 这家综合企业集团在年度股东大会前夕发布财报，新任首席执行官格雷格・阿贝尔将接替沃伦・巴菲特登台主持 格雷格・阿贝尔于今年早些时候接任沃伦・巴菲特，成为伯克希尔・哈撒韦首席执行官。
 
-王毅转达习近平主席对劳尔同志和迪亚斯-卡内尔主席的诚挚问候，欢迎罗德里格斯出席安理会高级别会议，表示此次会议主题确定为“维护联合国宪章宗旨和原则、加强以联合国为核心的国际体系”，反映了各方的共同诉求，得到广泛响应支持。
+新任 CEO 格雷格・阿贝尔执掌下的首个季度，伯克希尔・哈撒韦（BRK.B）季度净利润翻倍以上，保险及铁路业务业绩走强成为主要驱动力。
 
-而要实现这一目标，就应坚持尊重各国主权独立，反对各种强权霸凌。
+净利润大幅改善，得益于投资亏损较去年同期大幅收窄。
 
-古巴人民团结一心，坚定维权，展现出反对外来封锁干涉的坚定意志，赢得国际社会的尊重。
+计入短期国债购置应付款项后，伯克希尔的现金及美国国库券储备增至创纪录的 3811 亿美元，较 2025 年末的 3731 亿美元增长近 2%。
 
-中方将继续为古巴主持公道、仗义执言，支持古巴人民的正义事业，助力古经济民生的发展。
+公司连续第 14 个季度净卖出股票，不过同时自 2024 年以来首次重启自家股票回购。
 
-罗德里格斯转达劳尔大将和迪亚斯-卡内尔主席对习近平主席的亲切问候，感谢中方邀请古巴参加此次安理会高级别会议，表示当今世界正在动荡失序。
+净利润从去年同期的 46 亿美元（折合 A 类股每股收益 3200 美元）增至101.1 亿美元，折合等效 A 类股每股收益 7027 美元。
 
-只有中方有能力召开此次会议，凝聚国际社会共识，维护全球南方正当权益。
+伯克希尔在奥马哈年度股东大会前夕公布财报。
 
-古巴正面临革命以来最严峻形势，根源就是美国对古封锁制裁。
+本次大会期间，阿贝尔及其管理团队将在 CHI 健康中心会议场馆现场接受股东提问。
 
 ## 相关推荐
 
-- 2026-06-29 23:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-29 23:18 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 23:20 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 23:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 23:31 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 23:31 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 23:25 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 23:37 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 23:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 23:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 23:32 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 23:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 23:26 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 23:16 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 23:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 23:37 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 23:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 23:29 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 23:28 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 23:20 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 23:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 23:39 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 23:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 23:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 23:25 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:33 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/2901629194.shtml)
-- 2026-06-29 23:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/987075.shtml)
-- 2026-06-29 23:32 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/42364.shtml)
-- 2026-06-29 23:34 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/991363572.shtml)
-- 2026-06-29 23:17 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/46432.shtml)
-- 2026-06-29 23:24 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/583273802963.shtml)
-- 2026-06-29 23:35 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/58815736532.shtml)
-- 2026-06-29 23:14 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/93250413.shtml)
-- 2026-06-29 23:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/884381.shtml)
-- 2026-06-29 23:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/69783682.shtml)
-- 2026-06-29 23:18 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/578223092.shtml)
-- 2026-06-29 23:21 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/8142812978.shtml)
-- 2026-06-29 23:28 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/14318.shtml)
-- 2026-06-29 23:16 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/833957.shtml)
-- 2026-06-29 23:32 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/806519.shtml)
+- 2026-06-29 23:42 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/606909070472.shtml)
+- 2026-06-29 23:33 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/074097.shtml)
+- 2026-06-29 23:21 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/49207.shtml)
+- 2026-06-29 23:21 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/138200220.shtml)
+- 2026-06-29 23:29 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/3416544.shtml)
+- 2026-06-29 23:21 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/2974785.shtml)
+- 2026-06-29 23:38 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/38808151.shtml)
+- 2026-06-29 23:29 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/61577.shtml)
+- 2026-06-29 23:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/40192778.shtml)
+- 2026-06-29 23:29 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/509886310.shtml)
+- 2026-06-29 23:18 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/28529734.shtml)
+- 2026-06-29 23:37 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/5012445486.shtml)
+- 2026-06-29 23:20 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/49258831676.shtml)
+- 2026-06-29 23:18 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/112990067.shtml)
+- 2026-06-29 23:20 - [一生一世](http://www.blog.minike.top/Article/details/98128.shtml)

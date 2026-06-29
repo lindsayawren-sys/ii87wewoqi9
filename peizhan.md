@@ -1,56 +1,61 @@
-# 盘前：纳指期货跌0.4% 美伊再度交火
+# 裕信银行股权投资助力创纪录利润 同步推进德商银行收购
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中东地区新一轮袭击引发市场对战争是否即将结束的质疑，周四全球股市从历史高位回落，油价和债券收益率则走高，美元连续第三日上涨。比特币跌至逾六周低点。 标普500指数期货下跌0.2%，预示该基准指数可能迎来逾一周以来首次下跌。纳斯达克100指数期货下跌0.4%。周四公布财报的主要公司包括计算机公司戴尔科技，该公司将在收盘后发布业绩。好市多和折扣零售商Dollar Tree的财报将为
+意大利裕信银行周一公布了创纪录的一季度业绩，净利润同比增长16.1%至32.2亿欧元，远超市场普遍预期的27亿欧元。利润大增的背后，该行对其他金融机构的股权投资贡献了约4亿欧元的股息收入。 财报显示，裕信银行一季度总营收达68.7亿欧元，同比增长4.9%。尽管净利息收入同比微降2%至36亿欧元，但手续费及保险收入增长7.8%至25亿欧元，成为主要增长驱动力。与此同时，营业成本下
 
 ## 正文
 
-中东地区新一轮袭击引发市场对战争是否即将结束的质疑，周四全球股市从历史高位回落，油价和债券收益率则走高，美元连续第三日上涨。
+意大利裕信银行周一公布了创纪录的一季度业绩，净利润同比增长16.1%至32.2亿欧元，远超市场普遍预期的27亿欧元。
 
-比特币跌至逾六周低点。
+利润大增的背后，该行对其他金融机构的股权投资贡献了约4亿欧元的股息收入。
 
-标普500指数期货下跌0.2%，预示该基准指数可能迎来逾一周以来首次下跌。
+财报显示，裕信银行一季度总营收达68.7亿欧元，同比增长4.9%。
 
-纳斯达克100指数期货下跌0.4%。
+尽管净利息收入同比微降2%至36亿欧元，但手续费及保险收入增长7.8%至25亿欧元，成为主要增长驱动力。
 
-周四公布财报的主要公司包括计算机公司戴尔科技，该公司将在收盘后发布业绩。
+与此同时，营业成本下降1.1%，成本收入比改善至33.4%。
 
-好市多和折扣零售商Dollar Tree的财报将为美国消费者支出健康状况提供线索。
+基于强劲表现，该行将2026年全年净利润目标上调至110亿欧元或以上。
 
-欧洲Stoxx 600指数下跌0.5%，略低于2月创下的历史峰值。
+裕信银行CEO Andrea Orcel正持续推进一项多管齐下的并购战略。
 
-尽管纳斯达克100指数期货走弱，欧洲科技股仍表现相对较好。
+除持有德国商业银行约28%的股份外，该行还持有希腊Alpha Bank约26%的股份及意大利保险公司Generali的股权。
 
 ## 相关推荐
 
-- 2026-06-29 23:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 23:14 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 23:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 23:35 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 23:14 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 23:21 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 23:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 23:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 23:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 23:40 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 23:25 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 23:43 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 23:44 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 23:24 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 23:26 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 23:20 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 23:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 23:30 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 23:38 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 23:37 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 23:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 23:40 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 23:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 23:21 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 23:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:27 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/156095.shtml)
-- 2026-06-29 23:35 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/444843232.shtml)
-- 2026-06-29 23:19 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/3780159983.shtml)
-- 2026-06-29 23:19 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/426528.shtml)
-- 2026-06-29 23:19 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/7751022.shtml)
-- 2026-06-29 23:31 - [谁在推动“成都造”影视持续出圈](http://www.share.minike.top/Article/details/057265.shtml)
-- 2026-06-29 23:19 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/374468309442.shtml)
-- 2026-06-29 23:27 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/86388.shtml)
-- 2026-06-29 23:35 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/1551495327.shtml)
-- 2026-06-29 23:40 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/2636886010.shtml)
-- 2026-06-29 23:28 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/946752887.shtml)
-- 2026-06-29 23:39 - [我和我的家乡](https://www.blog.minike.top/Article/details/739853408.shtml)
-- 2026-06-29 23:26 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/453155221811.shtml)
-- 2026-06-29 23:17 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/72682.shtml)
-- 2026-06-29 23:35 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/7705592.shtml)
+- 2026-06-29 23:43 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/8470176.shtml)
+- 2026-06-29 23:36 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/0510705033.shtml)
+- 2026-06-29 23:26 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/32346.shtml)
+- 2026-06-29 23:37 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/2605824.shtml)
+- 2026-06-29 23:34 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/87357275.shtml)
+- 2026-06-29 23:39 - [这一刀 会很帅](http://www.share.minike.top/Article/details/6450982.shtml)
+- 2026-06-29 23:29 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/78435251021.shtml)
+- 2026-06-29 23:40 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/938455251.shtml)
+- 2026-06-29 23:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/160227369.shtml)
+- 2026-06-29 23:26 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/128063466.shtml)
+- 2026-06-29 23:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/1744340670.shtml)
+- 2026-06-29 23:28 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/01206481.shtml)
+- 2026-06-29 23:33 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/949814.shtml)
+- 2026-06-29 23:25 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/361357.shtml)
+- 2026-06-29 23:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/74586665.shtml)

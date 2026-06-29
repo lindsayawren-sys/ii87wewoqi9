@@ -1,47 +1,56 @@
-# 湖北：东部地区出现降雨 局地有暴雨
+# 牛市来了？比特币升破8万美元关口创年内新高 市场风险偏好回升
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月28日 09:54 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：智通财经网 全球最大加密货币比特币周一升破8万美元关口，为今年1月底以来首次，受中东局势预期变化及加密政策前景改善提振，市场风险偏好回升。 数据显示，比特币盘中一度上涨约2.1%，触及80，594美元高点，随后在纽约交易时段围绕8万美元关口震荡。其他主流加密资产如以太坊和Solana也录得小幅上涨。
 
 ## 正文
 
-发布时间：2026年05月28日 09:54 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+来源：智通财经网 全球最大加密货币比特币周一升破8万美元关口，为今年1月底以来首次，受中东局势预期变化及加密政策前景改善提振，市场风险偏好回升。
+
+数据显示，比特币盘中一度上涨约2.1%，触及80，594美元高点，随后在纽约交易时段围绕8万美元关口震荡。
+
+其他主流加密资产如以太坊和Solana也录得小幅上涨。
+
+自美国与伊朗冲突升级以来，比特币累计上涨约20%，显示数字资产在地缘政治冲击及油价上涨背景下整体表现出较强韧性。
+
+市场同时受到政策利好预期推动。
+
+投资者对美国可能就稳定币收益相关条款达成协议持乐观态度，这或为加密货币相关立法在参议院推进扫清障碍，进一步提升市场情绪。
+
+衍生品市场数据显示，过去24小时内，加密市场空头头寸清算规模达到约3.59亿美元，远高于多头约1.5亿美元的清算规模，显示空头回补推动价格上行。
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 23:16 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 23:28 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 23:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 23:33 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 23:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 23:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 23:21 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 23:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 23:19 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 23:41 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 23:29 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 23:21 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 23:20 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 23:34 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 23:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 23:47 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 23:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 23:38 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 23:28 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 23:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 23:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 23:40 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 23:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 23:19 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/692647247272.shtml)
-- 2026-06-29 23:28 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/647230.shtml)
-- 2026-06-29 23:30 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/5252932.shtml)
-- 2026-06-29 23:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/72504.shtml)
-- 2026-06-29 23:20 - [青春环游记第三季](http://www.blog.minike.top/Article/details/0809460.shtml)
-- 2026-06-29 23:38 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/28889302452.shtml)
-- 2026-06-29 23:15 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/81808.shtml)
-- 2026-06-29 23:27 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/919848042631.shtml)
-- 2026-06-29 23:30 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/734067107903.shtml)
-- 2026-06-29 23:16 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/67477131953.shtml)
-- 2026-06-29 23:40 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/175828339.shtml)
-- 2026-06-29 23:28 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/483063220296.shtml)
-- 2026-06-29 23:17 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/87589.shtml)
-- 2026-06-29 23:31 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/645136410228.shtml)
-- 2026-06-29 23:24 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/820356482625.shtml)
+- 2026-06-29 23:43 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/67121694.shtml)
+- 2026-06-29 23:44 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/75291740.shtml)
+- 2026-06-29 23:40 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/83180843.shtml)
+- 2026-06-29 23:34 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/44921.shtml)
+- 2026-06-29 23:36 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/3182501366.shtml)
+- 2026-06-29 23:20 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/930872370.shtml)
+- 2026-06-29 23:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/8354326.shtml)
+- 2026-06-29 23:45 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/668272796.shtml)
+- 2026-06-29 23:24 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/442942387.shtml)
+- 2026-06-29 23:24 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/12230850.shtml)
+- 2026-06-29 23:32 - [急先锋](https://www.blog.minike.top/Article/details/93592376.shtml)
+- 2026-06-29 23:38 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/4816731951.shtml)
+- 2026-06-29 23:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/85639006.shtml)
+- 2026-06-29 23:36 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/009355948.shtml)
+- 2026-06-29 23:18 - [这一刀 会很帅](http://www.share.minike.top/Article/details/22624218.shtml)

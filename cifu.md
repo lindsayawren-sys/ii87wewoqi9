@@ -1,56 +1,58 @@
-# 这只人工智能个股应声大涨，原因解读
+# 美伊临时停火以来阿联酋首次遭袭 富查伊拉石油工业区3人受伤
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-核心要点 Nebius集团脱胎于俄罗斯互联网巨头扬克斯，主营图形处理器（GPU）供应，为人工智能模型训练提供算力支撑。 荷兰云服务商Nebius周四盘前股价大涨。此前，一名前 OpenAI 员工创立的基金披露，已大举增持该公司股份。 根据周三公布的监管文件，由前 OpenAI 研究员利奥波德・阿申布伦纳创办的对冲基金态势洞察，目前持有Nebius 1240 万股 A 类股份，持
+新华社迪拜5月4日电(记者夏晓 赵丹亮)阿联酋4日多次通过手机向民众发布预警，称存在“潜在导弹威胁”，呼吁公众立即采取必要的避险措施。阿联酋富查伊拉石油工业区当天遭无人机袭击，造成3人受伤。 富查伊拉媒体办公室4日发布声明称，一架来自伊朗方向的无人机袭击致富查伊拉石油工业区起火，造成3名印度籍人员受伤，伤势为中度。伤者已被送往医院接受必要治疗。 此前，富查伊拉媒体办公室已证实，
 
 ## 正文
 
-核心要点 Nebius集团脱胎于俄罗斯互联网巨头扬克斯，主营图形处理器（GPU）供应，为人工智能模型训练提供算力支撑。
+新华社迪拜5月4日电(记者夏晓 赵丹亮)阿联酋4日多次通过手机向民众发布预警，称存在“潜在导弹威胁”，呼吁公众立即采取必要的避险措施。
 
-荷兰云服务商Nebius周四盘前股价大涨。
+阿联酋富查伊拉石油工业区当天遭无人机袭击，造成3人受伤。
 
-此前，一名前 OpenAI 员工创立的基金披露，已大举增持该公司股份。
+富查伊拉媒体办公室4日发布声明称，一架来自伊朗方向的无人机袭击致富查伊拉石油工业区起火，造成3名印度籍人员受伤，伤势为中度。
 
-根据周三公布的监管文件，由前 OpenAI 研究员利奥波德・阿申布伦纳创办的对冲基金态势洞察，目前持有Nebius 1240 万股 A 类股份，持股比例达 5.6%。
+伤者已被送往医院接受必要治疗。
 
-该基金管理着数十亿美元资产，主要投资人工智能发展所需的实体基础设施领域。
+此前，富查伊拉媒体办公室已证实，该石油工业区在无人机袭击后发生大规模火灾。
 
-Nebius在美国上市，该股盘前涨幅一度达到 11%，今年以来累计涨幅已达 149%。
+当天，阿联酋国防部通报称，已监测到4枚来自伊朗方向的巡航导弹，其中3枚在领海上空被成功拦截，另1枚坠入海中。
 
-如今Nebius已成为欧洲核心的人工智能算力服务商。
-
-近几个月来，公司接连达成多项重磅合作：今年 3 月，其与元宇宙达成总额 270 亿美元的合作协议。
+此次事件是自美国、以色列与伊朗4月8日临时停火以来，阿联酋首次遭遇相关袭击。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 23:20 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 23:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 23:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 23:21 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 23:15 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 23:19 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 23:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 23:19 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 23:28 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 23:31 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 23:35 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 23:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 23:29 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 23:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 23:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 23:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 23:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 23:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 23:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 23:23 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 23:19 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 23:35 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 23:36 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/58967.shtml)
-- 2026-06-29 23:34 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/8596778128.shtml)
-- 2026-06-29 23:29 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/0519196.shtml)
-- 2026-06-29 23:40 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/0570447105.shtml)
-- 2026-06-29 23:19 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/57702336877.shtml)
-- 2026-06-29 23:20 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/6877447646.shtml)
-- 2026-06-29 23:23 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/491347.shtml)
-- 2026-06-29 23:14 - [时光音乐会](https://www.share.minike.top/Article/details/537143590.shtml)
-- 2026-06-29 23:12 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/5859030364.shtml)
-- 2026-06-29 23:41 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/690647241.shtml)
-- 2026-06-29 23:37 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/9806684444.shtml)
-- 2026-06-29 23:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/053891170797.shtml)
-- 2026-06-29 23:31 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/273286658924.shtml)
-- 2026-06-29 23:21 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/411301.shtml)
-- 2026-06-29 23:41 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/8304094.shtml)
+- 2026-06-29 23:34 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/763914052.shtml)
+- 2026-06-29 23:31 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/333071946983.shtml)
+- 2026-06-29 23:37 - [啊啊啊](http://www.blog.minike.top/Article/details/9407392.shtml)
+- 2026-06-29 23:37 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/24099189.shtml)
+- 2026-06-29 23:33 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/745306.shtml)
+- 2026-06-29 23:44 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/4004747616.shtml)
+- 2026-06-29 23:21 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/354316175567.shtml)
+- 2026-06-29 23:29 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/267772069205.shtml)
+- 2026-06-29 23:31 - [速度与激情9](https://www.blog.minike.top/Article/details/71132.shtml)
+- 2026-06-29 23:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/39626126359.shtml)
+- 2026-06-29 23:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/882658121515.shtml)
+- 2026-06-29 23:25 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/49289.shtml)
+- 2026-06-29 23:23 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/94754808.shtml)
+- 2026-06-29 23:32 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/730943133.shtml)
+- 2026-06-29 23:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/72507455.shtml)

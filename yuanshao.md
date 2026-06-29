@@ -1,57 +1,59 @@
-# 中国首批“准点降本”绿波航线发布
+# 自信自强 昂扬向上 以实干担当书写无悔青春——习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表的回信在广大青年中引发热烈反响
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-中新社宁波5月28日电(记者 王逸飞)在28日于浙江宁波举行的海丝港口合作论坛“海事专题研讨活动”上，中国首批“准点降本”绿波航线发布，这是中国沿海港航协同、跨区域联动的标志性创新实践。 当日发布的两条“准点降本”绿波航线，以“集装箱海运准点降本”机制为核心，将国际航线挂靠的全部中国港口纳入“集装箱海运准点降本”计划，通过联动海事、港口、航运企业多方力量，建立跨区域联动保障机制
+视频：自信自强 昂扬向上 以实干担当书写无悔青春——习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表的回信在广大青年中引发热烈反响来源：央视网 央视网消息(新闻联播)：在五四青年节到来之际，习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国各族青年致以节日祝贺并提出殷切期望。总书记满含深情、温暖人心的回信在广大青年当中引发热烈反响，大家表示要把总书
 
 ## 正文
 
-中新社宁波5月28日电(记者 王逸飞)在28日于浙江宁波举行的海丝港口合作论坛“海事专题研讨活动”上，中国首批“准点降本”绿波航线发布，这是中国沿海港航协同、跨区域联动的标志性创新实践。
+视频：自信自强 昂扬向上 以实干担当书写无悔青春——习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表的回信在广大青年中引发热烈反响来源：央视网 央视网消息(新闻联播)：在五四青年节到来之际，习近平总书记给中国青年五四奖章暨新时代青年先锋奖获奖者代表回信，向全国各族青年致以节日祝贺并提出殷切期望。
 
-当日发布的两条“准点降本”绿波航线，以“集装箱海运准点降本”机制为核心，将国际航线挂靠的全部中国港口纳入“集装箱海运准点降本”计划，通过联动海事、港口、航运企业多方力量，建立跨区域联动保障机制，实现船舶靠泊精准化、港口周转高效化、航线运营成本最优化，为跨境贸易、国际供应链提供稳定、高效、低碳、经济的海运物流支撑。
+总书记满含深情、温暖人心的回信在广大青年当中引发热烈反响，大家表示要把总书记的嘱托化为奋进动力，在强国建设、民族复兴的新征程上展现昂扬风采、贡献青春力量。
 
-为破解海运班轮准点率不稳、港口周转效率不均、航运运营成本偏高等痛点，2023年12月，在中华人民共和国海事局统筹部署下，浙江海事局率先在宁波舟山港启动“集装箱海运准点降本”计划。
+习近平总书记在回信中说，你们牢记党的嘱托，扎根科技创新、乡村振兴、社会服务、卫国戍边等基层一线，以实干担当书写无悔青春，展现了新时代中国青年自信自强、昂扬向上的良好风貌。
 
-其依托跨港口生产数据互通、船舶班期统筹调度、预约式精准作业等创新模式，串联各港集装箱船舶生产计划，实现港航信息实时共享，帮助进港船舶提前明确靠泊计划，在保障运输时效的基础上实现省时、省油，同时优化港口作业流程，大幅提升航线准班率与港口周转效率。
+总书记的勉励，让广大青年感受到巨大的鼓舞与振奋。
 
-截至目前，参与该计划的港口达21个，包括宁波舟山港、上海洋山港、天津港、青岛港、越南胡志明港等。
+习近平总书记强调，今年是“十五五”开局之年，青年建功正当其时。
 
-该计划运行以来累计保障船舶高效运行3673艘次，完成集装箱装卸量909万TEU，帮助航运企业节省燃油10.2万吨，减少碳排放32万吨，节约船舶待港时间4万小时，企业节约运营成本近12.5亿元人民币。
+希望你们胸怀远大理想，矢志拼搏奋斗，带动广大青年把个人追求融入国家发展大局，立足各自岗位不断创造新业绩，在新征程上贡献青春力量。
 
-(完)
+大家表示，回信的字里行间，无不凝聚着总书记对新时代青年的信任与期望，谆谆教诲、殷殷嘱托，催人奋进。
+
+5月4日，共青团中央、全国青联、全国学联、全国少工委召开座谈会，学习贯彻习近平总书记回信精神。
 
 ## 相关推荐
 
-- 2026-06-29 23:12 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 23:29 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 23:14 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 23:16 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 23:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 23:29 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 23:29 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 23:35 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 23:17 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 23:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 23:16 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 23:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 23:14 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 23:42 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 23:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 23:21 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 23:36 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 23:45 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 23:18 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 23:39 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 23:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 23:26 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 23:25 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 23:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 23:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 23:18 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/166412.shtml)
-- 2026-06-29 23:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/673315891.shtml)
-- 2026-06-29 23:29 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/686352.shtml)
-- 2026-06-29 23:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/8512961893.shtml)
-- 2026-06-29 23:17 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/629070776919.shtml)
-- 2026-06-29 23:18 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/03185988902.shtml)
-- 2026-06-29 23:31 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/70975212.shtml)
-- 2026-06-29 23:18 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/6222866.shtml)
-- 2026-06-29 23:29 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/4365951357.shtml)
-- 2026-06-29 23:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/52028676080.shtml)
-- 2026-06-29 23:18 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/340570728.shtml)
-- 2026-06-29 23:38 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/6867579002.shtml)
-- 2026-06-29 23:33 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/10827932.shtml)
-- 2026-06-29 23:18 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/5851316.shtml)
-- 2026-06-29 23:38 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/2399728860.shtml)
+- 2026-06-29 23:18 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/5786827.shtml)
+- 2026-06-29 23:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/863356.shtml)
+- 2026-06-29 23:28 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/800359.shtml)
+- 2026-06-29 23:32 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/019059.shtml)
+- 2026-06-29 23:23 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/826531.shtml)
+- 2026-06-29 23:19 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/850815.shtml)
+- 2026-06-29 23:25 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/312761518.shtml)
+- 2026-06-29 23:24 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/724318.shtml)
+- 2026-06-29 23:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/1924714163.shtml)
+- 2026-06-29 23:40 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/95134884.shtml)
+- 2026-06-29 23:18 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/736164.shtml)
+- 2026-06-29 23:39 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/82588817.shtml)
+- 2026-06-29 23:30 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/084789173187.shtml)
+- 2026-06-29 23:36 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/0603760.shtml)
+- 2026-06-29 23:42 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/65050749.shtml)

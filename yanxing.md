@@ -1,60 +1,58 @@
-# 斯伦贝谢与Vår Energi扩大数字化油田开发工作流程合作
+# 民族领域欧洲涉华“人权干预主义”不可取、不可行
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-斯伦贝谢（SLB）与Vår Energi已扩大其数字合作，旨在挪威大陆架的运营中规模化推广井位规划和综合油田开发规划。 该协议扩大了斯伦贝谢Delfi数字平台的部署范围。Vår Energi将利用该平台，在云原生环境中实现勘探、地下评估、井位规划、海底设计、油田开发规划及生产等环节的互联互通。 双方合作的井位规划工作流程已成功将规划周期从数月缩短至数天，而综合油田开发规划的验证
+欧洲议会决议所谓的干预理由，完全表现出其对中华民族形成发展历史的无知，对中国民族理论政策和法律法规成功实践的恶意抹黑，对民族团结进步促进法内容的刻意曲解。 “中国是世界上历史最悠久的国家之一，中华民族是有着五千多年文明史的伟大民族。”这是2026年3月12日通过的《中华人民共和国民族团结进步促进法》序言的“开门见山”，是对中国与中华民族的法理一体性的规范表达，是对这部法律的历史
 
 ## 正文
 
-斯伦贝谢（SLB）与Vår Energi已扩大其数字合作，旨在挪威大陆架的运营中规模化推广井位规划和综合油田开发规划。
+欧洲议会决议所谓的干预理由，完全表现出其对中华民族形成发展历史的无知，对中国民族理论政策和法律法规成功实践的恶意抹黑，对民族团结进步促进法内容的刻意曲解。
 
-该协议扩大了斯伦贝谢Delfi数字平台的部署范围。
+“中国是世界上历史最悠久的国家之一，中华民族是有着五千多年文明史的伟大民族。
 
-Vår Energi将利用该平台，在云原生环境中实现勘探、地下评估、井位规划、海底设计、油田开发规划及生产等环节的互联互通。
+”这是2026年3月12日通过的《中华人民共和国民族团结进步促进法》序言的“开门见山”，是对中国与中华民族的法理一体性的规范表达，是对这部法律的历史背景与文明根基的准确概括。
 
-双方合作的井位规划工作流程已成功将规划周期从数月缩短至数天，而综合油田开发规划的验证工作也已将周期从数月缩减至数周。
+中国通过宪法程序制定维护民族团结与国家统一的法律，将自身“五千多年文明史”中形成中华民族共同体与治理民族事务的历史经验和现实实践加以法典化，不仅是中华民族团结进步的重大法治保障，也是世界民族治理的创造性制度探索。
 
-斯伦贝谢表示，这些集成化工作流程旨在通过让不同团队使用共享数据和标准化流程进行协同工作，从而支持更快、更一致的决策。
+然而，中国所走出的这条“中华民族共同体”的民族团结进步之路及其文明和法治模式，与西方建立在民族主义、民族国家与殖民扩张基础上的民族治理模式迥异，与西方惯常于以自我中心论和等级论对待其他文明与民族的“人权干预主义”话语迥异。
 
-此次合作反映了油气行业向云端规划方法转型的大趋势，其目的是缩短开发里程碑之间的时间间隔，并从成熟的海上资产中获取最大价值。
+2026年4月30日，欧洲议会通过了涉中国新颁布民族团结进步促进法有关决议。
 
-斯伦贝谢数字业务总裁Rakesh Jaggi指出，扩大平台部署是为了支持Vår Energi在应对日益复杂的海上开发挑战时，缩短实现首次产油的时间。
+从欧洲法律秩序来看，欧洲议会的所谓决议只是政治立场和政策倡议的表达，不具有强制执行的法律约束力。
 
-Rakesh Jaggi表示：“随着海上开发项目变得日益复杂，其绩效越来越依赖于团队能否利用可信赖的数据快速达成共识、评估方案并做出决策。
+但这份决议以所谓人权和民族正义的“欧洲标准”自居，在严重缺乏事实依据和法理基础的情况下，对中国民族政策和法律进行诋毁与污名化，并呼吁欧盟层面、联合国层面与国际社会开展立场协调和干预制裁。
 
 ## 相关推荐
 
-- 2026-06-29 23:39 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 23:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 23:21 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 23:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 23:27 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 23:34 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 23:18 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 23:13 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 23:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 23:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 23:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 23:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 23:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 23:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 23:22 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 23:26 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 23:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 23:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 23:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 23:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 23:38 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 23:45 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 23:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 23:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 23:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:28 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/84451029324.shtml)
-- 2026-06-29 23:21 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/55590372.shtml)
-- 2026-06-29 23:36 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/9560879.shtml)
-- 2026-06-29 23:33 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/466647.shtml)
-- 2026-06-29 23:20 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/631862968.shtml)
-- 2026-06-29 23:40 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/986333293536.shtml)
-- 2026-06-29 23:23 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/8584327489.shtml)
-- 2026-06-29 23:17 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/01208.shtml)
-- 2026-06-29 23:17 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/6604587.shtml)
-- 2026-06-29 23:32 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/26520176126.shtml)
-- 2026-06-29 23:18 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/029351654766.shtml)
-- 2026-06-29 23:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/43891855255.shtml)
-- 2026-06-29 23:14 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/469741748200.shtml)
-- 2026-06-29 23:36 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/38292770.shtml)
-- 2026-06-29 23:39 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/443984061.shtml)
+- 2026-06-29 23:22 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/545193389141.shtml)
+- 2026-06-29 23:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/5855303582.shtml)
+- 2026-06-29 23:30 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/705777155.shtml)
+- 2026-06-29 23:26 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/64496154170.shtml)
+- 2026-06-29 23:46 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/61115951.shtml)
+- 2026-06-29 23:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/3224929826.shtml)
+- 2026-06-29 23:29 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/0047955875.shtml)
+- 2026-06-29 23:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/304449737944.shtml)
+- 2026-06-29 23:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/1784525850.shtml)
+- 2026-06-29 23:46 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/9364196.shtml)
+- 2026-06-29 23:46 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/776522075683.shtml)
+- 2026-06-29 23:32 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/263494240248.shtml)
+- 2026-06-29 23:27 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/447096035.shtml)
+- 2026-06-29 23:37 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/340266.shtml)
+- 2026-06-29 23:31 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/31201998184.shtml)

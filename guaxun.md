@@ -1,60 +1,56 @@
-# “香会”是啥？今年有何看点？
+# “盲目乐观”：伊朗战争引发油价冲击，市场正不知不觉滑向衰退
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 13:51 来源：中国新闻网 第23届香格里拉对话会将于当地时间5月29日晚在新加坡开幕。香格里拉对话会的正式名称是“亚洲安全峰会”，由英国国际战略研究所发起，每年都会吸引来自亚太、欧洲、北美等地区国家的防务高层参会，共同探讨亚太地区面临的安全挑战。 今年“香会”有4个看点值得关注。第一，中美关系。这几乎是每年“香会”都绕不开的话题。本届“香会
+核心要点 能源咨询机构 Energy Aspect 创始人兼市场情报总监阿姆里塔・森周一在 CNBC《欧洲财经早间秀》节目中表示：受投资者持续低估油价冲击影响，全球经济正在浑然不觉中走向一场严重衰退。 尽管中东战事推高能源成本 —— 自 2 月 28 日美伊冲突爆发以来，油价涨幅已超 50%—— 标普 500 指数上周仍创下盘中历史新高，5 月 1 日触及 7230.12 点。
 
 ## 正文
 
-发布时间：2026年05月29日 13:51 来源：中国新闻网 第23届香格里拉对话会将于当地时间5月29日晚在新加坡开幕。
+核心要点 能源咨询机构 Energy Aspect 创始人兼市场情报总监阿姆里塔・森周一在 CNBC《欧洲财经早间秀》节目中表示：受投资者持续低估油价冲击影响，全球经济正在浑然不觉中走向一场严重衰退。
 
-香格里拉对话会的正式名称是“亚洲安全峰会”，由英国国际战略研究所发起，每年都会吸引来自亚太、欧洲、北美等地区国家的防务高层参会，共同探讨亚太地区面临的安全挑战。
+尽管中东战事推高能源成本 —— 自 2 月 28 日美伊冲突爆发以来，油价涨幅已超 50%—— 标普 500 指数上周仍创下盘中历史新高，5 月 1 日触及 7230.12 点。
 
-今年“香会”有4个看点值得关注。
+森表示：“这是目前最令人费解的现象。
 
-第一，中美关系。
+在我们看来，油价本应更高，而股市理应大幅走弱。
 
-这几乎是每年“香会”都绕不开的话题。
+” “我认为，我们正不知不觉步入一场规模不小的经济衰退。
 
-本届“香会”在中美元首会晤后不久举行，会议期间中美互动的新动向将引发各方关注。
+” 她认为当前许多投资者陷入极度盲目乐观的情绪，普遍低估本轮能源紧缺的影响，误以为冲击主要局限于亚洲经济体。
 
-第二，中东局势。
+石油输出国组织（OPEC）已承诺增产，但森提醒，此次增产更多只是象征性举措，远不足以填补市场供应缺口。
 
-美以伊战事和霍尔木兹海峡局势牵动世界神经，有分析认为美国防长或将在“香会”期间有新的表态。
+“一场巨大的能源危机” 她指出，关键要看霍尔木兹海峡何时重开、恢复多大运力以及恢复速度。
 
 ## 相关推荐
 
-- 2026-06-29 23:15 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 23:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 23:33 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 23:34 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 23:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 23:39 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 23:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 23:33 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 23:36 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 23:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 23:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 23:38 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 23:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 23:16 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 23:40 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 23:26 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 23:35 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 23:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 23:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 23:36 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 23:47 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 23:32 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 23:41 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 23:20 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [蔚来车主罚站](https://www.share.minike.top/Article/details/3999420.shtml)
-- 2026-06-29 23:37 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/4067389.shtml)
-- 2026-06-29 23:39 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/30617491281.shtml)
-- 2026-06-29 23:28 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/6973512.shtml)
-- 2026-06-29 23:35 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/97613723.shtml)
-- 2026-06-29 23:25 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/05252869.shtml)
-- 2026-06-29 23:14 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/02667973620.shtml)
-- 2026-06-29 23:25 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/1499312623.shtml)
-- 2026-06-29 23:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/040327.shtml)
-- 2026-06-29 23:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/72606.shtml)
-- 2026-06-29 23:25 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/4834447974.shtml)
-- 2026-06-29 23:25 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/896530.shtml)
-- 2026-06-29 23:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/3977219395.shtml)
-- 2026-06-29 23:29 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/1618161.shtml)
-- 2026-06-29 23:18 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/4213996.shtml)
+- 2026-06-29 23:18 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/258178044574.shtml)
+- 2026-06-29 23:31 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/4117984144.shtml)
+- 2026-06-29 23:28 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/754855401.shtml)
+- 2026-06-29 23:38 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/72062488129.shtml)
+- 2026-06-29 23:47 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/238657281.shtml)
+- 2026-06-29 23:40 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/661146562.shtml)
+- 2026-06-29 23:34 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/223299530867.shtml)
+- 2026-06-29 23:41 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/439979.shtml)
+- 2026-06-29 23:31 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/660222957.shtml)
+- 2026-06-29 23:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/865455733.shtml)
+- 2026-06-29 23:43 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/089323.shtml)
+- 2026-06-29 23:24 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/9590732735.shtml)
+- 2026-06-29 23:18 - [刘念回应](http://www.blog.minike.top/Article/details/09485103.shtml)
+- 2026-06-29 23:18 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/275852335.shtml)
+- 2026-06-29 23:22 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/207610.shtml)

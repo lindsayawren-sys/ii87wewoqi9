@@ -1,60 +1,61 @@
-# 一名谷歌工程师被起诉 涉嫌利用内幕消息在Polymarket平台下注
+# AudioCodes即将发布一季报 语音AI业务成关注焦点
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-一名谷歌软件工程师被起诉，因其涉嫌在Polymarket上进行内幕交易：通过押注去年最热门的互联网搜索主题之一，获利超过100万美元。 纽约联邦法院周三解封了对Michele Spagnuolo的起诉书。现年36岁的Spagnuolo已在联邦治安法官处过堂，并以225万美元的保释金取保候审。 Spagnuolo的律师Mike Ferrara拒绝置评。 根据起诉书，身为意大利公民
+通信设备及语音AI解决方案提供商AudioCodes（AUDC）将于周二（5月5日）盘前发布2026年第一季度财报，随后于上午8：30举行电话会议。 根据市场预期，分析师预计公司Q1每股收益为0.16美元，同比增长约6.7%；营收预计为6150万美元，同比增长约1.8%。值得注意的是，过去三个月内每股收益预期从0.17美元小幅下调至0.16美元。 回顾上一季度，公司业绩基本符合
 
 ## 正文
 
-一名谷歌软件工程师被起诉，因其涉嫌在Polymarket上进行内幕交易：通过押注去年最热门的互联网搜索主题之一，获利超过100万美元。
+通信设备及语音AI解决方案提供商AudioCodes（AUDC）将于周二（5月5日）盘前发布2026年第一季度财报，随后于上午8：30举行电话会议。
 
-纽约联邦法院周三解封了对Michele Spagnuolo的起诉书。
+根据市场预期，分析师预计公司Q1每股收益为0.16美元，同比增长约6.7%；营收预计为6150万美元，同比增长约1.8%。
 
-现年36岁的Spagnuolo已在联邦治安法官处过堂，并以225万美元的保释金取保候审。
+值得注意的是，过去三个月内每股收益预期从0.17美元小幅下调至0.16美元。
 
-Spagnuolo的律师Mike Ferrara拒绝置评。
+回顾上一季度，公司业绩基本符合预期：2025年第四季度营收为6260万美元，略高于市场预期的6200万美元；每股收益0.16美元，与预期持平。
 
-根据起诉书，身为意大利公民的Spagnuolo于2014年加入Alphabet Inc．旗下的谷歌。
+公司当季非GAAP毛利率为65.9%，处于长期目标区间65%-68%之内。
 
-在押注谷歌的2025年搜索量最高人物是歌手D4vd时，他有权限访问追踪用户搜索的公司数据。
+投资者将重点关注公司的语音AI业务进展。
 
-上月，D4vd（真名David Anthony Burke）被控谋杀一名14岁女孩；他对此表示不认罪。
+管理层此前预计，语音AI业务将在2026年实现40%-50%的年度增长，公司目标到2028年语音AI收入达到约5000万美元。
 
-检方称，当时Polymarket判定D4vd超过教教皇、Kendrick Lamar等人，登顶人物搜索榜的概率概率为“几乎为零”。
+此外，公司年度经常性收入在2025年底已达7900万美元，同比增长22%。
 
 ## 相关推荐
 
-- 2026-06-29 23:14 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 23:17 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 23:41 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 23:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 23:17 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 23:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 23:34 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 23:17 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 23:19 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 23:21 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 23:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 23:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 23:14 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 23:15 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 23:43 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 23:36 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 23:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 23:41 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 23:29 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 23:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 23:33 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 23:27 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 23:46 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 23:29 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 23:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 23:20 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 23:26 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 23:25 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 23:40 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/15790206.shtml)
-- 2026-06-29 23:23 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/2033073.shtml)
-- 2026-06-29 23:38 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/77567.shtml)
-- 2026-06-29 23:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/2751026.shtml)
-- 2026-06-29 23:39 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/226780481.shtml)
-- 2026-06-29 23:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/244037.shtml)
-- 2026-06-29 23:33 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/229057843.shtml)
-- 2026-06-29 23:21 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/8402987277.shtml)
-- 2026-06-29 23:29 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/51975.shtml)
-- 2026-06-29 23:22 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/717267939.shtml)
-- 2026-06-29 23:25 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/68040704268.shtml)
-- 2026-06-29 23:28 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/2867031836.shtml)
-- 2026-06-29 23:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/24187.shtml)
-- 2026-06-29 23:22 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/53611.shtml)
-- 2026-06-29 23:39 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/78044.shtml)
+- 2026-06-29 23:24 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/5394404.shtml)
+- 2026-06-29 23:30 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/8440110395.shtml)
+- 2026-06-29 23:28 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/537586283.shtml)
+- 2026-06-29 23:18 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/760448730653.shtml)
+- 2026-06-29 23:32 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/44099600363.shtml)
+- 2026-06-29 23:35 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/730971847.shtml)
+- 2026-06-29 23:45 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/702192.shtml)
+- 2026-06-29 23:41 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/74230220.shtml)
+- 2026-06-29 23:45 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/001065642430.shtml)
+- 2026-06-29 23:34 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/65630.shtml)
+- 2026-06-29 23:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/557688.shtml)
+- 2026-06-29 23:24 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/204290448202.shtml)
+- 2026-06-29 23:34 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/4815736.shtml)
+- 2026-06-29 23:32 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/3034618760.shtml)
+- 2026-06-29 23:26 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/90269.shtml)

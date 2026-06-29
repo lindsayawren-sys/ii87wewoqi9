@@ -1,56 +1,48 @@
-# 重要调整生效前，多股异动！
+# 美军称两艘悬挂美国国旗的商船已通过霍尔木兹海峡
 
-> 更新时间：2026-06-29 23:42:02 UTC+8
+> 更新时间：2026-06-29 23:48:02 UTC+8
 
 ## 摘要
 
-5月29日午后，A股主要指数延续跌势。截至收盘，沪指跌0.73%，深证成指跌1.81%，创业板指跌逾2%，科创综指跌超4%；科创50跌超5%，中芯国际、寒武纪、海光信息等权重股领跌。沪深京三市下跌个股超3800只。 消息面上，近日，中国信息安全测评中心与国家保密科技测评中心联合发布公告，正式将9款国产人工智能训练推理芯片纳入“安全可靠等级”I级认证体系，包括昇腾310、昇腾91
+当地时间5月4日，美国中央司令部表示，在美国海军导弹驱逐舰在海湾地区执行任务之际，两艘悬挂美国国旗的商船已通过霍尔木兹海峡。 美国中央司令部在一份声明中称：“美军正在积极协助恢复商业航运通行的相关努力。”(央视新闻客户端 央视记者 朱磊)
 
 ## 正文
 
-5月29日午后，A股主要指数延续跌势。
+当地时间5月4日，美国中央司令部表示，在美国海军导弹驱逐舰在海湾地区执行任务之际，两艘悬挂美国国旗的商船已通过霍尔木兹海峡。
 
-截至收盘，沪指跌0.73%，深证成指跌1.81%，创业板指跌逾2%，科创综指跌超4%；科创50跌超5%，中芯国际、寒武纪、海光信息等权重股领跌。
+美国中央司令部在一份声明中称：“美军正在积极协助恢复商业航运通行的相关努力。
 
-沪深京三市下跌个股超3800只。
-
-消息面上，近日，中国信息安全测评中心与国家保密科技测评中心联合发布公告，正式将9款国产人工智能训练推理芯片纳入“安全可靠等级”I级认证体系，包括昇腾310、昇腾910、真武M530、真武M890、壁砺™166、DCU-3G、KCC-V100X芯片、MXC600、PH100。
-
-根据公告，上述产品来自7家国内芯片企业，包括华为海思、阿里巴巴平头哥、壁仞科技、海光信息、天数智芯、沐曦股份以及摩尔线程。
-
-安全可靠测评结果自发布之日起有效期三年。
-
-食品饮料、煤炭、公用事业等行业板块上涨。
-
-银行板块午后逆势拉升，重庆银行涨超5%，兴业银行、招商银行、工商银行、平安银行等涨超2%。
+”(央视新闻客户端 央视记者 朱磊)
 
 ## 相关推荐
 
-- 2026-06-29 23:26 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 23:12 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 23:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 23:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 23:18 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 23:38 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 23:23 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 23:28 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 23:32 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 23:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 23:22 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 23:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 23:24 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 23:18 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 23:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 23:40 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 23:37 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 23:34 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 23:18 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 23:35 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 23:46 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 23:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:35 - [巴西10号球衣是天才传承史](http://www.share.kurohicncr.top/Article/details/7107686.shtml)
-- 2026-06-29 23:27 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/6085504.shtml)
-- 2026-06-29 23:38 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/038842145646.shtml)
-- 2026-06-29 23:13 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/693410506967.shtml)
-- 2026-06-29 23:26 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/7217153789.shtml)
-- 2026-06-29 23:14 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/56900498421.shtml)
-- 2026-06-29 23:18 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/14392948.shtml)
-- 2026-06-29 23:27 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/427282977.shtml)
-- 2026-06-29 23:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/59288.shtml)
-- 2026-06-29 23:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/591994228.shtml)
-- 2026-06-29 23:24 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/4793834.shtml)
-- 2026-06-29 23:40 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/22768.shtml)
-- 2026-06-29 23:21 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/8398312.shtml)
-- 2026-06-29 23:12 - [第一炉香](http://www.blog.minike.top/Article/details/6394706.shtml)
-- 2026-06-29 23:12 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/624281915.shtml)
+- 2026-06-29 23:37 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/1756103.shtml)
+- 2026-06-29 23:42 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/66689646729.shtml)
+- 2026-06-29 23:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/24335916.shtml)
+- 2026-06-29 23:30 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2752395.shtml)
+- 2026-06-29 23:32 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/669124799613.shtml)
+- 2026-06-29 23:45 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/493580.shtml)
+- 2026-06-29 23:45 - [第一炉香](https://www.share.minike.top/Article/details/41867.shtml)
+- 2026-06-29 23:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/7316094272.shtml)
+- 2026-06-29 23:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/68118439.shtml)
+- 2026-06-29 23:32 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/55607257362.shtml)
+- 2026-06-29 23:44 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/979491250.shtml)
+- 2026-06-29 23:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/11159069.shtml)
+- 2026-06-29 23:25 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/80878.shtml)
+- 2026-06-29 23:44 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/782208.shtml)
+- 2026-06-29 23:20 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/6490223171.shtml)
