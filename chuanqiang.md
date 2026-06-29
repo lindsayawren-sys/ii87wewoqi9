@@ -1,59 +1,60 @@
-# 美国联合航空将恢复飞往委内瑞拉的航线航班
+# 纳指13连涨再创新高，国际油价重挫
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-联合航空将重启飞往委内瑞拉的航班服务。这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。 联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。 就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。此举也被视作特朗普政府快速推
+中新经纬4月18日电 美东时间周五，美国三大股指全线收涨。截至收盘，道指涨1.79%报49447.43点，标普500指数涨1.2%报7126.06点，纳指涨1.52%报24468.48点，录得13连涨；标普500指数、纳指续创新高。 本周，道指涨3.19%，标普500指数涨4.54%，纳指涨6.84%。 美国消费者新闻与商业频道(CNBC)报道指出，标普500指数是首次收于71
 
 ## 正文
 
-联合航空将重启飞往委内瑞拉的航班服务。
+中新经纬4月18日电 美东时间周五，美国三大股指全线收涨。
 
-这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。
+截至收盘，道指涨1.79%报49447.43点，标普500指数涨1.2%报7126.06点，纳指涨1.52%报24468.48点，录得13连涨；标普500指数、纳指续创新高。
 
-联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。
+本周，道指涨3.19%，标普500指数涨4.54%，纳指涨6.84%。
 
-就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。
+美国消费者新闻与商业频道(CNBC)报道指出，标普500指数是首次收于7100点上方，同时，纳指创下1992年以来最长连续上涨纪录。
 
-此举也被视作特朗普政府快速推动与委内瑞拉关系正常化最直观的标志性事件。
+CNBC分析认为，美股周五飙升得益于以色列和黎巴嫩宣布停火，以及伊朗宣布霍尔木兹海峡“完全开放”的消息提振。
 
-此前报道称，特朗普政府已推出一套特殊安排：一方面吸引美国投资者赴委内瑞拉投资，另一方面进一步巩固两国政府间关系。
+伊朗外交部长Seyed Abbas Araghchi周五表示，“为配合黎巴嫩停火，在剩余停火时间内，所有商业船只可按伊朗伊斯兰共和国港口和海事组织已经宣布的协调路线通过霍尔木兹海峡。
 
-美国交通部长表示，联合航空新开这条航线，标志着美委两国关系再获新进展。
+” 美国总统特朗普周四曾表示，以色列和黎巴嫩领导人同意10天的停火，停火于美国东部时间下午5点生效。
 
-他称：“随着美国与委内瑞拉合作扩大石油产能、创造新的经济机遇，这条航线对于运送石油行业从业人员赴委工作至关重要。
+此外，作为回应，特朗普周五在真实社交上发文表示，感谢伊朗开放霍尔木兹海峡称，这个中东国家已同意不再关闭海峡。
 
 ## 相关推荐
 
-- 2026-06-29 20:46 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 20:33 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 20:44 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 20:27 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 20:31 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 20:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 20:35 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:25 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 20:31 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-29 20:32 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 20:28 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 20:25 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 20:30 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 20:48 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 20:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 20:33 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 20:45 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 20:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 20:56 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 20:39 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 20:34 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 20:45 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 20:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 20:47 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 20:53 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:55 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 20:55 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/86251.shtml)
-- 2026-06-29 20:41 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/074618.shtml)
-- 2026-06-29 20:50 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/32745868.shtml)
-- 2026-06-29 20:36 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/24802664532.shtml)
-- 2026-06-29 20:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/69107.shtml)
-- 2026-06-29 20:29 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/80111737342.shtml)
-- 2026-06-29 20:38 - [TTG KSG](https://www.blog.minike.top/Article/details/52374662562.shtml)
-- 2026-06-29 20:39 - [世界杯高票价为何没劝退球迷](https://www.share.minike.top/Article/details/0622172.shtml)
-- 2026-06-29 20:48 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/22919.shtml)
-- 2026-06-29 20:40 - [这一刀 会很帅](https://www.share.minike.top/Article/details/880764.shtml)
-- 2026-06-29 20:34 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/09326.shtml)
-- 2026-06-29 20:25 - [扫黑风暴](http://www.share.minike.top/Article/details/22095.shtml)
-- 2026-06-29 20:41 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/708837430.shtml)
-- 2026-06-29 20:28 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/4423671079.shtml)
-- 2026-06-29 20:30 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/4966358755.shtml)
+- 2026-06-29 20:46 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/532128068177.shtml)
+- 2026-06-29 20:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/5612620343.shtml)
+- 2026-06-29 20:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/663593322548.shtml)
+- 2026-06-29 20:51 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/09579931055.shtml)
+- 2026-06-29 20:47 - [时光音乐会](http://www.share.minike.top/Article/details/1339997.shtml)
+- 2026-06-29 20:39 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/5464411000.shtml)
+- 2026-06-29 20:50 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/219062618.shtml)
+- 2026-06-29 20:45 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/26869.shtml)
+- 2026-06-29 20:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/286747651044.shtml)
+- 2026-06-29 20:57 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/959494890594.shtml)
+- 2026-06-29 20:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/24944187.shtml)
+- 2026-06-29 20:44 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/548506542.shtml)
+- 2026-06-29 20:53 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/35429.shtml)
+- 2026-06-29 20:46 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/926396795133.shtml)
+- 2026-06-29 20:45 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/242785862332.shtml)

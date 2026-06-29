@@ -1,56 +1,46 @@
-# 哈佛生物科学重申2026年营收增长2%-4%，“维京计划”剑指年省400万美元
+# 服务业稳中向好 新动能加快成长
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-哈佛生物科学公司周二公布第一季度财报，并重申全年业绩指引。尽管一季度营收同比略有下滑，公司仍维持2026全年营收增长2%至4%的预期，同时“维京计划”制造整合项目预计将在2028年起实现每年约400万美元的成本节约。 一季度业绩：营收符合预期，毛利率显著提升 财报显示，公司一季度营收为2080万美元，较去年同期的2180万美元下降5%，但符合公司此前的预期。毛利率同比提升约30
+发布时间：2026年04月20日 16:35 来源：央视网 责任编辑：【杨彦宇】
 
 ## 正文
 
-哈佛生物科学公司周二公布第一季度财报，并重申全年业绩指引。
-
-尽管一季度营收同比略有下滑，公司仍维持2026全年营收增长2%至4%的预期，同时“维京计划”制造整合项目预计将在2028年起实现每年约400万美元的成本节约。
-
-一季度业绩：营收符合预期，毛利率显著提升 财报显示，公司一季度营收为2080万美元，较去年同期的2180万美元下降5%，但符合公司此前的预期。
-
-毛利率同比提升约300个基点至59%，处于公司指引区间的高端。
-
-调整后EBITDA为80万美元，与去年同期持平。
-
-公司新任总裁兼首席执行官John Duke表示：“一季度营收符合预期，毛利率同比扩大，同时我们在调整后EBITDA层面保持了盈利。
-
-我们正在重申全年指引，预计高利润率的新产品销售收入增长将推动下半年盈利增长。
-
-” 分地区看，欧洲、中东及非洲市场表现强劲，收入增长7%。
+发布时间：2026年04月20日 16:35 来源：央视网 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 20:48 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 20:48 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 20:38 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 20:29 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 20:39 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 20:40 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 20:37 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 20:48 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 20:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 20:33 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 20:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 20:42 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 20:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 20:54 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 20:43 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 20:54 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 20:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 20:56 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 20:35 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 20:53 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 20:59 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 20:34 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 20:45 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/0765959731.shtml)
-- 2026-06-29 20:44 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/6424606.shtml)
-- 2026-06-29 20:45 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/61709552.shtml)
-- 2026-06-29 20:24 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/2453925.shtml)
-- 2026-06-29 20:49 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/8465266097.shtml)
-- 2026-06-29 20:37 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/915435.shtml)
-- 2026-06-29 20:45 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/7666370773.shtml)
-- 2026-06-29 20:29 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/83438662.shtml)
-- 2026-06-29 20:42 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/43413178.shtml)
-- 2026-06-29 20:40 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/687273373859.shtml)
-- 2026-06-29 20:46 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/2563695.shtml)
-- 2026-06-29 20:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/3536369.shtml)
-- 2026-06-29 20:50 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/723270.shtml)
-- 2026-06-29 20:42 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/828561015562.shtml)
-- 2026-06-29 20:38 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/38750474.shtml)
+- 2026-06-29 20:57 - [恋与深空回应争议](https://www.share.minike.top/Article/details/42959691.shtml)
+- 2026-06-29 20:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/0131175173.shtml)
+- 2026-06-29 20:32 - [东方风云榜直播](http://www.share.minike.top/Article/details/031494089.shtml)
+- 2026-06-29 20:40 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/39386083389.shtml)
+- 2026-06-29 20:35 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/42872405.shtml)
+- 2026-06-29 20:59 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/626157.shtml)
+- 2026-06-29 20:40 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/4857979276.shtml)
+- 2026-06-29 20:32 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/1415201.shtml)
+- 2026-06-29 20:42 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/43833496.shtml)
+- 2026-06-29 20:50 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/0096093.shtml)
+- 2026-06-29 20:54 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/86208537554.shtml)
+- 2026-06-29 20:37 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/91947.shtml)
+- 2026-06-29 20:50 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/524387195747.shtml)
+- 2026-06-29 20:41 - [李思潼：不会介意大家夸我运气好](https://www.share.kurohicncr.top/Article/details/9299799293.shtml)
+- 2026-06-29 20:38 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/8997809.shtml)

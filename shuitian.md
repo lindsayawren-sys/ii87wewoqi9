@@ -1,56 +1,58 @@
-# 韩国将从7月起实施电动汽车补贴评估制度
+# 中外专家在渝聚焦柑桔产业发展 两大联合实验室揭牌
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-韩国气候能源环境部周三表示，韩国将从7月起实施新的评估制度，向电动汽车制造商发放补贴，重点是促进其对国内供应链的贡献。 根据这一100分制的评分系统，韩国气候能源环境部将评估电动汽车制造商对韩国产业供应链的贡献、技术开发能力、对环境相关政策的响应、售后服务的可持续性以及安全管理，以确定这些公司是否可以获得国家补贴。 在评估标准中，供应链贡献占比最高，为 40 分；其次是售后服务
+中新网重庆4月18日电 (记者 钟旖)柑桔重大病虫害防控暨产业高质量发展国际论坛18日在重庆市北碚区举行。 论坛旨在进一步推动柑桔重大病虫害灾变机制合作研究，提升防控水平，推进柑桔产业高质量发展，吸引来自中国、澳大利亚、巴西、南非、意大利、黑山等国的知名病虫害防控专家与会。 现场，中国—巴西柑桔重大病虫害防控国际合作联合实验室、中国—黑山作物有害生物可持续控制国际合作联合实验室
 
 ## 正文
 
-韩国气候能源环境部周三表示，韩国将从7月起实施新的评估制度，向电动汽车制造商发放补贴，重点是促进其对国内供应链的贡献。
+中新网重庆4月18日电 (记者 钟旖)柑桔重大病虫害防控暨产业高质量发展国际论坛18日在重庆市北碚区举行。
 
-根据这一100分制的评分系统，韩国气候能源环境部将评估电动汽车制造商对韩国产业供应链的贡献、技术开发能力、对环境相关政策的响应、售后服务的可持续性以及安全管理，以确定这些公司是否可以获得国家补贴。
+论坛旨在进一步推动柑桔重大病虫害灾变机制合作研究，提升防控水平，推进柑桔产业高质量发展，吸引来自中国、澳大利亚、巴西、南非、意大利、黑山等国的知名病虫害防控专家与会。
 
-在评估标准中，供应链贡献占比最高，为 40 分；其次是售后服务，占 20 分；安全管理和对环境相关政策的响应各占 15 分；技术开发能力占 10 分。
+现场，中国—巴西柑桔重大病虫害防控国际合作联合实验室、中国—黑山作物有害生物可持续控制国际合作联合实验室正式揭牌。
 
-韩国气候能源环境部表示，电动汽车制造商和进口商必须获得至少60分才能获得补贴资格。
+两大联合实验室将聚焦跨境病虫害监测预警、抗性品种联合培育等领域，开展国际性合作研究。
 
-该部门解释说，制定新标准旨在帮助韩国建立可持续的电动汽车生态系统，并促进“安全”和“高质量”电动汽车的流通。
+据介绍，中国与巴西是全球柑桔产业的两大核心力量，两国柑桔产业不仅在资源禀赋、气候条件及消费市场等方面存在显著互补性，更共同面临着柑桔黄龙病、木虱、病毒病等重大生物灾害的严峻挑战。
 
-韩国气候能源环境部表示，计划每年更新评估标准。
+联合实验室将探索“抗病育种+阻断传播”的综合防控新策略，推动柑桔产业综合治理与可持续发展取得实质性突破。
 
-责任编辑：于健 SF069
+黑山则与重庆在农业植保领域有显著的共性需求与合作空间。
+
+联合实验室将聚焦农作物病虫害防治新型技术研发、作物抗性资源挖掘与利用、捕食性天敌繁育与释放等关键领域深化合作。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 20:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 20:40 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 20:51 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 20:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 20:51 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 20:43 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 20:41 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 20:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 20:41 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 20:53 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 20:34 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 20:45 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 20:43 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 20:33 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 20:31 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 20:34 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 20:30 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 20:50 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 20:36 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 20:42 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 20:51 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 20:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 20:50 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/87895.shtml)
-- 2026-06-29 20:44 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/81289359619.shtml)
-- 2026-06-29 20:31 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/532082735676.shtml)
-- 2026-06-29 20:26 - [扬名立万](http://www.share.minike.top/Article/details/693523297.shtml)
-- 2026-06-29 20:27 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/3960376480.shtml)
-- 2026-06-29 20:43 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/177758.shtml)
-- 2026-06-29 20:43 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/6534483.shtml)
-- 2026-06-29 20:45 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/61990377.shtml)
-- 2026-06-29 20:37 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/9300021000.shtml)
-- 2026-06-29 20:30 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/885558887366.shtml)
-- 2026-06-29 20:40 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/76340.shtml)
-- 2026-06-29 20:33 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/68400764.shtml)
-- 2026-06-29 20:51 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/60343.shtml)
-- 2026-06-29 20:53 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/680713514373.shtml)
-- 2026-06-29 20:53 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/049604.shtml)
+- 2026-06-29 20:40 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/36382.shtml)
+- 2026-06-29 20:40 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/686578776.shtml)
+- 2026-06-29 20:35 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/50798051.shtml)
+- 2026-06-29 20:56 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/6879131.shtml)
+- 2026-06-29 20:47 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/1042188.shtml)
+- 2026-06-29 20:45 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/5656631785.shtml)
+- 2026-06-29 20:35 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/74509720.shtml)
+- 2026-06-29 20:43 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/580625341616.shtml)
+- 2026-06-29 20:43 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/095534613454.shtml)
+- 2026-06-29 20:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/32125733.shtml)
+- 2026-06-29 20:45 - [逃狱兄弟](https://www.share.minike.top/Article/details/656321140172.shtml)
+- 2026-06-29 20:30 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/208741750931.shtml)
+- 2026-06-29 20:59 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/78039017.shtml)
+- 2026-06-29 20:42 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/0298168.shtml)
+- 2026-06-29 20:38 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/636545822.shtml)

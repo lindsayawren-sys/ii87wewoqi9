@@ -1,57 +1,58 @@
-# 新疆访千年古刹 大漠觅丝路“佛缘”
+# 收盘：国内期货主力合约涨多跌少 多晶硅涨停
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网新疆和田5月13日电 (苟继鹏)在新疆塔克拉玛干沙漠深处，存续上千年的热瓦克佛寺遗址(简称“遗址”)正被越来越多人所知。记者12日随“循着古迹看新疆”主题采访团探访了该遗址。 从和田市往北向沙漠腹地挺进，沿途沙丘起伏、胡杨青翠、红柳葱茏，罗布麻花开……黄沙掩映间，位于洛浦县境内的这座千年古刹遗址便映入眼帘。 “它不仅是和田地区保存较为完整、时代较早的佛教建筑，也是晋唐时期
+4月20日收盘，国内期货主力合约涨多跌少。多晶硅上涨9%触及涨停，20号胶、橡胶、焦煤、碳酸锂、焦炭、玻璃涨超2%；下跌方面，丙烯、乙二醇、苹果跌超3%，原油、燃油、聚丙烯、甲醇、纯苯、PX0>对二甲苯、塑料（PVC）跌超2%。 本轮多晶硅价格的反弹，起点可以追溯到4月10日。当天，工信部在重要会议上再次提及并明确释放信号：“十五五”时期将坚决破除光伏行业“内卷式”竞争。这一表
 
 ## 正文
 
-中新网新疆和田5月13日电 (苟继鹏)在新疆塔克拉玛干沙漠深处，存续上千年的热瓦克佛寺遗址(简称“遗址”)正被越来越多人所知。
+4月20日收盘，国内期货主力合约涨多跌少。
 
-记者12日随“循着古迹看新疆”主题采访团探访了该遗址。
+多晶硅上涨9%触及涨停，20号胶、橡胶、焦煤、碳酸锂、焦炭、玻璃涨超2%；下跌方面，丙烯、乙二醇、苹果跌超3%，原油、燃油、聚丙烯、甲醇、纯苯、PX0>对二甲苯、塑料（PVC）跌超2%。
 
-从和田市往北向沙漠腹地挺进，沿途沙丘起伏、胡杨青翠、红柳葱茏，罗布麻花开……黄沙掩映间，位于洛浦县境内的这座千年古刹遗址便映入眼帘。
+本轮多晶硅价格的反弹，起点可以追溯到4月10日。
 
-“它不仅是和田地区保存较为完整、时代较早的佛教建筑，也是晋唐时期丝绸之路南道重要的历史文化遗存。
+当天，工信部在重要会议上再次提及并明确释放信号：“十五五”时期将坚决破除光伏行业“内卷式”竞争。
 
-”洛浦县博物馆馆长夏提努尔·斯迪克说。
+这一表态为长期陷于价格战泥潭的光伏产业链注入了强烈的政策预期； 紧接着在今早（4月20日）八点多，工信部网站发布消息显示，工信部等四部门已于4月17日联合召开光伏行业座谈会，再次强调要扎实推进“反内卷”工作。
 
-“佛寺大约始建于公元2至3世纪，延续至唐代。
+政策层面连续发声，或为点燃本轮市场情绪的关键火花。
 
-其建筑形式和壁画风格深受犍陀罗文化的影响。
+国泰君安期货分析师认为，综合来看，多晶硅此轮上涨，更多是由“反内卷”政策预期驱动，而非基本面出现强劲反转。
 
-”夏提努尔介绍说，寺院建筑遗址整体呈方形，以土坯砌筑，佛塔立于方形院内，坐北朝南，基本保留了初建时期的状况。
+展望后市，行情能否持续，需要观察两个层面的验证：一是政策具体细则能否稳步推进，从而真正引导行业走出低价竞争；二是即将到来的5-6月传统旺季，国内装机需求能否如期启动，有效消化高库存。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 20:24 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 20:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 20:25 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 20:26 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 20:27 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 20:47 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 20:53 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 20:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 20:48 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 20:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 20:53 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 20:35 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 20:41 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 20:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 20:43 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 20:44 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 20:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 20:34 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 20:54 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 20:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 20:35 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 20:38 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/053672912.shtml)
-- 2026-06-29 20:25 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/5333291.shtml)
-- 2026-06-29 20:25 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/9011708.shtml)
-- 2026-06-29 20:25 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/84283695.shtml)
-- 2026-06-29 20:30 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/74644.shtml)
-- 2026-06-29 20:40 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/21709.shtml)
-- 2026-06-29 20:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/52789.shtml)
-- 2026-06-29 20:39 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/881286.shtml)
-- 2026-06-29 20:47 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/3868704119.shtml)
-- 2026-06-29 20:50 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/960008977068.shtml)
-- 2026-06-29 20:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/9427722.shtml)
-- 2026-06-29 20:37 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/45125068.shtml)
-- 2026-06-29 20:31 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/764461308.shtml)
-- 2026-06-29 20:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/37708038.shtml)
-- 2026-06-29 20:54 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/93672404472.shtml)
+- 2026-06-29 20:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/502328.shtml)
+- 2026-06-29 20:54 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/202269924.shtml)
+- 2026-06-29 20:50 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/211863.shtml)
+- 2026-06-29 20:42 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/77200957.shtml)
+- 2026-06-29 20:51 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/5400121612.shtml)
+- 2026-06-29 20:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/46547386.shtml)
+- 2026-06-29 20:58 - [东方风云榜](http://www.blog.minike.top/Article/details/0328697.shtml)
+- 2026-06-29 20:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/1333656983.shtml)
+- 2026-06-29 20:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/13611271787.shtml)
+- 2026-06-29 20:49 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/845233524.shtml)
+- 2026-06-29 20:47 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/0170400.shtml)
+- 2026-06-29 20:40 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/676061997.shtml)
+- 2026-06-29 20:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/075123.shtml)
+- 2026-06-29 20:57 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/982145.shtml)
+- 2026-06-29 20:48 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/51444879139.shtml)

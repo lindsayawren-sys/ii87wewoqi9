@@ -1,57 +1,58 @@
-# 国台办回应刘世芳外甥被台企解职：依法惩“独”利剑高悬
+# Vatee万腾:油气贸易盈利解析
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 12:55 来源：中国新闻网 5月13日，国务院台办举行例行新闻发布会。有记者问，对于“台独”顽固分子刘世芳外甥颜文群被所在台企解职，刘世芳称，“台湾民众前往大陆务必慎思，否则人身安全、财产安全都会受到威胁”；台陆委会称“将研议反制做法”，海基会也提醒台湾民众“赴大陆投资有风险”。请问对此有何评论？ 发言人张晗在答问时表示，刘世芳搞“台独”是分
+4月20日，近期，大型石油公司尽管上游产量增幅有限，但交易部门表现异常强劲，推动整体业绩稳步增长。Vatee万腾表示，在供应紧张和国际油气市场波动加剧的背景下，壳牌、BP、道达尔能源和Equinor等企业通过灵活的交易策略获得可观利润。壳牌预计其石油和天然气交易收益将显著增长，这主要源于中东地区生产中断和出口不稳定带来的市场波动。 在具体数据上，BP预计2026年第一季度的交易
 
 ## 正文
 
-发布时间：2026年05月13日 12:55 来源：中国新闻网 5月13日，国务院台办举行例行新闻发布会。
+4月20日，近期，大型石油公司尽管上游产量增幅有限，但交易部门表现异常强劲，推动整体业绩稳步增长。
 
-有记者问，对于“台独”顽固分子刘世芳外甥颜文群被所在台企解职，刘世芳称，“台湾民众前往大陆务必慎思，否则人身安全、财产安全都会受到威胁”；台陆委会称“将研议反制做法”，海基会也提醒台湾民众“赴大陆投资有风险”。
+Vatee万腾表示，在供应紧张和国际油气市场波动加剧的背景下，壳牌、BP、道达尔能源和Equinor等企业通过灵活的交易策略获得可观利润。
 
-请问对此有何评论？
+壳牌预计其石油和天然气交易收益将显著增长，这主要源于中东地区生产中断和出口不稳定带来的市场波动。
 
-发言人张晗在答问时表示，刘世芳搞“台独”是分裂国家、煽动分裂国家的犯罪行为。
+在具体数据上，BP预计2026年第一季度的交易业绩将“异常出色”，布伦特原油现货价格一度攀升至每桶150美元。
 
-颜文群长期从大陆获取利益，却为刘提供政治献金，两人依法遭到惩治、罪有应得。
+Vatee万腾认为，这反映出高波动市场中，现货与期货套利机会被放大，交易部门能够在价格波动中获取超额收益。
 
-刘世芳不思悔过，却编造谎言，企图拉台湾民众垫背，制造“寒蝉效应”。
+道达尔能源的第一季度交易利润也因国际油气价格上涨和液化天然气业务增长而显著提升，而Equinor则得益于欧洲地域性价差以及波斯湾冲突引发的价格波动，其贸易部门营业收入预计超过4亿美元。
 
-近年来，台湾同胞不惧民进党当局的阻挠恐吓，来大陆持续热络，其中台湾青年占比不断提高，表明刘世芳之流恐吓台湾民众的图谋没有得逞，也不会得逞。
+尽管油气交易利润表现亮眼，但上游产量停滞仍是不可忽视的现实。
 
-她说，我们的态度是一贯的，依法惩“独”，利剑高悬，针对的是极少数“台独”顽固分子，不涉及广大台胞台企。
+壳牌第一季度产量预计为每日88万至92万桶油当量，低于2025年第四季度的94.8万桶。
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 20:33 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 20:44 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 20:45 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 20:28 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 20:53 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 20:30 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 20:47 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 20:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 20:48 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 20:32 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 20:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 20:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 20:44 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 20:42 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:56 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 20:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 20:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:59 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 20:34 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 20:44 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 20:35 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:40 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/114395.shtml)
-- 2026-06-29 20:48 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/402768493.shtml)
-- 2026-06-29 20:33 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/58212.shtml)
-- 2026-06-29 20:34 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/09446350337.shtml)
-- 2026-06-29 20:49 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.kurohicncr.top/Article/details/1315153.shtml)
-- 2026-06-29 20:30 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/426299335038.shtml)
-- 2026-06-29 20:39 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/8512571.shtml)
-- 2026-06-29 20:50 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/51623162.shtml)
-- 2026-06-29 20:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/944894.shtml)
-- 2026-06-29 20:52 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/26438878100.shtml)
-- 2026-06-29 20:30 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/91583.shtml)
-- 2026-06-29 20:28 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/43264.shtml)
-- 2026-06-29 20:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/9527199991.shtml)
-- 2026-06-29 20:26 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/6894994045.shtml)
-- 2026-06-29 20:42 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/00666.shtml)
+- 2026-06-29 20:44 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/40121.shtml)
+- 2026-06-29 20:44 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/2957844087.shtml)
+- 2026-06-29 20:46 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/020958921757.shtml)
+- 2026-06-29 20:50 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/910547.shtml)
+- 2026-06-29 20:36 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/1012169840.shtml)
+- 2026-06-29 20:42 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/26184231061.shtml)
+- 2026-06-29 20:37 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/870305953948.shtml)
+- 2026-06-29 20:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/023857.shtml)
+- 2026-06-29 20:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/0386442930.shtml)
+- 2026-06-29 20:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/36270276.shtml)
+- 2026-06-29 20:33 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/970683601051.shtml)
+- 2026-06-29 20:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/59966112209.shtml)
+- 2026-06-29 20:44 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/247695058.shtml)
+- 2026-06-29 20:44 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/9039174959.shtml)
+- 2026-06-29 20:56 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/37286625.shtml)

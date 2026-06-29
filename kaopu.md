@@ -1,61 +1,60 @@
-# 希音诉特姆版权侵权案在伦敦开审，跨境电商巨头法律博弈升级
+# 重庆沙坪坝半马开跑，跑者：“回到梦想开始的地方”
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中国跨境电商平台希音（Shein）起诉特姆（Temu）侵犯版权案在伦敦高等法院正式开审。作为全球快时尚领域的两大有力竞争者，双方此次就版权保护、市场竞争秩序及平台治理规则展开了激烈的法律交锋。 在当日的庭审中，希音方面指控称，特姆存在“工业规模”的版权侵权行为，指其在网站上非法使用数千张希音拥有版权的服装照片，用于推广和销售仿制品，意图借此获取不公平的竞争优势。希音代理律师贝内
+发布时间：2026年04月20日 07:27 来源：中国新闻网 4月19日，2026西南证券重庆沙坪坝半程马拉松暨第二届校友半程马拉松在沙磁文化广场鸣枪开跑。8000名跑者踏着春光、迎着江风，在嘉陵江畔用奔跑赴一场青春之约、母校之约、城市之约。 本届赛事设置“周六欢乐跑、周日半程赛”双日赛制，两天共吸引近1.3万名跑者参与。赛道沿嘉陵江舒展延伸，串联磁器口古镇、高校园区、滨江风
 
 ## 正文
 
-中国跨境电商平台希音（Shein）起诉特姆（Temu）侵犯版权案在伦敦高等法院正式开审。
+发布时间：2026年04月20日 07:27 来源：中国新闻网 4月19日，2026西南证券重庆沙坪坝半程马拉松暨第二届校友半程马拉松在沙磁文化广场鸣枪开跑。
 
-作为全球快时尚领域的两大有力竞争者，双方此次就版权保护、市场竞争秩序及平台治理规则展开了激烈的法律交锋。
+8000名跑者踏着春光、迎着江风，在嘉陵江畔用奔跑赴一场青春之约、母校之约、城市之约。
 
-在当日的庭审中，希音方面指控称，特姆存在“工业规模”的版权侵权行为，指其在网站上非法使用数千张希音拥有版权的服装照片，用于推广和销售仿制品，意图借此获取不公平的竞争优势。
+本届赛事设置“周六欢乐跑、周日半程赛”双日赛制，两天共吸引近1.3万名跑者参与。
 
-希音代理律师贝内特·布兰德雷斯（Benet Brandreth）指出，此举旨在对现有市场参与者实现“不正当超越”。
+赛道沿嘉陵江舒展延伸，串联磁器口古镇、高校园区、滨江风光，一步一景尽显山城韵味。
 
-针对上述指控，特姆方面予以坚决否认，并向法院提起反诉。
+这场赛事不仅是一场速度与耐力的比拼，更成为跨越山海的“校友重逢周末”，让五湖四海的学子重归校园、重聚同窗，在奔跑中重拾青春记忆。
 
-特姆指责希音利用法律诉讼手段恶意打压竞争对手，并涉嫌违反竞争法，通过与快时尚供应商签署排他性协议（即“二选一”）来限制市场竞争。
+赛道上，25个校园加油站成为最动人的风景，校歌、呐喊与掌声一路相伴。
 
-据悉，涉及竞争法的部分案件预计将于2027年另行开审。
+69所大中小学校友组团参赛，专属校名号码布成为青春最好的纪念。
 
-庭审最新进展显示，特姆已撤回针对约2300张由希音员工拍摄照片的版权辩护。
+男子冠军吴志锦冲线后告诉记者，途中，他看到母校的老师和学弟学妹在路边为大家加油，那一刻特别温暖，浑身都充满力量。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 20:44 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 20:52 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 20:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 20:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 20:36 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 20:44 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 20:47 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 20:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 20:25 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 20:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 20:40 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 20:29 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 20:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 20:42 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 20:39 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 20:52 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 20:41 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 20:47 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 20:54 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 20:37 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 20:55 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 20:31 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 20:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 20:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 20:36 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 20:37 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 20:43 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 20:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/18896.shtml)
-- 2026-06-29 20:30 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/80876.shtml)
-- 2026-06-29 20:36 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/09272749006.shtml)
-- 2026-06-29 20:27 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/203897649518.shtml)
-- 2026-06-29 20:43 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/3014339.shtml)
-- 2026-06-29 20:26 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/3929942.shtml)
-- 2026-06-29 20:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/6984568997.shtml)
-- 2026-06-29 20:26 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/1134011630.shtml)
-- 2026-06-29 20:26 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/70752.shtml)
-- 2026-06-29 20:40 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/65008.shtml)
-- 2026-06-29 20:48 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/36974173.shtml)
-- 2026-06-29 20:53 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/583864124588.shtml)
-- 2026-06-29 20:28 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/5462971.shtml)
-- 2026-06-29 20:26 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/673527646.shtml)
-- 2026-06-29 20:47 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/7084707.shtml)
+- 2026-06-29 20:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/074483929.shtml)
+- 2026-06-29 20:54 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/5595049658.shtml)
+- 2026-06-29 20:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/5505002851.shtml)
+- 2026-06-29 20:41 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/32970.shtml)
+- 2026-06-29 20:55 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/4133611491.shtml)
+- 2026-06-29 20:59 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/25253.shtml)
+- 2026-06-29 20:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/46818158.shtml)
+- 2026-06-29 20:44 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/58955581.shtml)
+- 2026-06-29 20:44 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/8331714266.shtml)
+- 2026-06-29 20:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/2467225122.shtml)
+- 2026-06-29 20:53 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/13993.shtml)
+- 2026-06-29 20:47 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/45419319584.shtml)
+- 2026-06-29 20:42 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/21894812529.shtml)
+- 2026-06-29 20:45 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/268652464.shtml)
+- 2026-06-29 20:36 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/538638.shtml)

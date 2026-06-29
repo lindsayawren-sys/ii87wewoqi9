@@ -1,61 +1,56 @@
-# 门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号
+# WCBA总决赛：山西主场53:75不敌四川 四川大比分2:1夺得赛点
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月13日电(记者 左雨晴) 5月10日，有网友称贵州省贵阳市一沪上阿姨的官方企业微信给顾客发骚扰信息，称：“5000陪我一晚上有时间吗？” 5月12日，沪上阿姨向中新网记者回应称：针对此事件，我司已于5月11日向贵阳市属地派出所正式报警，并提交当日后台异地登录的IP数据与门店监控视频。现警方已出具《行政案件立案告知书》，将对该账号疑似被异地盗用展开调查。事发后，门店
+中新社太原4月19日电 (记者 杨静 胡健)2025-2026赛季中国女子篮球联赛(WCBA)总决赛第三回合19日晚在太原举行，山西竹叶青酒女篮主场以53:75负于四川蜀道远达女篮，大比分1:2落后。四川队手握赛点，距离总冠军仅一步之遥。 此役是双方总决赛五场三胜制系列赛的关键“天王山之战”。此前两场，山西女篮首场以61:95大比分落败，第二场凭借张茹的准绝杀以72:70险胜，
 
 ## 正文
 
-中新网北京5月13日电(记者 左雨晴) 5月10日，有网友称贵州省贵阳市一沪上阿姨的官方企业微信给顾客发骚扰信息，称：“5000陪我一晚上有时间吗？
+中新社太原4月19日电 (记者 杨静 胡健)2025-2026赛季中国女子篮球联赛(WCBA)总决赛第三回合19日晚在太原举行，山西竹叶青酒女篮主场以53:75负于四川蜀道远达女篮，大比分1:2落后。
 
-” 5月12日，沪上阿姨向中新网记者回应称：针对此事件，我司已于5月11日向贵阳市属地派出所正式报警，并提交当日后台异地登录的IP数据与门店监控视频。
+四川队手握赛点，距离总冠军仅一步之遥。
 
-现警方已出具《行政案件立案告知书》，将对该账号疑似被异地盗用展开调查。
+此役是双方总决赛五场三胜制系列赛的关键“天王山之战”。
 
-事发后，门店也已第一时间联系当事人澄清事实并致歉，目前已取得当事人的理解与谅解。
+此前两场，山西女篮首场以61:95大比分落败，第二场凭借张茹的准绝杀以72:70险胜，将大比分扳成1:1平。
 
-沪上阿姨表示，沪上阿姨一贯坚持尊重女性，对此次疑似外部盗号引发的骚扰事件深表遗憾。
+首节比赛，山西队以12:11微弱领先，双方进攻效率均不高。
 
-“我们将全力配合警方调查，并已启动全平台账号安全升级，杜绝此类事件再次发生。
+次节四川队逐渐找到状态，单节打出19:14，半场结束时，四川队以30:26反超比分。
 
-如有进一步进展，我们将及时同步。
+易边再战，山西队张茹连得5分一度反超比分，但四川队随即打出10:2攻击波重新确立优势。
 
-”(完)
+山西队在第三节末段进攻突然断电，四川队趁势打出一波15:0的冲击波，单节以25:10净胜15分，三节战罢四川队以55:36领先19分。
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 20:36 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 20:42 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 20:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 20:39 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 20:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 20:28 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 20:40 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 20:25 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 20:46 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 20:27 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 20:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 20:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 20:44 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 20:52 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 20:49 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 20:31 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 20:49 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 20:44 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 20:52 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 20:39 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 20:38 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 20:52 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 20:36 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 20:38 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/106373437207.shtml)
-- 2026-06-29 20:29 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/01616157514.shtml)
-- 2026-06-29 20:33 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/8585654.shtml)
-- 2026-06-29 20:50 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/99869.shtml)
-- 2026-06-29 20:35 - [逃狱兄弟](https://www.share.minike.top/Article/details/322524911986.shtml)
-- 2026-06-29 20:40 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/32956691530.shtml)
-- 2026-06-29 20:32 - [美人鱼](https://www.share.kurohicncr.top/Article/details/7373869.shtml)
-- 2026-06-29 20:31 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/45973722516.shtml)
-- 2026-06-29 20:44 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/608321794.shtml)
-- 2026-06-29 20:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/38678096.shtml)
-- 2026-06-29 20:48 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/148013.shtml)
-- 2026-06-29 20:33 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/925003237.shtml)
-- 2026-06-29 20:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/1549556442.shtml)
-- 2026-06-29 20:30 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/36213266.shtml)
-- 2026-06-29 20:53 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/166662467594.shtml)
+- 2026-06-29 20:44 - [恋与深空致歉](https://www.share.minike.top/Article/details/74815.shtml)
+- 2026-06-29 20:37 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/254344345.shtml)
+- 2026-06-29 20:40 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/08224086367.shtml)
+- 2026-06-29 20:49 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/128104106284.shtml)
+- 2026-06-29 20:41 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/37426.shtml)
+- 2026-06-29 20:30 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/843532367104.shtml)
+- 2026-06-29 20:46 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/60904560156.shtml)
+- 2026-06-29 20:58 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/15362885.shtml)
+- 2026-06-29 20:46 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/666040924.shtml)
+- 2026-06-29 20:53 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/698095816906.shtml)
+- 2026-06-29 20:52 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/191663.shtml)
+- 2026-06-29 20:48 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/77825910661.shtml)
+- 2026-06-29 20:56 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/18747795.shtml)
+- 2026-06-29 20:57 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/008126.shtml)
+- 2026-06-29 20:30 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/56731111.shtml)

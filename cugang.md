@@ -1,57 +1,59 @@
-# 中东冲突拖累Birkenstock二季度业绩不及预期 盘前跌逾5%
+# 宁夏举办联合国中文日主题活动 剪纸艺术架起中外文化交流桥梁
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-周三盘前，德国鞋履制造商Birkenstock股价下跌逾6.5%，此前该公司公布的2026财年第二季度财报显示，营收和利润双双不及市场预期。公司表示，中东地区冲突对欧洲、中东和非洲区域的增长造成了拖累。 营收略逊预期，盈利明显下滑 数据显示，截至3月31日的第二财季，Birkenstock营收为6.183亿欧元，按固定汇率计算同比增长14%，但略低于分析师预期的6.2007亿欧
+中新网银川4月17日电 (记者 李佩珊)在第17个联合国中文日到来之际，一场以“纸上中国·中文同心”为主题的剪纸艺术体验与跨文化交流活动日前在宁夏师范大学举行。活动以传统非遗技艺为纽带，让中外青年在动手实践中感受中文魅力与中华优秀传统文化风采。 本次活动紧扣联合国中文日“谷雨祭仓颉”的文化内涵，将语言学习、非遗体验与跨文化交流融为一体，打造“共剪、共创、共说”的沉浸式互动场景。
 
 ## 正文
 
-周三盘前，德国鞋履制造商Birkenstock股价下跌逾6.5%，此前该公司公布的2026财年第二季度财报显示，营收和利润双双不及市场预期。
+中新网银川4月17日电 (记者 李佩珊)在第17个联合国中文日到来之际，一场以“纸上中国·中文同心”为主题的剪纸艺术体验与跨文化交流活动日前在宁夏师范大学举行。
 
-公司表示，中东地区冲突对欧洲、中东和非洲区域的增长造成了拖累。
+活动以传统非遗技艺为纽带，让中外青年在动手实践中感受中文魅力与中华优秀传统文化风采。
 
-营收略逊预期，盈利明显下滑 数据显示，截至3月31日的第二财季，Birkenstock营收为6.183亿欧元，按固定汇率计算同比增长14%，但略低于分析师预期的6.2007亿欧元。
+本次活动紧扣联合国中文日“谷雨祭仓颉”的文化内涵，将语言学习、非遗体验与跨文化交流融为一体，打造“共剪、共创、共说”的沉浸式互动场景。
 
-经调整后每股收益为0.50欧元，同比下降9%，同样不及市场预期的0.59欧元。
+活动现场，国家级非物质文化遗产剪纸项目代表性传承人伏兆娥为中外学生现场授课，细致讲解剪纸艺术的历史渊源、文化寓意与创作技法，从折叠、勾画到运剪逐一示范指导。
 
-中东冲突造成约600万欧元损失 公司披露，中东地区冲突对EMEA区域造成了约600万欧元的负面影响。
+中外学生结对协作，把汉字元素与吉祥纹样融入剪纸创作，在红纸翻飞、指尖流转间，体会“一字一世界、一纸一乾坤”的文化意境。
 
-其中约半数源于公司无法完成对该区域的交付，其余则反映为欧洲消费者情绪因能源价格高企和通胀上升而趋于谨慎。
+完成作品后，中外学生纷纷展示交流，分享学习中文与体验非遗的感受。
 
-关税和汇率拖累利润率 利润端承压还受到外部因素影响。
+来自摩洛哥的留学生木心表示，中文与剪纸艺术都是中华优秀传统文化的瑰宝，二者结合让大家更直观感受到中华文化的深厚底蕴，也更加坚定了学好中文、当好文化交流使者的愿望。
 
-当季毛利率从去年同期的57.7%降至53.9%，主要受不利汇率因素和加征关税拖累。
+本次活动由智慧宫国际文化传播集团有限公司联合宁夏师范大学、宁夏艺盟文化艺术传播公司共同举办。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 20:35 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 20:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 20:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 20:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 20:50 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 20:26 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 20:37 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 20:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 20:52 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 20:45 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 20:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 20:34 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 20:51 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 20:38 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 20:32 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 20:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 20:53 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 20:54 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 20:50 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 20:54 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 20:46 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 20:53 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 20:34 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/501304678193.shtml)
-- 2026-06-29 20:33 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/9475330.shtml)
-- 2026-06-29 20:24 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/02442.shtml)
-- 2026-06-29 20:36 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/542123.shtml)
-- 2026-06-29 20:39 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/11743911236.shtml)
-- 2026-06-29 20:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/973895695860.shtml)
-- 2026-06-29 20:27 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/64645052341.shtml)
-- 2026-06-29 20:39 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/6142345.shtml)
-- 2026-06-29 20:24 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/850231.shtml)
-- 2026-06-29 20:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/23897595.shtml)
-- 2026-06-29 20:26 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/30594253910.shtml)
-- 2026-06-29 20:27 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/0187838244.shtml)
-- 2026-06-29 20:53 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/508104.shtml)
-- 2026-06-29 20:25 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/45217877327.shtml)
-- 2026-06-29 20:37 - [送你一朵小红花](https://www.share.minike.top/Article/details/4106388.shtml)
+- 2026-06-29 20:48 - [锐评T1零封KC](http://www.share.minike.top/Article/details/888959287.shtml)
+- 2026-06-29 20:50 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/967797616061.shtml)
+- 2026-06-29 20:47 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/6667694.shtml)
+- 2026-06-29 20:37 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/1260616660.shtml)
+- 2026-06-29 20:48 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/9341645.shtml)
+- 2026-06-29 20:30 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/270031501268.shtml)
+- 2026-06-29 20:44 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/579535501771.shtml)
+- 2026-06-29 20:46 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/95402.shtml)
+- 2026-06-29 20:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/037168381347.shtml)
+- 2026-06-29 20:40 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/5552852.shtml)
+- 2026-06-29 20:55 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/6153597.shtml)
+- 2026-06-29 20:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/2549335.shtml)
+- 2026-06-29 20:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/74867283716.shtml)
+- 2026-06-29 20:50 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/5801438424.shtml)
+- 2026-06-29 20:48 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/33318852005.shtml)

@@ -1,57 +1,61 @@
-# 亚洲大学生篮球联赛2026冠军赛参赛阵容公布
+# 中国LPR连续11个月不变
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网5月13日电 亚洲大学生篮球联赛(AUBL联赛)13日公布了AUBL2026冠军赛12支参赛球队的名单。据记者了解，本届赛事将于8月2日至9日在杭州滨江体育馆举行，12支高校球队包括6支参加过上届赛事的劲旅，以及6支首次亮相AUBL的新军，来自菲律宾与澳大利亚的高校球队将首次参赛。 本次赛事完整参赛阵容为：北京大学、清华大学、上海交通大学、香港中文大学、政治大学、高丽大学
+中新社北京4月20日电 (记者 庞无忌)中国贷款市场报价利率(LPR)连续11个月不变。 20日，中国人民银行授权全国银行间同业拆借中心公布最新一期LPR：1年期LPR为3.0%，5年期以上LPR为3.5%。两个期限品种的LPR已连续11个月保持不变。 东方金诚首席宏观分析师王青表示，年初以来LPR一直“按兵不动”，主要受到年初出口大幅超预期、一季度投资增速止跌回升、消费有所改
 
 ## 正文
 
-中新网5月13日电 亚洲大学生篮球联赛(AUBL联赛)13日公布了AUBL2026冠军赛12支参赛球队的名单。
+中新社北京4月20日电 (记者 庞无忌)中国贷款市场报价利率(LPR)连续11个月不变。
 
-据记者了解，本届赛事将于8月2日至9日在杭州滨江体育馆举行，12支高校球队包括6支参加过上届赛事的劲旅，以及6支首次亮相AUBL的新军，来自菲律宾与澳大利亚的高校球队将首次参赛。
+20日，中国人民银行授权全国银行间同业拆借中心公布最新一期LPR：1年期LPR为3.0%，5年期以上LPR为3.5%。
 
-本次赛事完整参赛阵容为：北京大学、清华大学、上海交通大学、香港中文大学、政治大学、高丽大学、延世大学、白鸥大学、早稻田大学、蒙古国立大学、菲律宾大学、悉尼大学。
+两个期限品种的LPR已连续11个月保持不变。
 
-其中，政治大学是2025年首个AUBL冠军得主。
+东方金诚首席宏观分析师王青表示，年初以来LPR一直“按兵不动”，主要受到年初出口大幅超预期、一季度投资增速止跌回升、消费有所改善，以及包括高技术制造业在内的新质生产力领域较快发展等推动，2026年开年中国宏观经济起步有力，一季度国内生产总值(GDP)同比增长5%，处于今年“4.5%-5%”增速目标的上沿，因此，货币政策处于观察期，政策利率和LPR报价保持稳定。
 
-“2026夏季赛事为联赛树立了新的标杆，赛事不仅汇聚了亚洲最具声望的高校球队，也迎来了来自菲律宾与澳大利亚的队伍首次参赛。
+王青指出，3月以来，中东地区地缘政治冲突对中国物价形成一定推升，对经济增长动能的扰动尚待进一步观察。
 
-无论是成熟强队还是崛起中的新势力，都将推动比赛水平迈向新的高度。
+综合各类因素，二季度宏观经济运行将以稳为主。
 
-”AUBL篮球运营高级副总裁Greg Stolt介绍道。
+考虑到国际油价大幅上冲、二季度出口还将保持正增长，短期内宏观政策将继续处于观察期，降息降准落地可能性不大。
 
-在亚洲大学生体育联合会(AUSF)秘书长司徒振辉看来，AUBL联赛为亚洲各国家和地区之间的体育与文化交流提供了重要契机，“我们期待各支球队在赛事中相互交流、同场竞技，并进一步深化彼此联系。
+不过，该机构认为，受输入性通胀、综合整治“内卷式”竞争等影响，今年物价水平会温和回升，但居民消费价格指数(CPI)涨幅预计仍较低，货币政策在包括降息在内的适度宽松方向上有充足空间。
 
 ## 相关推荐
 
-- 2026-06-29 20:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 20:47 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 20:28 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 20:42 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 20:34 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 20:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 20:35 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 20:50 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 20:47 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 20:48 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 20:39 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 20:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 20:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 20:53 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 20:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 20:39 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 20:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 20:59 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 20:51 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 20:33 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 20:55 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 20:30 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 20:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 20:59 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 20:54 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 20:41 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/30240847.shtml)
-- 2026-06-29 20:28 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/7762221.shtml)
-- 2026-06-29 20:43 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/6331824467.shtml)
-- 2026-06-29 20:52 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/007379732144.shtml)
-- 2026-06-29 20:26 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/7636298007.shtml)
-- 2026-06-29 20:50 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.kurohicncr.top/Article/details/428140009539.shtml)
-- 2026-06-29 20:39 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/160893681.shtml)
-- 2026-06-29 20:49 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/0040788535.shtml)
-- 2026-06-29 20:32 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/570028.shtml)
-- 2026-06-29 20:26 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/87565.shtml)
-- 2026-06-29 20:46 - [勇敢的心第二部](https://www.share.minike.top/Article/details/96024304.shtml)
-- 2026-06-29 20:45 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/07098268181.shtml)
-- 2026-06-29 20:46 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/339508383188.shtml)
-- 2026-06-29 20:44 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/9942385.shtml)
-- 2026-06-29 20:42 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/7287691257.shtml)
+- 2026-06-29 20:35 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/452006229.shtml)
+- 2026-06-29 20:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/76866625.shtml)
+- 2026-06-29 20:59 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/84318072805.shtml)
+- 2026-06-29 20:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/082592997.shtml)
+- 2026-06-29 20:32 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/4010378.shtml)
+- 2026-06-29 20:40 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/30815993.shtml)
+- 2026-06-29 20:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/76679288485.shtml)
+- 2026-06-29 20:55 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/691870601008.shtml)
+- 2026-06-29 20:55 - [新官上任三把火](https://www.blog.minike.top/Article/details/91065.shtml)
+- 2026-06-29 20:31 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/14327087630.shtml)
+- 2026-06-29 20:54 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/80306.shtml)
+- 2026-06-29 20:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/09119327384.shtml)
+- 2026-06-29 20:32 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/257804869.shtml)
+- 2026-06-29 20:45 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/52642636.shtml)
+- 2026-06-29 20:46 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/353508.shtml)

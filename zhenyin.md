@@ -1,44 +1,56 @@
-# 中核集团中核国电漳州能源有限公司原党委书记何辉接受审查调查
+# 五一假期火车票开售以来，铁路12306拒绝出票105.6万张
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据中央纪委国家监委驻中核集团纪检监察组、福建省纪委监委消息：中核集团中核国电漳州能源有限公司原党委书记、董事长何辉涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中核集团纪检监察组纪律审查和福建省监委监察调查。
+人民日报客户端 李心萍 记者从中国铁路12306技术中心了解到，铁路12306持续识别遏制恶意抢票行为，努力营造公平公正的购票环境，五一假期火车票开售以来，铁路12306采用大数据分析和风控技术，精准识别频繁大量为非本人购票的铁路12306注册账号和频繁大量为非本人订单支付的支付账户的异常行为，继续采用相关技术限制措施，将有异常行为的铁路12306注册账号放入慢速队列，对有异常
 
 ## 正文
 
-中新网5月12日电 据中央纪委国家监委驻中核集团纪检监察组、福建省纪委监委消息：中核集团中核国电漳州能源有限公司原党委书记、董事长何辉涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中核集团纪检监察组纪律审查和福建省监委监察调查。
+人民日报客户端 李心萍 记者从中国铁路12306技术中心了解到，铁路12306持续识别遏制恶意抢票行为，努力营造公平公正的购票环境，五一假期火车票开售以来，铁路12306采用大数据分析和风控技术，精准识别频繁大量为非本人购票的铁路12306注册账号和频繁大量为非本人订单支付的支付账户的异常行为，继续采用相关技术限制措施，将有异常行为的铁路12306注册账号放入慢速队列，对有异常行为的支付账户拒绝出票。
+
+这些铁路12306注册账号购票时会显示等待、支付账户支付时会显示购票失败。
+
+4月16日0时至18日24时3天时间内，铁路12306已累计将564万笔交易放入慢速队列，对70.4万笔交易拒绝出票，共拒绝出票105.6万张票，有力遏制了恶意抢票行为。
+
+铁路部门建议，请务必使用12306官方平台购票。
+
+通过“抢票软件”购票不仅不会增加成功率，反而会更慢或购票失败。
+
+12306将持续关注“抢票软件”新的恶意抢票形态，有针对性地采取防控措施，同时持续完善12306服务功能，提升购票体验，努力为广大旅客营造公平公正的购票环境。
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 20:43 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 20:37 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 20:41 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 20:30 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 20:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 20:27 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 20:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 20:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:27 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 20:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 20:43 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 20:56 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 20:30 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 20:58 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 20:32 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 20:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 20:45 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 20:53 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 20:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 20:46 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 20:31 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 20:51 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 20:52 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 20:44 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 20:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/925656.shtml)
-- 2026-06-29 20:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/397451772.shtml)
-- 2026-06-29 20:36 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/5433412.shtml)
-- 2026-06-29 20:28 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/74023329292.shtml)
-- 2026-06-29 20:37 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/797509.shtml)
-- 2026-06-29 20:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/41102254.shtml)
-- 2026-06-29 20:30 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/077938077.shtml)
-- 2026-06-29 20:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/6459678493.shtml)
-- 2026-06-29 20:41 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/217568.shtml)
-- 2026-06-29 20:30 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/113470677.shtml)
-- 2026-06-29 20:41 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/903691.shtml)
-- 2026-06-29 20:35 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/5842478526.shtml)
-- 2026-06-29 20:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/06832406387.shtml)
-- 2026-06-29 20:39 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/70298898.shtml)
-- 2026-06-29 20:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/090493294645.shtml)
+- 2026-06-29 20:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/70172169.shtml)
+- 2026-06-29 20:39 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/306225289.shtml)
+- 2026-06-29 20:30 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/323587.shtml)
+- 2026-06-29 20:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/042954746609.shtml)
+- 2026-06-29 20:55 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/29747696.shtml)
+- 2026-06-29 20:37 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/93881502.shtml)
+- 2026-06-29 20:58 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/86623.shtml)
+- 2026-06-29 20:41 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/842196090.shtml)
+- 2026-06-29 20:56 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/7713269756.shtml)
+- 2026-06-29 20:54 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/0732282844.shtml)
+- 2026-06-29 20:53 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/37643438121.shtml)
+- 2026-06-29 20:52 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/054551821.shtml)
+- 2026-06-29 20:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/165314944450.shtml)
+- 2026-06-29 20:47 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/13378606722.shtml)
+- 2026-06-29 20:38 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/07700449.shtml)

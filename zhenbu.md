@@ -1,57 +1,57 @@
-# 欧洲股市收低、英国政局动荡拖累英镑走低
+# 伤膝盖的3种行为很多人天天在做 尤其是第2种
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-由于美伊战争快速化解的前景愈发渺茫，加之英国首相基尔・斯塔默的执政地位岌岌可危，欧洲股市周二全线收跌。 泛欧斯托克 600 指数（Stoxx 600）收盘下跌近 1.1%，多数板块及主要交易所股指均深陷负值区间。 英国政局危机持续发酵：执政工党上周地方议会选举惨败后，已有内阁大臣加入 70 多名工党议员的行列，要求斯塔默辞职或明确离任时间表。 但斯塔默在周二的内阁周会上表态，不
+春天到了 很多人会外出踏青、爬山 突然增加的运动量可能会损伤膝盖 春季护膝要注意哪些事项？哪个动作是膝盖的“头号敌人”？ 一起来看↓ 01 膝盖的“头号敌人” 不是跑步，而是它们 春季到来，气温变化快，膝盖关节处的血管也会随着热胀冷缩，血流速度时快时慢；同时，湿度增大也会影响关节处滑液的性状，使其润滑作用变差，导致膝盖不舒服。而除了天气影响，突然增加的运动量也会损伤膝盖。 这三
 
 ## 正文
 
-由于美伊战争快速化解的前景愈发渺茫，加之英国首相基尔・斯塔默的执政地位岌岌可危，欧洲股市周二全线收跌。
+春天到了 很多人会外出踏青、爬山 突然增加的运动量可能会损伤膝盖 春季护膝要注意哪些事项？
 
-泛欧斯托克 600 指数（Stoxx 600）收盘下跌近 1.1%，多数板块及主要交易所股指均深陷负值区间。
+哪个动作是膝盖的“头号敌人”？
 
-英国政局危机持续发酵：执政工党上周地方议会选举惨败后，已有内阁大臣加入 70 多名工党议员的行列，要求斯塔默辞职或明确离任时间表。
+一起来看↓ 01 膝盖的“头号敌人” 不是跑步，而是它们 春季到来，气温变化快，膝盖关节处的血管也会随着热胀冷缩，血流速度时快时慢；同时，湿度增大也会影响关节处滑液的性状，使其润滑作用变差，导致膝盖不舒服。
 
-但斯塔默在周二的内阁周会上表态，不会辞职，将 “继续履行执政职责”，并提醒同僚，工党党内针对党首的挑战程序尚未启动。
+而除了天气影响，突然增加的运动量也会损伤膝盖。
 
-斯塔默已为选举失利承担责任，并于周一承认党内存在 “质疑声音”，承诺 “直面国家面临的重大挑战”，但其表态未能平息党内不满 —— 多名首相幕僚于周一辞职。
+这三种行为是膝盖的“头号敌人” 爬山、爬楼梯：春暖花开，很多人喜欢外出踏青爬山，但爬山其实是一项“笨运动”，对膝关节压力较大。
 
-英国国债（金边债券，Gilts）收益率周二延续上行，基准 10 年期金边债券收益率上涨约 10 个基点，报 5.10%。
+上山、上楼梯时，膝盖会承受自身体重约3倍的重量，而下山、下楼梯时，膝盖除了体重，还要承受着地的冲击力，更会增加磨损。
 
-与此同时，英镑兑美元下跌 0.7%，兑欧元下跌 0.3%。
+不建议将爬山、爬楼梯作为日常锻炼方式。
 
-此外，市场对美伊达成和平协议的乐观情绪遭遇重创：特朗普总统于周一晚间表示，伊朗对美方停战提议的回应 “不可接受”，当前停火协议已 “命悬一线”。
+不伤膝爬山、爬楼梯动作要点 上山、上楼梯时重心略微向前，下山、下楼梯时重心略微后倾。
 
 ## 相关推荐
 
-- 2026-06-29 20:53 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 20:40 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 20:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 20:28 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 20:49 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 20:29 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 20:30 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 20:25 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 20:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 20:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 20:30 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 20:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 20:32 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 20:58 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 20:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 20:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 20:52 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 20:44 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 20:46 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 20:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 20:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/15016.shtml)
-- 2026-06-29 20:43 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/43157.shtml)
-- 2026-06-29 20:35 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/831376.shtml)
-- 2026-06-29 20:47 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/499037.shtml)
-- 2026-06-29 20:37 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/4839525.shtml)
-- 2026-06-29 20:33 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/666578140929.shtml)
-- 2026-06-29 20:45 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/89808874789.shtml)
-- 2026-06-29 20:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/62932171002.shtml)
-- 2026-06-29 20:26 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/9617393.shtml)
-- 2026-06-29 20:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/98376782.shtml)
-- 2026-06-29 20:33 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/92717.shtml)
-- 2026-06-29 20:27 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/936229299.shtml)
-- 2026-06-29 20:36 - [扬名立万](http://www.share.minike.top/Article/details/417234140.shtml)
-- 2026-06-29 20:29 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/760648491876.shtml)
-- 2026-06-29 20:29 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/27620238685.shtml)
+- 2026-06-29 20:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/09088712.shtml)
+- 2026-06-29 20:56 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/96515642863.shtml)
+- 2026-06-29 20:56 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/726218.shtml)
+- 2026-06-29 20:50 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/23579848.shtml)
+- 2026-06-29 20:40 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/14586.shtml)
+- 2026-06-29 20:55 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/74805454908.shtml)
+- 2026-06-29 20:48 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/61975218.shtml)
+- 2026-06-29 20:48 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/688491227.shtml)
+- 2026-06-29 20:47 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/56714618.shtml)
+- 2026-06-29 20:39 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/16284.shtml)
+- 2026-06-29 20:34 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/409632755010.shtml)
+- 2026-06-29 20:41 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/12174061801.shtml)
+- 2026-06-29 20:52 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/689925880.shtml)
+- 2026-06-29 20:54 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/354066500880.shtml)
+- 2026-06-29 20:35 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/80591.shtml)

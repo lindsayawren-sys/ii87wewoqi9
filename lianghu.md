@@ -1,59 +1,57 @@
-# 克里姆林宫：只要美国不再把经贸合作与乌克兰问题挂钩，俄罗斯就可以同美国开展商业往来
+# A股锂业龙头，预计一季度净利润暴增超15倍！
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-克里姆林宫周三表示，只要美国不再把经贸关系与乌克兰和平协议捆绑在一起，俄罗斯有意与美国开展联合经济项目合作。 克里姆林宫发言人德米特里・佩斯科夫在每日记者简报会上，再次重申了结束冲突的强硬条件。这些条件由俄罗斯总统普京近两年前提出，已遭到乌克兰断然拒绝。 佩斯科夫称，多项联合投资与经济项目，都有望让俄美两国企业从中获益。 他表示：“只要美方愿意把经贸关系正常化前景与乌克兰问题和
+受益于新能源产业发展下游需求增长，天齐锂业一季度业绩预计同比大增。4月20日晚间，天齐锂业（002466）披露2026年一季度业绩预告显示，预计期内公司实现归属净利润17亿元至20亿元，同比增长1530.31%至1818.01%（上年同期盈利为1.04亿元）；预计实现扣非净利润16亿元至19.6亿元，同比增长3501.54%至4311.88%（上年同期为4442.55万元）；预
 
 ## 正文
 
-克里姆林宫周三表示，只要美国不再把经贸关系与乌克兰和平协议捆绑在一起，俄罗斯有意与美国开展联合经济项目合作。
+受益于新能源产业发展下游需求增长，天齐锂业一季度业绩预计同比大增。
 
-克里姆林宫发言人德米特里・佩斯科夫在每日记者简报会上，再次重申了结束冲突的强硬条件。
+4月20日晚间，天齐锂业（002466）披露2026年一季度业绩预告显示，预计期内公司实现归属净利润17亿元至20亿元，同比增长1530.31%至1818.01%（上年同期盈利为1.04亿元）；预计实现扣非净利润16亿元至19.6亿元，同比增长3501.54%至4311.88%（上年同期为4442.55万元）；预计基本每股收益盈利1.01元至1.19元，上年同期为0.06元。
 
-这些条件由俄罗斯总统普京近两年前提出，已遭到乌克兰断然拒绝。
+对于预计今年第一季度营业收入大幅上升的原因，天齐锂业表示，受益于新能源产业发展与下游需求增长等多重利好因素驱动，公司主要锂产品的销售均价较上年同期明显增长。
 
-佩斯科夫称，多项联合投资与经济项目，都有望让俄美两国企业从中获益。
+此外，截至本业绩预告公告日，公司重要的联营公司Sociedad Química y Minera de ChileS.A.（下称“SQM”）尚未公告其2026年第一季度业绩报告。
 
-他表示：“只要美方愿意把经贸关系正常化前景与乌克兰问题和解脱钩，或是乌克兰问题达成和解，我们就有望为一系列经济项目落地扫清道路。
+公司全面考虑所能获取的可靠信息，沿用一贯方式，采用彭博社（Bloomberg）预测的SQM 2026年第一季度每股收益等信息为基础来计算同期公司对SQM的投资收益。
 
-” 普京曾表示，俄美有潜力联合开发北极海量矿产资源，也曾提出在阿拉斯加开展合作项目的可能性。
+根据前述预测数据，SQM 2026年第一季度业绩预计将同比大幅增长，因此公司在本报告期确认的对该联营公司的投资收益较上年同期大幅增长。
 
-但目前，俄罗斯仍处于美国大范围制裁之下，制裁大多与俄乌冲突挂钩。
+天齐锂业是一家以锂为核心的新能源材料企业。
 
-尽管特朗普一直试图促成停火，但至今未有突破性进展。
+公司主营业务涵盖锂产业链的关键阶段，包括硬岩型锂矿资源的开发、锂精矿生产销售以及锂化工产品的生产销售。
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 20:41 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 20:30 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 20:34 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 20:29 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 20:28 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 20:40 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 20:45 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 20:42 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 20:36 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 20:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 20:44 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 20:31 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 20:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 20:39 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 20:54 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 20:48 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 20:32 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 20:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 20:48 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 20:48 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 20:53 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 20:34 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 20:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/520491597.shtml)
-- 2026-06-29 20:49 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/071511683210.shtml)
-- 2026-06-29 20:37 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/992724.shtml)
-- 2026-06-29 20:31 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/782415025466.shtml)
-- 2026-06-29 20:35 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/6068525936.shtml)
-- 2026-06-29 20:27 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/71399525.shtml)
-- 2026-06-29 20:40 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/295642615.shtml)
-- 2026-06-29 20:29 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/585957500.shtml)
-- 2026-06-29 20:39 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/8055861672.shtml)
-- 2026-06-29 20:42 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/25951.shtml)
-- 2026-06-29 20:38 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/38119925125.shtml)
-- 2026-06-29 20:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/22589712.shtml)
-- 2026-06-29 20:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/35755833.shtml)
-- 2026-06-29 20:50 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/961552519121.shtml)
-- 2026-06-29 20:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/49743745353.shtml)
+- 2026-06-29 20:39 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/826120.shtml)
+- 2026-06-29 20:54 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/944584395.shtml)
+- 2026-06-29 20:34 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/747408787.shtml)
+- 2026-06-29 20:52 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/77947.shtml)
+- 2026-06-29 20:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/22820248255.shtml)
+- 2026-06-29 20:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/07631332.shtml)
+- 2026-06-29 20:46 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/755129755089.shtml)
+- 2026-06-29 20:52 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/848900.shtml)
+- 2026-06-29 20:51 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/635415131.shtml)
+- 2026-06-29 20:34 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/727240435259.shtml)
+- 2026-06-29 20:53 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/510682.shtml)
+- 2026-06-29 20:31 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/312251657271.shtml)
+- 2026-06-29 20:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/88893615251.shtml)
+- 2026-06-29 20:38 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/61342.shtml)
+- 2026-06-29 20:34 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/044433921.shtml)

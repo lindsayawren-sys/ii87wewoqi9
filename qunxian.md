@@ -1,59 +1,58 @@
-# 32支顶尖高校机甲战队长沙同台竞技
+# 日本长野县北部发生5.1级地震
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网长沙5月13日电 (杨华峰 李盈)ROBOMASTER2026机甲大师超级对抗赛·南部赛区13日在长沙贺龙体育馆拉开战幕。来自全国的32支顶尖高校机甲战队、千余名青年工程师以自主研发的机器人同台竞技，共同角逐10个晋级全国总决赛、6个进入复活赛的名额。 ROBOMASTER机甲大师超级对抗赛是全球青年工程师一年一度的盛大聚会。赛事深度融合机器视觉、嵌入式系统设计、机械工程
+中新网东京4月18日电 (记者 朱晨曦)据日本气象厅消息，当地时间18日14时54分(北京时间13时54分)，日本长野县北部发生5.1级地震。日本气象厅说该地震不会引发海啸。 据日本气象厅数据，本次地震震中位于北纬36.6度、东经137.9度，震源深度为10公里。 日本气象厅根据体感及周围状况将地震烈度分为0、1、2、3、4、5弱、5强、6弱、6强、7共10个级别。本次地震长野
 
 ## 正文
 
-中新网长沙5月13日电 (杨华峰 李盈)ROBOMASTER2026机甲大师超级对抗赛·南部赛区13日在长沙贺龙体育馆拉开战幕。
+中新网东京4月18日电 (记者 朱晨曦)据日本气象厅消息，当地时间18日14时54分(北京时间13时54分)，日本长野县北部发生5.1级地震。
 
-来自全国的32支顶尖高校机甲战队、千余名青年工程师以自主研发的机器人同台竞技，共同角逐10个晋级全国总决赛、6个进入复活赛的名额。
+日本气象厅说该地震不会引发海啸。
 
-ROBOMASTER机甲大师超级对抗赛是全球青年工程师一年一度的盛大聚会。
+据日本气象厅数据，本次地震震中位于北纬36.6度、东经137.9度，震源深度为10公里。
 
-赛事深度融合机器视觉、嵌入式系统设计、机械工程、自主导航、人机交互等多领域前沿技术，将机器人研发与硬核竞技完美结合，全面考验参赛队伍的技术创新、工程实践、项目管理与团队协作能力。
+日本气象厅根据体感及周围状况将地震烈度分为0、1、2、3、4、5弱、5强、6弱、6强、7共10个级别。
 
-赛事倡导穷究原理，洞悉本质的钻研精神，鼓励青年工程师们跳出表面、深耕内核，在技术的海洋里探索未知、突破边界。
+本次地震长野县观测到的最大地震烈度级别为“5弱”。
 
-历经十余年发展，该赛事已吸引全球400余所高校踊跃参与，累计培养近20万名青年科技人才，成为产学研深度融合的标杆平台。
+日本地处环太平洋地震带上，这也是全球地震最多的地震带。
 
-本次南部赛区赛事，每支战队都历经层层选拔、严苛技术评审，代表着国内机器人研发与竞技的卓越水准，不仅有国防科技大学、中南大学、长沙理工大学、湘潭大学等湖南本土高校战队强势坐镇，也有上海交通大学、华南理工大学、华中科技大学、深圳大学等全国知名院校参与。
-
-各战队自主研发的全新机甲阵容，每一台机器人都凝聚着数月乃至数年的研发心血。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 20:33 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 20:29 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 20:27 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 20:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 20:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 20:50 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 20:28 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 20:24 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 20:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 20:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 20:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 20:39 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 20:58 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 20:51 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 20:41 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 20:47 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 20:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 20:53 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 20:59 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 20:41 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 20:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 20:32 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 20:30 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 20:30 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 20:56 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 20:39 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/7627308315.shtml)
-- 2026-06-29 20:24 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/16338499421.shtml)
-- 2026-06-29 20:51 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/580265586019.shtml)
-- 2026-06-29 20:39 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/901888.shtml)
-- 2026-06-29 20:38 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/6768388.shtml)
-- 2026-06-29 20:45 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/458341751.shtml)
-- 2026-06-29 20:40 - [女生学医适合选什么专业](https://www.blog.minike.top/Article/details/56039.shtml)
-- 2026-06-29 20:28 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/493270093.shtml)
-- 2026-06-29 20:50 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/313911925.shtml)
-- 2026-06-29 20:41 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/16070.shtml)
-- 2026-06-29 20:30 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/614554722271.shtml)
-- 2026-06-29 20:51 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/2183506.shtml)
-- 2026-06-29 20:42 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/69303.shtml)
-- 2026-06-29 20:45 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/2161319.shtml)
-- 2026-06-29 20:50 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/881692.shtml)
+- 2026-06-29 20:37 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/623115.shtml)
+- 2026-06-29 20:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/575055.shtml)
+- 2026-06-29 20:50 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/57509355.shtml)
+- 2026-06-29 20:53 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/63435047854.shtml)
+- 2026-06-29 20:49 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/63065716.shtml)
+- 2026-06-29 20:59 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/7949941.shtml)
+- 2026-06-29 20:46 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/980274.shtml)
+- 2026-06-29 20:45 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/210217007.shtml)
+- 2026-06-29 20:48 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/81406.shtml)
+- 2026-06-29 20:52 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/453217107.shtml)
+- 2026-06-29 20:32 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/66562808856.shtml)
+- 2026-06-29 20:38 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/9891056971.shtml)
+- 2026-06-29 20:58 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/859027725530.shtml)
+- 2026-06-29 20:35 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/81202809.shtml)
+- 2026-06-29 20:37 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/74991536.shtml)

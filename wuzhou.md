@@ -1,60 +1,57 @@
-# 美报告称特朗普“金穹”计划20年或耗资1.2万亿美元,成本与有效性遭质疑
+# 监管机构正对Anthropic的Mythos模型进行监控，防范银行业相关风险
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-美国国会预算办公室（CBO）周二发布的一份测算报告显示，美国总统特朗普提议建设的“金穹”（Gold Dome）国家导弹防御系统在未来20年内可能耗资高达1.2万亿美元。这一数额远超特朗普此前预估的1750亿美元。 报告指出，该估算是基于特朗普2025年1月发布的行政命令蓝图得出的。分析认为，为实现保护美国本土的目标，美军需要在阿拉斯加和夏威夷部署由数千颗卫星组成的四层独立防御资
+监管机构周一表示，他们正在监控人工智能公司Anthropic的前沿大模型Mythos的研发进展。专家称，该模型可能具备破坏银行系统稳定的潜在能力。 专家表示，Mythos拥有强大的高级代码编写能力，使其在识别网络安全漏洞方面具备前所未有的潜在水平，这也引发了全球部分监管机构更严格的审查。 澳大利亚证券和投资委员会（ASIC）一名发言人周一表示：“ASIC正与同行监管机构密切关注
 
 ## 正文
 
-美国国会预算办公室（CBO）周二发布的一份测算报告显示，美国总统特朗普提议建设的“金穹”（Gold Dome）国家导弹防御系统在未来20年内可能耗资高达1.2万亿美元。
+监管机构周一表示，他们正在监控人工智能公司Anthropic的前沿大模型Mythos的研发进展。
 
-这一数额远超特朗普此前预估的1750亿美元。
+专家称，该模型可能具备破坏银行系统稳定的潜在能力。
 
-报告指出，该估算是基于特朗普2025年1月发布的行政命令蓝图得出的。
+专家表示，Mythos拥有强大的高级代码编写能力，使其在识别网络安全漏洞方面具备前所未有的潜在水平，这也引发了全球部分监管机构更严格的审查。
 
-分析认为，为实现保护美国本土的目标，美军需要在阿拉斯加和夏威夷部署由数千颗卫星组成的四层独立防御资产，并建设6个针对洲际弹道导弹的雷达及拦截站点，以及35个防御高超音速导弹和巡航导弹的新型区域站点。
+澳大利亚证券和投资委员会（ASIC）一名发言人周一表示：“ASIC正与同行监管机构密切关注这些进展，评估其对澳大利亚市场可能产生的影响。
 
-核心成本与技术瓶颈引发关注 CBO报告详细分析了该系统的成本结构，指出总统设想的“空间拦截器”——即携带导弹的轨道卫星星座——将占据总成本的约60%。
+” “ASIC与其他监管机构、政府部门以及金融行业保持密切协作，以理解并应对技术变革带来的挑战。
 
-报告假设，为同时对抗多达10枚敌方洲际弹道导弹，美军可能需要部署约7800颗武装卫星。
+” ASIC表示，期望持有金融服务牌照的机构能够“主动作为”，保护其客户与服务对象的安全。
 
-然而，由于这些拦截器需安置在低轨道运行，受大气层阻力影响，卫星在五年内会因失去高度而坠毁，这意味着整套系统面临持续且高昂的更换成本。
+澳大利亚银行业监管机构——澳大利亚审慎监管局（APRA）称，将“持续评估此类技术进步带来的影响，以保障金融体系持续稳健运行并具备抗风险能力”。
 
-此外，报告明确总结称，即便该系统最终建成，拥有庞大核武库的对手仍可能通过饱和攻击压倒其防御力量，无法完全阻断导弹击中目标。
+韩国金融监督院（FSS）周一表示，已于上周一与各金融机构的信息安全官员召开会议，评估与Mythos相关的风险。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 20:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 20:48 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 20:49 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 20:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 20:44 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 20:48 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 20:29 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 20:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 20:47 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 20:49 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 20:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 20:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 20:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 20:34 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 20:54 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 20:55 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 20:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 20:44 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 20:35 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 20:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 20:31 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 20:58 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 20:36 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 20:53 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [主力抛售电子和通信板块](http://www.share.minike.top/Article/details/28443804448.shtml)
-- 2026-06-29 20:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/374280623.shtml)
-- 2026-06-29 20:26 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/3891376584.shtml)
-- 2026-06-29 20:27 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/37355214.shtml)
-- 2026-06-29 20:50 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/1423038292.shtml)
-- 2026-06-29 20:28 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/522653.shtml)
-- 2026-06-29 20:51 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/1615783.shtml)
-- 2026-06-29 20:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/1386709.shtml)
-- 2026-06-29 20:25 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/05586046067.shtml)
-- 2026-06-29 20:46 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/22849195811.shtml)
-- 2026-06-29 20:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/732178692.shtml)
-- 2026-06-29 20:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/364758.shtml)
-- 2026-06-29 20:42 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/645018172010.shtml)
-- 2026-06-29 20:51 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/1543764.shtml)
-- 2026-06-29 20:27 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/4095584430.shtml)
+- 2026-06-29 20:38 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/668470205.shtml)
+- 2026-06-29 20:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/026570288360.shtml)
+- 2026-06-29 20:46 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/456815.shtml)
+- 2026-06-29 20:39 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/56097466.shtml)
+- 2026-06-29 20:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/545476659683.shtml)
+- 2026-06-29 20:49 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/65273499.shtml)
+- 2026-06-29 20:49 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/86675194975.shtml)
+- 2026-06-29 20:42 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/32916274.shtml)
+- 2026-06-29 20:59 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/441349846.shtml)
+- 2026-06-29 20:40 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/11089026.shtml)
+- 2026-06-29 20:41 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/6876299.shtml)
+- 2026-06-29 20:41 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/0805879771.shtml)
+- 2026-06-29 20:41 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/3570302.shtml)
+- 2026-06-29 20:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/177361955.shtml)
+- 2026-06-29 20:40 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/84287076.shtml)

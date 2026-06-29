@@ -1,56 +1,60 @@
-# 美参议院批准沃什出任美联储主席
+# 曾经折戟A股，派格生物推动老股流通：港股上市后销售收入仍为零，2025年亏损2亿元 | 长三角资本局
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新社华盛顿5月13日电 (记者 沙晗汀)美国国会参议院13日投票批准美国联邦储备委员会前理事凯文·沃什出任美联储主席。 在当天的投票中，54票赞成、45票反对，沃什的提名获得通过。投票结果基本按照党派划线，一名民主党议员加入共和党阵营投票赞成。 参议院共和党领袖图恩当天表示，美联储主席“不仅需要了解宏观经济，还需要关心微观经济，关心美国民众的工作和生活”，“沃什就是这样的人”
+文|新浪财经上海站 十里 产品还没卖起来，老股却先准备进场，派格生物要回答什么？ 4月9日，派格生物公告称，公司已收到中国证监会就实施H股全流通发出的备案通知书，涉及约1.02亿股未上市股份转换为H股。对一家港股上市不足一年的创新药公司来说，这个动作很难不引发关注。核心产品刚获批，销售收入还是零，老股流通却已经提上日程。 公开信息显示，派格生物成立于2008年5月，原注册地在苏
 
 ## 正文
 
-中新社华盛顿5月13日电 (记者 沙晗汀)美国国会参议院13日投票批准美国联邦储备委员会前理事凯文·沃什出任美联储主席。
+文|新浪财经上海站 十里 产品还没卖起来，老股却先准备进场，派格生物要回答什么？
 
-在当天的投票中，54票赞成、45票反对，沃什的提名获得通过。
+4月9日，派格生物公告称，公司已收到中国证监会就实施H股全流通发出的备案通知书，涉及约1.02亿股未上市股份转换为H股。
 
-投票结果基本按照党派划线，一名民主党议员加入共和党阵营投票赞成。
+对一家港股上市不足一年的创新药公司来说，这个动作很难不引发关注。
 
-参议院共和党领袖图恩当天表示，美联储主席“不仅需要了解宏观经济，还需要关心微观经济，关心美国民众的工作和生活”，“沃什就是这样的人”。
+核心产品刚获批，销售收入还是零，老股流通却已经提上日程。
 
-沃什出生于1970年，2006年至2011年担任美联储理事，目前是斯坦福大学访问学者。
+公开信息显示，派格生物成立于2008年5月，原注册地在苏州，法定代表人为MICHAEL MIN XU（徐敏，美国国籍）。
 
-美国总统特朗普1月30日提名沃什出任美联储主席。
+2025年2月，公司将注册地址迁至浙江杭州拱墅区，并更名为派格生物医药（杭州）股份有限公司。
 
-沃什4月21日出席参议院提名听证会时表示，美联储的独立性“至关重要”，总统、参议员、众议员对于利率的观点不应对美联储造成影响。
+同年5月27日，公司登陆港交所。
 
-沃什还说，保持物价稳定是美联储的责任，抗击通胀将是他最重要的任务之一。
+一路走到上市，徐敏的持股比例却在持续下降，从2020年9月的35.643%降至2025年12月的14.86%。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 20:26 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 20:40 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 20:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 20:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 20:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 20:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 20:42 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:32 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 20:41 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 20:36 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 20:41 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 20:43 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 20:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 20:31 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 20:31 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 20:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 20:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 20:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 20:30 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 20:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 20:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 20:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 20:39 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/038580160610.shtml)
-- 2026-06-29 20:36 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/289405.shtml)
-- 2026-06-29 20:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/75613.shtml)
-- 2026-06-29 20:33 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/189970623.shtml)
-- 2026-06-29 20:46 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/79460246.shtml)
-- 2026-06-29 20:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/41978439791.shtml)
-- 2026-06-29 20:32 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/84145.shtml)
-- 2026-06-29 20:28 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/95648672.shtml)
-- 2026-06-29 20:45 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/500074684.shtml)
-- 2026-06-29 20:48 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/758304995.shtml)
-- 2026-06-29 20:48 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/6855120.shtml)
-- 2026-06-29 20:52 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/730743590202.shtml)
-- 2026-06-29 20:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/487133.shtml)
-- 2026-06-29 20:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/4811315298.shtml)
-- 2026-06-29 20:24 - [逃狱兄弟](https://www.blog.minike.top/Article/details/4373909.shtml)
+- 2026-06-29 20:45 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/91791.shtml)
+- 2026-06-29 20:39 - [金刚川](http://www.share.kurohicncr.top/Article/details/9987259964.shtml)
+- 2026-06-29 20:51 - [第一炉香](https://www.share.kurohicncr.top/Article/details/01897652941.shtml)
+- 2026-06-29 20:33 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/196788.shtml)
+- 2026-06-29 20:35 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/026272554.shtml)
+- 2026-06-29 20:33 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/01935.shtml)
+- 2026-06-29 20:56 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/538011925882.shtml)
+- 2026-06-29 20:45 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/39945615511.shtml)
+- 2026-06-29 20:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/8923490631.shtml)
+- 2026-06-29 20:36 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/761783582091.shtml)
+- 2026-06-29 20:51 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/729304735.shtml)
+- 2026-06-29 20:33 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/1253971.shtml)
+- 2026-06-29 20:32 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/761217.shtml)
+- 2026-06-29 20:30 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/11135036125.shtml)
+- 2026-06-29 20:33 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/0690194385.shtml)

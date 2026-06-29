@@ -1,46 +1,54 @@
-# Meta因虚假广告面临审查
+# 美债收益率全线小幅走高 伊朗紧张局势推高油价
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-一份报告称，重复性虚假广告商在Facebook上以老年人为目标；同时，圣克拉拉县起诉Meta Platforms，指控其从欺诈性广告中获利；Meta称已移除去年1.59亿条虚假广告。责任编辑：张俊 SF065
+美国国债全线走低，因伊朗局势再度升级推高油价，加剧通胀担忧。2年期美债收益率涨3个基点至3.74%；10年期收益率涨3个基点至4.28%。美元即期指数涨0.2%。WTI原油期货一度涨超8%。责任编辑：王永生
 
 ## 正文
 
-一份报告称，重复性虚假广告商在Facebook上以老年人为目标；同时，圣克拉拉县起诉Meta Platforms，指控其从欺诈性广告中获利；Meta称已移除去年1.59亿条虚假广告。
+美国国债全线走低，因伊朗局势再度升级推高油价，加剧通胀担忧。
 
-责任编辑：张俊 SF065
+2年期美债收益率涨3个基点至3.74%；10年期收益率涨3个基点至4.28%。
+
+美元即期指数涨0.2%。
+
+WTI原油期货一度涨超8%。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:50 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 20:47 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 20:30 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 20:37 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 20:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 20:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 20:48 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 20:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 20:41 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 20:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 20:53 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 20:42 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 20:59 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 20:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 20:46 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 20:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 20:47 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 20:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 20:41 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 20:42 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 20:32 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 20:39 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 20:56 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 20:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 20:38 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 20:55 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:46 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/71260288.shtml)
-- 2026-06-29 20:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/80503437.shtml)
-- 2026-06-29 20:48 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/623011422.shtml)
-- 2026-06-29 20:47 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/43178958.shtml)
-- 2026-06-29 20:47 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/313068.shtml)
-- 2026-06-29 20:46 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/811139670700.shtml)
-- 2026-06-29 20:38 - [TTG KSG](https://www.blog.minike.top/Article/details/7778902640.shtml)
-- 2026-06-29 20:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/8160949258.shtml)
-- 2026-06-29 20:42 - [我和我的家乡](http://www.share.minike.top/Article/details/144040936339.shtml)
-- 2026-06-29 20:49 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/2924733.shtml)
-- 2026-06-29 20:42 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/701275937.shtml)
-- 2026-06-29 20:27 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/0347215.shtml)
-- 2026-06-29 20:36 - [新官上任三把火](https://www.share.minike.top/Article/details/77882088.shtml)
-- 2026-06-29 20:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/524633237520.shtml)
-- 2026-06-29 20:48 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/79313.shtml)
+- 2026-06-29 20:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/75226807.shtml)
+- 2026-06-29 20:38 - [急先锋](http://www.share.kurohicncr.top/Article/details/73394.shtml)
+- 2026-06-29 20:39 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/099364.shtml)
+- 2026-06-29 20:30 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/61607.shtml)
+- 2026-06-29 20:52 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/669679312.shtml)
+- 2026-06-29 20:31 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/7596847085.shtml)
+- 2026-06-29 20:30 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/189871.shtml)
+- 2026-06-29 20:40 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/586412.shtml)
+- 2026-06-29 20:39 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/94071.shtml)
+- 2026-06-29 20:36 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/48006922815.shtml)
+- 2026-06-29 20:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/74115367301.shtml)
+- 2026-06-29 20:41 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/31912602.shtml)
+- 2026-06-29 20:37 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/37147607633.shtml)
+- 2026-06-29 20:36 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/66729860.shtml)
+- 2026-06-29 20:53 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/372219701.shtml)

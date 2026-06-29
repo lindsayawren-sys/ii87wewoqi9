@@ -1,61 +1,56 @@
-# 中信建投期货：5月14日黑色系早报
+# 7家电商平台暗藏“幽灵店铺” 背后隐藏怎样的黑色产业链？
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。 2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%
+一个蛋糕引出7大平台35.97亿元罚单 “幽灵店铺”黑产调查 7家电商平台因为暗藏“幽灵店铺”集体陷入“幽灵外卖”案。什么是“幽灵店铺”？这次市场监管总局历经数月查办的“幽灵外卖”系列案，背后又隐藏着怎样的黑色产业链？来看记者的调查。 去年8月，北京市海淀区市场监督管理局在例行检查中发现，某电商平台App上一家名为“甜颜情书”的蛋糕店铺疑点重重，这家网店标注的北京市内23家实体
 
 ## 正文
 
-钢材早报：驱动不足，期钢高位震荡 市场信息： 1、 美国总统特朗普将于5月13日至15日对中国进行国事访问，多名商界领袖随行。
+一个蛋糕引出7大平台35.97亿元罚单 “幽灵店铺”黑产调查 7家电商平台因为暗藏“幽灵店铺”集体陷入“幽灵外卖”案。
 
-2、 美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高；核心CPI同比上涨2.8%，超出预期的2.7%，并创2025年9月以来新高。
+什么是“幽灵店铺”？
 
-美国4月PPI同比上涨6%，创2022年12 月以来最高水平，核心PPI同比上涨5.2%，均远超市场预期。
+这次市场监管总局历经数月查办的“幽灵外卖”系列案，背后又隐藏着怎样的黑色产业链？
 
-3、 鞍钢、本钢、凌钢出台2026年6月份产品价格调整，在5月价格基础上，热轧、酸洗、冷轧、无取向硅钢等产品上调100元/吨。
+来看记者的调查。
 
-4、 5月4日-10日，10个重点城市新建商品房成交（签约）面积总计132.1万平方米，环比下降16.2%；二手房成交（签约）面积总计217.85万平方米，环比增长10.9%。
+去年8月，北京市海淀区市场监督管理局在例行检查中发现，某电商平台App上一家名为“甜颜情书”的蛋糕店铺疑点重重，这家网店标注的北京市内23家实体店铺涉及全市11个区，可是其中10家店铺的食品经营许可证编号竟然完全相同。
 
-5、 5月13日，全国主港铁矿石成交85.40万吨，环比增47.2%；237家主流贸易商建筑钢材成交9.71万吨，环比增5.7%。
+北京市海淀区市场监督管理局执法五队 李晓奎：很多新办的食品经营许可证是同一个，经过搜索，执法证号是伪造的。
 
-6、 5 月13日，76家独立电弧炉建筑钢材钢厂平均成本为3358元/吨，日环比持平，平均利润为19元/吨，谷电利润为118元/吨。
+监管人员或签发人员在不同的区，比如海淀、昌平、丰台，都是同一个签发人员，这在我们看来是不可能。
 
-7、 据百年建筑调研，截至5月12日，样本建筑工地资金到位率为54.96%，较上一期下降0.4个百分点。
+进一步的调查显示，在电商平台上宣称全国连锁的甜颜情书蛋糕店，378家店铺线下全都没有实体店铺。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 20:52 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 20:49 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 20:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 20:27 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 20:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 20:26 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 20:35 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 20:38 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 20:47 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:47 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 20:28 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 20:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 20:39 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 20:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 20:48 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 20:51 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 20:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 20:35 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 20:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 20:57 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-29 20:53 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 20:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:44 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 20:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/429748.shtml)
-- 2026-06-29 20:54 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/46810225521.shtml)
-- 2026-06-29 20:25 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/7315451.shtml)
-- 2026-06-29 20:29 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/777135847245.shtml)
-- 2026-06-29 20:42 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/583550.shtml)
-- 2026-06-29 20:49 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/83194.shtml)
-- 2026-06-29 20:31 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/4551599999.shtml)
-- 2026-06-29 20:45 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/82395.shtml)
-- 2026-06-29 20:43 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/47227.shtml)
-- 2026-06-29 20:40 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/4909968486.shtml)
-- 2026-06-29 20:48 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/307302727707.shtml)
-- 2026-06-29 20:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/7797851.shtml)
-- 2026-06-29 20:52 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/1694856394.shtml)
-- 2026-06-29 20:25 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/7652139.shtml)
-- 2026-06-29 20:43 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/988698600.shtml)
+- 2026-06-29 20:54 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/599855144159.shtml)
+- 2026-06-29 20:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/39940.shtml)
+- 2026-06-29 20:43 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/9686525.shtml)
+- 2026-06-29 20:30 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/085188376.shtml)
+- 2026-06-29 20:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/71391235475.shtml)
+- 2026-06-29 20:51 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/41826188.shtml)
+- 2026-06-29 20:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/165085116786.shtml)
+- 2026-06-29 20:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/081156.shtml)
+- 2026-06-29 20:31 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/32455079588.shtml)
+- 2026-06-29 20:49 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/69741.shtml)
+- 2026-06-29 20:59 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/24433.shtml)
+- 2026-06-29 20:54 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/837970.shtml)
+- 2026-06-29 20:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/89311798.shtml)
+- 2026-06-29 20:44 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/25917941697.shtml)
+- 2026-06-29 20:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/11397324.shtml)

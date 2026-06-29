@@ -1,42 +1,58 @@
-# 特朗普将抵京访华 大批记者云集机场
+# 日经指数上涨0.7% 汽车和机械类股领涨
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 19:42 来源：中国新闻网 特朗普将抵京访华 大批记者云集机场 责任编辑：【李太源】
+专题：市场仓位回补未止 配置聚焦中国优势制造 日本股市走高，因市场对美国和伊朗可能举行和平谈判的希望仍在持续。 日经指数上涨0.7%，至58894.90点。 汽车和机械类股领涨。本田汽车上涨2.6%，三菱重工业上涨3.3%。投资者正密切关注中东局势发展，副总统JD·万斯预计将于本周在巴基斯坦牵头与伊朗举行新一轮和平谈判。伊朗方面尚未公开证实将举行会谈。美元报159.17日元，相
 
 ## 正文
 
-发布时间：2026年05月13日 19:42 来源：中国新闻网 特朗普将抵京访华 大批记者云集机场 责任编辑：【李太源】
+专题：市场仓位回补未止 配置聚焦中国优势制造 日本股市走高，因市场对美国和伊朗可能举行和平谈判的希望仍在持续。
+
+日经指数上涨0.7%，至58894.90点。
+
+汽车和机械类股领涨。
+
+本田汽车上涨2.6%，三菱重工业上涨3.3%。
+
+投资者正密切关注中东局势发展，副总统JD·万斯预计将于本周在巴基斯坦牵头与伊朗举行新一轮和平谈判。
+
+伊朗方面尚未公开证实将举行会谈。
+
+美元报159.17日元，相比之下，上周五东京股市收盘时为159.49日元。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:44 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 20:52 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 20:32 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 20:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 20:51 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 20:34 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 20:29 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 20:28 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 20:25 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 20:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 20:42 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 20:46 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 20:51 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 20:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 20:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 20:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 20:43 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 20:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 20:42 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 20:38 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 20:45 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 20:32 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/6755951305.shtml)
-- 2026-06-29 20:35 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/816327547.shtml)
-- 2026-06-29 20:40 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/79384.shtml)
-- 2026-06-29 20:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/911856790.shtml)
-- 2026-06-29 20:35 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/59403336.shtml)
-- 2026-06-29 20:34 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/994564.shtml)
-- 2026-06-29 20:47 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/990269726539.shtml)
-- 2026-06-29 20:25 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/43746766153.shtml)
-- 2026-06-29 20:46 - [流金岁月](https://www.blog.minike.top/Article/details/413459.shtml)
-- 2026-06-29 20:30 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/700061.shtml)
-- 2026-06-29 20:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/58855028658.shtml)
-- 2026-06-29 20:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/67303734.shtml)
-- 2026-06-29 20:50 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/3864311.shtml)
-- 2026-06-29 20:45 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/066242.shtml)
-- 2026-06-29 20:49 - [明星大侦探第四季](https://www.share.minike.top/Article/details/08983623.shtml)
+- 2026-06-29 20:53 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/98565799860.shtml)
+- 2026-06-29 20:41 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/49415.shtml)
+- 2026-06-29 20:35 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/616830957379.shtml)
+- 2026-06-29 20:51 - [第一炉香](https://www.share.minike.top/Article/details/604260.shtml)
+- 2026-06-29 20:43 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/1561379783.shtml)
+- 2026-06-29 20:46 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/12286327.shtml)
+- 2026-06-29 20:52 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/46026.shtml)
+- 2026-06-29 20:49 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/2969453.shtml)
+- 2026-06-29 20:51 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/019793369.shtml)
+- 2026-06-29 20:34 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/5255038498.shtml)
+- 2026-06-29 20:33 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/6900814.shtml)
+- 2026-06-29 20:59 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/5135440439.shtml)
+- 2026-06-29 20:58 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/3558137.shtml)
+- 2026-06-29 20:40 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/76432135.shtml)
+- 2026-06-29 20:53 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/871749.shtml)

@@ -1,56 +1,52 @@
-# 新接订单量暴涨近2倍，中船系逆市走强！华宝基金军工ETF（512810）水下拉起翻红，中国动力涨停封板
+# 抖音副总裁李亮紧急澄清
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-5月13日早盘，军工板块低开后异动拉升，军工核心资产——军工ETF华宝（512810）水下拉起翻红。成份股局部高温，华力创通一度暴拉逾11%，中国动力涨停封板，权重股中国船舶涨超2%。商业航天概念回调为主要拖累，中国卫星续跌逾1%。 消息面，工信部发布我国造船业最新数据显示，2026年1-3月，我国造船完工量1568万载重吨，同比增长46.0%，其中出口船舶占总量的96.1%；
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 “字节跳动去年净利润下滑超70%”的消息今天引发热议。 随后，抖音集团副总裁李亮在微博发文澄清：相关报道中关于字节净利润下降70%，是国际会计准则的数字，这边除了新兴业务投资增大，还有优先股和期权成本变动因素（不反映运营实质）。 实际因为抖音电商增速放缓和新兴业务相关投入增大，下半年经营利润率
 
 ## 正文
 
-5月13日早盘，军工板块低开后异动拉升，军工核心资产——军工ETF华宝（512810）水下拉起翻红。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-成份股局部高温，华力创通一度暴拉逾11%，中国动力涨停封板，权重股中国船舶涨超2%。
+来源：财联社 “字节跳动去年净利润下滑超70%”的消息今天引发热议。
 
-商业航天概念回调为主要拖累，中国卫星续跌逾1%。
+随后，抖音集团副总裁李亮在微博发文澄清：相关报道中关于字节净利润下降70%，是国际会计准则的数字，这边除了新兴业务投资增大，还有优先股和期权成本变动因素（不反映运营实质）。
 
-消息面，工信部发布我国造船业最新数据显示，2026年1-3月，我国造船完工量1568万载重吨，同比增长46.0%，其中出口船舶占总量的96.1%；新接订单量5953万载重吨，同比增长195.2%；截至3月底，手持订单量32230万载重吨，同比增长43.6%。
+实际因为抖音电商增速放缓和新兴业务相关投入增大，下半年经营利润率有小幅下滑，但远没有报道中这么大幅度，不考虑优先股和期权成本变动的话，总体营收和利润还是增长的，且TikTok电商业务和新兴业务发展趋势良好。
 
-回归军工行业基本面，中信建投最新研报分析军工板块上市公司2025年年报和2026年一季报的全部公告指出，整体板块呈现触底回暖的趋势。
-
-2025年军工板块实现营业收入8276.32亿元，同比增长8.46%，实现归母净利润314.94亿元，同比增长18.66%。
-
-毛利率小幅上涨0.23个百分点至17.88%，随着四费费率的下降，净利率小幅回升0.33个百分点至3.81%。
-
-该机构判断，中国军工产业已从过去依赖国内单一需求的模式，演进为三轮驱动的新发展格局，增长动能更加多元和可持续。
+责任编辑：张乔松
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 20:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 20:49 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 20:42 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 20:52 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 20:42 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 20:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 20:38 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 20:48 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 20:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 20:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 20:31 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 20:34 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 20:46 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 20:31 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 20:55 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 20:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 20:43 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 20:39 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 20:34 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 20:32 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 20:36 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/2022790765.shtml)
-- 2026-06-29 20:53 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/416694.shtml)
-- 2026-06-29 20:37 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/4078756048.shtml)
-- 2026-06-29 20:26 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/984378156345.shtml)
-- 2026-06-29 20:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/3845808842.shtml)
-- 2026-06-29 20:41 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/652992098970.shtml)
-- 2026-06-29 20:37 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/10311.shtml)
-- 2026-06-29 20:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/879532781.shtml)
-- 2026-06-29 20:50 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/2206716.shtml)
-- 2026-06-29 20:39 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/61519.shtml)
-- 2026-06-29 20:38 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/91512275382.shtml)
-- 2026-06-29 20:34 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/4262864.shtml)
-- 2026-06-29 20:49 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/414540510.shtml)
-- 2026-06-29 20:42 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/312397.shtml)
-- 2026-06-29 20:51 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/079574613940.shtml)
+- 2026-06-29 20:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/812222.shtml)
+- 2026-06-29 20:34 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/341857928179.shtml)
+- 2026-06-29 20:58 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/45226.shtml)
+- 2026-06-29 20:53 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/7310890.shtml)
+- 2026-06-29 20:50 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/6913492.shtml)
+- 2026-06-29 20:36 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/8833329190.shtml)
+- 2026-06-29 20:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/86082168.shtml)
+- 2026-06-29 20:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/34577169671.shtml)
+- 2026-06-29 20:48 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/304413.shtml)
+- 2026-06-29 20:42 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/975492829.shtml)
+- 2026-06-29 20:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/0726021798.shtml)
+- 2026-06-29 20:31 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/1887963.shtml)
+- 2026-06-29 20:43 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/368319629.shtml)
+- 2026-06-29 20:37 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/1591511.shtml)
+- 2026-06-29 20:52 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/131378.shtml)

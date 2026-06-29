@@ -1,54 +1,60 @@
-# 澳大利亚准备支持在霍尔木兹海峡独立开展纯防御性任务
+# 两岸800余名骑手以“骑”会友共赏平潭风光
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-澳大利亚国防部长Richard Marles在声明中表示，一旦由英国和法国领导的独立且纯防御性的多国联合行动成立，澳大利亚准备予以支持。 计划向这项行动提供E-7A楔尾鹰预警机。 Marles连夜与其他40多个国家的防长一道，重申将运用集体外交、经济和军事力量，支持霍尔木兹海峡的航行自由。 将继续与合作伙伴协商合作，以支持这些工作举措。责任编辑：丁文武
+中新社福建平潭4月18日电 (记者 闫旭)第六届平潭两岸职工骑游活动18日在福建平潭启动。来自海峡两岸的800余名骑行爱好者从平潭龙王头海渔广场出发，以骑行会友，同览岚岛风光。 本次活动是2026第十届平潭两岸职工自行车赛的重要组成部分。根据赛程安排，18日开展两岸职工骑游活动，19日将正式举行自行车赛。 参与骑游的台湾骑行爱好者众多。台胞江文田多次来到平潭参与骑行，每次都对这
 
 ## 正文
 
-澳大利亚国防部长Richard Marles在声明中表示，一旦由英国和法国领导的独立且纯防御性的多国联合行动成立，澳大利亚准备予以支持。
+中新社福建平潭4月18日电 (记者 闫旭)第六届平潭两岸职工骑游活动18日在福建平潭启动。
 
-计划向这项行动提供E-7A楔尾鹰预警机。
+来自海峡两岸的800余名骑行爱好者从平潭龙王头海渔广场出发，以骑行会友，同览岚岛风光。
 
-Marles连夜与其他40多个国家的防长一道，重申将运用集体外交、经济和军事力量，支持霍尔木兹海峡的航行自由。
+本次活动是2026第十届平潭两岸职工自行车赛的重要组成部分。
 
-将继续与合作伙伴协商合作，以支持这些工作举措。
+根据赛程安排，18日开展两岸职工骑游活动，19日将正式举行自行车赛。
 
-责任编辑：丁文武
+参与骑游的台湾骑行爱好者众多。
+
+台胞江文田多次来到平潭参与骑行，每次都对这里的发展变化有新的感受。
+
+他说，“其实骑自行车是其次，主要是想来这边看风景，每次来都让我回味无穷。
+
+” 台胞李金龙的曾祖父从平潭迁居至马祖。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 20:49 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 20:26 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 20:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 20:25 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 20:52 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 20:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 20:32 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 20:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 20:28 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 20:25 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 20:46 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 20:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 20:47 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 20:44 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 20:33 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 20:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 20:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 20:40 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 20:52 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 20:57 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 20:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 20:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 20:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 20:52 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 20:32 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 20:44 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 20:38 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/074552455.shtml)
-- 2026-06-29 20:50 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/320016419.shtml)
-- 2026-06-29 20:36 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/731459918.shtml)
-- 2026-06-29 20:50 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/192701899244.shtml)
-- 2026-06-29 20:39 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/842506.shtml)
-- 2026-06-29 20:37 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/23879.shtml)
-- 2026-06-29 20:29 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/0832034046.shtml)
-- 2026-06-29 20:43 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/788976779752.shtml)
-- 2026-06-29 20:34 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/42507016.shtml)
-- 2026-06-29 20:35 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/151766585.shtml)
-- 2026-06-29 20:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/4195836.shtml)
-- 2026-06-29 20:50 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/1834309.shtml)
-- 2026-06-29 20:52 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/428801.shtml)
-- 2026-06-29 20:44 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/19108.shtml)
-- 2026-06-29 20:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/115352599719.shtml)
+- 2026-06-29 20:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/27974.shtml)
+- 2026-06-29 20:59 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/7016633.shtml)
+- 2026-06-29 20:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/1361969329.shtml)
+- 2026-06-29 20:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/476535340091.shtml)
+- 2026-06-29 20:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/415111434060.shtml)
+- 2026-06-29 20:48 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/1079214.shtml)
+- 2026-06-29 20:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/0845570931.shtml)
+- 2026-06-29 20:44 - [沙丘](https://www.blog.kurohicncr.top/Article/details/80768980.shtml)
+- 2026-06-29 20:54 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/9642858236.shtml)
+- 2026-06-29 20:41 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/541369106810.shtml)
+- 2026-06-29 20:52 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/9363017.shtml)
+- 2026-06-29 20:55 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/90910.shtml)
+- 2026-06-29 20:48 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/084203.shtml)
+- 2026-06-29 20:46 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/356327107801.shtml)
+- 2026-06-29 20:58 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/85836.shtml)

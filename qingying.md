@@ -1,57 +1,58 @@
-# 成都海关“白名单”制度助力川企“加速跑”
+# 郑阜高铁区间接触网故障检修完毕 列车运输秩序逐步恢复
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网成都5月12日电 (记者 张浪)12日，在信利(仁寿)高端显示科技有限公司的无尘车间内，精密设备昼夜不息，一片片液晶面板从这里走向市场。在数月前，公司供应链负责人王成还时常为生产原材料光刻胶的进口而焦虑。“光刻胶是我们生产的‘粮食’，但以往受限于查检周期，‘粮食’运到后，常常不能第一时间投入产线。”王成回忆道，“从进境申报到属地海关查检合格，原材料往往需在仓库停留数天。”
+中新网郑州4月20日电 (记者 刘鹏)记者20日下午从中国铁路郑州局集团有限公司(以下简称国铁集团郑州局)获悉，因地方高压线塔倾倒造成的郑阜高铁区间接触网故障已检修完毕，列车运输秩序逐步恢复。 国铁集团郑州局20日上午发布消息称，4月19日22时，受雷暴大风、短时强降水等恶劣天气影响，地方高压线塔倾倒，致郑阜高铁沈丘北至界首南站区间接触网故障。截至4月20日8时，途经该区间的部
 
 ## 正文
 
-中新网成都5月12日电 (记者 张浪)12日，在信利(仁寿)高端显示科技有限公司的无尘车间内，精密设备昼夜不息，一片片液晶面板从这里走向市场。
+中新网郑州4月20日电 (记者 刘鹏)记者20日下午从中国铁路郑州局集团有限公司(以下简称国铁集团郑州局)获悉，因地方高压线塔倾倒造成的郑阜高铁区间接触网故障已检修完毕，列车运输秩序逐步恢复。
 
-在数月前，公司供应链负责人王成还时常为生产原材料光刻胶的进口而焦虑。
+国铁集团郑州局20日上午发布消息称，4月19日22时，受雷暴大风、短时强降水等恶劣天气影响，地方高压线塔倾倒，致郑阜高铁沈丘北至界首南站区间接触网故障。
 
-“光刻胶是我们生产的‘粮食’，但以往受限于查检周期，‘粮食’运到后，常常不能第一时间投入产线。
+截至4月20日8时，途经该区间的部分列车晚点或停运。
 
-”王成回忆道，“从进境申报到属地海关查检合格，原材料往往需在仓库停留数天。
+铁路部门及时启动了一级应急预案，加强行车调度指挥，全力组织人员配合地方电力部门开展抢修作业和线路安全检查，确保线路尽快恢复运行。
 
-” 转机始于海关监管模式的创新。
+20日下午，国铁集团郑州局再次发布消息称，当日13时23分，经铁路部门对接触网等设备全力检修，郑阜高铁沈丘北至界首南区间接触网故障已处置完毕，列车运行秩序逐步恢复。
 
-2025年，成都海关全面落实海关总署进口危险化学品“白名单”管理制度，将企业信用与日常监管深度融合。
+相关列车运行情况，请留意车站公告或通过12306APP、12306客服热线查询。
 
-成都海关所属乐山海关精准对接企业需求，指导企业对标“白名单”标准，在质量控制、安全生产等方面实现全面提升。
-
-随着信利公司成功入选“白名单”，企业进口光刻胶的布控查验比例从100%降至10%，绝大多数货物实现申报即放行，直接送上生产线。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 20:47 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 20:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 20:36 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 20:39 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 20:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 20:29 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 20:26 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:28 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 20:41 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 20:44 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 20:47 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 20:49 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 20:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 20:49 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 20:31 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 20:59 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 20:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 20:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 20:36 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 20:48 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 20:44 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 20:53 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 20:44 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 20:37 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/611052000130.shtml)
-- 2026-06-29 20:30 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/72414190.shtml)
-- 2026-06-29 20:40 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/428613567.shtml)
-- 2026-06-29 20:30 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/86758391.shtml)
-- 2026-06-29 20:47 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/690519977579.shtml)
-- 2026-06-29 20:45 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/8058217.shtml)
-- 2026-06-29 20:29 - [女心理师](https://www.share.kurohicncr.top/Article/details/52324489552.shtml)
-- 2026-06-29 20:48 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/292092845.shtml)
-- 2026-06-29 20:28 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/07105.shtml)
-- 2026-06-29 20:32 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/43215.shtml)
-- 2026-06-29 20:31 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/45635949.shtml)
-- 2026-06-29 20:47 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/55790.shtml)
-- 2026-06-29 20:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/22676148.shtml)
-- 2026-06-29 20:32 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/813233201885.shtml)
-- 2026-06-29 20:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/7070934748.shtml)
+- 2026-06-29 20:46 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/36235.shtml)
+- 2026-06-29 20:32 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/2178209.shtml)
+- 2026-06-29 20:47 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/21027610778.shtml)
+- 2026-06-29 20:55 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/33261736663.shtml)
+- 2026-06-29 20:32 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/34086979.shtml)
+- 2026-06-29 20:44 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/75068874.shtml)
+- 2026-06-29 20:53 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/121052319.shtml)
+- 2026-06-29 20:40 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/5672501503.shtml)
+- 2026-06-29 20:40 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/718445585746.shtml)
+- 2026-06-29 20:59 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/96758268.shtml)
+- 2026-06-29 20:46 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/867957874790.shtml)
+- 2026-06-29 20:35 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/27759230.shtml)
+- 2026-06-29 20:39 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/8052809.shtml)
+- 2026-06-29 20:44 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/1171407326.shtml)
+- 2026-06-29 20:30 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/395768.shtml)

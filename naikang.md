@@ -1,60 +1,56 @@
-# “木头姐”凯西·伍德的旗舰基金基本错失科技股带动的牛市行情
+# 飞针走线六百年 江西永丰畲乡非遗赋能乡村振兴
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-ARK Invest首席执行官凯西．伍德（Cathie Wood）的旗舰交易所交易基金（ETF）一向积极押注有望带来颠覆性创新的公司。但今年迄今，该基金似乎错失了科技和人工智能（AI）板块的这波大涨行情。 在科技股主导的牛市行情下，半导体公司和其它与大规模AI建设相关的公司股价飙升，其中包括卡特彼勒等工业企业。截至周三后市，费城半导体指数今年迄今累计上涨约70%，追踪该指数的E
+中新网江西永丰4月19日电 (付丽玲)4月18日，在江西吉安市永丰县龙冈畲族乡的畲乡刺绣门店里，绣娘张圣兰正低头专注飞针走线。银针在素色布料上起落穿梭，彩线勾勒出灵动的畲族特色纹样。 龙冈畲族乡表湖畲族村，是一个有着六百余年历史的畲族聚居村落。畲族刺绣，是当地畲民世代相传的非遗技艺。畲绣针法简约却意蕴深厚，纹样创作不拘一格，配色灵动鲜活，在蓝色衣料的衬托下，红、黄、绿、紫等色彩
 
 ## 正文
 
-ARK Invest首席执行官凯西．伍德（Cathie Wood）的旗舰交易所交易基金（ETF）一向积极押注有望带来颠覆性创新的公司。
+中新网江西永丰4月19日电 (付丽玲)4月18日，在江西吉安市永丰县龙冈畲族乡的畲乡刺绣门店里，绣娘张圣兰正低头专注飞针走线。
 
-但今年迄今，该基金似乎错失了科技和人工智能（AI）板块的这波大涨行情。
+银针在素色布料上起落穿梭，彩线勾勒出灵动的畲族特色纹样。
 
-在科技股主导的牛市行情下，半导体公司和其它与大规模AI建设相关的公司股价飙升，其中包括卡特彼勒等工业企业。
+龙冈畲族乡表湖畲族村，是一个有着六百余年历史的畲族聚居村落。
 
-截至周三后市，费城半导体指数今年迄今累计上涨约70%，追踪该指数的ETF SOXQ也实现同等涨幅。
+畲族刺绣，是当地畲民世代相传的非遗技艺。
 
-在此之前，美国股市已连续三年斩获强劲回报。
+畲绣针法简约却意蕴深厚，纹样创作不拘一格，配色灵动鲜活，在蓝色衣料的衬托下，红、黄、绿、紫等色彩的凤凰、花卉纹样愈发明艳热烈。
 
-如今，市场已从3月份因伊朗战争引发的抛售中迅速反弹，截至周三后市，标普500指数在2026年已累计上涨8.7%。
+但随着时代发展，这门老手艺一度陷入传承困境。
 
-与此同时，追踪纳斯达克100指数的景顺（Invesco） QQQ Trust Series I ETF年内涨幅更是超过16%。
+受现代生活方式冲击，手工畲绣耗时费力、制作成本高，难以适配大众消费市场；年轻群体对这门技艺知晓度低，愿意潜心学艺者寥寥无几。
 
-相比之下，FactSet数据显示，截至周二，ARK Innovation ETF （ARKK）的股价在2026年仅上涨了1.7%，远逊于主动管理基金iShares A.I． Innovation and Tech Active ETF （BAI）同期超过40%的涨幅。
+2023年，表湖畲族村依托相关项目资金，建成表湖畲族村文创产业基地。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 20:52 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 20:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 20:31 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 20:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 20:53 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 20:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 20:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 20:25 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 20:27 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 20:24 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 20:35 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 20:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 20:26 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 20:52 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 20:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 20:42 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 20:32 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 20:50 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 20:44 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 20:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 20:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 20:33 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 20:48 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/6513903.shtml)
-- 2026-06-29 20:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/464252769.shtml)
-- 2026-06-29 20:40 - [天道](http://www.share.kurohicncr.top/Article/details/3047969.shtml)
-- 2026-06-29 20:40 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/35021579.shtml)
-- 2026-06-29 20:28 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/822071545.shtml)
-- 2026-06-29 20:28 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/466784.shtml)
-- 2026-06-29 20:41 - [流金岁月](http://www.share.kurohicncr.top/Article/details/05687506824.shtml)
-- 2026-06-29 20:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/4039474233.shtml)
-- 2026-06-29 20:50 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/002135419361.shtml)
-- 2026-06-29 20:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/41260666327.shtml)
-- 2026-06-29 20:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/924334757.shtml)
-- 2026-06-29 20:50 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/7196746598.shtml)
-- 2026-06-29 20:43 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/4071558907.shtml)
-- 2026-06-29 20:48 - [一生一世](https://www.share.kurohicncr.top/Article/details/2924988.shtml)
-- 2026-06-29 20:46 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/521320362421.shtml)
+- 2026-06-29 20:58 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/644128044158.shtml)
+- 2026-06-29 20:44 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/83088801284.shtml)
+- 2026-06-29 20:31 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/9516412933.shtml)
+- 2026-06-29 20:55 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/2346238.shtml)
+- 2026-06-29 20:52 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/280878643072.shtml)
+- 2026-06-29 20:58 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/50106.shtml)
+- 2026-06-29 20:48 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.kurohicncr.top/Article/details/749094.shtml)
+- 2026-06-29 20:57 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/732951604.shtml)
+- 2026-06-29 20:34 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/3190321.shtml)
+- 2026-06-29 20:53 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/653991717.shtml)
+- 2026-06-29 20:49 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/186040.shtml)
+- 2026-06-29 20:38 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/09027302.shtml)
+- 2026-06-29 20:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/055568972.shtml)
+- 2026-06-29 20:36 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/66764.shtml)
+- 2026-06-29 21:00 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/093668647743.shtml)

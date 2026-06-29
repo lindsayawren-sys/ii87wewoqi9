@@ -1,59 +1,56 @@
-# Cellebrite一季度财报前瞻：AI新品成焦点，营收预期增长18%
+# 2026年汉诺威工博会启幕
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-数字取证与智能解决方案提供商Cellebrite DI Ltd．将于周四盘前发布2026年第一季度财报。市场普遍预期公司营收将实现两位数增长，但盈利水平可能出现下滑。投资者将重点关注公司新推出的AI平台商业进展及政府云认证带来的联邦市场机会。 业绩预期：营收增长但盈利承压 根据华尔街分析师共识预测，Cellebrite第一季度营收预计约为1.27亿美元，同比增长约18%。公司此
+中新社柏林4月19日电 (记者 马秀秀)2026年德国汉诺威工业博览会19日晚在汉诺威开幕。 本次展会汇聚来自机械工程、电气与数字产业以及能源行业约3000家参展商，集中展示用于提升竞争力与可持续发展的工业解决方案。 今年展会重点关注人工智能如何应用于生产、自动化及机器人领域。新设“国防生产园”主题区域，约40家企业将展示现代生产技术如何在满足安全生产要求的同时灵活扩大产能。
 
 ## 正文
 
-数字取证与智能解决方案提供商Cellebrite DI Ltd．将于周四盘前发布2026年第一季度财报。
+中新社柏林4月19日电 (记者 马秀秀)2026年德国汉诺威工业博览会19日晚在汉诺威开幕。
 
-市场普遍预期公司营收将实现两位数增长，但盈利水平可能出现下滑。
+本次展会汇聚来自机械工程、电气与数字产业以及能源行业约3000家参展商，集中展示用于提升竞争力与可持续发展的工业解决方案。
 
-投资者将重点关注公司新推出的AI平台商业进展及政府云认证带来的联邦市场机会。
+今年展会重点关注人工智能如何应用于生产、自动化及机器人领域。
 
-业绩预期：营收增长但盈利承压 根据华尔街分析师共识预测，Cellebrite第一季度营收预计约为1.27亿美元，同比增长约18%。
+新设“国防生产园”主题区域，约40家企业将展示现代生产技术如何在满足安全生产要求的同时灵活扩大产能。
 
-公司此前给出的营收指引区间为1.26亿至1.28亿美元。
+“人工智能”成为贯穿各展区的核心主线。
 
-每股收益预计为6.5美分，较去年同期的7美分下滑约7%，较上一季度的14美分大幅回落。
+从全球科技巨头、中型工业企业到科研机构和初创公司，将纷纷展示具体应用案例。
 
-营收增长与盈利下滑并存的预期，反映了公司在大力投入AI能力建设期间，研发支出对利润率形成的短期压力。
+诸如思灵机器人公司将展示人工智能驱动机器人技术的潜力；西门子则将通过制鞋生产示例展示人工智能系统不仅可以提供建议，还能执行操作。
 
-上一季度公司业绩表现强劲，营收也超出预期。
+展会主办方德意志会展公司董事会主席约亨·科克勒(Jochen Köckler)认为，工业人工智能是提升竞争力的关键驱动力，它能够提升效率、提高生产力、使资源能够更有针对性地利用，并开辟基于数据的全新商业模式。
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 20:24 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 20:26 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 20:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 20:36 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 20:39 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 20:43 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 20:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 20:33 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 20:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 20:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 20:35 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 20:51 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 20:56 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 20:45 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 20:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 20:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 20:35 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 20:53 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 20:58 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 20:47 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 20:41 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 20:59 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:36 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/22430.shtml)
-- 2026-06-29 20:41 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/4779823.shtml)
-- 2026-06-29 20:48 - [恋与深空致歉](http://www.share.minike.top/Article/details/578585.shtml)
-- 2026-06-29 20:29 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/935324.shtml)
-- 2026-06-29 20:38 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/28367856.shtml)
-- 2026-06-29 20:30 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/60333286.shtml)
-- 2026-06-29 20:39 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/652576916.shtml)
-- 2026-06-29 20:47 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/234596446.shtml)
-- 2026-06-29 20:38 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/1626802.shtml)
-- 2026-06-29 20:44 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/373613733.shtml)
-- 2026-06-29 20:43 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/51037.shtml)
-- 2026-06-29 20:36 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/9086335019.shtml)
-- 2026-06-29 20:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/93773592281.shtml)
-- 2026-06-29 20:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/916947.shtml)
-- 2026-06-29 20:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/660879.shtml)
+- 2026-06-29 20:52 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/4585728273.shtml)
+- 2026-06-29 20:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/769476154.shtml)
+- 2026-06-29 20:49 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/53773946.shtml)
+- 2026-06-29 20:45 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/5264562111.shtml)
+- 2026-06-29 20:40 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/07781593211.shtml)
+- 2026-06-29 20:39 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/99046.shtml)
+- 2026-06-29 20:51 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/3307493106.shtml)
+- 2026-06-29 20:41 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/003620802829.shtml)
+- 2026-06-29 20:33 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/3153356.shtml)
+- 2026-06-29 20:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/30809629.shtml)
+- 2026-06-29 20:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/4811078341.shtml)
+- 2026-06-29 20:35 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/96006760221.shtml)
+- 2026-06-29 20:31 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/22138.shtml)
+- 2026-06-29 20:33 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/2623356.shtml)
+- 2026-06-29 20:47 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/231287915.shtml)

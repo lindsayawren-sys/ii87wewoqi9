@@ -1,58 +1,45 @@
-# 储能电芯扩产潮汹涌，业内：存在阶段性结构缺口，警惕低水平重复建设
+# 4月20日周末要闻：伊美第二轮谈判前景不明 美军向伊朗货船开火 伊方发射无人机还击
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-全球新型储能需求高增，带动储能电芯订单持续饱满、电芯供需趋于偏紧。在近乎满负荷生产的高涨势头下，头部电池企业及二线厂商纷纷加大投资力度，行业从前期谨慎观望转向主动加码扩产。 本轮储能电芯扩产并非单纯规模扩张，背后显现出技术升级的趋势：587Ah、684Ah等大容量电芯相继推出，同时长时化也是重要转型方向。值得注意的是，需求爆发、部分企业产能利用率拉满的同时，行业内低价竞争、低端
+欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 上周国际市场回顾 4月18日收盘：标普指数首次收在7100点之上，纳指录得1992年以来最长连涨纪录 4月18日美股成交额前20：法巴大幅上调苹果目标股价至300美元 4月18日热门中概股涨跌不一 联电涨9.79%，禾赛科技跌5.26% 油价下跌叠加降息预期升温，美债收益率降至4.24% 贵金属全线收涨 白银本周涨幅居前
 
 ## 正文
 
-全球新型储能需求高增，带动储能电芯订单持续饱满、电芯供需趋于偏紧。
-
-在近乎满负荷生产的高涨势头下，头部电池企业及二线厂商纷纷加大投资力度，行业从前期谨慎观望转向主动加码扩产。
-
-本轮储能电芯扩产并非单纯规模扩张，背后显现出技术升级的趋势：587Ah、684Ah等大容量电芯相继推出，同时长时化也是重要转型方向。
-
-值得注意的是，需求爆发、部分企业产能利用率拉满的同时，行业内低价竞争、低端产能过剩也是客观事实。
-
-储能电芯全球出货量排名第二的海辰储能联合创始人、总裁王鹏程近日对澎湃新闻记者表示，该公司订单已排到2027年，更确切地说，“截至2027年年底，公司订单均被提前锁定。
-
-”其同时直言行业内的一个现象，即尽管头部企业产能利用率已在95%以上，但目前的真相是落后产能过剩、先进产能严重不足。
-
-其强调，现阶段行业内需警惕低水平重复建设。
-
-谈及海辰储能自身的扩产考量，王鹏程则喊出，“现在所有的产能只有先进产能，不上重复性的产能，不领先不扩产。
+欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 上周国际市场回顾 4月18日收盘：标普指数首次收在7100点之上，纳指录得1992年以来最长连涨纪录 4月18日美股成交额前20：法巴大幅上调苹果目标股价至300美元 4月18日热门中概股涨跌不一 联电涨9.79%，禾赛科技跌5.26% 油价下跌叠加降息预期升温，美债收益率降至4.24% 贵金属全线收涨 白银本周涨幅居前 欧洲股市连续第四周上涨 霍尔木兹海峡开放提振市场情绪 宏观 伊朗消息人士：伊方尚无参加下一轮伊美谈判的计划 伊朗：美军向伊朗商船开火革命卫队海军逼退美军 美国中央司令部：美军瘫痪了一艘试图驶入伊朗港口、违反封锁令的伊朗船只 伊朗议会要员：美国必须接受霍尔木兹海峡新秩序 阿联酋向美国寻求战时金融应急援助 默茨计划召开危机会议，应对能源价格对德国的冲击 乌克兰敦促欧洲搭建弹道武器
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 20:34 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 20:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 20:44 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 20:32 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 20:50 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 20:30 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 20:25 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 20:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 20:42 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 20:47 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 20:31 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:49 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 20:45 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 20:58 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 20:40 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 20:58 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 20:49 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 20:55 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 20:46 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 20:53 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 20:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 20:40 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 20:48 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 20:38 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/13494.shtml)
-- 2026-06-29 20:40 - [美人鱼](http://www.blog.minike.top/Article/details/261268907853.shtml)
-- 2026-06-29 20:24 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/80289541.shtml)
-- 2026-06-29 20:37 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/4503156355.shtml)
-- 2026-06-29 20:51 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/7301156.shtml)
-- 2026-06-29 20:26 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/7064514.shtml)
-- 2026-06-29 20:36 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/619260026459.shtml)
-- 2026-06-29 20:30 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/427593.shtml)
-- 2026-06-29 20:34 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/983673690179.shtml)
-- 2026-06-29 20:29 - [一生一世](https://www.blog.minike.top/Article/details/59920.shtml)
-- 2026-06-29 20:46 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/736746956.shtml)
-- 2026-06-29 20:51 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/05903872780.shtml)
-- 2026-06-29 20:26 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/8120223318.shtml)
-- 2026-06-29 20:44 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/02004151295.shtml)
-- 2026-06-29 20:52 - [请回答王牌2019](http://www.share.minike.top/Article/details/165440708.shtml)
+- 2026-06-29 20:58 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/34622.shtml)
+- 2026-06-29 20:33 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/42768170731.shtml)
+- 2026-06-29 20:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/072491672.shtml)
+- 2026-06-29 20:59 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/5883255994.shtml)
+- 2026-06-29 20:39 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/3050523825.shtml)
+- 2026-06-29 20:57 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/8726515.shtml)
+- 2026-06-29 20:57 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/9102497167.shtml)
+- 2026-06-29 20:39 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/3148412654.shtml)
+- 2026-06-29 20:30 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/1743040.shtml)
+- 2026-06-29 20:34 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/6357510011.shtml)
+- 2026-06-29 20:59 - [斗破苍穹](http://www.share.minike.top/Article/details/15323.shtml)
+- 2026-06-29 20:41 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/42439164.shtml)
+- 2026-06-29 20:34 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/762588.shtml)
+- 2026-06-29 20:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/633899539347.shtml)
+- 2026-06-29 20:35 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/138610.shtml)

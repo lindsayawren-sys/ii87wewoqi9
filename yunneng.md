@@ -1,58 +1,58 @@
-# 涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼
+# 瑞银：中国铁塔给予“中性”评级 目标价11.60港元
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-当地时间5月11日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）对流媒体企业奈飞（Netflix）提起诉讼，指控该公司在未经同意的情况下非法收集包括儿童在内的消费者数据，并故意在平台设计中植入诱导用户沉迷的功能。 诉状指出，奈飞长期以来向消费者进行虚假陈述，隐瞒其收集和共享用户数据的真实行为。得州方面指控，奈飞对受众的观看习惯和偏好进行持续追踪，并将相关数据出售给
+瑞银发布研报称，中国铁塔（00788）2026年首季收入同比增长1.5%至251亿元人民币（下同），EBITDA同比跌11.2%至154亿元，纯利则同比增长31.8%至40亿元。该行指出，EBITDA下跌主要由于公司按管理层指引增加维修成本以升级旧铁塔，但被折旧开支减省所抵销。瑞银予公司“中性”评级，目标价11.6港元。 瑞银表示，首季电信塔务收入（TSP）同比下跌0.6%，较
 
 ## 正文
 
-当地时间5月11日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）对流媒体企业奈飞（Netflix）提起诉讼，指控该公司在未经同意的情况下非法收集包括儿童在内的消费者数据，并故意在平台设计中植入诱导用户沉迷的功能。
+瑞银发布研报称，中国铁塔（00788）2026年首季收入同比增长1.5%至251亿元人民币（下同），EBITDA同比跌11.2%至154亿元，纯利则同比增长31.8%至40亿元。
 
-诉状指出，奈飞长期以来向消费者进行虚假陈述，隐瞒其收集和共享用户数据的真实行为。
+该行指出，EBITDA下跌主要由于公司按管理层指引增加维修成本以升级旧铁塔，但被折旧开支减省所抵销。
 
-得州方面指控，奈飞对受众的观看习惯和偏好进行持续追踪，并将相关数据出售给商业数据经纪商及广告技术公司，借此每年牟取数十亿美元的巨额利润。
+瑞银予公司“中性”评级，目标价11.6港元。
 
-此外，这家总部位于加州洛思加图斯的公司还被控隐蔽使用“暗黑模式”（dark patterns）以增加用户黏性。
+瑞银表示，首季电信塔务收入（TSP）同比下跌0.6%，较2025全年0.7%的增幅有所放缓，略低于管理层对全年稳定增长的指引。
 
-起诉书提到，奈飞利用“自动播放”等机制，在当前内容结束后直接跳转播放新内容，旨在使消费者保持持续观看状态。
+尽管今年首季EBITDA录得下跌，管理层预期2027年将趋于稳定。
 
-针对上述指控，奈飞方面予以否认，并表示将在法庭上进行抗辩。
+展望2026年，管理层维持指引，预期电信商业务收入稳定增长，两翼业务收入高速增长，受惠可观折旧节省带动纯利稳固增长。
 
-奈飞发言人发表声明称，该起诉讼毫无根据，其内容基于不准确和被歪曲的信息。
-
-该发言人强调，奈飞高度重视会员隐私，并严格遵守其运营所在地的隐私与数据保护法规。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 20:42 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 20:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 20:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 20:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 20:49 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 20:33 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 20:39 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 20:41 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 20:43 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 20:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 20:33 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 20:41 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 20:42 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 20:51 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 20:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 20:54 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 20:41 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 20:52 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 20:32 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 20:38 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 20:54 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 20:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 20:30 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 20:50 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 20:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 20:44 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:42 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/314232.shtml)
-- 2026-06-29 20:31 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/24490.shtml)
-- 2026-06-29 20:33 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/2121366373.shtml)
-- 2026-06-29 20:45 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/715736215880.shtml)
-- 2026-06-29 20:27 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/653985156.shtml)
-- 2026-06-29 20:26 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/443339880526.shtml)
-- 2026-06-29 20:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/148264.shtml)
-- 2026-06-29 20:38 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/573673082617.shtml)
-- 2026-06-29 20:47 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/20527.shtml)
-- 2026-06-29 20:50 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/8420070.shtml)
-- 2026-06-29 20:40 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/1410971.shtml)
-- 2026-06-29 20:51 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/113001.shtml)
-- 2026-06-29 20:47 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/0485805.shtml)
-- 2026-06-29 20:42 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/090221812037.shtml)
-- 2026-06-29 20:49 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/8757570.shtml)
+- 2026-06-29 20:46 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/32141.shtml)
+- 2026-06-29 20:37 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/836921943.shtml)
+- 2026-06-29 20:39 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/41332490083.shtml)
+- 2026-06-29 20:31 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/327359693351.shtml)
+- 2026-06-29 20:38 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/8417912700.shtml)
+- 2026-06-29 20:53 - [一生一世](http://www.blog.minike.top/Article/details/944617.shtml)
+- 2026-06-29 20:53 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/6179377029.shtml)
+- 2026-06-29 20:39 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/5896517277.shtml)
+- 2026-06-29 20:40 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/4706125228.shtml)
+- 2026-06-29 20:45 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/90956089.shtml)
+- 2026-06-29 20:49 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/6051338189.shtml)
+- 2026-06-29 20:50 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/97460835513.shtml)
+- 2026-06-29 20:55 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/427546.shtml)
+- 2026-06-29 20:30 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/090590459.shtml)
+- 2026-06-29 20:30 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/865536772048.shtml)

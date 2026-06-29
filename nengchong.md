@@ -1,47 +1,57 @@
-# 2026年电影票房超140亿元：不止观影 “电影+”让大银幕有大引力
+# 江西上饶举行“三月三”民族文化系列活动 游客沉浸式体验民族风情
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 10:35 来源：央视新闻 责任编辑：【王祎】
+中新网上饶4月19日电 (记者 王修君 李韵涵)18日，中华民族共有精神家园建设主题文化活动·第四届上饶“三月三”民族文化系列活动暨“寻美上饶·信江文韵e起创”铅山篇活动在江西省上饶市铅山县河口镇举办。 上饶市委统战部分管日常工作的副部长、市民族宗教事务局局长王媛表示，本届活动以“寻美信江文韵，共筑精神家园”为主题，设置“和韵欢歌汇”“风味烟火集”“文脉传薪行”“融情趣享游”“
 
 ## 正文
 
-发布时间：2026年05月13日 10:35 来源：央视新闻 责任编辑：【王祎】
+中新网上饶4月19日电 (记者 王修君 李韵涵)18日，中华民族共有精神家园建设主题文化活动·第四届上饶“三月三”民族文化系列活动暨“寻美上饶·信江文韵e起创”铅山篇活动在江西省上饶市铅山县河口镇举办。
+
+上饶市委统战部分管日常工作的副部长、市民族宗教事务局局长王媛表示，本届活动以“寻美信江文韵，共筑精神家园”为主题，设置“和韵欢歌汇”“风味烟火集”“文脉传薪行”“融情趣享游”“同心共富路”五大板块，采用市县两级“1+N”联动模式，让全市各族群众在丰富多彩的民俗体验中，心靠得更近、情融得更深。
+
+据铅山县委副书记、县长叶建国介绍，近年来铅山县始终锚定“共同现代化，一个民族都不能少”目标，以铸牢中华民族共同体意识为主线，持续唱响“同心‘铅’续·甜石榴”民族工作品牌，深耕民族文化保护传承，先后举办民族广场舞大赛、“民俗·联谊、民歌·联响、民族·联欢”、体育趣味运动会等系列活动，让各族群众像石榴籽一样紧紧相拥，全方位展现了铅山民族风情与经济社会发展成果。
+
+活动现场，非遗集市、特色美食集市、民俗文化体验集市、科普展品体验等多个互动板块在铅山县河口老街上演，吸引了众多游客沉浸式体验民族文化。
+
+夜幕降临，“策马游古镇 欢歌三月三”主题文艺晚会正式开演。
+
+武术表演《狮舞少年》、民族服装秀《吉量》、非遗情景歌舞《畲家豆腐坊》等极具民族风情的节目吸引了众多观众观看。
+
+据介绍，此次活动旨在以铸牢中华民族共同体意识为主线，深入挖掘展示上饶绚烂的民族文化，并借助“寻美”平台，汇聚网络人士力量，以全新视角讲述民族团结进步故事，推动民族文化与文旅发展、乡村振兴深度融合，促进各族群众更深层次地交往、交流、交融。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 20:42 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 20:53 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 20:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 20:27 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 20:46 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 20:34 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 20:45 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 20:43 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 20:47 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 20:25 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 20:46 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 20:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 20:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 20:51 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 20:52 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 20:44 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 20:43 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 20:32 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 20:42 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 20:34 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 20:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 20:38 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 20:55 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 20:38 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 20:43 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:29 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/3408680.shtml)
-- 2026-06-29 20:35 - [啊啊啊](https://www.share.minike.top/Article/details/15322.shtml)
-- 2026-06-29 20:53 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/90980770.shtml)
-- 2026-06-29 20:37 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/150119444.shtml)
-- 2026-06-29 20:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/840480831.shtml)
-- 2026-06-29 20:53 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/84096.shtml)
-- 2026-06-29 20:26 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/201314.shtml)
-- 2026-06-29 20:45 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/316777.shtml)
-- 2026-06-29 20:47 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/82486.shtml)
-- 2026-06-29 20:41 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/99131742.shtml)
-- 2026-06-29 20:40 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/592374.shtml)
-- 2026-06-29 20:34 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/91503297959.shtml)
-- 2026-06-29 20:46 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/433393443358.shtml)
-- 2026-06-29 20:40 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/54254533118.shtml)
-- 2026-06-29 20:36 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/65291263117.shtml)
+- 2026-06-29 20:33 - [周生如故](http://www.blog.kurohicncr.top/Article/details/62218073878.shtml)
+- 2026-06-29 20:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/606048.shtml)
+- 2026-06-29 20:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/56491591376.shtml)
+- 2026-06-29 20:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/954534655.shtml)
+- 2026-06-29 20:35 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/69946.shtml)
+- 2026-06-29 20:51 - [急先锋](https://www.blog.kurohicncr.top/Article/details/403413.shtml)
+- 2026-06-29 20:48 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/58046.shtml)
+- 2026-06-29 20:50 - [韩国队主帅遭极端网友死亡威胁](https://www.share.minike.top/Article/details/056565642.shtml)
+- 2026-06-29 20:47 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/229879.shtml)
+- 2026-06-29 20:59 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/65331267.shtml)
+- 2026-06-29 20:37 - [斗破苍穹](http://www.share.minike.top/Article/details/55618.shtml)
+- 2026-06-29 20:37 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/9393785.shtml)
+- 2026-06-29 20:59 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/17536.shtml)
+- 2026-06-29 20:39 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/492074675.shtml)
+- 2026-06-29 20:49 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/794075.shtml)

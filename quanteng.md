@@ -1,56 +1,56 @@
-# 承接存款搬家，多家头部银行加紧“严选”，又一大行入列有何新打法？
+# 早盘：美股继续上扬 道指涨逾800点
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-财联社5月13日讯（记者 李迪）自招行的长盈计划后，国内银行业陆续迎来基金严选品牌布局的大动作。 基金严选品牌早非新鲜事物，但吸引各家银行纷纷积极布局，并呈现出不同的特色打法，却是行业乐见的。 本月初，工商银行正式推出全新基金销售服务品牌“工盈研选”，首期推出“安盈”“智盈”两个产品系列，“安盈”聚焦固收、固收+产品，“智盈”则精选权益指数及指数增强产品。 “先行者”招商银行最
+北京时间4月17日晚，美股周五早盘继续上扬。道指涨逾800点，纳指与标普500指数再创新高。以色列与黎巴嫩宣布停火后，伊朗宣布霍尔木兹海峡完全开放。原油价格暴跌。 道指涨830.61点，涨幅为1.71%，报49409.33点；纳指涨293.88点，涨幅为1.22%，报24396.58点；标普500指数涨72.81点，涨幅为1.03%，报7114.09点。 伊朗外交部长赛义德-阿
 
 ## 正文
 
-财联社5月13日讯（记者 李迪）自招行的长盈计划后，国内银行业陆续迎来基金严选品牌布局的大动作。
+北京时间4月17日晚，美股周五早盘继续上扬。
 
-基金严选品牌早非新鲜事物，但吸引各家银行纷纷积极布局，并呈现出不同的特色打法，却是行业乐见的。
+道指涨逾800点，纳指与标普500指数再创新高。
 
-本月初，工商银行正式推出全新基金销售服务品牌“工盈研选”，首期推出“安盈”“智盈”两个产品系列，“安盈”聚焦固收、固收+产品，“智盈”则精选权益指数及指数增强产品。
+以色列与黎巴嫩宣布停火后，伊朗宣布霍尔木兹海峡完全开放。
 
-“先行者”招商银行最早试水，推出TREE长盈计划”聚焦FOF产品配置。
+原油价格暴跌。
 
-此前，建设银行也于今年年初推出基金严选品牌“龙盈FOF”，专注公募FOF产品严选，聚焦多元资产配置。
+道指涨830.61点，涨幅为1.71%，报49409.33点；纳指涨293.88点，涨幅为1.22%，报24396.58点；标普500指数涨72.81点，涨幅为1.03%，报7114.09点。
 
-交通银行旗下的财富管理品牌“沃德优选”则覆盖理财、基金、保险、贵金属等多种投资品类，“沃德优选基金”则以细分子品牌形式存在。
+伊朗外交部长赛义德-阿巴斯-阿拉格奇周五在X平台上发文称：“为配合黎巴嫩停火，现宣布在停火剩余期间，所有商船可按伊朗伊斯兰共和国港口与海事组织已公布的协调航线，完全开放通行霍尔木兹海峡。
 
-银行密集布局基金严选品牌，折射出财富管理行业格局深刻变革。
+” 作为回应，美国总统特朗普17日说，感谢伊朗开放霍尔木兹海峡。
 
-随着市场利率持续下行，存款搬家趋势持续，银行通过打造基金严选品牌与一站式配置服务，有望有效承接客户的投资新需求。
+特朗普在社交媒体上写道：“伊朗刚刚宣布，伊朗海峡已完全开放，可全面通行。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 20:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 20:24 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 20:36 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 20:48 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 20:34 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 20:25 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 20:39 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 20:47 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 20:29 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 20:58 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 20:40 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 20:55 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 20:39 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 20:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 20:49 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 20:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 20:38 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 20:50 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 20:36 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:49 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/7487364.shtml)
-- 2026-06-29 20:40 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/03777753554.shtml)
-- 2026-06-29 20:41 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/822277.shtml)
-- 2026-06-29 20:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/520700592074.shtml)
-- 2026-06-29 20:44 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/613398614.shtml)
-- 2026-06-29 20:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/881996.shtml)
-- 2026-06-29 20:43 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/35453314401.shtml)
-- 2026-06-29 20:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/81357446.shtml)
-- 2026-06-29 20:38 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/72391486044.shtml)
-- 2026-06-29 20:46 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/73029932.shtml)
-- 2026-06-29 20:52 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/9889988573.shtml)
-- 2026-06-29 20:36 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/057783521147.shtml)
-- 2026-06-29 20:44 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/24647541084.shtml)
-- 2026-06-29 20:46 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/0145642556.shtml)
-- 2026-06-29 20:47 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/16957419.shtml)
+- 2026-06-29 20:36 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/58946531461.shtml)
+- 2026-06-29 20:49 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/4530146.shtml)
+- 2026-06-29 20:58 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/489225.shtml)
+- 2026-06-29 20:52 - [啊啊啊](http://www.share.minike.top/Article/details/4729776.shtml)
+- 2026-06-29 20:31 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/21499.shtml)
+- 2026-06-29 20:50 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/24031442.shtml)
+- 2026-06-29 20:42 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/07026501361.shtml)
+- 2026-06-29 20:54 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/9223224.shtml)
+- 2026-06-29 20:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/22438.shtml)
+- 2026-06-29 20:41 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/71605.shtml)
+- 2026-06-29 20:38 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/42532730080.shtml)
+- 2026-06-29 20:59 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/783261.shtml)
+- 2026-06-29 20:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/222378661528.shtml)
+- 2026-06-29 20:45 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/5640328.shtml)
+- 2026-06-29 20:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/94326308.shtml)

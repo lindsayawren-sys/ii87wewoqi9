@@ -1,53 +1,59 @@
-# 泰国师生广西桂林沉浸式体验中医药文化魅力
+# 心系投资者！新浪财经2026年度投教案例评选正式开启
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网桂林5月12日电(杨宗盛)广西桂林市中医医院11日举办高质量发展系列活动，并举行国家岐黄学者、桂派中医大师谢胜教授收徒拜师仪式。来自泰国玛哈沙拉坎大学附属中学的42名师生走进医院，沉浸式体验中医药文化。 活动当天，在药剂师指导下，泰国学生辨识中草药、制作香囊，并在中医护理门诊体验耳穴压豆、艾灸等传统中医疗法。拜师仪式上，6名年轻医师依次呈递拜师帖、行拜师礼，敬拜谢胜为师。
+中国证监会始终将保护投资者合法权益作为监管工作的重中之重，近年来出台了一系列政策措施，构建了全方位的投资者保护体系。随着金融市场的不断发展和投教重要性凸显，在第八个“5·15全国投资者保护宣传日”将到来之际，新浪财经正式宣布启动“2026年度投资者教育案例评选”活动。此次活动旨在表彰那些投教领域的杰出机构，推广优秀案例，提升公众的金融素养和投资风险意识。 2026年4月20日起
 
 ## 正文
 
-中新网桂林5月12日电(杨宗盛)广西桂林市中医医院11日举办高质量发展系列活动，并举行国家岐黄学者、桂派中医大师谢胜教授收徒拜师仪式。
+中国证监会始终将保护投资者合法权益作为监管工作的重中之重，近年来出台了一系列政策措施，构建了全方位的投资者保护体系。
 
-来自泰国玛哈沙拉坎大学附属中学的42名师生走进医院，沉浸式体验中医药文化。
+随着金融市场的不断发展和投教重要性凸显，在第八个“5·15全国投资者保护宣传日”将到来之际，新浪财经正式宣布启动“2026年度投资者教育案例评选”活动。
 
-活动当天，在药剂师指导下，泰国学生辨识中草药、制作香囊，并在中医护理门诊体验耳穴压豆、艾灸等传统中医疗法。
+此次活动旨在表彰那些投教领域的杰出机构，推广优秀案例，提升公众的金融素养和投资风险意识。
 
-拜师仪式上，6名年轻医师依次呈递拜师帖、行拜师礼，敬拜谢胜为师。
+2026年4月20日起，新浪财经正式启动“2026年度投教优秀案例评选”活动。
 
-据介绍，作为桂林医科大学“读懂中国”实践教育基地之一，桂林市中医医院此次活动集工作室揭牌、中医药文化国际交流、中医护理文创展示于一体，融合“五行十态体质”体系与桂派中医、壮瑶民族医药资源，打造高水平传承创新平台，立足桂林、辐射桂北，为广西中医药事业发展注入新动能，为中国与东盟国家的人文交流搭建平台。
+一、评选主题 本次案例征集将从公募基金公司、证券公司等多层次评选出投资者教育、投资者保护相关的“最具影响力投教项目奖、最佳投资者教育创新奖、投教项目优秀实践奖”三大优秀案例。
 
-(完)
+二、评选环节 本次活动分为案例征集、专家评审提名环节，最终产生“新浪财经2026年度投教优秀案例”名单。
+
+1．案例征集 报名截止时间：2026年5月8日 2．专家评审 评选委员会由金融机构代表、专家学者等组成。
+
+委员会负责制定评选标准、评审流程，将从案例的典型性、创新性、实际效果、社会影响力等角度对案例进行评审。
 
 ## 相关推荐
 
-- 2026-06-29 20:40 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 20:48 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 20:36 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 20:28 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 20:39 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 20:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 20:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 20:47 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 20:48 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 20:27 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 20:31 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 20:37 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 20:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 20:34 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 20:33 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 20:50 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 20:34 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 20:47 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 20:44 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 20:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 20:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 20:44 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 20:33 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 20:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/730112180.shtml)
-- 2026-06-29 20:36 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/1988179198.shtml)
-- 2026-06-29 20:32 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/02907199.shtml)
-- 2026-06-29 20:47 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/62961595.shtml)
-- 2026-06-29 20:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/08060745.shtml)
-- 2026-06-29 20:42 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/0312486.shtml)
-- 2026-06-29 20:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/8464021559.shtml)
-- 2026-06-29 20:49 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/46991354.shtml)
-- 2026-06-29 20:53 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/93226859268.shtml)
-- 2026-06-29 20:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/327999.shtml)
-- 2026-06-29 20:31 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/472489.shtml)
-- 2026-06-29 20:24 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/615733550005.shtml)
-- 2026-06-29 20:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/4526144954.shtml)
-- 2026-06-29 20:52 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/08676.shtml)
-- 2026-06-29 20:48 - [极限挑战第一季](https://www.share.minike.top/Article/details/2622208.shtml)
+- 2026-06-29 20:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/662751533.shtml)
+- 2026-06-29 20:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/33871601677.shtml)
+- 2026-06-29 20:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/8866914.shtml)
+- 2026-06-29 20:43 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/10901.shtml)
+- 2026-06-29 20:43 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/584344217.shtml)
+- 2026-06-29 20:39 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/345837.shtml)
+- 2026-06-29 20:54 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/2452078123.shtml)
+- 2026-06-29 20:39 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/904537234634.shtml)
+- 2026-06-29 20:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/74508542724.shtml)
+- 2026-06-29 20:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/451942163225.shtml)
+- 2026-06-29 20:41 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/763361862470.shtml)
+- 2026-06-29 20:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/346968.shtml)
+- 2026-06-29 20:59 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/0873635.shtml)
+- 2026-06-29 20:59 - [周生如故](http://www.blog.minike.top/Article/details/385979546971.shtml)
+- 2026-06-29 20:48 - [周生如故](http://www.blog.minike.top/Article/details/26249091.shtml)

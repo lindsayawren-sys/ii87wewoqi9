@@ -1,56 +1,61 @@
-# 业绩下滑的石药集团又遇高管离职
+# 近五百名羽球女将西安过招 全民健身乐享运动之趣
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 5月12日，多家媒体报道称，石药集团执行总裁、全球首席医学官黑永疆于近日正式离职，并在上海开启个人创业。 天眼查数据显示，上海慧思博生物医药科技有限公司于2026年4月13日在青浦区成立，法定代表人为黑永疆。 这家公司注册资本为500万元，经营范围涵盖技术服务、技术开发、自然科学研究和试验
+中新网西安4月19日电 (记者 张一辰)2026李宁杯女子羽毛球公开邀请赛18日至19日在西安举行，493名来自全国各地的女子羽毛球爱好者齐聚千年古都，以赛会友、以拍竞技，在挥拍跳跃间尽展巾帼风采，让全民健身、全民共享的理念落地赛场。 作为备受关注的女子羽毛球专项赛事，本次比赛设置女子单打、女子双打两大竞赛项目，并按年龄划分为青少年组与成年组，兼顾了各个年龄段的参赛需求。参赛选
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网西安4月19日电 (记者 张一辰)2026李宁杯女子羽毛球公开邀请赛18日至19日在西安举行，493名来自全国各地的女子羽毛球爱好者齐聚千年古都，以赛会友、以拍竞技，在挥拍跳跃间尽展巾帼风采，让全民健身、全民共享的理念落地赛场。
 
-来源：国际金融报 5月12日，多家媒体报道称，石药集团执行总裁、全球首席医学官黑永疆于近日正式离职，并在上海开启个人创业。
+作为备受关注的女子羽毛球专项赛事，本次比赛设置女子单打、女子双打两大竞赛项目，并按年龄划分为青少年组与成年组，兼顾了各个年龄段的参赛需求。
 
-天眼查数据显示，上海慧思博生物医药科技有限公司于2026年4月13日在青浦区成立，法定代表人为黑永疆。
+参赛选手覆盖学生、职场女性、资深运动爱好者等不同群体，充分体现了赛事的包容性与普惠性。
 
-这家公司注册资本为500万元，经营范围涵盖技术服务、技术开发、自然科学研究和试验发展、医学研究和试验发展等多个领域，所属行业为科技推广和应用服务业。
+羽毛球世界冠军杜玥亲临现场，参与表演赛并与选手们近距离互动，将赛场氛围推向高潮。
 
-作为医药行业深耕肿瘤创新药临床开发与医学事务领域近30年的资深专家，黑永疆的履历堪称行业标杆。
+赛场上选手们敢打敢拼、功底扎实，发球、扣杀、吊球、拦网等技术动作娴熟，攻防转换紧张激烈，现场欢呼与掌声不断，充分传递了羽毛球运动的魅力与感染力。
 
-他拥有石河子医学院医学学士学位、华西医科大学药理学硕士学位以及加拿大不列颠哥伦比亚大学药理学博士学位，职业生涯横跨跨国药企与本土创新药企，兼具全球运营视野与本土化实战经验。
+“我打羽毛球八年，平时都是和朋友切磋，这次赛事不管新手还是老将都能参与，不用顾虑水平高低，重在享受运动。
 
-二代掌舵后人事生变 黑永疆早期在‌施贵宝‌开启制药生涯，随后加入‌罗氏，担任美国医学总监；之后任职于‌诺华‌，担任肿瘤高级全球品牌医学总监；还曾在‌安进‌（Amgen）工作近十年，历任肿瘤全球开发、医学事务执行医学总监等核心岗位。
+能和这么多姐妹一起挥拍，真正体会到全民健身不是口号，而是我们身边触手可及的快乐。
 
-‌他也有国内药企的任职经历，回国后先后在‌齐鲁制药‌担任首席医学官，后迅速转战‌再鼎医药‌，并陆续在‌誉衡生物‌、‌智康弘义‌、‌石药集团‌等企业担任高管职务，负责临床开发与医学战略。
+”成年组选手王彤赛后表示。
 
 ## 相关推荐
 
-- 2026-06-29 20:47 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 20:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 20:34 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 20:39 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 20:39 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 20:34 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 20:37 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 20:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 20:29 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 20:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 20:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 20:38 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 20:54 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 20:40 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 20:36 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 20:55 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 20:47 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 20:46 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 20:47 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 20:36 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 20:32 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 20:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 20:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 20:57 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 20:54 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/481518601371.shtml)
-- 2026-06-29 20:33 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/708876534.shtml)
-- 2026-06-29 20:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/9680696.shtml)
-- 2026-06-29 20:48 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/72962882276.shtml)
-- 2026-06-29 20:38 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/56009466122.shtml)
-- 2026-06-29 20:39 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/14304991.shtml)
-- 2026-06-29 20:42 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/505775.shtml)
-- 2026-06-29 20:31 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/59116574786.shtml)
-- 2026-06-29 20:29 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/76774031.shtml)
-- 2026-06-29 20:36 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/6142319159.shtml)
-- 2026-06-29 20:29 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/999161.shtml)
-- 2026-06-29 20:49 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/69400782.shtml)
-- 2026-06-29 20:39 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/3734744905.shtml)
-- 2026-06-29 20:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/7024024928.shtml)
-- 2026-06-29 20:30 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/184151.shtml)
+- 2026-06-29 20:47 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/2825712.shtml)
+- 2026-06-29 20:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/32235.shtml)
+- 2026-06-29 20:34 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/5006963625.shtml)
+- 2026-06-29 20:51 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/22098546687.shtml)
+- 2026-06-29 20:54 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/75453.shtml)
+- 2026-06-29 20:47 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/037094177811.shtml)
+- 2026-06-29 20:30 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/184725.shtml)
+- 2026-06-29 20:56 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/127125491511.shtml)
+- 2026-06-29 20:45 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/681747857.shtml)
+- 2026-06-29 20:37 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/460995.shtml)
+- 2026-06-29 20:40 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/414513064.shtml)
+- 2026-06-29 20:35 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/43570.shtml)
+- 2026-06-29 20:42 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/639404696637.shtml)
+- 2026-06-29 20:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/1206811773.shtml)
+- 2026-06-29 20:41 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/270511341821.shtml)

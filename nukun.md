@@ -1,54 +1,52 @@
-# 英国大使邮轮公司一邮轮发生诺如病毒感染事件
+# 刚果（布）总理马科索辞职
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网5月14日电 据英国广播公司(BBC)14日报道，由英国大使邮轮公司运营的“雄心”号邮轮因暴发诺如病毒感染滞留法国，目前部分乘客已获准下船。此前因49人出现胃肠感染症状，超过1000名乘客被滞留在法国波尔多市。法国当局表示，无症状乘客获准离船，邮轮公司补充称将恢复常规行程，包括岸上观光活动。法国当局补充称，感染者仍需继续接受隔离，“同时船上将加强预防措施和卫生防疫流程”。
+新华社布拉柴维尔4月19日电(记者郑扬子)刚果(布)总统府19日发布公告说，该国总理马科索已于17日递交辞呈并获总统批准。 刚果(布)总统萨苏16日在首都布拉柴维尔宣誓就职，开启新的五年任期。根据刚果(布)宪法，马科索及其政府随后递交辞呈，但仍需在新政府组阁前继续完成现有工作。 在3月15日举行的总统选举中，萨苏以94.9%的得票率获胜，再次当选刚果(布)总统。根据宪法，萨苏应
 
 ## 正文
 
-中新网5月14日电 据英国广播公司(BBC)14日报道，由英国大使邮轮公司运营的“雄心”号邮轮因暴发诺如病毒感染滞留法国，目前部分乘客已获准下船。
+新华社布拉柴维尔4月19日电(记者郑扬子)刚果(布)总统府19日发布公告说，该国总理马科索已于17日递交辞呈并获总统批准。
 
-此前因49人出现胃肠感染症状，超过1000名乘客被滞留在法国波尔多市。
+刚果(布)总统萨苏16日在首都布拉柴维尔宣誓就职，开启新的五年任期。
 
-法国当局表示，无症状乘客获准离船，邮轮公司补充称将恢复常规行程，包括岸上观光活动。
+根据刚果(布)宪法，马科索及其政府随后递交辞呈，但仍需在新政府组阁前继续完成现有工作。
 
-法国当局补充称，感染者仍需继续接受隔离，“同时船上将加强预防措施和卫生防疫流程”。
+在3月15日举行的总统选举中，萨苏以94.9%的得票率获胜，再次当选刚果(布)总统。
 
-波尔多卫生部门13日晚间发布的最新通报称，样本检测结果证实了诺如病毒感染，该病毒可通过人际接触或环境传播。
-
-目前尚未报告严重病例。
+根据宪法，萨苏应任命新总理组阁。
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 20:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 20:38 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 20:48 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 20:37 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 20:33 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 20:29 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 20:28 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 20:52 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 20:46 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 20:39 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 20:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 20:37 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 20:57 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 20:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 20:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 20:59 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 20:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 20:36 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 20:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 20:59 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 20:54 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 20:52 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 20:30 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/019164.shtml)
-- 2026-06-29 20:42 - [沉睡花园](https://www.blog.minike.top/Article/details/9429927.shtml)
-- 2026-06-29 20:41 - [TOP Prada](https://www.share.minike.top/Article/details/29915068261.shtml)
-- 2026-06-29 20:35 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/39232.shtml)
-- 2026-06-29 20:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/429053677.shtml)
-- 2026-06-29 20:31 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/9945849.shtml)
-- 2026-06-29 20:53 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/151346.shtml)
-- 2026-06-29 20:49 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/55706102514.shtml)
-- 2026-06-29 20:51 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/457036718117.shtml)
-- 2026-06-29 20:49 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/397721136.shtml)
-- 2026-06-29 20:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/382411076.shtml)
-- 2026-06-29 20:40 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.kurohicncr.top/Article/details/957523.shtml)
-- 2026-06-29 20:49 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/915802197.shtml)
-- 2026-06-29 20:33 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/966576299631.shtml)
-- 2026-06-29 20:30 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/539071.shtml)
+- 2026-06-29 20:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/083717652475.shtml)
+- 2026-06-29 20:59 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/73680834894.shtml)
+- 2026-06-29 20:34 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/2068973781.shtml)
+- 2026-06-29 20:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/126601919080.shtml)
+- 2026-06-29 20:57 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/94493478297.shtml)
+- 2026-06-29 20:50 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/639062.shtml)
+- 2026-06-29 20:52 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/71121247.shtml)
+- 2026-06-29 20:42 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/6947228.shtml)
+- 2026-06-29 20:58 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/52384561441.shtml)
+- 2026-06-29 20:30 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/283553.shtml)
+- 2026-06-29 20:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/18636244.shtml)
+- 2026-06-29 20:42 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/00237684.shtml)
+- 2026-06-29 20:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/522921996.shtml)
+- 2026-06-29 20:55 - [沙丘](https://www.share.kurohicncr.top/Article/details/877813989.shtml)
+- 2026-06-29 20:34 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/127390.shtml)

@@ -1,59 +1,59 @@
-# 中国商业航天第一股来袭！拓璞数控正式启动全球发售
+# 白宫：与Anthropic的会谈富有成效
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新财富 港股市场正式迎来“中国商业航天第一股”。5月12日，拓璞数控披露全球发售文件，正式启动招股，并计划于5月20日正式以“7688”为股票代码在港交所挂牌上市。 在全球商业航天进入产业化扩张周期、中国高端制造体系持续升级的背景下，拓璞数控此次上市亦被视为中国商业航天制造底层产业链的重要资本化事件。
+白宫表示，今日与Anthropic举行了一次“富有成效且具有建设性”的初步会谈。 白宫与Anthropic讨论了合作机会以及“推动这项技术规模化”所面临的挑战，这显然是指Anthropic的Mythos模型。 白宫表示，会谈还讨论了如何在创新与安全之间取得平衡。 白宫称，期待继续开展对话，并将与其他人工智能公司进行类似交流。 当记者问及此次会谈时，美国总统特朗普表示：“我不清楚
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+白宫表示，今日与Anthropic举行了一次“富有成效且具有建设性”的初步会谈。
 
-来源：新财富 港股市场正式迎来“中国商业航天第一股”。
+白宫与Anthropic讨论了合作机会以及“推动这项技术规模化”所面临的挑战，这显然是指Anthropic的Mythos模型。
 
-5月12日，拓璞数控披露全球发售文件，正式启动招股，并计划于5月20日正式以“7688”为股票代码在港交所挂牌上市。
+白宫表示，会谈还讨论了如何在创新与安全之间取得平衡。
 
-在全球商业航天进入产业化扩张周期、中国高端制造体系持续升级的背景下，拓璞数控此次上市亦被视为中国商业航天制造底层产业链的重要资本化事件。
+白宫称，期待继续开展对话，并将与其他人工智能公司进行类似交流。
 
-根据发行方案，本次IPO计划全球发售约6533万股，另有15%的超额配股权。
+当记者问及此次会谈时，美国总统特朗普表示：“我不清楚”。
 
-本次发售价为每股26.39港元，预计募资净额约为16.06亿港元（不考虑超额配股权）。
+注：白宫拟向主要联邦机构开放Anthropic模型Mythos的使用权限。
 
-同时，拓璞数控本次全球发售还引入了顶级基石投资阵容，包括RBC、3W Fund、Boyu、HHLRA、UBS AM Singapore、CDH、信庭基金、富国香港及富国基金、华夏基金、上海闵行（区政府投资基金）、TT International、未来资产、高盛资产管理等，阵容覆盖了顶级长线险资、头部公募基金、专业私募投资机构、国际资管机构、地方政府等，多元化机构合计认购约1.1亿美元。
-
-国内国际顶级机构集体出手重磅押注，彰显全球资本市场对中国商业航天赛道的关注和重点配置。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 20:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 20:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 20:32 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 20:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 20:27 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 20:33 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 20:52 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 20:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 20:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 20:53 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 20:49 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 20:29 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 20:41 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 20:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 20:48 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:34 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 20:49 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 20:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 20:38 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 20:37 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 20:46 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 20:48 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 20:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 20:59 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 20:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 20:55 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 20:38 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/358660894840.shtml)
-- 2026-06-29 20:41 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/01273.shtml)
-- 2026-06-29 20:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/3835685.shtml)
-- 2026-06-29 20:47 - [起风了](https://www.blog.minike.top/Article/details/71567369485.shtml)
-- 2026-06-29 20:53 - [北京市发布雷电黄色预警](http://www.share.kurohicncr.top/Article/details/362904183040.shtml)
-- 2026-06-29 20:41 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/0928069259.shtml)
-- 2026-06-29 20:39 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/329135684.shtml)
-- 2026-06-29 20:39 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/19412.shtml)
-- 2026-06-29 20:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/91163.shtml)
-- 2026-06-29 20:49 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/581755.shtml)
-- 2026-06-29 20:47 - [时光音乐会](https://www.share.minike.top/Article/details/309514.shtml)
-- 2026-06-29 20:43 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/7855288.shtml)
-- 2026-06-29 20:47 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/08464421960.shtml)
-- 2026-06-29 20:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/4148113139.shtml)
-- 2026-06-29 20:33 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/207739734206.shtml)
+- 2026-06-29 20:31 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/70275718.shtml)
+- 2026-06-29 20:58 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/65526.shtml)
+- 2026-06-29 20:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/29420.shtml)
+- 2026-06-29 20:33 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/461655971.shtml)
+- 2026-06-29 20:39 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/861378516094.shtml)
+- 2026-06-29 20:44 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/1182325.shtml)
+- 2026-06-29 20:53 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/65219470.shtml)
+- 2026-06-29 20:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/01096791.shtml)
+- 2026-06-29 20:35 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/95036.shtml)
+- 2026-06-29 20:46 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/657576.shtml)
+- 2026-06-29 20:38 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/84484989528.shtml)
+- 2026-06-29 20:30 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/4830833899.shtml)
+- 2026-06-29 20:31 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/885525879254.shtml)
+- 2026-06-29 20:47 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/30238678496.shtml)
+- 2026-06-29 20:53 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/13931.shtml)

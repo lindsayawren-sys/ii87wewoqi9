@@ -1,57 +1,47 @@
-# 欧洲消费电子巨头Ceconomy上半年业绩发布，确认全年指引
+# 最高法回应涉宇树机器狗专利案：对虚假诉讼、恶意诉讼等坚决说“不”
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-欧洲消费电子零售商Ceconomy AG周三公布了2025/26财年上半年及第二季度财报，多项关键指标超出市场预期。财报数据显示，公司上半年实现营收131亿欧元，同比增长4.0%。第二季度单季营收达55亿欧元，同比增长4.1%，可比同店销售增长4.8%。 盈利质量改善 第二季度经调整EBIT增长至2700万欧元，高于去年同期的1700万欧元，调整后EBIT利润率提升20个基点至
+中新网4月20日电 (记者 高萌)4月20日，关于此前杭州露韦美日化有限公司诉宇树科技机器狗侵害发明专利权一案，最高人民法院表示，今年初，最高法二审维持认定宇某科技公司不构成专利侵权，并对原告涉案不诚信诉讼行为予以谴责。最高法高度重视所谓“专利狙击”和“批量维权诉讼牟利”等不诚信行为对创新环境的负面影响，打击恶意诉讼、遏制权利滥用。在具体案件处理过程中，对虚假诉讼、恶意诉讼等不
 
 ## 正文
 
-欧洲消费电子零售商Ceconomy AG周三公布了2025/26财年上半年及第二季度财报，多项关键指标超出市场预期。
+中新网4月20日电 (记者 高萌)4月20日，关于此前杭州露韦美日化有限公司诉宇树科技机器狗侵害发明专利权一案，最高人民法院表示，今年初，最高法二审维持认定宇某科技公司不构成专利侵权，并对原告涉案不诚信诉讼行为予以谴责。
 
-财报数据显示，公司上半年实现营收131亿欧元，同比增长4.0%。
+最高法高度重视所谓“专利狙击”和“批量维权诉讼牟利”等不诚信行为对创新环境的负面影响，打击恶意诉讼、遏制权利滥用。
 
-第二季度单季营收达55亿欧元，同比增长4.1%，可比同店销售增长4.8%。
-
-盈利质量改善 第二季度经调整EBIT增长至2700万欧元，高于去年同期的1700万欧元，调整后EBIT利润率提升20个基点至0.5%。
-
-不过，公司报告期内净亏损从去年同期的3300万欧元扩大至9200万欧元，主要受收购相关成本及重组费用影响。
-
-线上销售持续增长 公司线上销售表现持续亮眼，上半年在线销售增长7.3%，第二季度增长8%，线上销售占比达28.5%。
-
-翻新设备业务增长380%，服务与解决方案收入增长12.5%，成为利润改善的重要驱动力，毛利率提升30个基点至18.1%。
-
-客户满意度创新高 公司净推荐值同比提升2个百分点至62%，创历史新高。
+在具体案件处理过程中，对虚假诉讼、恶意诉讼等不诚信诉讼行为坚决说“不”。
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 20:33 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 20:31 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 20:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 20:31 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 20:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 20:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 20:51 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 20:26 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 20:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 20:28 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 20:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 20:54 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 20:59 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 20:41 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 20:39 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 20:48 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 20:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 20:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 20:56 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 20:56 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 20:49 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:37 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/61830393077.shtml)
-- 2026-06-29 20:38 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/643015.shtml)
-- 2026-06-29 20:34 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/04043.shtml)
-- 2026-06-29 20:43 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/9444276.shtml)
-- 2026-06-29 20:36 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.kurohicncr.top/Article/details/93184.shtml)
-- 2026-06-29 20:51 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/0939120.shtml)
-- 2026-06-29 20:47 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/76136895.shtml)
-- 2026-06-29 20:25 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/758627.shtml)
-- 2026-06-29 20:45 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/89565586103.shtml)
-- 2026-06-29 20:33 - [天道](https://www.share.minike.top/Article/details/28040.shtml)
-- 2026-06-29 20:42 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/59669375.shtml)
-- 2026-06-29 20:26 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/687574849552.shtml)
-- 2026-06-29 20:34 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/7013879550.shtml)
-- 2026-06-29 20:26 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/868316228.shtml)
-- 2026-06-29 20:47 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/01304629.shtml)
+- 2026-06-29 20:39 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/457802182982.shtml)
+- 2026-06-29 20:31 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/599254764722.shtml)
+- 2026-06-29 20:55 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/060386543.shtml)
+- 2026-06-29 20:36 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/0214662054.shtml)
+- 2026-06-29 20:47 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/3370530.shtml)
+- 2026-06-29 20:37 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/2567207271.shtml)
+- 2026-06-29 20:38 - [沉睡花园](https://www.share.minike.top/Article/details/646199.shtml)
+- 2026-06-29 20:42 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/245616652.shtml)
+- 2026-06-29 20:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/4392473819.shtml)
+- 2026-06-29 20:39 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/57165434044.shtml)
+- 2026-06-29 20:50 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/533491.shtml)
+- 2026-06-29 20:32 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/32361.shtml)
+- 2026-06-29 20:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/74317.shtml)
+- 2026-06-29 20:39 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/754739634519.shtml)
+- 2026-06-29 20:41 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/821626182102.shtml)

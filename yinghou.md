@@ -1,60 +1,60 @@
-# 今天起每坐30分钟起身走走 代谢悄悄变好
+# AI应用反弹，华宝基金创业板人工智能ETF再创新高！光模块CPO小幅回调，机构：看好本轮行情持续性！
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-白天长时间坐着，再卖力的运动对健康也可能事倍功半。研究发现，真正改写代谢命运的，或许不是单次运动有多猛，而是你多频繁地“打断”屁股黏椅子的状态——只需2分钟。 “两分钟奇迹”： 起身走走，代谢悄悄变好 主动打断久坐，或比每天运动30分钟对代谢更直接、更友好。国际期刊《糖尿病护理杂志》上刊发的一项研究发现，与持续久坐的人相比，无论是通过轻度还是中度的走路打断久坐，都能显著降低餐后
+周一（4月20日），热门赛道光模块CPO冲高回落，但AI应用发力上攻，创业板人工智能再收新高！其中，蓝色光标领涨超8%，华策影视、中文在线涨超6%。光模块CPO方面，中际旭创盘中刷新上市高点后收盘微跌0.12%，新易盛、天孚通信小幅回调逾1%。 热门ETF方面，一键布局光模块CPO+AI应用的创业板人工智能ETF华宝（159363）场内收涨0.47%再创上市新高，单日成交超9亿
 
 ## 正文
 
-白天长时间坐着，再卖力的运动对健康也可能事倍功半。
+周一（4月20日），热门赛道光模块CPO冲高回落，但AI应用发力上攻，创业板人工智能再收新高！
 
-研究发现，真正改写代谢命运的，或许不是单次运动有多猛，而是你多频繁地“打断”屁股黏椅子的状态——只需2分钟。
+其中，蓝色光标领涨超8%，华策影视、中文在线涨超6%。
 
-“两分钟奇迹”： 起身走走，代谢悄悄变好 主动打断久坐，或比每天运动30分钟对代谢更直接、更友好。
+光模块CPO方面，中际旭创盘中刷新上市高点后收盘微跌0.12%，新易盛、天孚通信小幅回调逾1%。
 
-国际期刊《糖尿病护理杂志》上刊发的一项研究发现，与持续久坐的人相比，无论是通过轻度还是中度的走路打断久坐，都能显著降低餐后血糖和胰岛素的水平，对代谢更友好。
+热门ETF方面，一键布局光模块CPO+AI应用的创业板人工智能ETF华宝（159363）场内收涨0.47%再创上市新高，单日成交超9亿元，资金抢筹7200万份。
 
-研究人员让超重或肥胖的成年人经历5小时的观察，比较三种状态： ✅持续久坐组：连续坐着不动，最多从椅子上站起来一下。
+时间拉长看，截至4月20日，创业板人工智能ETF华宝（159363）标的指数近1年累计涨幅高达200.82%，大幅跑赢人工智能、CS人工智、科创创业AI、科创AI等同类指数。
 
-✅轻度打断组：每坐20分钟，轻强度步行2分钟(速度约为3.2千米/小时)。
+展望后市，光模块CPO、AI应用等多重利好共振，创业板人工智能有望继续受益。
 
-✅中度打断组：每坐20分钟，中强度步行2分钟(速度约为5.8~6.4千米/小时)。
+注：创业板人工智能ETF华宝被动跟踪创业板人工智能指数，该指数基日为2018.12.28，发布日期为2024.7.11，创业板人工智能指数2021-2025年年度涨跌幅分别为：17.57%、-34.52%、47.83%、38.44%、106.35%。
 
-结果令人惊喜：只要每坐20分钟起身活动2分钟，餐后血糖和胰岛素水平就显著下降。
+指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
 ## 相关推荐
 
-- 2026-06-29 20:48 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 20:25 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 20:39 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 20:37 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 20:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 20:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 20:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 20:53 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 20:30 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 20:41 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 20:45 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 20:28 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 20:53 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 20:30 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 20:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 20:45 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:41 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 20:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 20:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 21:00 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 20:40 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 20:52 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 20:30 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 20:47 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 20:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 20:46 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 20:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 20:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:37 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/622795.shtml)
-- 2026-06-29 20:24 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/713752.shtml)
-- 2026-06-29 20:39 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/792745.shtml)
-- 2026-06-29 20:35 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/551153515.shtml)
-- 2026-06-29 20:29 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/811894923.shtml)
-- 2026-06-29 20:33 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/52970.shtml)
-- 2026-06-29 20:28 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/7731223.shtml)
-- 2026-06-29 20:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/975746188585.shtml)
-- 2026-06-29 20:45 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/51988115.shtml)
-- 2026-06-29 20:27 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/48512581969.shtml)
-- 2026-06-29 20:34 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/55587.shtml)
-- 2026-06-29 20:32 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/7908340.shtml)
-- 2026-06-29 20:38 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/874353007953.shtml)
-- 2026-06-29 20:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/432292561590.shtml)
-- 2026-06-29 20:46 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/7110470.shtml)
+- 2026-06-29 20:34 - [扬名立万](https://www.blog.minike.top/Article/details/8793599503.shtml)
+- 2026-06-29 20:48 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/27649.shtml)
+- 2026-06-29 20:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/236295.shtml)
+- 2026-06-29 20:37 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/580582368084.shtml)
+- 2026-06-29 20:47 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/788539.shtml)
+- 2026-06-29 20:39 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/4860917.shtml)
+- 2026-06-29 20:31 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/146870.shtml)
+- 2026-06-29 20:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/9857703.shtml)
+- 2026-06-29 20:55 - [勇敢的心第二部](https://www.share.minike.top/Article/details/3123949.shtml)
+- 2026-06-29 20:55 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/7111321.shtml)
+- 2026-06-29 20:56 - [AG 宫斗](https://www.share.minike.top/Article/details/849667696.shtml)
+- 2026-06-29 20:50 - [85花告别古偶](https://www.blog.minike.top/Article/details/50712452.shtml)
+- 2026-06-29 20:57 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/374056.shtml)
+- 2026-06-29 20:54 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/294500224576.shtml)
+- 2026-06-29 20:47 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/291308058035.shtml)

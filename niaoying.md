@@ -1,57 +1,56 @@
-# 美国30年期国债发行票面利率高达5% 为金融危机前以来首次
+# 宁夏“五一”前后将推出138项促消费活动 智能家居购新补贴等惠民政策落地实施
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-随着能源价格飙升推高通胀，且市场预期通胀进一步加剧，投资者自2007年以来首次锁定5%的美国30年期国债收益率。 周三，250亿美元30年期新债标售的中标收益率报5.046%，略高于投标截止时的发行前交易水平，反映出在美国国债收益率触及近一年来最高之际，市场需求表现平平。 本周早些时候发行的3年期和10年期国债所获需求也低于预期。 对未来通胀进一步上升的担忧使得投标人要求更高的
+中新网银川4月20日电 (记者 于晶)4月20日，记者从宁夏回族自治区商务厅获悉，4至6月，宁夏商务领域计划举办138项各类促消费活动，涵盖城市核心商圈与乡村特色集市，形成“品美食、享好物、促融合”三大板块协同发力的促消费格局。其中，“五一”假期前后将迎来活动高潮，多项惠民补贴政策同步落地。在“品美食”板块，宁夏将组织开展10场各具特色的美食主题活动，聚焦“中华美食”和“宁夏味
 
 ## 正文
 
-随着能源价格飙升推高通胀，且市场预期通胀进一步加剧，投资者自2007年以来首次锁定5%的美国30年期国债收益率。
+中新网银川4月20日电 (记者 于晶)4月20日，记者从宁夏回族自治区商务厅获悉，4至6月，宁夏商务领域计划举办138项各类促消费活动，涵盖城市核心商圈与乡村特色集市，形成“品美食、享好物、促融合”三大板块协同发力的促消费格局。
 
-周三，250亿美元30年期新债标售的中标收益率报5.046%，略高于投标截止时的发行前交易水平，反映出在美国国债收益率触及近一年来最高之际，市场需求表现平平。
+其中，“五一”假期前后将迎来活动高潮，多项惠民补贴政策同步落地。
 
-本周早些时候发行的3年期和10年期国债所获需求也低于预期。
+在“品美食”板块，宁夏将组织开展10场各具特色的美食主题活动，聚焦“中华美食”和“宁夏味道”。
 
-对未来通胀进一步上升的担忧使得投标人要求更高的固定收益率作为补偿。
+银川市将举办“2026‘中华美食荟’暨宁夏服务消费季”活动，并持续开展“举杯贺兰山·寻味餐桌季”，深化餐酒融合文化；吴忠市将举办第六届早茶美食文化节；固原市将开展50家“固原味道”标杆店评选。
 
-石油冲击已推动包括美国消费者价格指数和生产者价格指数在内的广泛通胀指标上升，并抬升了通胀预期。
+各县区同步推出美食展销、消费券补贴、夜市嘉年华等活动，让市民游客尽享舌尖美味。
 
-德意志银行利率策略师Steven Zeng表示：“我预计在收益率达到5%时，会开始看到投资者需求出现。
+同时，宁夏各级商务部门将围绕汽车、家电、手机数码等大宗和升级消费开展系列活动。
 
-通常这是30年期美债对养老基金和其他债券驱动型投资者变得更具吸引力的水平。
+“2026宁夏双品网购节”即将启动，在宁夏网货一站式服务平台及各重点电商平台开设“品质消费”“地方好物”“外贸优品”“丝路云品”四大专题板块，全网直播带货。
 
-” 不过，他补充称，这一前提是通胀不会像期货市场已开始押注的那样迫使美联储加息。
+金凤区、贺兰县等多个县区推出购新车补贴，贺兰县还推出购新房补贴和缴纳契税消费券。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 20:35 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 20:51 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 20:51 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 20:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 20:48 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 20:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 20:38 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 20:36 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 20:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 20:33 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 20:57 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 20:34 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 20:32 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 20:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 20:43 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 20:46 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 20:31 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 20:30 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 20:48 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 20:40 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/458476598.shtml)
-- 2026-06-29 20:44 - [TTG KSG](http://www.blog.minike.top/Article/details/1590932.shtml)
-- 2026-06-29 20:28 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/8076177.shtml)
-- 2026-06-29 20:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/525196.shtml)
-- 2026-06-29 20:42 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/8530051569.shtml)
-- 2026-06-29 20:30 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/85433.shtml)
-- 2026-06-29 20:53 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/8587329605.shtml)
-- 2026-06-29 20:47 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/27127450571.shtml)
-- 2026-06-29 20:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/87042.shtml)
-- 2026-06-29 20:39 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/879270425412.shtml)
-- 2026-06-29 20:43 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/96991901.shtml)
-- 2026-06-29 20:35 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/666864883.shtml)
-- 2026-06-29 20:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/70865109673.shtml)
-- 2026-06-29 20:32 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/594957032.shtml)
-- 2026-06-29 20:50 - [我和我的家乡](http://www.blog.minike.top/Article/details/96288593.shtml)
+- 2026-06-29 20:38 - [送你一朵小红花](https://www.share.minike.top/Article/details/40713641881.shtml)
+- 2026-06-29 20:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/821166.shtml)
+- 2026-06-29 20:39 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/54888.shtml)
+- 2026-06-29 20:49 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/26192942.shtml)
+- 2026-06-29 20:46 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/62953.shtml)
+- 2026-06-29 20:39 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/77161.shtml)
+- 2026-06-29 20:35 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/3953613.shtml)
+- 2026-06-29 20:48 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/808838967720.shtml)
+- 2026-06-29 20:52 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/41136466832.shtml)
+- 2026-06-29 20:36 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/608368.shtml)
+- 2026-06-29 20:37 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/1802634.shtml)
+- 2026-06-29 20:33 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/08153236882.shtml)
+- 2026-06-29 20:55 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/333566472.shtml)
+- 2026-06-29 20:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/6051673.shtml)
+- 2026-06-29 20:30 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/46107.shtml)

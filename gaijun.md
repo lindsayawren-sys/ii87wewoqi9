@@ -1,60 +1,56 @@
-# 七千年河姆渡文明的新故事
+# 三家内地企业同日港交所敲上市锣 “杭州六小龙”首个IPO落地香港
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网宁波5月12日电(项菁)“文化向新力·今天我发布”河姆渡文化专场发布会12日在浙江宁波余姚市河姆渡考古遗址公园举行。来自不同领域的三名发布人分享了各自与河姆渡的新故事。 据悉，河姆渡文化距今约7000年，实证了长江流域是中华文明重要发源地之一。 瓷艺新生：七千年陶火照进现代生活 浙江省工艺美术大师、宁波市新联会会员靳林琳与陶瓷打了30多年交道。几年前，她因研究越窑青瓷扎根
+发布时间：2026年04月18日 12:12 来源：中国新闻网 4月17日，香港交易所(简称“港交所”)响起三声上市锣响，群核科技、长光辰芯、有赞科技三家中国内地企业同步在港交所主板挂牌上市，展现了香港市场对内地科创企业的强劲吸引力。 此次上市的三家企业各有特色，均为细分领域优质企业。群核科技作为“杭州六小龙”成员之一，是中国领先的云原生空间设计软件服务商，聚焦空间智能领域，上
 
 ## 正文
 
-中新网宁波5月12日电(项菁)“文化向新力·今天我发布”河姆渡文化专场发布会12日在浙江宁波余姚市河姆渡考古遗址公园举行。
+发布时间：2026年04月18日 12:12 来源：中国新闻网 4月17日，香港交易所(简称“港交所”)响起三声上市锣响，群核科技、长光辰芯、有赞科技三家中国内地企业同步在港交所主板挂牌上市，展现了香港市场对内地科创企业的强劲吸引力。
 
-来自不同领域的三名发布人分享了各自与河姆渡的新故事。
+此次上市的三家企业各有特色，均为细分领域优质企业。
 
-据悉，河姆渡文化距今约7000年，实证了长江流域是中华文明重要发源地之一。
+群核科技作为“杭州六小龙”成员之一，是中国领先的云原生空间设计软件服务商，聚焦空间智能领域，上市首日股价表现亮眼。
 
-瓷艺新生：七千年陶火照进现代生活 浙江省工艺美术大师、宁波市新联会会员靳林琳与陶瓷打了30多年交道。
+长光辰芯作为国产高端CMOS图像传感器(CIS)芯片领域龙头，深耕工业、科学、医疗成像等高端领域，技术实力位居行业前列。
 
-几年前，她因研究越窑青瓷扎根余姚，从此与河姆渡文化结缘。
+有赞科技是中国知名零售科技SaaS服务商。
 
-“从七千年前的夹炭陶到唐宋秘色瓷，余姚的制瓷技艺从未中断。
+群核科技负责人表示，公司已将全球总部落户香港，将以此为战略支点，全面拓展全球市场。
 
-”在靳林琳看来，河姆渡的夹炭陶是先民智慧的缩影，仅从制作技艺看，其将植物茎叶、稻壳碾碎加入陶土，可使陶器质地蓬松、保温性能好，恰好适配稻作生活的蒸煮需求。
-
-余姚一带的制瓷历史悠久灿烂。
+(记者 戴小橦 制作 王佳琪) 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 20:49 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 20:44 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 20:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 20:50 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 20:48 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 20:51 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 20:47 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 20:34 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 20:24 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 20:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 20:33 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 20:42 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 20:53 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 20:26 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 20:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 20:58 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 20:44 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 20:42 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 20:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 20:57 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 20:49 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 20:58 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 20:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 20:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 20:35 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 20:52 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/010038428.shtml)
-- 2026-06-29 20:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/0170182654.shtml)
-- 2026-06-29 20:52 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/465893252.shtml)
-- 2026-06-29 20:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/08662223.shtml)
-- 2026-06-29 20:27 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/15630197053.shtml)
-- 2026-06-29 20:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/43217.shtml)
-- 2026-06-29 20:39 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/2320004.shtml)
-- 2026-06-29 20:26 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/8414481554.shtml)
-- 2026-06-29 20:49 - [恋与深空回应争议](https://www.share.minike.top/Article/details/539036.shtml)
-- 2026-06-29 20:50 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/31502.shtml)
-- 2026-06-29 20:25 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/23726614.shtml)
-- 2026-06-29 20:33 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/9155479.shtml)
-- 2026-06-29 20:43 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/681482822.shtml)
-- 2026-06-29 20:37 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/22858306612.shtml)
-- 2026-06-29 20:30 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/456118125323.shtml)
+- 2026-06-29 20:31 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/14516.shtml)
+- 2026-06-29 20:53 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/77910989.shtml)
+- 2026-06-29 20:58 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/60205.shtml)
+- 2026-06-29 20:50 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/91018.shtml)
+- 2026-06-29 20:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/633666.shtml)
+- 2026-06-29 20:31 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/7159138495.shtml)
+- 2026-06-29 20:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/229221.shtml)
+- 2026-06-29 20:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/471170244.shtml)
+- 2026-06-29 20:46 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/2770210.shtml)
+- 2026-06-29 20:49 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/145152430.shtml)
+- 2026-06-29 20:58 - [流金岁月](https://www.share.minike.top/Article/details/622905.shtml)
+- 2026-06-29 20:34 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/281390631.shtml)
+- 2026-06-29 20:47 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/8907006263.shtml)
+- 2026-06-29 20:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/525095319527.shtml)
+- 2026-06-29 20:30 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/30516.shtml)

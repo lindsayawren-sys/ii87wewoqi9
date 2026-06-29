@@ -1,59 +1,58 @@
-# Tortoise Energy Infrastructure宣布派发每月0.475美元股息
+# 多地鼓励技校招收大学毕业生，大学生回炉读技校释放什么信号
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-美国能源投资及贸易服务提供商Tortoise Capital Advisors宣布，旗下封闭式基金Tortoise Energy Infrastructure Corporation已确认每月股息为每股0.475美元，该派息水平与近几个月保持一致。 股息详情与支付安排 根据Tortoise Capital发布的信息，该基金将继续维持每月派息的频率，其分配目标为基金资产净值的10
+多地出台政策，鼓励技工院校开设大学生技师班以促进高质量就业。 近年来大学生毕业回炉读技校的现象越来越多。多地出台政策，鼓励技工院校开设大学生技师班以促进高质量就业。 根据“北京人社”微信公众号，今年，北京将推出6个全日制大学生技师班和21个技能就业培训班，采取长短结合、订单式培养的方式，为大学生实现技能就业开辟“新赛道”。6个大学生技师班均采取全日制教育教学，2年学制，包括1年
 
 ## 正文
 
-美国能源投资及贸易服务提供商Tortoise Capital Advisors宣布，旗下封闭式基金Tortoise Energy Infrastructure Corporation已确认每月股息为每股0.475美元，该派息水平与近几个月保持一致。
+多地出台政策，鼓励技工院校开设大学生技师班以促进高质量就业。
 
-股息详情与支付安排 根据Tortoise Capital发布的信息，该基金将继续维持每月派息的频率，其分配目标为基金资产净值的10%至15%。
+近年来大学生毕业回炉读技校的现象越来越多。
 
-该基金主要投资于能源基础设施公司的证券。
+多地出台政策，鼓励技工院校开设大学生技师班以促进高质量就业。
 
-最新的每月股息0.475美元将适用于2026年6月、7月和8月的派息周期，具体支付日期分别为6月30日、7月31日和8月31日。
+根据“北京人社”微信公众号，今年，北京将推出6个全日制大学生技师班和21个技能就业培训班，采取长短结合、订单式培养的方式，为大学生实现技能就业开辟“新赛道”。
 
-股息资金来源 从会计处理角度来看，该基金股息的资金来源预计约0至20%为普通收入，其余部分则被视为资本返还。
+6个大学生技师班均采取全日制教育教学，2年学制，包括1年在校学习、1年合作企业实习，毕业时可取得技工院校毕业证书和相应职业工种的职业技能等级证书，并推荐就业，实现“学历教育”与“技能培养”的有效链接。
 
-这种结构在封闭式能源基础设施基金中较为常见，主要源于这类基金持有资产的折旧和耗竭特性。
+这6个全日制大学生技师班，专业涵盖智能制造技术应用、生物制药、多媒体制作（全媒体运营师方向）、电子技术应用（集成电路技术方向）、汽车维修（新能源汽车现场工程师方向）、工艺美术等方向，主要面向本市离校未就业高校毕业生，兼顾京津冀协同发展区域、对口支援地区离校未就业高校毕业生，要求大学专科及以上学历，原则上所学专业应符合招生专业范围。
 
-年度股息与收益率 结合该基金近几个月的派息记录，已连续多月维持每月0.475美元的股息水平。
+针对高校毕业生等青年群体特点，今年，北京市人社局还在部分技工院校和“产教评”技能生态链开设了21个短期培训项目。
 
-据此计算，其年度股息约为5.70美元。
+短期技能就业培训班面向以大学生为主的各类青年群体，开设周末班、寒暑假班以及集中培训班，满足青年群体学习技能、考取职业技能等级证书、提升就业竞争力的需求。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 20:53 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 20:40 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 20:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 20:25 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 20:51 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 20:41 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 20:35 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 20:32 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 20:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 20:33 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 20:39 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 20:46 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 20:33 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 20:54 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 20:43 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 20:36 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 20:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 20:49 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 20:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 20:36 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 20:52 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 20:49 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 20:59 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 20:33 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:36 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/07786107809.shtml)
-- 2026-06-29 20:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/58156296.shtml)
-- 2026-06-29 20:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/36341.shtml)
-- 2026-06-29 20:44 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/150910911.shtml)
-- 2026-06-29 20:51 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/77298816348.shtml)
-- 2026-06-29 20:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/40476759.shtml)
-- 2026-06-29 20:26 - [锐评T1零封KC](https://www.share.minike.top/Article/details/398164369.shtml)
-- 2026-06-29 20:32 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/796585614.shtml)
-- 2026-06-29 20:31 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/43447373170.shtml)
-- 2026-06-29 20:26 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/94642.shtml)
-- 2026-06-29 20:44 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/644701.shtml)
-- 2026-06-29 20:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/313475743016.shtml)
-- 2026-06-29 20:39 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/82414.shtml)
-- 2026-06-29 20:37 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/019783963.shtml)
-- 2026-06-29 20:39 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/2359973222.shtml)
+- 2026-06-29 20:30 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/151549118753.shtml)
+- 2026-06-29 20:41 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/649350601.shtml)
+- 2026-06-29 20:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/66252396986.shtml)
+- 2026-06-29 20:53 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/750202.shtml)
+- 2026-06-29 20:50 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/359997004836.shtml)
+- 2026-06-29 20:31 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/1791456.shtml)
+- 2026-06-29 20:38 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/15936813.shtml)
+- 2026-06-29 20:56 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/73235256506.shtml)
+- 2026-06-29 20:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/76806611.shtml)
+- 2026-06-29 20:36 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/74646607732.shtml)
+- 2026-06-29 20:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/514221.shtml)
+- 2026-06-29 20:33 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/1065532.shtml)
+- 2026-06-29 20:38 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/956812062.shtml)
+- 2026-06-29 20:38 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/2412747.shtml)
+- 2026-06-29 20:41 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/0084458751.shtml)

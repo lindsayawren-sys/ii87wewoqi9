@@ -1,57 +1,61 @@
-# 相互交易、转移资金！私募基金经理的黄金期权“对敲”手法曝光
+# 黄金交易提醒：周末中东局势突变，伊朗拒绝第二轮谈判，金价大幅跳空低开
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-来源：国际金融报 上期所公告认定，栾琨操作的相互交易行为已构成违规，扰乱了市场秩序。律师分析指出，此类“对敲”行为在法律上构成典型的操纵期货市场，同时因涉及“转移资金”目的，可能带有利益输送性质，并引发民事赔偿责任。事件暴露了部分私募机构在人员管控与交易监控上的重大漏洞。 5月11日，上海期货交易所连发两则违规处理公告，对通琨盈享1号私募证券投资基金、通琨建信1号私募证券投资基
+文章来源：汇通财经 周一（4月20日）国际金价大幅低开，截止07：30，一度下跌超过60美元，跌幅达到1.5%，最低触及4760美元附近。这一剧烈回调完全逆转了上周五的强势表现，主要源于周末中东局势骤然恶化：霍尔木兹海峡再度关闭，美军在阿曼湾海域向伊朗商船开火并实施扣押，而伊朗方面则明确拒绝参加第二轮美伊谈判，并誓言将予以回应和报复。这一连串事件不仅推高了全球能源风险，还加剧了
 
 ## 正文
 
-来源：国际金融报 上期所公告认定，栾琨操作的相互交易行为已构成违规，扰乱了市场秩序。
+文章来源：汇通财经 周一（4月20日）国际金价大幅低开，截止07：30，一度下跌超过60美元，跌幅达到1.5%，最低触及4760美元附近。
 
-律师分析指出，此类“对敲”行为在法律上构成典型的操纵期货市场，同时因涉及“转移资金”目的，可能带有利益输送性质，并引发民事赔偿责任。
+这一剧烈回调完全逆转了上周五的强势表现，主要源于周末中东局势骤然恶化：霍尔木兹海峡再度关闭，美军在阿曼湾海域向伊朗商船开火并实施扣押，而伊朗方面则明确拒绝参加第二轮美伊谈判，并誓言将予以回应和报复。
 
-事件暴露了部分私募机构在人员管控与交易监控上的重大漏洞。
+这一连串事件不仅推高了全球能源风险，还加剧了市场对通胀的担忧，显著打压了美联储降息预期，导致美元指数快速升至一周高位，对黄金形成明显压制。
 
-5月11日，上海期货交易所连发两则违规处理公告，对通琨盈享1号私募证券投资基金、通琨建信1号私募证券投资基金及其基金经理栾琨给予纪律处分并处以罚款，为私募期货行业的合规风控敲响警钟。
+中东局势骤然升级：伊朗拒绝第二轮谈判与美军武力拦截事件 据多家伊朗媒体19日报道，伊朗已全面为可能重燃的战火做好准备，并明确拒绝参加与美国的第二轮谈判。
 
-连开罚单 公告显示，2025年9月29日，栾琨操作通琨建信1号私募基金账户和其客户的账户在黄金期权合约上实施事先约定的相互交易、转移资金，扰乱市场秩序。
+同一天，美军在阿曼湾海域采取武力行动，拦截并扣押了一艘伊朗货船。
 
-对此，上期所认为，上述行为已构成《上海期货交易所违规处理办法》规定的违规行为，依据该办法，决定给予栾琨、通琨建信1号私募基金通报批评处分，并责令改正，处通琨建信1号私募基金罚款1万元，处栾琨罚款1.5万元，在违规案件处理决定书生效之日起5个交易日内如数缴纳至上期所指定账户。
+伊朗军方迅速指责美国此举公然违反停火协议，称其为“海上劫掠”行为，并表示将很快做出回应。
 
-同日，栾琨还操作通琨盈享1号账户和他人账户在黄金期权合约上相互交易，同样扰乱了市场秩序。
+早些时候，美国媒体曾援引白宫官员消息称，美国副总统万斯将率团前往巴基斯坦首都伊斯兰堡，参与美伊新一轮谈判，特朗普总统也在社交媒体上发文确认美国代表团将于20日晚抵达伊斯兰堡，甚至表示如果协议达成，他本人“很可能”亲自前往。
 
-上期所也指出，上述行为已构成《上海期货交易所违规处理办法》规定的违规行为，依据该办法，决定给予栾琨、通琨盈享1号私募基金通报批评处分，并责令改正，处通琨盈享1号私募基金罚款3万元，处栾琨罚款6万元，在违规案件处理决定书生效之日起5个交易日内如数缴纳至上期所指定账户。
+然而，伊朗伊斯兰共和国广播电视台和通讯社随即辟谣，强调伊朗方面目前并无参加下一轮谈判的计划，有关伊斯兰堡第二轮会谈的消息并不属实。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 20:24 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 20:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 20:40 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 20:34 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 20:45 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 20:44 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 20:32 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 20:33 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 20:25 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 20:45 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 20:39 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 20:43 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 20:53 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 20:37 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 20:49 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 20:50 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 20:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 20:55 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 20:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 20:32 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-29 20:54 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 20:46 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 20:33 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 20:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 20:56 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/3513888.shtml)
-- 2026-06-29 20:38 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/77895467.shtml)
-- 2026-06-29 20:42 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/079325796955.shtml)
-- 2026-06-29 20:44 - [扩军害了世界杯吗](https://www.share.minike.top/Article/details/526481080245.shtml)
-- 2026-06-29 20:53 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/18894297.shtml)
-- 2026-06-29 20:42 - [金牌调解](http://www.blog.minike.top/Article/details/39588639585.shtml)
-- 2026-06-29 20:40 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/04657.shtml)
-- 2026-06-29 20:35 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/3743971.shtml)
-- 2026-06-29 20:43 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/3155137.shtml)
-- 2026-06-29 20:44 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/1792025239.shtml)
-- 2026-06-29 20:39 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/95888.shtml)
-- 2026-06-29 20:28 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/514589583588.shtml)
-- 2026-06-29 20:27 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/3877315436.shtml)
-- 2026-06-29 20:44 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/03554250.shtml)
-- 2026-06-29 20:49 - [沙丘](http://www.share.minike.top/Article/details/405540.shtml)
+- 2026-06-29 20:47 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/7125182.shtml)
+- 2026-06-29 20:34 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/377354546.shtml)
+- 2026-06-29 20:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/9010398397.shtml)
+- 2026-06-29 20:43 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/3317055.shtml)
+- 2026-06-29 20:50 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/084201676972.shtml)
+- 2026-06-29 20:44 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/169274391.shtml)
+- 2026-06-29 20:34 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/8407392868.shtml)
+- 2026-06-29 20:37 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/15774.shtml)
+- 2026-06-29 20:41 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/633820236.shtml)
+- 2026-06-29 20:43 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/91346127.shtml)
+- 2026-06-29 20:50 - [东方风云榜](https://www.blog.minike.top/Article/details/014605445.shtml)
+- 2026-06-29 20:47 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/90005629835.shtml)
+- 2026-06-29 20:33 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/7539825486.shtml)
+- 2026-06-29 20:49 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/59959447.shtml)
+- 2026-06-29 20:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/28201906.shtml)

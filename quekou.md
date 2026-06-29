@@ -1,61 +1,56 @@
-# 能源智库称伊朗战争导致欧盟前所未有地高度依赖美国天然气
+# 美国法官驳回拜耳要求阻止强生前列腺癌药物索赔的申请
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。 能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。 自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多
+一名美国联邦法官驳回了拜耳提出的禁止强生发布其价值数十亿美元的药物可将前列腺癌死亡风险降低一半的虚假广告的请求。 在周五晚的裁决中，美国曼哈顿地区法官戴尔-何（Dale Ho）说，拜耳没有证明它有可能胜诉，其诉讼请求包括强生为其药物Erleada所做的宣传造成了无法弥补的伤害，并有可能削弱人们对拜耳自己的药物Nubeqa的信任。 拜耳和强生均未在盘后立即回应置评请求。 拜耳于
 
 ## 正文
 
-一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。
+一名美国联邦法官驳回了拜耳提出的禁止强生发布其价值数十亿美元的药物可将前列腺癌死亡风险降低一半的虚假广告的请求。
 
-能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。
+在周五晚的裁决中，美国曼哈顿地区法官戴尔-何（Dale Ho）说，拜耳没有证明它有可能胜诉，其诉讼请求包括强生为其药物Erleada所做的宣传造成了无法弥补的伤害，并有可能削弱人们对拜耳自己的药物Nubeqa的信任。
 
-按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。
+拜耳和强生均未在盘后立即回应置评请求。
 
-自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多元化，以避免过度依赖单一供应方。
+拜耳于 2 月 23 日起诉强生公司，指控其谎称根据美国食品药品管理局 “严格 ”标准进行的测试，如果患者使用 Erleada 而不是 Nubeqa 治疗，其 “死亡风险降低 51%”。
 
-美国的海运输LNG已成为替代俄罗斯管道气的关键来源，但部分欧洲官员警告称，欧洲可能正从一种依赖转向另一种依赖。
+这家德国制药商说，Erleada疗效更好的说法并不可靠，因为大多数Nubeqa患者是在标签外接受药物治疗的。
 
-IEEFA欧洲首席能源分析师Ana Maria Jaller-Makarewicz表示：“液化天然气已成为欧洲能源安全战略的阿喀琉斯之踵，使该地区面临更高气价以及新的供应中断风险。
+它还说，美国食品和药物管理局没有审查强生公司的后向真实世界分析，以取代传统的临床试验。
 
-” Jaller-Makarewicz指出，如果卡塔尔LNG生产设施因伊朗战争出现长期停产，美国向欧盟供气规模可能超过挪威。
+在一份长达 41 页的决定中，Ho 表示强生的宣传准确地表达了其研究结论，拜耳没有发现 “重大 ”的方法错误，从而使这家总部位于新泽西州新不伦瑞克的制药商的声明具有实质性的虚假或误导性。
 
-责任编辑：王永生
+法官写道： “根据目前的记录”，“这项研究的作者所做的方法选择在相关科学界并没有错误或偏离步调”。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 20:24 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 20:43 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 20:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 20:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 20:27 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 20:50 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 20:27 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 20:25 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 20:50 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 20:40 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 20:37 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 20:29 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 20:51 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 20:45 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 20:56 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 20:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 20:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 20:38 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 20:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 20:50 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 20:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 20:31 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 20:51 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 20:34 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/328969267426.shtml)
-- 2026-06-29 20:50 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/99828990.shtml)
-- 2026-06-29 20:28 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/866478.shtml)
-- 2026-06-29 20:48 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/048875704856.shtml)
-- 2026-06-29 20:45 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/324978630.shtml)
-- 2026-06-29 20:30 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/69690504.shtml)
-- 2026-06-29 20:35 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/699239608706.shtml)
-- 2026-06-29 20:53 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/841138836059.shtml)
-- 2026-06-29 20:25 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/53041753.shtml)
-- 2026-06-29 20:46 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/82484036.shtml)
-- 2026-06-29 20:31 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/8387483.shtml)
-- 2026-06-29 20:35 - [啊啊啊](https://www.blog.minike.top/Article/details/697654984.shtml)
-- 2026-06-29 20:36 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/3734612625.shtml)
-- 2026-06-29 20:31 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/13970222116.shtml)
-- 2026-06-29 20:49 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/02505371.shtml)
+- 2026-06-29 20:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/892321.shtml)
+- 2026-06-29 20:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/39410374840.shtml)
+- 2026-06-29 20:37 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/53394503.shtml)
+- 2026-06-29 20:44 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/37143.shtml)
+- 2026-06-29 20:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/41025432804.shtml)
+- 2026-06-29 20:55 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/18593130.shtml)
+- 2026-06-29 20:34 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/99999927101.shtml)
+- 2026-06-29 20:32 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/560762636.shtml)
+- 2026-06-29 20:58 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/42450.shtml)
+- 2026-06-29 20:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/80114982803.shtml)
+- 2026-06-29 20:37 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/6724903.shtml)
+- 2026-06-29 20:55 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/19918253463.shtml)
+- 2026-06-29 20:41 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/204446.shtml)
+- 2026-06-29 20:34 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/14707101866.shtml)
+- 2026-06-29 20:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/0058103394.shtml)

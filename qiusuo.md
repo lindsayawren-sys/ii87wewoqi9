@@ -1,47 +1,59 @@
-# 创业板指创下历史新高
+# 从“劝业”到“劝读” 安庆百年建筑的“跨界”融合
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 15:28 来源：中国新闻网 5月13日午后，创业板指持续走强，盘中突破2015年6月5日创下的4037.96点，最高探至4041.99点，创历史新高。 责任编辑：【岳川】
+中新网安庆4月19日电 (刘鸿鹤)“很多年轻人第一次走进来，是被这座百年建筑的外观吸引；真正让他们留下来的，是里面的书和氛围。”“90后”的安庆新华书店前言后记劝业场店店长杨志宏说。 4月18日，“阅响迎江·红韵赓续”全民阅读活动周在此启幕。该建筑前身为1915年落成的安徽劝业场，是中国现存最早的劝业场建筑之一。民国时期，安庆市政厅曾设于此。 “这里既有书店的文化底蕴，又有老建
 
 ## 正文
 
-发布时间：2026年05月13日 15:28 来源：中国新闻网 5月13日午后，创业板指持续走强，盘中突破2015年6月5日创下的4037.96点，最高探至4041.99点，创历史新高。
+中新网安庆4月19日电 (刘鸿鹤)“很多年轻人第一次走进来，是被这座百年建筑的外观吸引；真正让他们留下来的，是里面的书和氛围。
 
-责任编辑：【岳川】
+”“90后”的安庆新华书店前言后记劝业场店店长杨志宏说。
+
+4月18日，“阅响迎江·红韵赓续”全民阅读活动周在此启幕。
+
+该建筑前身为1915年落成的安徽劝业场，是中国现存最早的劝业场建筑之一。
+
+民国时期，安庆市政厅曾设于此。
+
+“这里既有书店的文化底蕴，又有老建筑的历史厚重感。
+
+”“90后”市民胡代吟说。
+
+据悉，该店三层26个房间针对不同年龄群体精准配书，推出文学、哲学等主题书单，满足市民多元阅读需求。
 
 ## 相关推荐
 
-- 2026-06-29 20:43 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 20:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 20:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 20:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 20:28 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 20:45 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 20:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 20:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 20:47 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 20:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 20:33 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 20:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 20:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 20:51 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 20:55 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 20:37 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 20:43 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 20:46 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 20:45 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 20:31 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 20:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 20:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 20:45 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 20:37 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 20:45 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 20:58 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/192079.shtml)
-- 2026-06-29 20:44 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/616229748.shtml)
-- 2026-06-29 20:46 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/023343.shtml)
-- 2026-06-29 20:53 - [小娘惹](https://www.share.minike.top/Article/details/072751653617.shtml)
-- 2026-06-29 20:43 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/03786134109.shtml)
-- 2026-06-29 20:28 - [我们的少年时代2](https://www.blog.minike.top/Article/details/130746669631.shtml)
-- 2026-06-29 20:43 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/51867393.shtml)
-- 2026-06-29 20:42 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/398484347564.shtml)
-- 2026-06-29 20:52 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/06059780.shtml)
-- 2026-06-29 20:33 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/72557926336.shtml)
-- 2026-06-29 20:36 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/03610276.shtml)
-- 2026-06-29 20:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/90746.shtml)
-- 2026-06-29 20:26 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/134741.shtml)
-- 2026-06-29 20:52 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/9487657.shtml)
-- 2026-06-29 20:47 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/29613.shtml)
+- 2026-06-29 20:57 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/9276545149.shtml)
+- 2026-06-29 20:56 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/52095.shtml)
+- 2026-06-29 20:38 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/24274887575.shtml)
+- 2026-06-29 20:52 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/935635869.shtml)
+- 2026-06-29 20:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/62470.shtml)
+- 2026-06-29 20:50 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/49304.shtml)
+- 2026-06-29 20:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/3281323.shtml)
+- 2026-06-29 20:43 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/11539.shtml)
+- 2026-06-29 20:54 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/7933911.shtml)
+- 2026-06-29 20:43 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/725058391.shtml)
+- 2026-06-29 20:57 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/74065041679.shtml)
+- 2026-06-29 20:49 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/60010697487.shtml)
+- 2026-06-29 20:42 - [TOP Prada](http://www.share.minike.top/Article/details/428777.shtml)
+- 2026-06-29 20:59 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/112510081.shtml)
+- 2026-06-29 20:35 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/4095530630.shtml)

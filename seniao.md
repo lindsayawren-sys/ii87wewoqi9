@@ -1,47 +1,43 @@
-# 闰土股份：公司子公司已涉足化工新材料的相关原料
+# 4月20日人民币对美元中间价报6.8648 下调26个基点
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-证券日报网5月13日讯，闰土股份在接受调研者提问时表示，公司子公司已涉足化工新材料的相关原料。尚未涉足电池级磷酸铁。
+中新网4月20日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月20日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8648元，下调26个基点。
 
 ## 正文
 
-证券日报网5月13日讯，闰土股份在接受调研者提问时表示，公司子公司已涉足化工新材料的相关原料。
-
-尚未涉足电池级磷酸铁。
+中新网4月20日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月20日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8648元，下调26个基点。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 20:35 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 20:28 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 20:42 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 20:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 20:38 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 20:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 20:52 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 20:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 20:27 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 20:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 20:28 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 20:37 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 20:50 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 20:30 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 20:50 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 20:34 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 20:37 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 20:51 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 20:52 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 20:54 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 20:59 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 20:40 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 20:47 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:32 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/215151.shtml)
-- 2026-06-29 20:38 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/66479.shtml)
-- 2026-06-29 20:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/0506598941.shtml)
-- 2026-06-29 20:44 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/423599559573.shtml)
-- 2026-06-29 20:35 - [恋与深空致歉](http://www.share.minike.top/Article/details/78736008.shtml)
-- 2026-06-29 20:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/9204080.shtml)
-- 2026-06-29 20:33 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/707932.shtml)
-- 2026-06-29 20:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/652218550.shtml)
-- 2026-06-29 20:31 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0614913.shtml)
-- 2026-06-29 20:36 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/7146304600.shtml)
-- 2026-06-29 20:49 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/905801.shtml)
-- 2026-06-29 20:51 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/93166.shtml)
-- 2026-06-29 20:31 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/147364435187.shtml)
-- 2026-06-29 20:36 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/89698874.shtml)
-- 2026-06-29 20:47 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/39672.shtml)
+- 2026-06-29 20:33 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/72169269857.shtml)
+- 2026-06-29 20:51 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/615582862233.shtml)
+- 2026-06-29 20:57 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/64882243.shtml)
+- 2026-06-29 20:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/8809204.shtml)
+- 2026-06-29 20:53 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/4085521.shtml)
+- 2026-06-29 20:40 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/7245780.shtml)
+- 2026-06-29 20:32 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/34044806949.shtml)
+- 2026-06-29 20:49 - [周生如故](http://www.blog.kurohicncr.top/Article/details/98423.shtml)
+- 2026-06-29 20:50 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/403496.shtml)
+- 2026-06-29 20:53 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/2518941750.shtml)
+- 2026-06-29 20:52 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/55598.shtml)
+- 2026-06-29 20:55 - [金刚川](http://www.share.minike.top/Article/details/37274428765.shtml)
+- 2026-06-29 20:47 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/08320.shtml)
+- 2026-06-29 20:59 - [恋与深空致歉](https://www.share.minike.top/Article/details/923802484.shtml)
+- 2026-06-29 20:48 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/98560.shtml)

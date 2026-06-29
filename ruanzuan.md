@@ -1,59 +1,61 @@
-# 阿尔特曼详述马斯克与 OpenAI 决裂始末 ：称非营利机构当年近乎被弃之不顾
+# 长安期货范磊：海峡关闭停火到期，关注三条谈判要点
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-核心要点 OpenAI 首席执行官山姆・阿尔特曼在马斯克诉阿尔特曼案庭审中完成出庭作证。 全球首富埃隆・马斯克指控阿尔特曼与另一位 OpenAI 联合创始人企图侵吞一家公益慈善机构。 阿尔特曼就 OpenAI 创立历程、与马斯克的关系、公司治理结构，以及自己 2023 年短暂被罢免 CEO 等问题接受质询。 OpenAI 首席执行官山姆・阿尔特曼于周二在马斯克诉阿尔特曼案件中出
+自4月7日美国与伊朗达成为期两周的停火协议以来，国际油价便持续处在下行通道之中，这主要是由于市场前期对于战争升级的担忧情绪明显缓解。然而周末时间则伊朗则表示因美国“屡次违背承诺”，对霍尔木兹海峡的控制权已恢复到以前的状态，这导致短期内的地缘不确定性再度有所升级。此前美国与伊朗虽然达成了协议，但关于黎以停火的具体进展、伊朗核资源的后续处理以及美国放开对伊朗的国际制裁等问题尚未达成
 
 ## 正文
 
-核心要点 OpenAI 首席执行官山姆・阿尔特曼在马斯克诉阿尔特曼案庭审中完成出庭作证。
+自4月7日美国与伊朗达成为期两周的停火协议以来，国际油价便持续处在下行通道之中，这主要是由于市场前期对于战争升级的担忧情绪明显缓解。
 
-全球首富埃隆・马斯克指控阿尔特曼与另一位 OpenAI 联合创始人企图侵吞一家公益慈善机构。
+然而周末时间则伊朗则表示因美国“屡次违背承诺”，对霍尔木兹海峡的控制权已恢复到以前的状态，这导致短期内的地缘不确定性再度有所升级。
 
-阿尔特曼就 OpenAI 创立历程、与马斯克的关系、公司治理结构，以及自己 2023 年短暂被罢免 CEO 等问题接受质询。
+此前美国与伊朗虽然达成了协议，但关于黎以停火的具体进展、伊朗核资源的后续处理以及美国放开对伊朗的国际制裁等问题尚未达成明显的结果，而这三点也将是近期美伊谈判再度开始的关键话题。
 
-OpenAI 首席执行官山姆・阿尔特曼于周二在马斯克诉阿尔特曼案件中出庭作证，他向陪审团明确陈述核心立场：自己从未侵吞慈善机构，反而是埃隆・马斯克亲手抛弃了它。
+其一，关于以色列与黎巴嫩的停火问题。
 
-阿尔特曼身着蓝色西装领带，在加州奥克兰联邦法院证人席作证约四小时。
+上周五时间特朗普突然宣布以色列将与黎巴嫩停火10天，随后黎以双方的武装力量均对外释放出了同意停火的信号。
 
-他表示，2015 年与自己共同创立 OpenAI 的马斯克并未信守承诺，在这家初创企业前途未卜、艰难摸索方向之际，最终选择抽身离去。
+随后伊朗表示鉴于黎巴嫩与以色列达成停火，伊朗在停火期间对所有商船开放霍尔木兹海峡，允许非军用船只通行，但特朗普则表示在协议正式达成前，不会解除对伊朗的海上封锁。
 
-阿尔特曼在庭上坦言：“我们当时几乎被弃之不顾，任其自生自灭。
+这表明目前黎以的停火或并不是特朗普敦促下形成的结果，而是在为和伊朗的谈判增加另外一份筹码，这将意味着若后续伊朗无法顺利与美国达成协议，以色列与黎巴嫩的冲突或再度重燃。
 
-” 马斯克于 2024 年起诉 OpenAI、阿尔特曼及公司总裁格雷格・布罗克曼，指控三人违背创始承诺，背弃公益非营利初心、偏离慈善使命。
+其二，关于伊朗核资源的后续处理问题。
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 20:34 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 20:45 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 20:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 20:48 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 20:32 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 20:45 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 20:38 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:25 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 20:38 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 20:50 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 20:48 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 20:34 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 20:58 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 20:45 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 20:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 20:40 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 20:33 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 20:32 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 20:54 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 20:46 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 20:36 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 20:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 20:32 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 20:30 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 20:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 20:38 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 20:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/942863337016.shtml)
-- 2026-06-29 20:48 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/4426995.shtml)
-- 2026-06-29 20:39 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/32935.shtml)
-- 2026-06-29 20:42 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/762162467.shtml)
-- 2026-06-29 20:35 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/39054212138.shtml)
-- 2026-06-29 20:36 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/38067.shtml)
-- 2026-06-29 20:28 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/717772070316.shtml)
-- 2026-06-29 20:51 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/84970364.shtml)
-- 2026-06-29 20:24 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/92732377.shtml)
-- 2026-06-29 20:24 - [毒液2](http://www.blog.minike.top/Article/details/038369999.shtml)
-- 2026-06-29 20:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/0365363.shtml)
-- 2026-06-29 20:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/3917229959.shtml)
-- 2026-06-29 20:44 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/60950474059.shtml)
-- 2026-06-29 20:27 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/8584277292.shtml)
-- 2026-06-29 20:42 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/541301.shtml)
+- 2026-06-29 20:49 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/844516.shtml)
+- 2026-06-29 20:41 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.minike.top/Article/details/63675160.shtml)
+- 2026-06-29 20:54 - [周生如故](http://www.blog.minike.top/Article/details/5616681.shtml)
+- 2026-06-29 20:41 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/200700.shtml)
+- 2026-06-29 20:35 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/54586826063.shtml)
+- 2026-06-29 20:40 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/49928.shtml)
+- 2026-06-29 20:47 - [我和我的家乡](http://www.share.minike.top/Article/details/06318462.shtml)
+- 2026-06-29 20:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/812713926.shtml)
+- 2026-06-29 20:55 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/245290308.shtml)
+- 2026-06-29 20:59 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/810359056.shtml)
+- 2026-06-29 20:31 - [金刚川](https://www.blog.kurohicncr.top/Article/details/144984.shtml)
+- 2026-06-29 20:33 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/782316667823.shtml)
+- 2026-06-29 20:40 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/67726.shtml)
+- 2026-06-29 20:56 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/8190623.shtml)
+- 2026-06-29 20:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/80977307840.shtml)

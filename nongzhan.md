@@ -1,56 +1,56 @@
-# 2026年广西防灾减灾宣传周启动 救援演示引民众关注
+# 哥伦比亚国家石油公司：Copoazú-1井测试结果预计6月底揭晓
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。 当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事
+哥伦比亚国家石油公司Ecopetrol周五表示，与巴西国家石油公司合作进行的Copoazú-1深水勘探井的最终测试结果，预计将于6月底公布。 该井位于哥伦比亚加勒比海深水区的GUA-OFF-0区块，距离海岸约36公里，水深964米。此前，两家公司已于上月确认了该井的天然气发现。Ecopetrol代理首席执行官公布了这一时间表。 此次发现具有重要意义。电测井和流体取样不仅证实了主
 
 ## 正文
 
-中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。
+哥伦比亚国家石油公司Ecopetrol周五表示，与巴西国家石油公司合作进行的Copoazú-1深水勘探井的最终测试结果，预计将于6月底公布。
 
-当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。
+该井位于哥伦比亚加勒比海深水区的GUA-OFF-0区块，距离海岸约36公里，水深964米。
 
-广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事协调机构结合实际，组织开展一系列防灾减灾科普宣教活动，在易灾区域至少开展一次应急演练，至少开展一次风险隐患排查等活动。
+此前，两家公司已于上月确认了该井的天然气发现。
 
-据介绍，今年广西聚焦重大基础设施和人员密集场所开展涉灾风险排查，完善监测预警“叫应”和跟踪反馈机制，围绕大震巨灾、城市内涝、山区极端暴雨—山洪—泥石流等复杂场景组织跨区域跨部门协同演练，发挥八桂应急社区响应队“第一响应人”和党员先锋模范作用，确保全区社会大局和谐稳定、全区人民安居乐业。
+Ecopetrol代理首席执行官公布了这一时间表。
 
-本次活动拉开了集中开展防灾减灾救灾科普宣传教育的序幕，以“人人讲安全，个个会应急——提高防灾减灾救灾能力”为主题，旨在营造人人讲安全、个个会应急的社会氛围。
+此次发现具有重要意义。
 
-活动现场，广西各级各部门通过设立展板、发放资料、有奖问答等形式，为民众普及防灾减灾知识和自救互救技能。
+电测井和流体取样不仅证实了主要目标层段存在天然气，在主目标之外也发现了碳氢化合物，进一步巩固了该区域作为新兴“天然气省”的地位。
 
-广西消防救援队伍、南宁消防救援机动队伍等通过应急装备展示，提高民众对于新质应急救援装备的认知度。
+该发现与Sirius-1和Sirius-2井邻近，距离仅8公里，表明该区域具有连片开发的潜力。
 
-壮小安应急安全主题馆提供沉浸式的灾害事故场景体验，进一步加深民众的避灾避险意识。
+该区块由巴西国家石油公司的子公司担任作业者，持有44.44%的权益，而Ecopetrol持有55.56%的权益。
 
 ## 相关推荐
 
-- 2026-06-29 20:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 20:32 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 20:48 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 20:37 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 20:52 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 20:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 20:25 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 20:42 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 20:34 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 20:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 20:50 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 20:47 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 20:31 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 20:50 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 20:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 20:48 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 20:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 20:33 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 20:52 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 20:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/90884795.shtml)
-- 2026-06-29 20:45 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/118039998921.shtml)
-- 2026-06-29 20:31 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/767617.shtml)
-- 2026-06-29 20:27 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/23462677.shtml)
-- 2026-06-29 20:27 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/12183706830.shtml)
-- 2026-06-29 20:28 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/373104723334.shtml)
-- 2026-06-29 20:34 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/06464.shtml)
-- 2026-06-29 20:50 - [温网](https://www.share.minike.top/Article/details/5709901.shtml)
-- 2026-06-29 20:25 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/7576056.shtml)
-- 2026-06-29 20:27 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/46995222320.shtml)
-- 2026-06-29 20:46 - [一生一世](https://www.blog.minike.top/Article/details/29493.shtml)
-- 2026-06-29 20:25 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/990837.shtml)
-- 2026-06-29 20:24 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/62879.shtml)
-- 2026-06-29 20:46 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/68093.shtml)
-- 2026-06-29 20:47 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/479297608.shtml)
+- 2026-06-29 20:52 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/3911839622.shtml)
+- 2026-06-29 20:58 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/5427708.shtml)
+- 2026-06-29 20:31 - [时光音乐会](http://www.blog.minike.top/Article/details/00650.shtml)
+- 2026-06-29 20:52 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/2522291411.shtml)
+- 2026-06-29 20:38 - [明星大侦探第一季](http://www.share.minike.top/Article/details/678602496.shtml)
+- 2026-06-29 20:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/375926.shtml)
+- 2026-06-29 20:58 - [爱奇艺抬高国剧新标尺](https://www.blog.kurohicncr.top/Article/details/60845.shtml)
+- 2026-06-29 20:47 - [王楚钦开门红](https://www.blog.minike.top/Article/details/48662919937.shtml)
+- 2026-06-29 20:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/3080576351.shtml)
+- 2026-06-29 20:53 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/787973.shtml)
+- 2026-06-29 20:44 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/874672315324.shtml)
+- 2026-06-29 20:34 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/463474.shtml)
+- 2026-06-29 20:59 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/953532803191.shtml)
+- 2026-06-29 20:37 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/656773.shtml)
+- 2026-06-29 20:35 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/59368255.shtml)

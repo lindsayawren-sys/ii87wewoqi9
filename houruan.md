@@ -1,52 +1,60 @@
-# 【这个城市有点潮】云南昆明：春城的初夏温柔 “紫”属于你
+# 2026年“铁人中国”公开赛全国首站鸣枪开赛
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 15:34 来源：中国新闻网 五月的昆明，蓝花楹如约倾泻。高饱和的蓝紫色，席卷街巷江畔，从教场中路到盘龙江畔，春城被晕染成一片蓝紫色的海。这是属于昆明的初夏温柔，是花开有时，“紫”属于你。 责任编辑：【刘湃】
+中新网湖北浠水4月19日电 (方俊)2026年“月湖澜院杯”铁人中国T51.5浠水公开赛暨中国·浠水第三届乡村铁人三项公开赛，19日在湖北省黄冈市浠水县开赛，这是2026年“铁人中国”公开赛全国首站赛事。 本次赛事由中国铁人三项运动协会、黄冈市政府主办，设置全程精英组、全程分龄组、半程分龄组和半程接力组，共计27个组别，奖金约200000元。 其中，全程组赛道采用51.5公里奥
 
 ## 正文
 
-发布时间：2026年05月13日 15:34 来源：中国新闻网 五月的昆明，蓝花楹如约倾泻。
+中新网湖北浠水4月19日电 (方俊)2026年“月湖澜院杯”铁人中国T51.5浠水公开赛暨中国·浠水第三届乡村铁人三项公开赛，19日在湖北省黄冈市浠水县开赛，这是2026年“铁人中国”公开赛全国首站赛事。
 
-高饱和的蓝紫色，席卷街巷江畔，从教场中路到盘龙江畔，春城被晕染成一片蓝紫色的海。
+本次赛事由中国铁人三项运动协会、黄冈市政府主办，设置全程精英组、全程分龄组、半程分龄组和半程接力组，共计27个组别，奖金约200000元。
 
-这是属于昆明的初夏温柔，是花开有时，“紫”属于你。
+其中，全程组赛道采用51.5公里奥运标准距离，包含1.5公里游泳、40公里自行车、10公里跑步；半程组赛道为27.75公里，由0.75公里游泳、22公里自行车、5公里跑步构成。
 
-责任编辑：【刘湃】
+新增精英组提升竞技观赏性。
+
+经过角逐，最终湖北选手余越和瑞士选手Anna·Nichelle，分别以2小时07分12秒、2小时19分53秒获男女精英组冠军。
+
+赛道上，铁人们劈波斩浪、疾驰如风；赛场外，浠水县组织开展“跟着赛事游浠水”文旅体验、“铁人杂技之夜”主题交流、“浠水味道”特色市集等16项配套活动。
+
+三角山、斗方山、禾雀花谷等景点纷纷推出针对性优惠政策，将赛事流量转化为文旅“留量”。
+
+“这不仅是一场比赛，更是一次美好的旅行体验。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 20:43 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 20:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 20:28 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 20:35 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 20:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 20:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-29 20:27 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 20:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 20:26 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 20:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 20:47 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 20:35 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-29 20:29 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 20:36 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 20:36 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 20:52 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 20:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 20:44 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 20:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 20:41 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 20:59 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 20:42 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 20:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 20:32 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 20:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 20:32 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 20:53 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:27 - [一见倾心](https://www.share.kurohicncr.top/Article/details/923864496.shtml)
-- 2026-06-29 20:37 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/624159671.shtml)
-- 2026-06-29 20:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9240804.shtml)
-- 2026-06-29 20:36 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/099130802.shtml)
-- 2026-06-29 20:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/074563.shtml)
-- 2026-06-29 20:29 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/712622.shtml)
-- 2026-06-29 20:28 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/79496620.shtml)
-- 2026-06-29 20:32 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/36767827.shtml)
-- 2026-06-29 20:34 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/40621238230.shtml)
-- 2026-06-29 20:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/7463054.shtml)
-- 2026-06-29 20:30 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/011221086.shtml)
-- 2026-06-29 20:43 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/664698193.shtml)
-- 2026-06-29 20:47 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/356339997.shtml)
-- 2026-06-29 20:25 - [天气热脾气都变差了](http://www.blog.minike.top/Article/details/6969780249.shtml)
-- 2026-06-29 20:41 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/40748605170.shtml)
+- 2026-06-29 20:36 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/979377834.shtml)
+- 2026-06-29 20:38 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/682435.shtml)
+- 2026-06-29 20:56 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/394363004841.shtml)
+- 2026-06-29 20:49 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/9091392997.shtml)
+- 2026-06-29 20:32 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/04293962045.shtml)
+- 2026-06-29 20:35 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/8924466.shtml)
+- 2026-06-29 20:31 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/355623.shtml)
+- 2026-06-29 20:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/4194494.shtml)
+- 2026-06-29 20:54 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/461900.shtml)
+- 2026-06-29 20:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/487870093.shtml)
+- 2026-06-29 20:31 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/81180917012.shtml)
+- 2026-06-29 20:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/25153239668.shtml)
+- 2026-06-29 20:30 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/494792169117.shtml)
+- 2026-06-29 20:36 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/03143.shtml)
+- 2026-06-29 20:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/4452373.shtml)

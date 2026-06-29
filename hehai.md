@@ -1,60 +1,60 @@
-# 毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏
+# 山歌传情机器人热舞 广西“三月三”变身“潮玩盛宴”
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新社北京5月13日电 题：毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏 中新社记者 庞无忌 一季度中国经济起步有力，GDP(国内生产总值)同比增长5.0%，站稳全年增长目标上沿。尽管面临地缘冲突延宕升级、国内供强需弱矛盾等的扰动，毕马威中国经济研究院院长蔡伟近日在接受中新社记者专访时指出，但在外需韧性、服务消费拉动、新动能加速成长、政策靠前发力等多重因素支撑下，二季
+中新网南宁4月18日电 题：山歌传情机器人热舞 广西“三月三”变身“潮玩盛宴” 记者 黄艳梅 悠扬山歌邂逅激情桑巴、人工智能(AI)机器人热舞、“水陆空”立体展演……2026年“广西三月三·八桂嘉年华”文化旅游品牌活动为海内外游客呈现了一场别开生面的“潮玩盛宴”。 “三月三”是广西最为隆重的民族传统节日、歌圩日。18日，一场以“三月三 趣广西”为主题的春日盛会在南宁民歌湖启幕。
 
 ## 正文
 
-中新社北京5月13日电 题：毕马威中国蔡伟：四大动能支撑二季度中国经济延续稳健复苏 中新社记者 庞无忌 一季度中国经济起步有力，GDP(国内生产总值)同比增长5.0%，站稳全年增长目标上沿。
+中新网南宁4月18日电 题：山歌传情机器人热舞 广西“三月三”变身“潮玩盛宴” 记者 黄艳梅 悠扬山歌邂逅激情桑巴、人工智能(AI)机器人热舞、“水陆空”立体展演……2026年“广西三月三·八桂嘉年华”文化旅游品牌活动为海内外游客呈现了一场别开生面的“潮玩盛宴”。
 
-尽管面临地缘冲突延宕升级、国内供强需弱矛盾等的扰动，毕马威中国经济研究院院长蔡伟近日在接受中新社记者专访时指出，但在外需韧性、服务消费拉动、新动能加速成长、政策靠前发力等多重因素支撑下，二季度中国经济有望延续稳健复苏态势。
+“三月三”是广西最为隆重的民族传统节日、歌圩日。
 
-首先，在一季度表现强劲的外贸预计仍有韧性。
+18日，一场以“三月三 趣广西”为主题的春日盛会在南宁民歌湖启幕。
 
-日前，毕马威发布的二季度《中国经济观察》报告认为，二季度外需韧性仍存。
+传统文化与时尚潮流、科技元素融合，成为今年广西“三月三”最鲜明的注脚。
 
-中国一季度出口同比增长11.9%；4月出口同比增速加快至14.1%，较3月显著提升，增幅超市场预期。
+活动开幕式以沉浸式、互动式的形式，精心设置“五土润柳·铸同心”“一马当先·争上游”“世界同唱·‘三月三’”“国风非遗·新焕境”“爱在南宁·悦生活”等七大单元，呈现好看、好吃、好玩、好购的广西“三月三”。
 
-蔡伟表示，全球人工智能产业链的高景气，持续拉动中国集成电路等产品出口。
+开幕式现场，AI机器人在线“营业”解锁民俗新玩法，将活动氛围感拉满，堪称“行走的合影打卡点”。
 
-同时，全球能源转型趋势推动“新三样”(电动载人汽车、锂电池和太阳能电池)等产品出口保持较高增长。
+“想要过桥？
 
-从4月PMI(制造业采购经理指数)等先行指标看，全球需求保持偏强格局，叠加国内完备的产业配套优势，即便存在地缘风险扰动，二季度外贸仍将维持结构性韧性。
+先过歌关！
 
 ## 相关推荐
 
-- 2026-06-29 20:46 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 20:47 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 20:39 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 20:25 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 20:25 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 20:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 20:31 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 20:51 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 20:50 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 20:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 20:51 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 20:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 20:42 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 20:45 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 20:34 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 20:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 20:44 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 20:31 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 20:49 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 20:36 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 20:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 20:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 20:57 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 20:49 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 20:53 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 20:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 20:40 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 20:48 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:51 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/34731370.shtml)
-- 2026-06-29 20:52 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/57254.shtml)
-- 2026-06-29 20:44 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/6380022.shtml)
-- 2026-06-29 20:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/6536471875.shtml)
-- 2026-06-29 20:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/504014.shtml)
-- 2026-06-29 20:44 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/864511412.shtml)
-- 2026-06-29 20:26 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/168685.shtml)
-- 2026-06-29 20:52 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/2030540485.shtml)
-- 2026-06-29 20:38 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/63793827.shtml)
-- 2026-06-29 20:26 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/97068674166.shtml)
-- 2026-06-29 20:36 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/82302.shtml)
-- 2026-06-29 20:43 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/5560232965.shtml)
-- 2026-06-29 20:50 - [逃狱兄弟](http://www.share.minike.top/Article/details/812050852294.shtml)
-- 2026-06-29 20:51 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/844624.shtml)
-- 2026-06-29 20:43 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/819119706961.shtml)
+- 2026-06-29 20:39 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/2856089873.shtml)
+- 2026-06-29 20:42 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.minike.top/Article/details/878988626.shtml)
+- 2026-06-29 20:55 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/597485946481.shtml)
+- 2026-06-29 20:39 - [扩军害了世界杯吗](https://www.share.kurohicncr.top/Article/details/44295897139.shtml)
+- 2026-06-29 20:42 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/1550883888.shtml)
+- 2026-06-29 20:30 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/568740645321.shtml)
+- 2026-06-29 20:36 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/57436004458.shtml)
+- 2026-06-29 20:45 - [女心理师](https://www.blog.minike.top/Article/details/05216177.shtml)
+- 2026-06-29 20:37 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/54779.shtml)
+- 2026-06-29 20:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/862216555187.shtml)
+- 2026-06-29 20:30 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/62585.shtml)
+- 2026-06-29 20:42 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/287189.shtml)
+- 2026-06-29 20:49 - [新官上任三把火](http://www.share.minike.top/Article/details/297924.shtml)
+- 2026-06-29 20:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/020698234.shtml)
+- 2026-06-29 20:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/5590125.shtml)

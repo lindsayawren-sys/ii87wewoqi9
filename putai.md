@@ -1,58 +1,57 @@
-# 广东集中开展工业企业涂装作业安全整治
+# “五一”假期航班遭大规模取消 消费者如何维权
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网广州5月13日电 (记者 王坚)广东省应急管理厅13日消息称，5月至7月底，广东集中开展3个月工业企业涂装作业安全整治，督促指导企业系统辨识调漆、喷漆、烘干、清洁等关键环节的安全风险，确保不漏掉一个环节、一处场所。广东省应急管理厅介绍，该厅已召开有限空间作业安全技术规范宣贯暨全省工业企业涂装作业安全整治紧急视频会，部署下一阶段重点工作任务。 会议指出，作为我国首部通用的有
+“五一”假期临近，不少人正在规划出游。但是记者发现，近期在社交平台上不少网友反映，自己提前预订的航班收到了取消通知。大规模航班取消的相关话题冲上热搜，那么航班取消究竟是什么原因呢？ 记者搜索发现，在社交平台上这样的发帖不在少数。“五一取消上海曼谷往返机票，直接取消整个航线，改签都没得签。”“5月1日至5月5日往返机票都被取消了，酒店已经订好了，怎么办？”多位旅客反馈，国内飞往东
 
 ## 正文
 
-中新网广州5月13日电 (记者 王坚)广东省应急管理厅13日消息称，5月至7月底，广东集中开展3个月工业企业涂装作业安全整治，督促指导企业系统辨识调漆、喷漆、烘干、清洁等关键环节的安全风险，确保不漏掉一个环节、一处场所。
+“五一”假期临近，不少人正在规划出游。
 
-广东省应急管理厅介绍，该厅已召开有限空间作业安全技术规范宣贯暨全省工业企业涂装作业安全整治紧急视频会，部署下一阶段重点工作任务。
+但是记者发现，近期在社交平台上不少网友反映，自己提前预订的航班收到了取消通知。
 
-会议指出，作为我国首部通用的有限空间作业国家强制性标准，《有限空间作业安全技术规范》已于5月1日正式实施。
+大规模航班取消的相关话题冲上热搜，那么航班取消究竟是什么原因呢？
 
-各地要以《有限空间作业安全技术规范》宣贯为契机，狠抓落实。
+记者搜索发现，在社交平台上这样的发帖不在少数。
 
-要多措并举抓宣贯，持续推送规范解读、动画科普、事故警示短视频，拓展培训覆盖面。
+“五一取消上海曼谷往返机票，直接取消整个航线，改签都没得签。
 
-要压实责任抓宣贯，督促组织企业主要负责人、安全管理人员吃透规范管理要求，全覆盖培训一线作业人员、现场监护人员。
+”“5月1日至5月5日往返机票都被取消了，酒店已经订好了，怎么办？
 
-要执法帮扶抓宣贯，将规范执行情况纳入日常监管、专家指导服务中，对未落实规范、无证作业、无监护作业、不通风不检测作业等违法行为且“屡教不改”的，坚持检查一处、宣贯一处、整改一处、规范一片。
+”多位旅客反馈，国内飞往东南亚的航班正出现大规模取消情况，涉及曼谷、普吉岛、万象等热门目的地。
 
-会议要求，自2026年5月至7月底，集中开展3个月工业企业涂装作业安全整治。
+中国民航高质量发展研究中心专家 綦琦：高油价，特别是高的航空煤油价格，以及航空煤油的可获得性，这是直接的原因。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 20:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 20:42 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 20:46 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 20:44 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 20:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 20:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 20:52 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 20:53 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 20:41 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 20:40 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 20:37 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 20:42 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 20:54 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 20:39 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 20:36 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 20:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 20:48 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 20:43 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 20:57 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 20:39 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 20:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 20:43 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/54127788573.shtml)
-- 2026-06-29 20:29 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/079147301568.shtml)
-- 2026-06-29 20:38 - [TOP Prada](http://www.blog.minike.top/Article/details/927680.shtml)
-- 2026-06-29 20:33 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/00348.shtml)
-- 2026-06-29 20:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.minike.top/Article/details/458244.shtml)
-- 2026-06-29 20:27 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/8061824762.shtml)
-- 2026-06-29 20:41 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/4671205.shtml)
-- 2026-06-29 20:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/763798.shtml)
-- 2026-06-29 20:30 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/529274390.shtml)
-- 2026-06-29 20:52 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/48465197.shtml)
-- 2026-06-29 20:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/6644202.shtml)
-- 2026-06-29 20:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/9419134676.shtml)
-- 2026-06-29 20:25 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/0070012.shtml)
-- 2026-06-29 20:47 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/760672265771.shtml)
-- 2026-06-29 20:38 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/1228001.shtml)
+- 2026-06-29 20:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/60286263.shtml)
+- 2026-06-29 20:55 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/20132495357.shtml)
+- 2026-06-29 20:34 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/1989665149.shtml)
+- 2026-06-29 20:40 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/132290.shtml)
+- 2026-06-29 20:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/5375829.shtml)
+- 2026-06-29 20:48 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/48943994.shtml)
+- 2026-06-29 20:32 - [沙丘](https://www.share.minike.top/Article/details/27254937384.shtml)
+- 2026-06-29 20:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/00968.shtml)
+- 2026-06-29 20:34 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/3799046.shtml)
+- 2026-06-29 20:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/618736301588.shtml)
+- 2026-06-29 20:47 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/0774304.shtml)
+- 2026-06-29 20:39 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/10705.shtml)
+- 2026-06-29 20:46 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/22241428.shtml)
+- 2026-06-29 20:33 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/04417.shtml)
+- 2026-06-29 20:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/513134357.shtml)

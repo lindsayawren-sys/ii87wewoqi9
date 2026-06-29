@@ -1,61 +1,51 @@
-# 挪威财长：主权财富基金在道德撤资透明度问题上面临两难
+# 伊朗抓捕逾百名涉恐人员 查获3000余件武器
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-当全球最大的挪威规模达2.2万亿美元的主权财富基金因伦理考量出售某公司股份时，是否应说明原因？挪威财政部长表示，随着政府委员会正在审查使该基金成为全球伦理投资标杆的规则，这一看似简单的问题已成为其管理者的两难困境。 “这不仅仅是撤资的问题，还必须公布理由，”延斯·斯托尔登贝格在接受采访时表示。 “我看到这确实造成了一些两难。正因如此，我很高兴我们成立了一个委员会，不仅评估是否应
+中新网4月20日电 据伊朗媒体当地时间19日报道，伊朗当局近期展开大规模安全行动，逮捕100余人，查获大量武器及监控设备。 据报道，伊朗警方负责人拉丹19日表示，伊朗安全部队近期行动中已逮捕100多名与恐怖组织有关联的人员。 拉丹还称，当局在行动中查获3000多件武器，以及大量实弹和刀具等利器；同时缴获约6000件监控设备和间谍工具，并拘捕了与这些设备有关的嫌疑人。他表示：“我
 
 ## 正文
 
-当全球最大的挪威规模达2.2万亿美元的主权财富基金因伦理考量出售某公司股份时，是否应说明原因？
+中新网4月20日电 据伊朗媒体当地时间19日报道，伊朗当局近期展开大规模安全行动，逮捕100余人，查获大量武器及监控设备。
 
-挪威财政部长表示，随着政府委员会正在审查使该基金成为全球伦理投资标杆的规则，这一看似简单的问题已成为其管理者的两难困境。
+据报道，伊朗警方负责人拉丹19日表示，伊朗安全部队近期行动中已逮捕100多名与恐怖组织有关联的人员。
 
-“这不仅仅是撤资的问题，还必须公布理由，”延斯·斯托尔登贝格在接受采访时表示。
+拉丹还称，当局在行动中查获3000多件武器，以及大量实弹和刀具等利器；同时缴获约6000件监控设备和间谍工具，并拘捕了与这些设备有关的嫌疑人。
 
-“我看到这确实造成了一些两难。
+他表示：“我们的战士正驻守边境，全副武装，严阵以待。
 
-正因如此，我很高兴我们成立了一个委员会，不仅评估是否应进行撤资，还探讨那些有助于增强撤资影响力的理由。
-
-” 该主权财富基金成立于20世纪90年代，受议会制定的道德准则约束，禁止其投资于侵犯人权或污染环境等行为的企业。
-
-民间社会团体担心，该委员会（计划于今年秋季提交建议）可能会为安抚美国总统特朗普而削弱相关规则。
-
-去年11月，在该基金因美国卡特彼勒公司的推土机被用于加沙地带及被占领的约旦河西岸而撤资一事遭到美国严厉质询后，议会投票决定暂停该基金的道德撤资行动，并下令对准则进行审查。
+” 报道称，伊朗当局表示，将通过扩大行动和加强安全协同，进一步强化边境防护，维护国内稳定。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 20:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 20:42 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 20:52 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 20:50 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 20:25 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 20:48 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 20:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 20:53 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 20:42 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 20:41 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 20:49 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 20:50 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 20:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-29 20:40 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 20:52 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 20:35 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 20:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 20:49 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 20:50 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 20:34 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 20:58 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 20:43 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 20:36 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 20:54 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 20:56 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/172022946983.shtml)
-- 2026-06-29 20:28 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/469175.shtml)
-- 2026-06-29 20:51 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/400463758.shtml)
-- 2026-06-29 20:49 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/456067727.shtml)
-- 2026-06-29 20:44 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/67955.shtml)
-- 2026-06-29 20:53 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/34095.shtml)
-- 2026-06-29 20:25 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/6182147244.shtml)
-- 2026-06-29 20:44 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/13254648.shtml)
-- 2026-06-29 20:53 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/611431226.shtml)
-- 2026-06-29 20:30 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/291400.shtml)
-- 2026-06-29 20:28 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/51091943.shtml)
-- 2026-06-29 20:32 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/14801946.shtml)
-- 2026-06-29 20:30 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/978313.shtml)
-- 2026-06-29 20:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/738963501.shtml)
-- 2026-06-29 20:27 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/32629.shtml)
+- 2026-06-29 20:44 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/258782.shtml)
+- 2026-06-29 20:44 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/232457086.shtml)
+- 2026-06-29 20:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/840264.shtml)
+- 2026-06-29 20:45 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/713514283.shtml)
+- 2026-06-29 20:58 - [逃狱兄弟](http://www.blog.minike.top/Article/details/069644995.shtml)
+- 2026-06-29 20:30 - [扬名立万](http://www.share.kurohicncr.top/Article/details/81028.shtml)
+- 2026-06-29 20:30 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/12557573381.shtml)
+- 2026-06-29 20:43 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/57764.shtml)
+- 2026-06-29 20:50 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/300506598275.shtml)
+- 2026-06-29 20:42 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/6398329.shtml)
+- 2026-06-29 20:36 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/58173.shtml)
+- 2026-06-29 20:59 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/235479435.shtml)
+- 2026-06-29 20:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/66271004859.shtml)
+- 2026-06-29 20:42 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/370978.shtml)
+- 2026-06-29 20:43 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/76815610632.shtml)

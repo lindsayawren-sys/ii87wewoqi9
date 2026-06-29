@@ -1,60 +1,59 @@
-# 半导体行情强势，寒武纪涨2%！重仓国产AI产业链的—科创人工智能ETF华宝（589520）拉升2.7%刷新上市高点！
+# 湖南冷水滩蛋鸡住进“智能别墅” 成富民新引擎
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-盼望着！盼望着！重点布局国产AI产业链的科创人工智能ETF华宝（589520）于今日（5月13日）刷新上市以来的高点！截至发稿，场内涨幅盘中上探2.72%，现涨2.59%。成份股天准科技20CM涨停，恒玄科技涨逾6%，澜起科技、优刻得-W、石头科技等个股涨超4%。权重股寒武纪劲涨2.5%。 在AI热潮推动下，全球存储芯片板块正在经历一轮罕见的大行情，美股费城半导体指数在短短五个
+中新网永州4月18日电(温家利 宾奕)眼下，湖南永州市冷水滩区蛋鸡养殖产业迎来扩产热潮，智能化养殖模式让蛋鸡住进恒温恒湿、全流程自动化的“智能别墅”，高品质鸡蛋直供粤港澳大湾区，既推动产业规模化发展，又带动周边村民家门口就业，“小鸡蛋”成功撬动起年产值25亿元的富民大产业。 在湘五永兴农业蛋鸡养殖基地的鸡舍内，工人们正有序地将新到的10万羽青年鸡放入鸡笼。企业负责人唐松平介绍，
 
 ## 正文
 
-盼望着！
+中新网永州4月18日电(温家利 宾奕)眼下，湖南永州市冷水滩区蛋鸡养殖产业迎来扩产热潮，智能化养殖模式让蛋鸡住进恒温恒湿、全流程自动化的“智能别墅”，高品质鸡蛋直供粤港澳大湾区，既推动产业规模化发展，又带动周边村民家门口就业，“小鸡蛋”成功撬动起年产值25亿元的富民大产业。
 
-盼望着！
+在湘五永兴农业蛋鸡养殖基地的鸡舍内，工人们正有序地将新到的10万羽青年鸡放入鸡笼。
 
-重点布局国产AI产业链的科创人工智能ETF华宝（589520）于今日（5月13日）刷新上市以来的高点！
+企业负责人唐松平介绍，目前基地存栏为20万羽，到5月还会再上10万羽，届时总存栏量将达到30万羽。
 
-截至发稿，场内涨幅盘中上探2.72%，现涨2.59%。
+唐松平算了一笔账：“目前我们的月销售额为160万元，达到30万羽规模后，月销售额将接近480万元，年销售额有望突破6000万元。
 
-成份股天准科技20CM涨停，恒玄科技涨逾6%，澜起科技、优刻得-W、石头科技等个股涨超4%。
+” 基地内，蛋鸡的“智能别墅”实现恒温恒湿控制，投喂、集蛋、清粪等环节全自动化，大幅提升生产效率。
 
-权重股寒武纪劲涨2.5%。
+依托冷水滩区完善的农业配套与区位优势，企业推行无抗养殖技术，通过添加维生素E、鱼肝油、益母草等营养品优化鸡群体质，蛋品达到无抗、无菌的可生食标准，成功打入深圳、广州等大湾区市场。
 
-在AI热潮推动下，全球存储芯片板块正在经历一轮罕见的大行情，美股费城半导体指数在短短五个月内飙升70%，同比更大涨170%，远超标普500指数和纳斯达克指数的涨幅。
+产业发展带动就业增收，湘五永兴养殖基地现有30余名员工，九成以上为周边村民。
 
-韩国综合指数今年以美元计涨幅更是超80%领涨全球。
+“在家门口上班，既能挣钱又能照顾老人，不用外出打工了。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 20:35 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 20:28 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 20:24 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 20:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 20:36 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 20:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 20:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 20:53 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 20:50 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 20:28 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 20:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 20:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 20:28 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 20:49 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 20:31 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 20:54 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 20:49 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 20:57 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 20:34 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 20:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 20:55 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 20:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 20:35 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 20:41 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 20:52 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 20:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/33131914.shtml)
-- 2026-06-29 20:52 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/632007605917.shtml)
-- 2026-06-29 20:27 - [乔家的儿女](https://www.blog.minike.top/Article/details/8284537218.shtml)
-- 2026-06-29 20:34 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/55199.shtml)
-- 2026-06-29 20:37 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/0285194.shtml)
-- 2026-06-29 20:35 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/251637946.shtml)
-- 2026-06-29 20:48 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/517390.shtml)
-- 2026-06-29 20:25 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/37092270176.shtml)
-- 2026-06-29 20:49 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/7946977.shtml)
-- 2026-06-29 20:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/9414269840.shtml)
-- 2026-06-29 20:52 - [美人鱼](http://www.blog.minike.top/Article/details/773002.shtml)
-- 2026-06-29 20:44 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/659143.shtml)
-- 2026-06-29 20:34 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/2946796.shtml)
-- 2026-06-29 20:32 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/5996722103.shtml)
-- 2026-06-29 20:44 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/5113357869.shtml)
+- 2026-06-29 20:55 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/370492839611.shtml)
+- 2026-06-29 20:50 - [青春环游记第三季](http://www.blog.minike.top/Article/details/2690195855.shtml)
+- 2026-06-29 20:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/5879780474.shtml)
+- 2026-06-29 20:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/16989788365.shtml)
+- 2026-06-29 20:35 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/27872.shtml)
+- 2026-06-29 20:40 - [时光音乐会](http://www.blog.minike.top/Article/details/4153475.shtml)
+- 2026-06-29 20:37 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/805825.shtml)
+- 2026-06-29 20:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/943808291.shtml)
+- 2026-06-29 20:48 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/5499217.shtml)
+- 2026-06-29 20:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/8594851.shtml)
+- 2026-06-29 20:56 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/1764501887.shtml)
+- 2026-06-29 20:51 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/906669736.shtml)
+- 2026-06-29 20:46 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/17853185.shtml)
+- 2026-06-29 20:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/640116081723.shtml)
+- 2026-06-29 20:34 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/8790806.shtml)

@@ -1,58 +1,52 @@
-# 伯希和陷品牌争议后更名“奔赴自然”三闯港交所 今年2月突击分红1.01亿 六成进了实控人夫妇口袋
+# 联合国秘书长欢迎伊朗宣布完全开放霍尔木兹海峡
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-2026年5月8日，户外运动品牌伯希和的母公司第三次向港交所递交上市申请，中金公司与中信证券担任联席保荐人。与前两次递表不同，这份最新的招股说明书披露了一个重大变化：上市主体已由“伯希和户外运动集团股份有限公司”正式更名为“奔赴自然户外运动集团股份有限公司”，公司于2026年1月26日完成工商变更登记。 此番更名，既是化解品牌争议的应急之举，亦是奔赴自然第三次冲击IPO时向资本
+中新社联合国4月17日电 联合国秘书长古特雷斯17日通过发言人迪雅里克发表声明，欢迎伊朗宣布霍尔木兹海峡在黎巴嫩与以色列停火期间对所有商船完全开放。 声明说，古特雷斯认为，此举是朝着正确方向迈出的一步。联合国立场依然明确，即霍尔木兹海峡的国际航行权需要完全恢复，各方必须尊重水道通行自由。 声明说，古特雷斯全力支持旨在寻求和平解决当前中东冲突的外交努力，希望伊朗此举以及黎以停火有
 
 ## 正文
 
-2026年5月8日，户外运动品牌伯希和的母公司第三次向港交所递交上市申请，中金公司与中信证券担任联席保荐人。
+中新社联合国4月17日电 联合国秘书长古特雷斯17日通过发言人迪雅里克发表声明，欢迎伊朗宣布霍尔木兹海峡在黎巴嫩与以色列停火期间对所有商船完全开放。
 
-与前两次递表不同，这份最新的招股说明书披露了一个重大变化：上市主体已由“伯希和户外运动集团股份有限公司”正式更名为“奔赴自然户外运动集团股份有限公司”，公司于2026年1月26日完成工商变更登记。
+声明说，古特雷斯认为，此举是朝着正确方向迈出的一步。
 
-此番更名，既是化解品牌争议的应急之举，亦是奔赴自然第三次冲击IPO时向资本市场重塑品牌形象的关键落子。
+联合国立场依然明确，即霍尔木兹海峡的国际航行权需要完全恢复，各方必须尊重水道通行自由。
 
-然而在其招股书营收三年增长超两倍的业绩表象之下，品牌争议、增收不增利的利润裂痕、销售费用失控式膨胀，叠加逾1.5亿元突击分红等治理质疑，共同构筑了这家网红户外品牌IPO之路上的多重隐忧。
+声明说，古特雷斯全力支持旨在寻求和平解决当前中东冲突的外交努力，希望伊朗此举以及黎以停火有助于各方建立互信，推进在巴基斯坦斡旋下的对话。
 
-品牌名称争议是奔赴自然横亘多年、始终未能彻底化解的风险敞口。
-
-伯希和品牌名称与20世纪初劫掠中国敦煌文物的法国汉学家、探险家保罗·伯希和（Paul Pelliot）同名，品牌长期面临来自历史情感层面的舆论质疑。
-
-尽管官方早期否认品牌名称与这位法国探险家有关，但不少网友发帖指出，早期相关宣传物料中曾存在类似的品牌源起说法。
-
-更严峻的挑战来自法律层面：招股书首次披露，自2024年9月起，已有个人向国家知识产权局申请宣告“伯希和”三项核心商标无效，理由是该名称带有负面含义；随后，申索人向北京知识产权法院提起行政诉讼，案件目前仍在审理中。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 20:24 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 20:44 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 20:29 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 20:32 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 20:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 20:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 20:43 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 20:39 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 20:32 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 20:36 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 20:43 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 20:56 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 20:41 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 20:49 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 20:49 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 20:52 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 20:56 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 20:55 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 20:50 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 20:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 20:57 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 20:58 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 20:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/236319356.shtml)
-- 2026-06-29 20:28 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/99301760.shtml)
-- 2026-06-29 20:51 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/70385057517.shtml)
-- 2026-06-29 20:25 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/066578987006.shtml)
-- 2026-06-29 20:53 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/23253132470.shtml)
-- 2026-06-29 20:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/968288558.shtml)
-- 2026-06-29 20:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/61652.shtml)
-- 2026-06-29 20:40 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/4979329.shtml)
-- 2026-06-29 20:53 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/0525356928.shtml)
-- 2026-06-29 20:46 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/26213631338.shtml)
-- 2026-06-29 20:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/8066575.shtml)
-- 2026-06-29 20:36 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/426081507.shtml)
-- 2026-06-29 20:43 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/002128.shtml)
-- 2026-06-29 20:41 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/21522669.shtml)
-- 2026-06-29 20:43 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/100731.shtml)
+- 2026-06-29 20:55 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/96298558449.shtml)
+- 2026-06-29 20:31 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/5207603.shtml)
+- 2026-06-29 20:39 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/4451738.shtml)
+- 2026-06-29 20:53 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/948004376.shtml)
+- 2026-06-29 20:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/312299071.shtml)
+- 2026-06-29 20:44 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/08654648.shtml)
+- 2026-06-29 20:46 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/54218.shtml)
+- 2026-06-29 20:59 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/3864009.shtml)
+- 2026-06-29 20:35 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/63189694623.shtml)
+- 2026-06-29 20:49 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/270128.shtml)
+- 2026-06-29 20:38 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/033768681.shtml)
+- 2026-06-29 20:46 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/76049845637.shtml)
+- 2026-06-29 20:59 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/064594628.shtml)
+- 2026-06-29 20:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/8472889298.shtml)
+- 2026-06-29 20:44 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/93065.shtml)

@@ -1,53 +1,53 @@
-# 黑龙江黑河：大挂车起火逼近林区加油站 消防员成功扑救
+# 贸促机构暨企业海南自贸港经贸交流会在海南海口举行
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 16:06 来源：中国新闻网 5月12日0时40分，黑龙江嫩江市卧都河林场，一辆载有23吨亚麻的大挂车在行驶途中突然起火，着火点距离卧都河中国石油加油站仅50米。黑河消防救援机动支队卧都河驻防点指战员迅速出动，扑灭明火。据悉，车上所载亚麻属易燃轻质物料，周边为重点森林火险林区，火情风险极高。经过36名消防指战员近4个小时的连续奋战，明火被彻底扑
+4月13日，第六届中国国际消费品博览会重要配套活动——贸促机构暨企业海南自贸港经贸交流会在海南省海口市举办，全国贸促系统、商协会及企业代表、海南市县与园区代表等400余人探讨产业合作。 海南省贸促会会长宁虹雯在会上推介海南自贸港发展优势。广东、辽宁、湖南等多地贸促机构代表先后致辞，表达看好海南发展前景，将深化省际经贸协作。 主题分享环节，专家及金融机构负责人分别解读自贸港投资机
 
 ## 正文
 
-发布时间：2026年05月12日 16:06 来源：中国新闻网 5月12日0时40分，黑龙江嫩江市卧都河林场，一辆载有23吨亚麻的大挂车在行驶途中突然起火，着火点距离卧都河中国石油加油站仅50米。
+4月13日，第六届中国国际消费品博览会重要配套活动——贸促机构暨企业海南自贸港经贸交流会在海南省海口市举办，全国贸促系统、商协会及企业代表、海南市县与园区代表等400余人探讨产业合作。
 
-黑河消防救援机动支队卧都河驻防点指战员迅速出动，扑灭明火。
+海南省贸促会会长宁虹雯在会上推介海南自贸港发展优势。
 
-据悉，车上所载亚麻属易燃轻质物料，周边为重点森林火险林区，火情风险极高。
+广东、辽宁、湖南等多地贸促机构代表先后致辞，表达看好海南发展前景，将深化省际经贸协作。
 
-经过36名消防指战员近4个小时的连续奋战，明火被彻底扑灭，事故未造成人员伤亡，成功守住加油站、林场及周边群众安全。
+主题分享环节，专家及金融机构负责人分别解读自贸港投资机遇、EF账户政策等核心内容，海南相关市县及园区代表开展招商推介，广西钦州贸促会分享平陆运河经济带商机。
 
-(王堃 王超 张家铭 制作 田德雨 视频来源 黑龙江消防救援机动总队黑河支队) 责任编辑：【刘湃】
+产融汇(北京)科技与海南宏升置业投资等7家单位达成合作，签署物业托管运营、进口贸易等多项协议，实现经贸交流与项目合作深度衔接。
+
+作为活动主办单位，海南省贸促会还组织9个国内贸促机构代表团、6个国外商协会代表团共260余人，赴市县园区考察对接。
 
 ## 相关推荐
 
-- 2026-06-29 20:37 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 20:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 20:35 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 20:30 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 20:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 20:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 20:48 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 20:53 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 20:28 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 20:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 20:24 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 20:38 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 20:27 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 20:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 20:56 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 20:49 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 20:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 20:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 20:43 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 20:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 20:53 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 20:57 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 20:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 20:31 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:44 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/432915419325.shtml)
-- 2026-06-29 20:25 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/56247233278.shtml)
-- 2026-06-29 20:51 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/46718009376.shtml)
-- 2026-06-29 20:26 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/0067378455.shtml)
-- 2026-06-29 20:41 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/118694.shtml)
-- 2026-06-29 20:24 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/17918.shtml)
-- 2026-06-29 20:53 - [周生如故](https://www.share.minike.top/Article/details/26771.shtml)
-- 2026-06-29 20:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/110214338.shtml)
-- 2026-06-29 20:34 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/03888776678.shtml)
-- 2026-06-29 20:29 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/0923110853.shtml)
-- 2026-06-29 20:47 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/735189879.shtml)
-- 2026-06-29 20:46 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/9581225032.shtml)
-- 2026-06-29 20:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/86894770.shtml)
-- 2026-06-29 20:46 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/2463669560.shtml)
-- 2026-06-29 20:41 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/16827020.shtml)
+- 2026-06-29 20:36 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/13350314.shtml)
+- 2026-06-29 20:36 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/2671192.shtml)
+- 2026-06-29 20:30 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/83978275728.shtml)
+- 2026-06-29 20:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/367335989754.shtml)
+- 2026-06-29 20:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/3235764658.shtml)
+- 2026-06-29 20:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/765710.shtml)
+- 2026-06-29 20:50 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/5383133.shtml)
+- 2026-06-29 20:43 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/1141562.shtml)
+- 2026-06-29 20:41 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/3558575.shtml)
+- 2026-06-29 20:48 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/517963.shtml)
+- 2026-06-29 20:49 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/03849.shtml)
+- 2026-06-29 20:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/13749.shtml)
+- 2026-06-29 20:58 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/942079.shtml)
+- 2026-06-29 20:59 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/79133402.shtml)
+- 2026-06-29 20:30 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/265897628.shtml)

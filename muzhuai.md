@@ -1,51 +1,57 @@
-# 大美边疆看我家丨内蒙古赤峰：蒙古郁金香迎风绽放
+# 险资密集现身港股IPO，泰康等巨头抢筹科技新股
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 14:48 来源：中国新闻网 初夏时节，内蒙古赤峰，高格斯台罕乌拉国家级自然保护区内，成片的蒙古郁金香迎风绽放。一簇簇金黄色的花朵在阳光照耀下熠熠生辉，散发着淡淡的香气，翠绿的叶片衬托着娇嫩的花瓣，花蕊藏在花瓣之中，若隐若现，形成了一道独特的草原景观。蒙古郁金香是多年生草本植物，具有重要的科研价值，由于数量稀少，蒙古郁金香被列为国家二级保护植物
+界面新闻记者 | 吕文琦 港股IPO市场回暖之下，保险资金正以前所未有的频率出现在新股基石投资者名单中。2026年一季度，香港IPO市场募资额大幅增长，科技与新经济项目供给明显增多，也让险资在港股一级市场的动作更受关注。 从市场表现看，今年险资南下参与港股IPO的节奏明显加快。以泰康为代表的头部险资机构频频现身热门项目基石名单。开年仅一个多月，泰康保险就已参与7家港股IPO项目
 
 ## 正文
 
-发布时间：2026年05月13日 14:48 来源：中国新闻网 初夏时节，内蒙古赤峰，高格斯台罕乌拉国家级自然保护区内，成片的蒙古郁金香迎风绽放。
+界面新闻记者 | 吕文琦 港股IPO市场回暖之下，保险资金正以前所未有的频率出现在新股基石投资者名单中。
 
-一簇簇金黄色的花朵在阳光照耀下熠熠生辉，散发着淡淡的香气，翠绿的叶片衬托着娇嫩的花瓣，花蕊藏在花瓣之中，若隐若现，形成了一道独特的草原景观。
+2026年一季度，香港IPO市场募资额大幅增长，科技与新经济项目供给明显增多，也让险资在港股一级市场的动作更受关注。
 
-蒙古郁金香是多年生草本植物，具有重要的科研价值，由于数量稀少，蒙古郁金香被列为国家二级保护植物。
+从市场表现看，今年险资南下参与港股IPO的节奏明显加快。
 
-(作者：史子龙） 责任编辑：【魏聪聪】
+以泰康为代表的头部险资机构频频现身热门项目基石名单。
+
+开年仅一个多月，泰康保险就已参与7家港股IPO项目，累计获配资金达9.49亿港元；截至4月中旬，年内险资参与港股IPO基石投资的项目数已增至12家左右。
+
+更值得注意的是，险资出手的方向已明显向科技赛道倾斜。
+
+从群核科技（00068.HK）到壁仞科技（06082.HK），AI、半导体等硬科技项目成为险资重点布局对象。
+
+这一变化并非简单追逐打新热度，在传统固收收益承压的背景下，港股IPO正成为其提前布局成长资产、提升权益配置弹性的重要入口。
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 20:38 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 20:28 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 20:29 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 20:49 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 20:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 20:26 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 20:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 20:34 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 20:35 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 20:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 20:49 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 20:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 20:55 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 20:36 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 20:37 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 20:45 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 20:40 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 20:37 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 20:33 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 20:53 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 20:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 20:35 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 20:58 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/7566257.shtml)
-- 2026-06-29 20:46 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/605002.shtml)
-- 2026-06-29 20:38 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/794165200968.shtml)
-- 2026-06-29 20:31 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.kurohicncr.top/Article/details/2358480782.shtml)
-- 2026-06-29 20:44 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/839410836503.shtml)
-- 2026-06-29 20:27 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/54135499.shtml)
-- 2026-06-29 20:30 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/443474.shtml)
-- 2026-06-29 20:38 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/79064782.shtml)
-- 2026-06-29 20:45 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/7131179.shtml)
-- 2026-06-29 20:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/50085.shtml)
-- 2026-06-29 20:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/6732591.shtml)
-- 2026-06-29 20:40 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/555202.shtml)
-- 2026-06-29 20:36 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/831878108472.shtml)
-- 2026-06-29 20:37 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/2988679.shtml)
-- 2026-06-29 20:42 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/6913626991.shtml)
+- 2026-06-29 20:44 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/14464922719.shtml)
+- 2026-06-29 20:42 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/03337598035.shtml)
+- 2026-06-29 20:59 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/197294552915.shtml)
+- 2026-06-29 20:47 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/59314.shtml)
+- 2026-06-29 20:35 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/35799.shtml)
+- 2026-06-29 20:37 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/27078260.shtml)
+- 2026-06-29 20:57 - [沙丘](http://www.share.minike.top/Article/details/863558406.shtml)
+- 2026-06-29 20:55 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/905951185.shtml)
+- 2026-06-29 20:55 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/43267297379.shtml)
+- 2026-06-29 20:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/9623704.shtml)
+- 2026-06-29 20:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/90033967104.shtml)
+- 2026-06-29 20:58 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/342260.shtml)
+- 2026-06-29 20:46 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/347585.shtml)
+- 2026-06-29 20:37 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/81171372.shtml)
+- 2026-06-29 20:52 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/07133688.shtml)

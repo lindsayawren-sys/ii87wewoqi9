@@ -1,58 +1,60 @@
-# 欧佩克下调 2026 年全球石油需求增长预期
+# 书香赣鄱行：高校图书馆古籍如何被修复？
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-欧佩克周三下调了2026年全球石油需求增长预期。受伊朗战事影响，国际能源署等多家机构此前也已下调相关预期，欧佩克此次随之跟进。 相较于国际能源署，欧佩克认为石油需求受到的冲击相对更小；国际能源署周三早些时候已上调了对今年石油需求降幅的预估。欧佩克表示，后续石油消费将会反弹，并上调了2027年石油需求增长预测。 伊朗战事已令全球石油要道霍尔木兹海峡实际陷入停运，导致中东原油日产量
+中新网吉安4月18日电 (刘力鑫)井冈山大学图书馆12楼，古籍修复室。56岁的罗红伏案而坐，镊子轻捻、浆糊轻点，她正细致修补着一片片破损的古籍书叶。 高楼隔绝了喧嚣，时间也仿佛慢了下来。十余年的坚守，罗红把热爱融进古籍修复的每一道工序，以匠心守护文脉，更在校园里播撒传承的种子，让古老技艺在青年手中延续。 匠心修古籍：不偷懒、不凑合 位于江西吉安青原区的井冈山大学，是江西省首个具
 
 ## 正文
 
-欧佩克周三下调了2026年全球石油需求增长预期。
+中新网吉安4月18日电 (刘力鑫)井冈山大学图书馆12楼，古籍修复室。
 
-受伊朗战事影响，国际能源署等多家机构此前也已下调相关预期，欧佩克此次随之跟进。
+56岁的罗红伏案而坐，镊子轻捻、浆糊轻点，她正细致修补着一片片破损的古籍书叶。
 
-相较于国际能源署，欧佩克认为石油需求受到的冲击相对更小；国际能源署周三早些时候已上调了对今年石油需求降幅的预估。
+高楼隔绝了喧嚣，时间也仿佛慢了下来。
 
-欧佩克表示，后续石油消费将会反弹，并上调了2027年石油需求增长预测。
+十余年的坚守，罗红把热爱融进古籍修复的每一道工序，以匠心守护文脉，更在校园里播撒传承的种子，让古老技艺在青年手中延续。
 
-伊朗战事已令全球石油要道霍尔木兹海峡实际陷入停运，导致中东原油日产量锐减数百万桶，燃油价格大幅飙升。
+匠心修古籍：不偷懒、不凑合 位于江西吉安青原区的井冈山大学，是江西省首个具备古籍自主修复能力的高校。
 
-油价暴涨冲击居民消费与企业经营，也倒逼各国政府出台节能保供措施。
+而罗红则是江西省高校里唯一入选《全国古籍保护人员名录·古籍修复师》的老师。
 
-欧佩克称，预计今年第二季度全球石油日均需求为1.0457亿桶，低于上月预测的1.0507亿桶；而在上一份报告中，二季度需求预估就已被下调50万桶/日。
+2010年，还是图书馆管理员的罗红被派往外地参加古籍修复培训。
 
-欧佩克表示：“尽管中东等地地缘政治局势紧张，今年全球经济增长仍展现出韧性”，并维持原有经济增长预测不变。
+她坦言，自己大学学的是法学，当时对古籍修复了解甚少，去了培训班，才知道修书也是一门职业。
 
 ## 相关推荐
 
-- 2026-06-29 20:52 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 20:43 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 20:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 20:36 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 20:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 20:45 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 20:33 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 20:29 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 20:42 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 20:27 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 20:33 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 20:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 20:42 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 20:48 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 20:49 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 20:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 20:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 20:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 20:38 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 20:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 20:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 20:58 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 20:33 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 20:42 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 20:56 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/51953.shtml)
-- 2026-06-29 20:40 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/39848.shtml)
-- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/6389946953.shtml)
-- 2026-06-29 20:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/84175736140.shtml)
-- 2026-06-29 20:51 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/008864.shtml)
-- 2026-06-29 20:51 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/56214.shtml)
-- 2026-06-29 20:46 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/26598984395.shtml)
-- 2026-06-29 20:42 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/20104642.shtml)
-- 2026-06-29 20:39 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/926767.shtml)
-- 2026-06-29 20:37 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/346889728.shtml)
-- 2026-06-29 20:53 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/493710670599.shtml)
-- 2026-06-29 20:33 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/51669.shtml)
-- 2026-06-29 20:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/129650.shtml)
-- 2026-06-29 20:45 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/89297823473.shtml)
-- 2026-06-29 20:40 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/70603309056.shtml)
+- 2026-06-29 20:43 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/112581.shtml)
+- 2026-06-29 20:59 - [极限挑战第一季](http://www.blog.minike.top/Article/details/7385437788.shtml)
+- 2026-06-29 20:30 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/2722017533.shtml)
+- 2026-06-29 20:51 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/128699064657.shtml)
+- 2026-06-29 20:43 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/2203497.shtml)
+- 2026-06-29 20:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/951870.shtml)
+- 2026-06-29 20:39 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/74993793703.shtml)
+- 2026-06-29 20:33 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/2573980752.shtml)
+- 2026-06-29 20:36 - [北京发布地质灾害气象风险蓝色预警](http://www.share.kurohicncr.top/Article/details/5661421.shtml)
+- 2026-06-29 20:40 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/3599360.shtml)
+- 2026-06-29 20:34 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/512464899.shtml)
+- 2026-06-29 20:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/726749019.shtml)
+- 2026-06-29 20:41 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/713664437691.shtml)
+- 2026-06-29 20:56 - [毒液2](http://www.share.minike.top/Article/details/983770500446.shtml)
+- 2026-06-29 20:33 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/625292337338.shtml)

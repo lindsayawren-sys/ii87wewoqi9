@@ -1,56 +1,56 @@
-# TMC与Allseas签署协议，共建首套商业深海结核回收系统
+# 超治愈！四川成都雪山上 两只大熊猫相伴嬉闹
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。 该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。 该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。 TM
+发布时间：2026年04月18日 09:28 来源：中国新闻网 近日，大熊猫国家公园成都片区大邑管护总站公布了2026年第一季度样线巡护的部分成果：在海拔2837米的冬日秘境里，红外相机捕捉到了两只大熊猫在雪地嬉戏的珍贵画面。 据介绍，这段画面拍摄于2026年1月7日，两只大熊猫在红外相机前逗留了约2分钟。视频显示，两只大熊猫个头差不多大，毛发看着又厚又蓬松，其中一只性子偏沉稳
 
 ## 正文
 
-The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。
+发布时间：2026年04月18日 09:28 来源：中国新闻网 近日，大熊猫国家公园成都片区大邑管护总站公布了2026年第一季度样线巡护的部分成果：在海拔2837米的冬日秘境里，红外相机捕捉到了两只大熊猫在雪地嬉戏的珍贵画面。
 
-该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。
+据介绍，这段画面拍摄于2026年1月7日，两只大熊猫在红外相机前逗留了约2分钟。
 
-该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。
+视频显示，两只大熊猫个头差不多大，毛发看着又厚又蓬松，其中一只性子偏沉稳，慢慢爬到树干上留下气味标记后就坐在树旁边反复嗅闻，像是在仔细确认标记的情况。
 
-TMC表示，该系统还将包括布放回收系统、立管系统以及一艘转运船。
+另一只格外活泼好动，一会儿凑到树干前闻闻，一会儿用爪子轻轻拍一拍同伴，偶尔还会凑上去轻咬嬉闹。
 
-TMC称，关键长周期设备（包括立管和脐带缆系统）的概念设计和基础工程已经完成，预计在2026年第三季度末启动供应商接洽和分包合同授予。
+据专业人士初步分析，这两只熊猫体型大小相近，而且稍小的那只也会做气味标记，因此不太可能是母子关系，再看它们频繁相互嗅闻的样子，更像是进入发情期的表现。
 
-公司预计海上系统的调试将于2027年第四季度开始。
+这两只大熊猫的同框，既是红外相机的幸运捕捉，更是生态保护带来的必然结果。
 
-根据协议，Allseas将承担部分开发成本，并通过未来的生产收入回收。
-
-TMC董事长兼首席执行官杰拉德·巴伦表示：“与Allseas的这份协议现在是我们与Allseas战略联盟的合同基石：它建立了一个清晰的商业框架，规定了我们如何完成首套商业规模结核回收系统的开发和调试，并启动海上结核回收作业。
+(记者 吕杨 制作 乐小敏 视频来源 大熊猫国家公园成都管理分局） 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 20:34 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 20:39 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 20:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 20:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 20:36 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 20:26 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 20:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 20:35 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 20:29 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 20:30 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 20:38 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 20:33 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 21:00 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 20:47 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 20:55 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 20:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 20:36 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 20:43 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 20:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 20:38 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 20:46 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/16198.shtml)
-- 2026-06-29 20:47 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/94288635860.shtml)
-- 2026-06-29 20:37 - [小众羞耻点是吃麻辣烫](https://www.blog.minike.top/Article/details/36348646.shtml)
-- 2026-06-29 20:41 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/230460115.shtml)
-- 2026-06-29 20:28 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/65853480.shtml)
-- 2026-06-29 20:26 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/553762227.shtml)
-- 2026-06-29 20:31 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/07886789738.shtml)
-- 2026-06-29 20:29 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/8810589.shtml)
-- 2026-06-29 20:34 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/68822466.shtml)
-- 2026-06-29 20:47 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/8797584.shtml)
-- 2026-06-29 20:39 - [周生如故](http://www.blog.kurohicncr.top/Article/details/49568138533.shtml)
-- 2026-06-29 20:52 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/8927482101.shtml)
-- 2026-06-29 20:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/95420935546.shtml)
-- 2026-06-29 20:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/13603831426.shtml)
-- 2026-06-29 20:29 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/6825339.shtml)
+- 2026-06-29 20:34 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/12595.shtml)
+- 2026-06-29 20:57 - [金牌调解](http://www.blog.minike.top/Article/details/52249517.shtml)
+- 2026-06-29 20:59 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/29393.shtml)
+- 2026-06-29 20:31 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/936971.shtml)
+- 2026-06-29 20:31 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/198335730462.shtml)
+- 2026-06-29 20:50 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/95264.shtml)
+- 2026-06-29 20:49 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/2138466387.shtml)
+- 2026-06-29 20:53 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/841263353.shtml)
+- 2026-06-29 20:32 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/84658.shtml)
+- 2026-06-29 20:30 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/79221556.shtml)
+- 2026-06-29 20:57 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/999700101004.shtml)
+- 2026-06-29 20:37 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/01952532651.shtml)
+- 2026-06-29 20:39 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/153620618.shtml)
+- 2026-06-29 20:52 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/23970645872.shtml)
+- 2026-06-29 20:50 - [爱很美味](https://www.blog.minike.top/Article/details/703367.shtml)

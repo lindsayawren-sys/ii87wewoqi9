@@ -1,60 +1,51 @@
-# 传统工业股成AI热潮受益者 走势与芯片板块近乎同步
+# 刘国中会见世界气象组织秘书长绍洛
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-围绕工业企业有望从AI热潮中获利的乐观情绪，推动该板块录得创纪录的动能。但如今，市场越来越担心，这一板块与AI的关联可能过于紧密。 衡量标普500工业指数以及费城半导体指数45天相关性的指标目前处于0.75，接近6月以来的最高水平。该指数为1表示证券走势完全同步。标普500工业指数的成分股包括迪尔公司和法思诺公司。 这种几乎同步的走势在周一已有体现：高通和美光科技等芯片制造商带
+新华社北京4月20日电(记者王宾)中共中央政治局委员、国务院副总理刘国中20日在京会见世界气象组织秘书长绍洛。 刘国中表示，中国政府高度重视全球气象合作，发布全民早期预警中国方案“妈祖(MAZU)”，支持联合国全民早期预警倡议实施。中方将积极落实习近平主席提出的四大全球倡议，继续支持世界气象组织在全球气象治理中发挥引领作用，为推动构建人类命运共同体作出更大贡献。 绍洛高度评价中
 
 ## 正文
 
-围绕工业企业有望从AI热潮中获利的乐观情绪，推动该板块录得创纪录的动能。
+新华社北京4月20日电(记者王宾)中共中央政治局委员、国务院副总理刘国中20日在京会见世界气象组织秘书长绍洛。
 
-但如今，市场越来越担心，这一板块与AI的关联可能过于紧密。
+刘国中表示，中国政府高度重视全球气象合作，发布全民早期预警中国方案“妈祖(MAZU)”，支持联合国全民早期预警倡议实施。
 
-衡量标普500工业指数以及费城半导体指数45天相关性的指标目前处于0.75，接近6月以来的最高水平。
+中方将积极落实习近平主席提出的四大全球倡议，继续支持世界气象组织在全球气象治理中发挥引领作用，为推动构建人类命运共同体作出更大贡献。
 
-该指数为1表示证券走势完全同步。
-
-标普500工业指数的成分股包括迪尔公司和法思诺公司。
-
-这种几乎同步的走势在周一已有体现：高通和美光科技等芯片制造商带动标普500指数上涨，而电力设备供应商维谛技术控股等工业企业则成为该基准股指中表现最好的个股之一。
-
-周二早盘美股下跌时，工业股在众多板块中表现倒数第二，仅好于信息技术板块。
-
-许多工业企业提供建设和运营数据中心所需的关键实体基础设施，这使得该板块成为AI的二阶受益者。
+绍洛高度评价中国气象事业发展和防灾减灾取得的显著成效，期待同中方进一步深化合作。
 
 ## 相关推荐
 
-- 2026-06-29 20:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 20:29 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 20:53 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 20:34 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:43 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 20:36 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 20:32 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 20:29 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 20:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 20:41 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 20:46 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 20:35 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 20:48 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 20:51 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 20:32 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 20:32 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 20:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 20:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 20:44 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 20:41 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 20:39 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 20:51 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 20:41 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 20:33 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 20:38 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 20:45 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 20:32 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:47 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/669921975.shtml)
-- 2026-06-29 20:35 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/5563775386.shtml)
-- 2026-06-29 20:34 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/73843027202.shtml)
-- 2026-06-29 20:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/926793528.shtml)
-- 2026-06-29 20:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/43863733.shtml)
-- 2026-06-29 20:43 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/45841224.shtml)
-- 2026-06-29 20:50 - [北京发布地质灾害气象风险蓝色预警](http://www.share.kurohicncr.top/Article/details/79717860386.shtml)
-- 2026-06-29 20:26 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/285778.shtml)
-- 2026-06-29 20:50 - [TOP Prada](https://www.share.minike.top/Article/details/661044735.shtml)
-- 2026-06-29 20:27 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/0220014.shtml)
-- 2026-06-29 20:34 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/892634272.shtml)
-- 2026-06-29 20:40 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/1141518.shtml)
-- 2026-06-29 20:25 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/43209417.shtml)
-- 2026-06-29 20:44 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/985196636851.shtml)
-- 2026-06-29 20:44 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/9737875.shtml)
+- 2026-06-29 20:38 - [李思潼：不会介意大家夸我运气好](http://www.share.minike.top/Article/details/5614050072.shtml)
+- 2026-06-29 20:33 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/1011791066.shtml)
+- 2026-06-29 20:41 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/384567505.shtml)
+- 2026-06-29 20:57 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/053939693.shtml)
+- 2026-06-29 20:57 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/200253704.shtml)
+- 2026-06-29 20:52 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/759459639985.shtml)
+- 2026-06-29 20:41 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/63827557.shtml)
+- 2026-06-29 20:57 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/5098044656.shtml)
+- 2026-06-29 20:33 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/04089933381.shtml)
+- 2026-06-29 20:54 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/01544362570.shtml)
+- 2026-06-29 20:58 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/55443186443.shtml)
+- 2026-06-29 20:40 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/0649358.shtml)
+- 2026-06-29 20:44 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/2013382059.shtml)
+- 2026-06-29 20:49 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/65823236785.shtml)
+- 2026-06-29 20:47 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/7764201378.shtml)

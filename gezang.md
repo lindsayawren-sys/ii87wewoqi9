@@ -1,50 +1,58 @@
-# 中国新闻社关于第36届中国新闻奖自荐作品的公示
+# 伊朗副总统：海上封锁不解除 通航安全就不免费
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-根据《关于开展第36届中国新闻奖评选工作的通知》的规定，我社拟通过自荐方式，分别向南开大学新闻与传播学院、中国新闻出版广电报各报送1件通讯作品，参评第36届中国新闻奖，现予以公示。公示期为2026年5月13日至5月19日，共5个工作日。如有异议，可通过书面、电话方式，于5月19日17时前反映。联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 1
+伊朗第一副总统阿雷夫20日在社交媒体发文说，不能一边限制伊朗石油出口，一边指望其他国家能享有在霍尔木兹海峡的“免费安全”通航。 阿雷夫说，“霍尔木兹海峡的安全不是免费的”，“选择显而易见：要么(确保)一个对所有国家都开放的自由石油市场，要么(承担)所有人都付出巨大代价的风险。” 阿雷夫还说，全球燃料价格的稳定，取决于针对伊朗及其盟友实施的经济和军事压力能否得到有保证的持久终结。
 
 ## 正文
 
-根据《关于开展第36届中国新闻奖评选工作的通知》的规定，我社拟通过自荐方式，分别向南开大学新闻与传播学院、中国新闻出版广电报各报送1件通讯作品，参评第36届中国新闻奖，现予以公示。
+伊朗第一副总统阿雷夫20日在社交媒体发文说，不能一边限制伊朗石油出口，一边指望其他国家能享有在霍尔木兹海峡的“免费安全”通航。
 
-公示期为2026年5月13日至5月19日，共5个工作日。
+阿雷夫说，“霍尔木兹海峡的安全不是免费的”，“选择显而易见：要么(确保)一个对所有国家都开放的自由石油市场，要么(承担)所有人都付出巨大代价的风险。
 
-如有异议，可通过书面、电话方式，于5月19日17时前反映。
+” 阿雷夫还说，全球燃料价格的稳定，取决于针对伊朗及其盟友实施的经济和军事压力能否得到有保证的持久终结。
 
-联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 1.《走访关税战中的“美国粮仓”》 作者：王帆 编辑：集体(谭宏伟、尹宁、王婧、郭金超、苏碧滢、段世炜) 2.《杨振宁的三次告别》 作者：张曦、王昊、任思雨、郎朗、徐洋 编辑：王珊珊、马学玲
+美军13日起对进出伊朗港口的船只实施封锁。
+
+美军中央司令部14日称“已完全切断伊朗海上进出口经济贸易”。
+
+伊朗17日宣布对商船开放霍尔木兹海峡，后于18日宣布，鉴于美方未取消对伊朗的海上封锁，伊朗恢复控制霍尔木兹海峡通行。
+
+来源：央视新闻客户端
 
 ## 相关推荐
 
-- 2026-06-29 20:51 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 20:45 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 20:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 20:37 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 20:41 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 20:50 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 20:30 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 20:47 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 20:33 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 20:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 20:29 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 20:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 20:56 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 20:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 20:36 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 20:52 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 20:37 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 20:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 20:57 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 20:40 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 20:58 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 20:49 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 20:43 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 20:53 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 20:45 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 20:52 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:46 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/2707858323.shtml)
-- 2026-06-29 20:30 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/271754665818.shtml)
-- 2026-06-29 20:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/542823.shtml)
-- 2026-06-29 20:46 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/39292164.shtml)
-- 2026-06-29 20:48 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/9140394.shtml)
-- 2026-06-29 20:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/18801.shtml)
-- 2026-06-29 20:49 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/95163768608.shtml)
-- 2026-06-29 20:51 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/941928.shtml)
-- 2026-06-29 20:45 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/5320890103.shtml)
-- 2026-06-29 20:48 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/783168396.shtml)
-- 2026-06-29 20:31 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/99078833771.shtml)
-- 2026-06-29 20:24 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/06007996.shtml)
-- 2026-06-29 20:43 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/80407.shtml)
-- 2026-06-29 20:40 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/21416.shtml)
-- 2026-06-29 20:53 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/029979.shtml)
+- 2026-06-29 20:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/495827876455.shtml)
+- 2026-06-29 20:52 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/16245471.shtml)
+- 2026-06-29 20:38 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/25743121.shtml)
+- 2026-06-29 20:53 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/172173181143.shtml)
+- 2026-06-29 20:31 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/99163.shtml)
+- 2026-06-29 20:48 - [C罗10球7球对垫底队](http://www.blog.minike.top/Article/details/0286056.shtml)
+- 2026-06-29 20:59 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/7353160.shtml)
+- 2026-06-29 20:57 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/35576.shtml)
+- 2026-06-29 20:51 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/007112710048.shtml)
+- 2026-06-29 20:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/87595.shtml)
+- 2026-06-29 20:49 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/6340740.shtml)
+- 2026-06-29 20:31 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/96537.shtml)
+- 2026-06-29 20:56 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/83577355.shtml)
+- 2026-06-29 20:39 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/145228012.shtml)
+- 2026-06-29 20:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/120896906.shtml)

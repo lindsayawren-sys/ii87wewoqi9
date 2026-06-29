@@ -1,57 +1,61 @@
-# 巴西宣布恢复对50美元以下跨境电商平台购物的免税政策
+# 周末影响市场重要资讯回顾：荣耀人形机器人半马夺冠，东方证券拟收购上海证券，原油市场再现“绝妙”押注
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-巴西总统卢拉当地时间周二签署了一项行政命令，取消对价值不超过50美元的境外购物征收的联邦税。此举扭转了此前备受诟病的税收政策，正值他本人积极备战10月份的总统大选之际。 此举预计将降低巴西低收入民众广泛使用的跨境电商平台上的商品购买成本。巴西财政部执行秘书罗杰里奥·塞隆表示：“这将使那些严重依赖这些（电子商务）平台购买日常生活必需品的贫困低收入人群受益。” 塞隆并未具体说明此举
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周末影响市场的重要资讯有：东方证券拟收购上海证券100%股权；荣耀人形机器人半马夺冠；拼多多、美团、京东、饿了么、抖音、淘宝、天猫7家电商平台被罚没35.97亿元；伊朗外交部说霍尔木兹海峡无条件过境通行“已成历史”；原油市场再现“绝妙”押注。 【宏观经济】
 
 ## 正文
 
-巴西总统卢拉当地时间周二签署了一项行政命令，取消对价值不超过50美元的境外购物征收的联邦税。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此举扭转了此前备受诟病的税收政策，正值他本人积极备战10月份的总统大选之际。
+本周末影响市场的重要资讯有：东方证券拟收购上海证券100%股权；荣耀人形机器人半马夺冠；拼多多、美团、京东、饿了么、抖音、淘宝、天猫7家电商平台被罚没35.97亿元；伊朗外交部说霍尔木兹海峡无条件过境通行“已成历史”；原油市场再现“绝妙”押注。
 
-此举预计将降低巴西低收入民众广泛使用的跨境电商平台上的商品购买成本。
+【宏观经济】 李强主持召开国务院常务会议 听取自由贸易试验区建设情况汇报 国务院总理李强4月17日主持召开国务院常务会议，听取自由贸易试验区建设情况汇报。
 
-巴西财政部执行秘书罗杰里奥·塞隆表示：“这将使那些严重依赖这些（电子商务）平台购买日常生活必需品的贫困低收入人群受益。
+会议指出，面对新形势新任务，要深入实施自由贸易试验区提升战略，改革完善体制机制，进一步优化布局提升能级，更好服务国家发展大局。
 
-” 塞隆并未具体说明此举造成的税收损失规模，巴西政府表示将于周二晚些时候在官方公报上正式公布这一决定。
+要注重因地制宜、稳步有序、务求实效，在科学评估论证基础上，根据各地情况和实际需要，一区一策制定方案，扎实推进相关工作，推动自贸试验区高质量发展。
 
-这些措施建立在卢拉近期一系列举措之上，其中包括一项政府支持的消费者债务重组计划，旨在巩固其在选民中的支持率。
+要支持上海等自贸试验区立足功能定位，主动对接国际高标准经贸规则，稳步扩大规则、规制、管理、标准等制度型开放，探索形成更多可复制可推广的经验做法，更好发挥示范引领和辐射带动作用。
 
-该消息是在一场直播活动中宣布的，卢拉和包括副总统杰拉尔多·阿尔克明在内的几位官员出席了直播。
+中证协修订发布《证券公司建立稳健薪酬制度指引》 4月17日，中证协修订发布《证券公司建立稳健薪酬制度指引》。
 
-阿尔克明此前曾表示，这项税收有助于提升巴西产业的竞争力，并在该国创造就业机会。
+《指引》适用全部证券公司，各级子公司参照执行，人员范围涵盖与证券公司建立劳动关系的人员和领取薪酬的董事、监事。
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 20:24 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 20:52 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 20:40 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 20:35 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 20:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 20:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 20:25 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 20:35 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 20:43 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 20:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 20:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 20:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 20:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 20:48 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 20:48 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 20:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 20:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 20:44 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 20:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 20:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 20:40 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 20:37 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 20:44 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 20:49 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 20:39 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:43 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/11133001751.shtml)
-- 2026-06-29 20:27 - [美人鱼](https://www.blog.minike.top/Article/details/992966538.shtml)
-- 2026-06-29 20:43 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/549633.shtml)
-- 2026-06-29 20:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/9840905.shtml)
-- 2026-06-29 20:32 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/64831.shtml)
-- 2026-06-29 20:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/116423969033.shtml)
-- 2026-06-29 20:36 - [北京市发布雷电黄色预警](https://www.blog.kurohicncr.top/Article/details/229204.shtml)
-- 2026-06-29 20:41 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/8838025964.shtml)
-- 2026-06-29 20:31 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/16904789.shtml)
-- 2026-06-29 20:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/44806421.shtml)
-- 2026-06-29 20:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/106030209.shtml)
-- 2026-06-29 20:30 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/13455101808.shtml)
-- 2026-06-29 20:24 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/97366112.shtml)
-- 2026-06-29 20:48 - [请回答王牌2019](http://www.share.minike.top/Article/details/237856.shtml)
-- 2026-06-29 20:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/780188949243.shtml)
+- 2026-06-29 20:40 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/944875506.shtml)
+- 2026-06-29 20:32 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/97906.shtml)
+- 2026-06-29 20:32 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/2619580.shtml)
+- 2026-06-29 20:56 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/329253.shtml)
+- 2026-06-29 20:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/1925400.shtml)
+- 2026-06-29 20:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/6032699671.shtml)
+- 2026-06-29 20:49 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/18986359.shtml)
+- 2026-06-29 20:52 - [温网](https://www.blog.kurohicncr.top/Article/details/253910.shtml)
+- 2026-06-29 20:32 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/4832395.shtml)
+- 2026-06-29 20:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/0050333281.shtml)
+- 2026-06-29 20:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/674320240212.shtml)
+- 2026-06-29 20:54 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/29433294049.shtml)
+- 2026-06-29 20:53 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/353341776.shtml)
+- 2026-06-29 20:46 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/1940768.shtml)
+- 2026-06-29 20:51 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/056886111937.shtml)

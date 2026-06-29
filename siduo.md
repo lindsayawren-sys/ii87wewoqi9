@@ -1,49 +1,57 @@
-# 外交部：坚决反对所谓“哥本哈根民主峰会”执意邀请“台独”分子大放厥词
+# 近14年第13冠！拜仁提前4轮卫冕德甲冠军
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-新华社北京5月13日电(记者万倩仪、冯歆然)针对有报道说赖清德在“哥本哈根民主峰会”发表视频讲话，外交部发言人郭嘉昆13日在例行记者会上答问时表示，所谓“哥本哈根民主峰会”充满意识形态偏见，执意邀请“台独”分子大放厥词，严重违反一个中国原则，我们对此坚决反对。中方敦促有关方面切实恪守一个中国原则，不为“台独”势力提供舞台。 郭嘉昆说，无论赖清德说什么、做什么，都改变不了台湾是中
+中新网北京4月20日电(记者 刘星晨)北京时间4月20日，2025-2026赛季德甲联赛继续进行，拜仁慕尼黑队坐镇主场4:2逆转击败斯图加特队，积分来到79分，提前4轮锁定德甲冠军。据统计，这是拜仁队史第34个德甲冠军，也是他们近14个赛季中收获的第13个德甲冠军。 本赛季截至目前，拜仁在攻防两端展现了极强的统治力，联赛在轰入109球的同时失球数仅为29，在前30轮取得了25胜
 
 ## 正文
 
-新华社北京5月13日电(记者万倩仪、冯歆然)针对有报道说赖清德在“哥本哈根民主峰会”发表视频讲话，外交部发言人郭嘉昆13日在例行记者会上答问时表示，所谓“哥本哈根民主峰会”充满意识形态偏见，执意邀请“台独”分子大放厥词，严重违反一个中国原则，我们对此坚决反对。
+中新网北京4月20日电(记者 刘星晨)北京时间4月20日，2025-2026赛季德甲联赛继续进行，拜仁慕尼黑队坐镇主场4:2逆转击败斯图加特队，积分来到79分，提前4轮锁定德甲冠军。
 
-中方敦促有关方面切实恪守一个中国原则，不为“台独”势力提供舞台。
+据统计，这是拜仁队史第34个德甲冠军，也是他们近14个赛季中收获的第13个德甲冠军。
 
-郭嘉昆说，无论赖清德说什么、做什么，都改变不了台湾是中国领土一部分的历史和法理事实，撼动不了国际社会坚持一个中国原则的基本格局。
+本赛季截至目前，拜仁在攻防两端展现了极强的统治力，联赛在轰入109球的同时失球数仅为29，在前30轮取得了25胜4平1负的战绩。
+
+据媒体统计，拜仁队也打破了自己保持的德甲单赛季球队进球纪录。
+
+本场比赛，斯图加特队在第21分钟率先破门。
+
+此后，拜仁队快速找到状态，在6分钟内连入3球，将比分反超。
+
+易边再战，凯恩门前完成补射，帮助球队将比分改写为4:1。
+
+最后时刻，安德烈斯轰出一记世界波帮助斯图加特队扳回一城。
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 20:37 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 20:50 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 20:34 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 20:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 20:30 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 20:48 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 20:34 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 20:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 20:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 20:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 20:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 20:25 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 20:58 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 20:38 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 20:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 20:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 20:58 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 20:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 20:51 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 20:37 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 20:57 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 20:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 20:36 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:45 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/5824572.shtml)
-- 2026-06-29 20:32 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/395284624182.shtml)
-- 2026-06-29 20:28 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/233149.shtml)
-- 2026-06-29 20:40 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/4741493.shtml)
-- 2026-06-29 20:26 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/062171201336.shtml)
-- 2026-06-29 20:32 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/90896744.shtml)
-- 2026-06-29 20:51 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/408201071.shtml)
-- 2026-06-29 20:44 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/80823486.shtml)
-- 2026-06-29 20:32 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/763910068867.shtml)
-- 2026-06-29 20:35 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/734763065.shtml)
-- 2026-06-29 20:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/6978738908.shtml)
-- 2026-06-29 20:33 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/76557718.shtml)
-- 2026-06-29 20:43 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/90299433776.shtml)
-- 2026-06-29 20:45 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/109835.shtml)
-- 2026-06-29 20:39 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/27703808219.shtml)
+- 2026-06-29 20:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/23368.shtml)
+- 2026-06-29 20:55 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/5001361455.shtml)
+- 2026-06-29 20:46 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/140323257671.shtml)
+- 2026-06-29 20:42 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/4917366510.shtml)
+- 2026-06-29 20:41 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/54237147215.shtml)
+- 2026-06-29 20:33 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/75349608.shtml)
+- 2026-06-29 20:40 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/82130741.shtml)
+- 2026-06-29 20:42 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/36724724.shtml)
+- 2026-06-29 20:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/067830555632.shtml)
+- 2026-06-29 20:46 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/34385.shtml)
+- 2026-06-29 20:48 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/290857.shtml)
+- 2026-06-29 20:30 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/7015466.shtml)
+- 2026-06-29 20:56 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/64214823952.shtml)
+- 2026-06-29 20:44 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/0416461.shtml)
+- 2026-06-29 20:35 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/851650712415.shtml)

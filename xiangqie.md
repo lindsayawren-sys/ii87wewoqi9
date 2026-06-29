@@ -1,60 +1,54 @@
-# 上海居民赴台湾本岛旅游何时实现？国台办回应
+# 霍尔木兹海峡紧张局势再起 亚市早盘油价攀升
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新社北京5月13日电 (徐雪莹 刘大炜)就上海居民赴台湾本岛旅游何时实现，国务院台办发言人张晗13日在北京应询表示，大陆方面已经宣布推动恢复上海市及福建省居民赴台(本岛)个人游试点，希望台湾有关方面顺应民意，尽早开放，为实现两岸人员往来交流正常化和各领域交流常态化创造条件。在当天举行的国台办例行新闻发布会上，张晗回答相关提问时说，4月29日，上海市文旅局就上海居民赴金门、马祖
+因霍尔木兹海峡紧张局势再起，油价在亚洲早盘上涨。据媒体援引美国中央司令部的消息报道，美国周日向一艘悬挂伊朗国旗的船只开火、登船并将其扣押，该船只在被拦截时正驶向伊朗阿巴斯港。澳新银行研究部的分析师在一份研究报告中称：“局势复杂多变。“这些分析师补充说：“很明显，一旦该海峡完全开放，能源市场要恢复到战前运作状态将非易事。“近月西得州中质油期货上涨8.0%，至每桶90.53美元；近
 
 ## 正文
 
-中新社北京5月13日电 (徐雪莹 刘大炜)就上海居民赴台湾本岛旅游何时实现，国务院台办发言人张晗13日在北京应询表示，大陆方面已经宣布推动恢复上海市及福建省居民赴台(本岛)个人游试点，希望台湾有关方面顺应民意，尽早开放，为实现两岸人员往来交流正常化和各领域交流常态化创造条件。
+因霍尔木兹海峡紧张局势再起，油价在亚洲早盘上涨。
 
-在当天举行的国台办例行新闻发布会上，张晗回答相关提问时说，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。
+据媒体援引美国中央司令部的消息报道，美国周日向一艘悬挂伊朗国旗的船只开火、登船并将其扣押，该船只在被拦截时正驶向伊朗阿巴斯港。
 
-近期两岸旅游业界已经开始互访考察，为后续两岸旅游交流合作铺路。
+澳新银行研究部的分析师在一份研究报告中称：“局势复杂多变。
 
-今年“五一”期间大陆旅游市场火爆，厦金“小三通”客流爆满，金门成为大陆游客热门目的地。
+“这些分析师补充说：“很明显，一旦该海峡完全开放，能源市场要恢复到战前运作状态将非易事。
 
-张晗应询表示，大陆方面始终积极推动两岸人员往来正常化和各领域交流常态化，率先推出一系列便利措施，展现了诚意和善意。
+“近月西得州中质油期货上涨8.0%，至每桶90.53美元；近月布伦特原油期货上涨6.7%，至每桶96.45美元。
 
-岛内旅游业界多次呼吁民进党当局顺应民意，尽快解除对两岸旅游交流的限制。
-
-民进党当局应正视岛内业界呼声和民众需求，摒弃政治操弄，尽快解除人为障碍，推动两岸旅游交流早日恢复正常。
-
-她提到，据不完全统计，今年“五一”假期期间，两岸“小三通”客运航线共计发送旅客约3.29万人次，同比增长10.57%。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 20:53 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 20:53 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 20:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 20:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 20:41 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 20:46 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 20:49 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 20:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 20:51 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 20:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 20:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 20:42 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 20:25 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 20:31 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 20:53 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 20:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 20:32 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 20:50 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 20:35 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 20:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 20:48 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 20:54 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 20:31 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 20:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 20:32 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [85花告别古偶](https://www.blog.minike.top/Article/details/637307219680.shtml)
-- 2026-06-29 20:53 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/1786683.shtml)
-- 2026-06-29 20:43 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/54205739.shtml)
-- 2026-06-29 20:24 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/624810891460.shtml)
-- 2026-06-29 20:30 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/461492603205.shtml)
-- 2026-06-29 20:52 - [金牌调解](http://www.share.kurohicncr.top/Article/details/09467375859.shtml)
-- 2026-06-29 20:48 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/11246.shtml)
-- 2026-06-29 20:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/71577723093.shtml)
-- 2026-06-29 20:46 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/13514304.shtml)
-- 2026-06-29 20:29 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/59163.shtml)
-- 2026-06-29 20:46 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/09472275.shtml)
-- 2026-06-29 20:37 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/791398021.shtml)
-- 2026-06-29 20:24 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/45600.shtml)
-- 2026-06-29 20:24 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/913370.shtml)
-- 2026-06-29 20:45 - [金牌调解](http://www.blog.minike.top/Article/details/338812618534.shtml)
+- 2026-06-29 20:53 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/314874870584.shtml)
+- 2026-06-29 20:39 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/270536408232.shtml)
+- 2026-06-29 20:31 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/54853.shtml)
+- 2026-06-29 20:35 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/8426046.shtml)
+- 2026-06-29 20:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/1923088.shtml)
+- 2026-06-29 20:53 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/5221184.shtml)
+- 2026-06-29 20:57 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/5897608329.shtml)
+- 2026-06-29 20:30 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/77035913539.shtml)
+- 2026-06-29 20:52 - [东方风云榜直播](http://www.share.minike.top/Article/details/985275.shtml)
+- 2026-06-29 20:59 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/6610637.shtml)
+- 2026-06-29 20:45 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/02297070965.shtml)
+- 2026-06-29 20:31 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/29251.shtml)
+- 2026-06-29 20:30 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/913250235.shtml)
+- 2026-06-29 20:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/85710367237.shtml)
+- 2026-06-29 20:36 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/5034603050.shtml)

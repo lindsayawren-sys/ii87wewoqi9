@@ -1,60 +1,60 @@
-# 国家医保局印发《五年行动计划》 建立健全医保基金监管体系
+# 第十七届井冈山杜鹃花节启幕 以花为媒促文旅全域融合
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-本报北京5月13日电 （记者孙秀艳）国家医保局近日印发《医疗保障基金监督检查五年行动计划（2026年—2030年）》，提出未来5年医保基金监管的整体目标任务，即基本建成宽严相济、标本兼治、综合施策，全方位、多层次、立体化的医保基金监管体系，实现震慑态势进一步巩固、智能监管能力明显提升、监管机制更加完备、制度更加健全、主体自我管理主动性有效提升、基金使用行为更加规范、基金运行环境
+中新网江西井冈山4月18日电 (刘力鑫)18日，2026第十七届井冈山杜鹃花节在江西井冈山茨坪镇开幕。本届杜鹃花节集赏花观景、光影展示、美食市集、动感出游、研学采风于一体，以多元场景展现井冈山的红色底蕴与生态风光，将为广大游客奉上一场可游、可赏、可品、可体验的沉浸式春日文旅盛宴，全方位呈现井冈山杜鹃盛景与红色文旅融合魅力。 开幕式上，吉安市副市长、井冈山管理局党工委书记、井冈山
 
 ## 正文
 
-本报北京5月13日电 （记者孙秀艳）国家医保局近日印发《医疗保障基金监督检查五年行动计划（2026年—2030年）》，提出未来5年医保基金监管的整体目标任务，即基本建成宽严相济、标本兼治、综合施策，全方位、多层次、立体化的医保基金监管体系，实现震慑态势进一步巩固、智能监管能力明显提升、监管机制更加完备、制度更加健全、主体自我管理主动性有效提升、基金使用行为更加规范、基金运行环境深度净化、医保治理体系和治理能力现代化水平显著提升。
+中新网江西井冈山4月18日电 (刘力鑫)18日，2026第十七届井冈山杜鹃花节在江西井冈山茨坪镇开幕。
 
-国家医保局有关负责人表示，国家医保局自成立以来，积极探索建立了飞行检查机制，坚持打防结合，有力筑牢了基金安全防线。
+本届杜鹃花节集赏花观景、光影展示、美食市集、动感出游、研学采风于一体，以多元场景展现井冈山的红色底蕴与生态风光，将为广大游客奉上一场可游、可赏、可品、可体验的沉浸式春日文旅盛宴，全方位呈现井冈山杜鹃盛景与红色文旅融合魅力。
 
-然而，目前基金安全运行仍面临诸多挑战，一方面，基金“跑冒滴漏”问题尚未彻底根治，欺诈骗保时有发生，骗保方式呈现隐蔽化、专业化、复杂化特征，对基金安全构成直接冲击。
+开幕式上，吉安市副市长、井冈山管理局党工委书记、井冈山市委书记廖东生致辞时表示，杜鹃花作为井冈山的市花，是革命先烈鲜血浸染的光荣之花，是大自然馈赠革命圣地的幸福之花，是春天写给老区人民的希望之花，更是井冈儿女迎接八方宾客的友谊之花。
 
-另一方面，随着医保参保覆盖面扩大、保障待遇水平提升、医保支付方式改革推进，基金使用主体日益多元，资金流转链条不断延伸，进一步加大了医保基金风险防控难度，对基金监管工作提出了更高要求。
+“连续十七年节会，一年一花期，一年一主题，我们以花为媒、以节会友，诚邀四海宾朋，共赴春日之约、共赏杜鹃芳华、共品井冈韵味、共话发展蓝图。
 
-《五年行动计划》提出了“十五五”时期医保基金监管重点工作，包括重拳治标，持续巩固“不敢骗”的高压态势，通过强化飞行检查，充分发挥震慑效应；技术赋能，不断织密“不能骗”的天罗地网；源头治本，持续健全“不想骗”的长效机制。
+”廖东生说。
 
-针对飞行检查，推动监督检查全面覆盖，覆盖全国所有统筹地区，覆盖各主体、各类型、各性质、各规模、各场景、各险种。
+吉安市委副书记吴艳玲在开幕式上表示，井冈山的杜鹃是大自然赐予的绚丽瑰宝，也是吉安文旅的独特IP。
 
-通过国家、省、市三级联动，构建起立体化的监管格局。
+“如今的吉安和井冈山‘红古绿’三色交相辉映，山水湖美不胜收，红色文化和庐陵文化相互融合，是吉安推进‘农商文体旅’融合发展的灵魂和载体。
 
-“十五五”时期，力争完成全国定点医药机构现场检查全覆盖。
+” 据了解，本届井冈山杜鹃花节以“映山红遍·乐游井冈”为主题，精心策划了“花之绽、花之美、花之影、花之味、花之游、花之行”六大主题板块，涵盖开幕式文艺展演、井冈杜鹃赏花季、“美在井冈”摄影微视频展示、“井冈好味”特色集市、骑行自驾、研学采风等系列活动。
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 20:50 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 20:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 20:36 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 20:49 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 20:24 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 20:45 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 20:42 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 20:52 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 20:31 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 20:35 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 20:51 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 20:47 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 20:45 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 20:45 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 20:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 20:55 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 20:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 20:53 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 20:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 20:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 20:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 20:59 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 20:56 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 20:50 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 20:33 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 20:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 20:47 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:50 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/25059766.shtml)
-- 2026-06-29 20:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/016246795627.shtml)
-- 2026-06-29 20:27 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/683443905405.shtml)
-- 2026-06-29 20:32 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/678389177.shtml)
-- 2026-06-29 20:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/406639089628.shtml)
-- 2026-06-29 20:41 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/453548010.shtml)
-- 2026-06-29 20:46 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/76192.shtml)
-- 2026-06-29 20:42 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/34935607.shtml)
-- 2026-06-29 20:41 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/0956980994.shtml)
-- 2026-06-29 20:31 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/90501819.shtml)
-- 2026-06-29 20:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/845968.shtml)
-- 2026-06-29 20:41 - [LPL第三赛段赛制公布](https://www.share.kurohicncr.top/Article/details/28560657614.shtml)
-- 2026-06-29 20:42 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/0462029.shtml)
-- 2026-06-29 20:38 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/1888334.shtml)
-- 2026-06-29 20:45 - [本届世界杯已有5人涉性侵风波](https://www.blog.minike.top/Article/details/2063902226.shtml)
+- 2026-06-29 20:53 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/48934464401.shtml)
+- 2026-06-29 20:33 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/39091701.shtml)
+- 2026-06-29 20:35 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/313326.shtml)
+- 2026-06-29 20:50 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/06766.shtml)
+- 2026-06-29 20:33 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/010976.shtml)
+- 2026-06-29 20:36 - [CORTIS 小牌大耍](http://www.blog.kurohicncr.top/Article/details/98729.shtml)
+- 2026-06-29 20:44 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/507086197.shtml)
+- 2026-06-29 20:48 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/0203805.shtml)
+- 2026-06-29 20:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/79818486933.shtml)
+- 2026-06-29 20:53 - [周生如故](http://www.share.kurohicncr.top/Article/details/651753.shtml)
+- 2026-06-29 20:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/74882.shtml)
+- 2026-06-29 20:57 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/026005497122.shtml)
+- 2026-06-29 20:39 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/7473736306.shtml)
+- 2026-06-29 20:30 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/608684774.shtml)
+- 2026-06-29 20:38 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/241317096955.shtml)

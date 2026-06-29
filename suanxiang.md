@@ -1,56 +1,58 @@
-# 欧盟负责人加大施压，整治社交媒体成瘾化设计
+# “江苏·南京台湾周”两岸斗茶文化交流活动在南京启幕
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-欧盟委员会主席乌尔苏拉・冯德莱恩周二表示，欧盟正制定新规，保护儿童免受TikTok、Meta以及X平台等社交媒体成瘾化设计的侵害。 冯德莱恩在哥本哈根发表演讲时称： “睡眠不足、抑郁、焦虑、自残、成瘾行为、网络霸凌、网络诱骗、人身剥削、自杀风险——各类风险正快速激增。” “这些风险就是数字世界的现实。它们并非偶然发生，而是商业模式造成的结果：这类商业模式把我们孩子的注意力当成了
+中新社南京4月17日电 (常慕城)以“茶香两岸 情系金陵”为主题的两岸斗茶文化交流活动暨2026年度南京市职工技能大赛茶叶加工工职业技能竞赛，17日在南京市溧水区启幕。两百余位与会嘉宾在氤氲茶香中品香茗、话传承、促融合。 作为“江苏·南京台湾周”系列活动之一，本次活动以茶为媒介，以文化为纽带，旨在深化两岸经贸文化交流，厚植同胞亲情。活动在充满童真的儿童舞台剧《一壶同源香》中拉开
 
 ## 正文
 
-欧盟委员会主席乌尔苏拉・冯德莱恩周二表示，欧盟正制定新规，保护儿童免受TikTok、Meta以及X平台等社交媒体成瘾化设计的侵害。
+中新社南京4月17日电 (常慕城)以“茶香两岸 情系金陵”为主题的两岸斗茶文化交流活动暨2026年度南京市职工技能大赛茶叶加工工职业技能竞赛，17日在南京市溧水区启幕。
 
-冯德莱恩在哥本哈根发表演讲时称： “睡眠不足、抑郁、焦虑、自残、成瘾行为、网络霸凌、网络诱骗、人身剥削、自杀风险——各类风险正快速激增。
+两百余位与会嘉宾在氤氲茶香中品香茗、话传承、促融合。
 
-” “这些风险就是数字世界的现实。
+作为“江苏·南京台湾周”系列活动之一，本次活动以茶为媒介，以文化为纽带，旨在深化两岸经贸文化交流，厚植同胞亲情。
 
-它们并非偶然发生，而是商业模式造成的结果：这类商业模式把我们孩子的注意力当成了可售卖的商品。
+活动在充满童真的儿童舞台剧《一壶同源香》中拉开序幕，南京市溧水区洪蓝街道中心幼儿园小朋友的演绎，传递出两岸文化同根同源、血脉相连的深刻内涵。
 
-” 冯德莱恩表示，欧盟委员会将在《数字公平法案》中专门整治具有成瘾性和危害性的产品设计套路，该法案预计将于今年年底提交草案。
+在随后的茶品推荐环节，来自台湾南投、苗栗、宜兰、台东等地农会的代表和南京雨花茶推荐官，分享了每道茶品背后的故事与情怀。
 
-她还称，《数字公平法案》也将对社交媒体领域的人工智能应用设置严格限制，同时欧盟正倡导设立社交媒体使用最低准入年龄。
+“在斗茶的过程中，我们往往追求完美的叶底与纯净的汤色。
 
-冯德莱恩提出，欧盟必须考虑设定社交媒体准入最低年龄，并补充说，在专家小组提出相关建议后，欧盟委员会或于今年夏季就此问题提出立法提案。
+但‘东方美人茶’告诉我们，受过伤的芽，反而最香。
 
-她表示：“问题不在于年轻人该不该使用社交媒体，而在于社交媒体该不该触达未成年人。
+”台湾苗栗县陶艺协会理事陈秋萍表示，台湾“东方美人茶”象征着一种在逆境中转化、升华的生命力。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 20:49 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 20:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 20:32 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 20:49 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 20:33 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 20:45 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 20:24 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 20:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 20:34 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 20:32 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 20:34 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 20:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 20:58 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 20:31 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 20:54 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 20:55 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 20:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 20:44 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 20:48 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 20:48 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 20:34 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:38 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/80214.shtml)
-- 2026-06-29 20:35 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/788814257.shtml)
-- 2026-06-29 20:47 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/41364834.shtml)
-- 2026-06-29 20:32 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/684952866.shtml)
-- 2026-06-29 20:32 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/528421252.shtml)
-- 2026-06-29 20:34 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/541493672.shtml)
-- 2026-06-29 20:28 - [东方风云榜直播](https://www.share.minike.top/Article/details/895518825008.shtml)
-- 2026-06-29 20:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/451651.shtml)
-- 2026-06-29 20:26 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/791763402.shtml)
-- 2026-06-29 20:43 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/57492840.shtml)
-- 2026-06-29 20:33 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/29661.shtml)
-- 2026-06-29 20:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/199691599669.shtml)
-- 2026-06-29 20:39 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/48259.shtml)
-- 2026-06-29 20:41 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/265283.shtml)
-- 2026-06-29 20:42 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/879516.shtml)
+- 2026-06-29 20:44 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/05313763035.shtml)
+- 2026-06-29 20:35 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/33738566108.shtml)
+- 2026-06-29 20:42 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/3080586003.shtml)
+- 2026-06-29 20:44 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/53800.shtml)
+- 2026-06-29 20:51 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/7519959.shtml)
+- 2026-06-29 20:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/912359082.shtml)
+- 2026-06-29 20:52 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/4231800.shtml)
+- 2026-06-29 20:52 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/0461315.shtml)
+- 2026-06-29 20:34 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/722712.shtml)
+- 2026-06-29 20:45 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/35627.shtml)
+- 2026-06-29 20:46 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/953838655.shtml)
+- 2026-06-29 20:57 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/6853883.shtml)
+- 2026-06-29 20:30 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/139986831.shtml)
+- 2026-06-29 20:30 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/43221660.shtml)
+- 2026-06-29 20:35 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/270939527.shtml)

@@ -1,57 +1,57 @@
-# Principal首席全球策略师称在脆弱市场中 大型科技股是避风港
+# Netflix遭抛售 或开启买入窗口
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-Principal Asset Management的Seema Shah表示，对于在伊朗战争造成的“脆弱”市场中寻求避风港的股票投资者来说，大型科技股经证明是一个安全的选择。 投资者想要的是强劲的资产负债表和正向现金流，“这些构成了许多企业的护城河——而AI技术正处于这一核心位置，”Principal首席全球策略师Shah周三表示，“人们正在寻找某种意义上的避风港。” 科技股
+Netflix在业绩指引令人失望后股价受到冲击，但不少分析师开始将此次回调视为入场机会。 市场反应相当剧烈。该股盘前下跌约10%，尽管财报本身看起来稳健——营收增长16%，营业利润率提高50个基点。问题不在于Netflix刚刚交出的成绩单，而在于接下来的表现。业绩指引弱于预期，这才是动摇信心的原因。 尽管如此，并非所有人都转向谨慎。摩根大通和摩根士丹利等机构的分析师仍持积极态度
 
 ## 正文
 
-Principal Asset Management的Seema Shah表示，对于在伊朗战争造成的“脆弱”市场中寻求避风港的股票投资者来说，大型科技股经证明是一个安全的选择。
+Netflix在业绩指引令人失望后股价受到冲击，但不少分析师开始将此次回调视为入场机会。
 
-投资者想要的是强劲的资产负债表和正向现金流，“这些构成了许多企业的护城河——而AI技术正处于这一核心位置，”Principal首席全球策略师Shah周三表示，“人们正在寻找某种意义上的避风港。
+市场反应相当剧烈。
 
-” 科技股如今被视作避险资产，这在某种程度上标志着其历史定位的逆转。
+该股盘前下跌约10%，尽管财报本身看起来稳健——营收增长16%，营业利润率提高50个基点。
 
-过去相较其他股票和美国国债，科技股通常被视为高风险、高回报的选项。
+问题不在于Netflix刚刚交出的成绩单，而在于接下来的表现。
 
-继2026年前三个月下跌超过9%之后，该板块本季度领涨标普500指数。
+业绩指引弱于预期，这才是动摇信心的原因。
 
-英特尔、AMD和美光科技本季度均上涨超过100%。
+尽管如此，并非所有人都转向谨慎。
 
-Shah警告说，科技股并非不受战争潜在后果的影响。
+摩根大通和摩根士丹利等机构的分析师仍持积极态度，指出强劲的用户参与度、定价能力以及增长空间。
 
-半导体生产所需的许多原材料都要经过霍尔木兹海峡，而该海峡基本上已因伊朗和美国的海上封锁而关闭。
+部分指引疲软可能仅仅是时机问题，尤其是美国地区的涨价需要数月时间才能在业绩中体现。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 20:51 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 20:36 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 20:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 20:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 20:37 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:36 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 20:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 20:43 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 20:31 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 20:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 20:37 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 20:40 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 20:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 20:51 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 20:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 20:41 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 20:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 20:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 20:37 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 20:44 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 20:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/79570385.shtml)
-- 2026-06-29 20:32 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/688407471220.shtml)
-- 2026-06-29 20:24 - [一生一世](https://www.share.minike.top/Article/details/25589250.shtml)
-- 2026-06-29 20:29 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/83210935826.shtml)
-- 2026-06-29 20:47 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/38906204.shtml)
-- 2026-06-29 20:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/961643902689.shtml)
-- 2026-06-29 20:53 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/7192085.shtml)
-- 2026-06-29 20:47 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/562297.shtml)
-- 2026-06-29 20:39 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/192847.shtml)
-- 2026-06-29 20:30 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/596118125.shtml)
-- 2026-06-29 20:26 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/73170538.shtml)
-- 2026-06-29 20:53 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/60551505667.shtml)
-- 2026-06-29 20:41 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/75286249841.shtml)
-- 2026-06-29 20:45 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/362467.shtml)
-- 2026-06-29 20:36 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/86230084.shtml)
+- 2026-06-29 20:46 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/50448495298.shtml)
+- 2026-06-29 20:36 - [极限挑战第一季](http://www.share.minike.top/Article/details/3361530.shtml)
+- 2026-06-29 20:59 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/39998795780.shtml)
+- 2026-06-29 20:49 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/89835396.shtml)
+- 2026-06-29 20:30 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/0043074029.shtml)
+- 2026-06-29 20:34 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/1005330411.shtml)
+- 2026-06-29 20:37 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/098377189.shtml)
+- 2026-06-29 20:44 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/93487058.shtml)
+- 2026-06-29 20:37 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/3959550875.shtml)
+- 2026-06-29 20:40 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/0388333767.shtml)
+- 2026-06-29 20:39 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/5940234646.shtml)
+- 2026-06-29 20:46 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/82343261.shtml)
+- 2026-06-29 20:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/0565512.shtml)
+- 2026-06-29 20:32 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/08362385.shtml)
+- 2026-06-29 20:32 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/553815900140.shtml)

@@ -1,58 +1,59 @@
-# 全球最大规模的股市上涨在韩国引发投机狂潮 投资者借入创纪录的资金来加大股票投资力度
+# 俞浩回应被比作贾跃亭：如果只看局部，什么结论都能得出来
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-在规模达4.6万亿美元的韩国股市中，市场亢奋情绪随处可见。 受过去一年涨幅超200%带动——远超全球所有其他市场，韩国民众正大举借贷、加码股票投资，借贷规模创下历史新高。市场成交量飙升至纪录水平，股指单日波动5%及以上已成常态，也让韩国综合股价指数（Kospi）成为全球波动最大的主要股指。 错失焦虑情绪（FOMO）在韩国职场、餐厅及家庭聚会中蔓延，情绪愈发浓烈，越来越多投资者开
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：晚点LatePost 原标题：对话追觅俞浩：我的真实世界 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？ 文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。 这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、
 
 ## 正文
 
-在规模达4.6万亿美元的韩国股市中，市场亢奋情绪随处可见。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-受过去一年涨幅超200%带动——远超全球所有其他市场，韩国民众正大举借贷、加码股票投资，借贷规模创下历史新高。
+来源：晚点LatePost 原标题：对话追觅俞浩：我的真实世界 追觅创始人 俞浩 从百万亿公司到为人类探索边界，俞浩想讲一套什么逻辑？
 
-市场成交量飙升至纪录水平，股指单日波动5%及以上已成常态，也让韩国综合股价指数（Kospi）成为全球波动最大的主要股指。
+文丨小晚 管艺雯 追觅创始人俞浩，将会是中国商业史上最具争议的创业者之一。
 
-错失焦虑情绪（FOMO）在韩国职场、餐厅及家庭聚会中蔓延，情绪愈发浓烈，越来越多投资者开始为子女开户炒股。
+这不仅因为他在短时间内闯入诸多赛道，从扫地机、吸尘器到汽车、手机、大家电，还因为他对创新、管理、商业的种种理解，几乎都站在主流认知的反面。
 
-Toss证券统计数据显示，今年一季度18岁以下新增股票账户数量较去年同期暴涨近十倍。
+1987 年出生于江苏南通的俞浩，因物理竞赛获奖被保送至清华大学航空航天系。
 
-37岁的首尔视频创作者Jang Eunjung，表示：“散户情绪极度狂热，近乎癫狂。
+他早年想做物理学家，研究生阶段试着研究湍流问题，很快放弃，转向工程与制造。
 
-”随着股市大涨，她主打股票投资的YouTube频道，从寥寥无几的观众涨至130余万订阅者。
+2017 年他创办追觅，从高速数字马达做起，曾是小米生态链最边缘的代工厂，自建品牌、出海、高端化。
 
-“我们今后还能再见到这样直线拉升的行情吗？
+俞浩说，追觅成立以来，每年都保持 100% 的收入增速。
 
 ## 相关推荐
 
-- 2026-06-29 20:36 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 20:44 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 20:35 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 20:27 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 20:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 20:41 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 20:28 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 20:32 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 20:51 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 20:36 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 20:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 20:39 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 20:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 20:30 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 20:33 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 20:43 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 20:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 20:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 20:41 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 20:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 20:43 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 20:40 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 20:35 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 20:49 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 20:35 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:37 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/028434358.shtml)
-- 2026-06-29 20:39 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/32640617998.shtml)
-- 2026-06-29 20:49 - [爱很美味](http://www.blog.minike.top/Article/details/209253529.shtml)
-- 2026-06-29 20:29 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/738197528.shtml)
-- 2026-06-29 20:39 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/70119.shtml)
-- 2026-06-29 20:30 - [金牌调解](http://www.share.kurohicncr.top/Article/details/7863473.shtml)
-- 2026-06-29 20:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/1776596837.shtml)
-- 2026-06-29 20:31 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/131999646.shtml)
-- 2026-06-29 20:48 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/336684.shtml)
-- 2026-06-29 20:50 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/393068884.shtml)
-- 2026-06-29 20:34 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/0711275.shtml)
-- 2026-06-29 20:33 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/99911.shtml)
-- 2026-06-29 20:31 - [普京建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/973251.shtml)
-- 2026-06-29 20:47 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/57965998.shtml)
-- 2026-06-29 20:42 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/351798079.shtml)
+- 2026-06-29 20:49 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/50817258765.shtml)
+- 2026-06-29 20:50 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/91826397188.shtml)
+- 2026-06-29 20:30 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/1471456108.shtml)
+- 2026-06-29 20:47 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/4321930.shtml)
+- 2026-06-29 20:57 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/043219996.shtml)
+- 2026-06-29 20:39 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/48205858269.shtml)
+- 2026-06-29 20:35 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/7887881.shtml)
+- 2026-06-29 20:42 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/21814661513.shtml)
+- 2026-06-29 20:54 - [LPL第三赛段赛制公布](http://www.share.minike.top/Article/details/27123.shtml)
+- 2026-06-29 20:53 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/9111514.shtml)
+- 2026-06-29 20:49 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/9818765918.shtml)
+- 2026-06-29 20:58 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/451628.shtml)
+- 2026-06-29 20:33 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/36710058680.shtml)
+- 2026-06-29 20:53 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/34678479.shtml)
+- 2026-06-29 20:30 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/089779.shtml)

@@ -1,58 +1,60 @@
-# 台资企业品牌亮相2026消费名品大会
+# 第二十八届海峡两岸纺织服装博览会在福建石狮举行
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新社苏州5月13日电 (记者 钟升)2026消费名品大会13日在江苏苏州开幕。本次大会以“消费新范式 名品新未来”为主题，集中呈现消费名品创新成果。一些台资企业品牌也亮相大会，吸引众多关注。 工业和信息化部副部长谢远生在致辞中说，消费品工业是中国传统优势产业和重要民生行业，是筑牢实体经济根基的重要基石，是满足人民日益增长的美好生活需要的物质基础。当前，消费已成为拉动中国经济增
+中新社福建石狮4月18日电 (记者 孙虹)第二十八届海峡两岸纺织服装博览会(简称“海博会”)暨全球男装供应链展18日在福建石狮举行，吸引海峡两岸及海外纺织服装采购商、贸易商共拓商机。 本届海博会以“链通全球 潮领未来”为主题。作为以“海峡两岸”冠名的纺织服装专业展会，海博会上的台湾元素一直吸引着海内外厂商和参观者。本届海博会设置了两岸融合馆、流行面料馆、面辅料融合馆、跨境优品馆
 
 ## 正文
 
-中新社苏州5月13日电 (记者 钟升)2026消费名品大会13日在江苏苏州开幕。
+中新社福建石狮4月18日电 (记者 孙虹)第二十八届海峡两岸纺织服装博览会(简称“海博会”)暨全球男装供应链展18日在福建石狮举行，吸引海峡两岸及海外纺织服装采购商、贸易商共拓商机。
 
-本次大会以“消费新范式 名品新未来”为主题，集中呈现消费名品创新成果。
+本届海博会以“链通全球 潮领未来”为主题。
 
-一些台资企业品牌也亮相大会，吸引众多关注。
+作为以“海峡两岸”冠名的纺织服装专业展会，海博会上的台湾元素一直吸引着海内外厂商和参观者。
 
-工业和信息化部副部长谢远生在致辞中说，消费品工业是中国传统优势产业和重要民生行业，是筑牢实体经济根基的重要基石，是满足人民日益增长的美好生活需要的物质基础。
+本届海博会设置了两岸融合馆、流行面料馆、面辅料融合馆、跨境优品馆等11个特色展馆，一站看遍两岸乃至全球男装供应链。
 
-当前，消费已成为拉动中国经济增长的主动力，培育打造中国消费名品方阵正是加快推动消费品工业高质量发展、提升中国消费品品牌价值和影响力的一个重要手段。
+深耕两岸纺织服装产业融合发展多年，泉州市世晟供应链有限公司综合部负责人虞茂辉认为，两岸融合不只是情感上的相连，更是产业上的深度绑定与共赢。
 
-今年2月，工业和信息化部办公厅公布了2025年度中国消费名品名单，首次将大陆台资企业纳入评选范围，旺旺、康师傅、元祖食品、拓进等一批扎根大陆、深耕市场的台资企业品牌入选。
+“通过从报关、物流到海外市场的全方位赋能，提升两岸产品的国际竞争力，真正让两岸经贸往来更紧密，生意越做越好。
 
-本次消费名品大会也有十余家台资企业受邀参展。
+” 作为中国知名侨乡、“闽派”服饰发源地，石狮近年来依托纺织服装产业集群，推动电商直播、跨境贸易等新业态快速发展，产品销往全球200多个国家和地区。
 
-大会现场，以“两岸客厅 我们的家”为主题打造的沉浸式消费体验馆被设置在显眼位置。
+埃及商人亨利·索拜·马卡里·吉尔吉斯·哈那(Hany Sobhy Makary Guirguis Hanna)告诉中新社记者，人工智能(AI)、智能制造、新材料、数字化正深刻重塑纺织行业，这一点在海博会上展现得尤为明显。
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 20:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 20:29 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 20:37 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 20:37 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 20:37 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 20:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 20:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 20:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 20:37 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 20:33 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 20:50 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 20:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 20:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 20:31 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 20:38 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 20:38 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 20:37 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 20:36 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 20:40 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 20:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 20:39 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 20:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 20:39 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 20:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:41 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:53 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/108280325.shtml)
-- 2026-06-29 20:28 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/249242853669.shtml)
-- 2026-06-29 20:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/076966158845.shtml)
-- 2026-06-29 20:46 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/284224021501.shtml)
-- 2026-06-29 20:46 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/44207861925.shtml)
-- 2026-06-29 20:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/680921962.shtml)
-- 2026-06-29 20:43 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/897761.shtml)
-- 2026-06-29 20:25 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/2401270360.shtml)
-- 2026-06-29 20:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/5252744.shtml)
-- 2026-06-29 20:28 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/784173839.shtml)
-- 2026-06-29 20:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/617475958409.shtml)
-- 2026-06-29 20:46 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/768086834.shtml)
-- 2026-06-29 20:38 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/344480368278.shtml)
-- 2026-06-29 20:52 - [起风了](https://www.share.kurohicncr.top/Article/details/90099455.shtml)
-- 2026-06-29 20:27 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/548187579074.shtml)
+- 2026-06-29 20:53 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/688479318686.shtml)
+- 2026-06-29 20:35 - [扩军害了世界杯吗](http://www.share.kurohicncr.top/Article/details/58362551180.shtml)
+- 2026-06-29 20:49 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/4575484.shtml)
+- 2026-06-29 20:52 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/01609304880.shtml)
+- 2026-06-29 20:37 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/330099109540.shtml)
+- 2026-06-29 20:44 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/700109216899.shtml)
+- 2026-06-29 20:35 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/52743918.shtml)
+- 2026-06-29 20:39 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/6408065073.shtml)
+- 2026-06-29 20:46 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/24575.shtml)
+- 2026-06-29 20:43 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/994732651.shtml)
+- 2026-06-29 20:32 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/07694.shtml)
+- 2026-06-29 20:53 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/0832390469.shtml)
+- 2026-06-29 20:41 - [第一炉香](http://www.share.minike.top/Article/details/766280982025.shtml)
+- 2026-06-29 20:51 - [青春环游记第三季](http://www.share.minike.top/Article/details/3044002.shtml)
+- 2026-06-29 20:51 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/1056980905.shtml)

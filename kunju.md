@@ -1,60 +1,56 @@
-# 印度拟调整大宗商品衍生品交易规则，以提振市场流动性
+# 加拿大总理：美国已改变，加美关系“优势”变“劣势”
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-5月12日，印度证券交易委员会（SEBI）发布咨询文件，提议通过引入现金结算试点、放宽持仓限制及设定罚款上限等一系列举措，旨在提振大宗商品衍生品市场的流动性并吸引更多机构投资者参与。 根据SEBI披露的试点计划，印度拟允许部分农产品衍生品合约在启动初期采用现金结算模式，待市场活跃度达到预设阈值后，再转为实物交割。目前，玉米、花生及辣椒已被列入首批试点考虑名单。SEBI强调，此举
+中新网4月20日电 据美联社报道，加拿大总理卡尼当地时间19日发布视频讲话称，世界正变得更加危险和分裂，美国已从根本上改变其贸易方式，将关税提高到自大萧条时期以来从未见过的水平，加拿大过去许多建立在对美密切联系基础上的“优势”，如今已变成必须纠正的“劣势”。据报道，卡尼在讲话中介绍了加拿大政府吸引新投资、与其他国家签署贸易协议等举措。卡尼指出，美国总统特朗普加征的关税已经影响到
 
 ## 正文
 
-5月12日，印度证券交易委员会（SEBI）发布咨询文件，提议通过引入现金结算试点、放宽持仓限制及设定罚款上限等一系列举措，旨在提振大宗商品衍生品市场的流动性并吸引更多机构投资者参与。
+中新网4月20日电 据美联社报道，加拿大总理卡尼当地时间19日发布视频讲话称，世界正变得更加危险和分裂，美国已从根本上改变其贸易方式，将关税提高到自大萧条时期以来从未见过的水平，加拿大过去许多建立在对美密切联系基础上的“优势”，如今已变成必须纠正的“劣势”。
 
-根据SEBI披露的试点计划，印度拟允许部分农产品衍生品合约在启动初期采用现金结算模式，待市场活跃度达到预设阈值后，再转为实物交割。
+据报道，卡尼在讲话中介绍了加拿大政府吸引新投资、与其他国家签署贸易协议等举措。
 
-目前，玉米、花生及辣椒已被列入首批试点考虑名单。
+卡尼指出，美国总统特朗普加征的关税已经影响到加拿大汽车和钢铁行业工人，企业也因不确定性而推迟投资。
 
-SEBI强调，此举并非背离实物交割这一核心政策，现金结算仅作为提升交易便利性的中期过渡手段。
+他表示，他将定期向民众通报减少对美依赖、推动经济多元化的进展。
 
-相关转化的触发条件将基于日均交易量、持仓量或自合约推出起的两年期限。
+卡尼表示，加拿大不能依赖单一外国伙伴，也不能把未来寄托于不受控制的外部环境。
 
-在放宽市场准入方面，SEBI提议大幅上调农产品衍生品的持仓限制。
+加拿大能够掌控的是本国事务，应建设一个更能承受外部冲击的国家。
 
-其中，对通胀具有直接影响的农产品品种，持仓限额拟从0.25%提高至0.5%；对于其他广泛交易的品种，限额拟分别从0.5%和1%上调至1%和2%。
+卡尼说，加拿大无法控制来自美国的干扰，也无法把未来寄托于美国突然停止上述行为，“希望不是计划，怀旧也不是战略”。
 
-此外，针对目前尚未设立上限的农产品持仓违规罚款，SEBI也建议设定处罚上限，以降低交易者的合规风险成本。
+他还表示，“美国已经改变，我们必须作出回应，这关系到重新掌握我们的安全、边境和未来的控制权。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 20:43 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 20:52 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 20:40 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 20:44 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 20:44 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 20:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 20:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 20:39 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 20:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 20:43 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 20:52 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 20:26 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 20:31 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 21:00 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 20:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 20:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 20:31 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 20:57 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 20:42 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 20:43 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 20:45 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 20:35 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 20:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:48 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/89457511.shtml)
-- 2026-06-29 20:26 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/16075912.shtml)
-- 2026-06-29 20:49 - [流金岁月](http://www.share.kurohicncr.top/Article/details/079232696.shtml)
-- 2026-06-29 20:48 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/42426.shtml)
-- 2026-06-29 20:52 - [RAY评乘风2026总决赛](http://www.share.minike.top/Article/details/70491204521.shtml)
-- 2026-06-29 20:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/84549.shtml)
-- 2026-06-29 20:24 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/59211057.shtml)
-- 2026-06-29 20:25 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/169758459981.shtml)
-- 2026-06-29 20:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/24176.shtml)
-- 2026-06-29 20:42 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/36029091.shtml)
-- 2026-06-29 20:53 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/86709005.shtml)
-- 2026-06-29 20:43 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/716473551933.shtml)
-- 2026-06-29 20:32 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/92647379257.shtml)
-- 2026-06-29 20:50 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/44964.shtml)
-- 2026-06-29 20:47 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/347164.shtml)
+- 2026-06-29 20:51 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/5210997671.shtml)
+- 2026-06-29 20:42 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/05121424024.shtml)
+- 2026-06-29 20:42 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/066635.shtml)
+- 2026-06-29 20:31 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/747874.shtml)
+- 2026-06-29 20:44 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/80593043818.shtml)
+- 2026-06-29 20:43 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/3423072908.shtml)
+- 2026-06-29 20:48 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/1711779143.shtml)
+- 2026-06-29 20:37 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/7842262.shtml)
+- 2026-06-29 20:48 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/84901.shtml)
+- 2026-06-29 20:45 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/842307.shtml)
+- 2026-06-29 20:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/7199583654.shtml)
+- 2026-06-29 20:49 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/450305.shtml)
+- 2026-06-29 20:58 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/778500018894.shtml)
+- 2026-06-29 20:46 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/357961067.shtml)
+- 2026-06-29 20:39 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/20673839.shtml)

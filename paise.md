@@ -1,53 +1,59 @@
-# 四川航空股份有限公司原副总经理施祖球涉嫌严重违纪违法接受审查调查
+# 高盛称沪深楼市或2026年底触底，银行房贷数据仍待修复
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-中新网成都5月13日电 (记者 张浪)四川省纪委监委“廉洁四川”13日发布消息：四川航空股份有限公司原副总经理施祖球涉嫌严重违纪违法，目前正接受四川省纪委监委驻四川航空集团公司纪检监察组纪律审查，经四川省监委指定内江市监委管辖，内江市监委指定隆昌市监委管辖，隆昌市监委正对其进行监察调查。 施祖球，男，汉族，1962年5月生，湖南澧县人，大专学历。1978年8月参加工作，1980
+近日，高盛发布报告预测，上海和深圳楼市将于2026年底率先触底，房价有望在2025年底至2028年底期间上涨15%。这一乐观判断随即引发市场热议：楼市拐点真的来了吗？ 第一财经从业内了解到，积极信号正在增多，一方面，香港楼市提前回暖，深圳、上海二手房成交量大幅攀升，部分机构对供应收缩后的止跌回稳抱有信心；国家统计局数据显示，一季度商品房销售面积降幅收窄，商品房待售面积出现51个
 
 ## 正文
 
-中新网成都5月13日电 (记者 张浪)四川省纪委监委“廉洁四川”13日发布消息：四川航空股份有限公司原副总经理施祖球涉嫌严重违纪违法，目前正接受四川省纪委监委驻四川航空集团公司纪检监察组纪律审查，经四川省监委指定内江市监委管辖，内江市监委指定隆昌市监委管辖，隆昌市监委正对其进行监察调查。
+近日，高盛发布报告预测，上海和深圳楼市将于2026年底率先触底，房价有望在2025年底至2028年底期间上涨15%。
 
-施祖球，男，汉族，1962年5月生，湖南澧县人，大专学历。
+这一乐观判断随即引发市场热议：楼市拐点真的来了吗？
 
-1978年8月参加工作，1980年12月加入中国共产党。
+第一财经从业内了解到，积极信号正在增多，一方面，香港楼市提前回暖，深圳、上海二手房成交量大幅攀升，部分机构对供应收缩后的止跌回稳抱有信心；国家统计局数据显示，一季度商品房销售面积降幅收窄，商品房待售面积出现51个月以来首次下降；央行数据亦显示，一季度住户中长期贷款增加4607亿元。
 
-1978年8月至1989年6月，在部队服役；1989年6月至1989年8月，待业；1989年8月至2004年10月，在四川航空公司工作；2004年10月至2011年3月，历任四川航空股份有限公司飞行技术培训管理部党支部书记、部长，飞行技术培训管理部部长，飞行技术管理部副部长(主持工作)，飞行部副部长，飞行部副总经理；2011年3月至2017年6月，任四川航空股份有限公司云南分公司党委副书记、总经理；2017年6月至2023年1月，历任四川航空股份有限公司运行总监，副总经理；2023年1月，退休。
+另一方面，银行财报显示，截至2025年末，六大行个人住房贷款余额全线负增长，同比减少合计约7000亿元，“提前还贷”现象尚未消退。
 
-(完)
+多位受访业内人士亦对房贷风险谨慎乐观。
+
+有专家指出，下阶段需重点观察居民还款能力和意愿变化，这背后对应的是收入预期和房价走势。
+
+若预期损失进一步提升，部分银行可能需要增提减值准备。
+
+库存压力正在缓解，销售数据亦有改善 高盛近日发布报告称，上海和深圳两个城市房地产市场或将在今年底触底，复苏时间较其他一线和二线城市提前6个月至24个月，房价将在2025年底至2028年底期间上涨15%。
 
 ## 相关推荐
 
-- 2026-06-29 20:45 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 20:27 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 20:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 20:24 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 20:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 20:27 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 20:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 20:41 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 20:49 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 20:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 20:53 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 20:45 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 20:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 20:34 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 20:38 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 20:48 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 20:54 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 20:52 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 20:57 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 20:53 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 20:45 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 20:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 20:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 20:46 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 20:49 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 20:49 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:46 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.kurohicncr.top/Article/details/85255968530.shtml)
-- 2026-06-29 20:46 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/48738560163.shtml)
-- 2026-06-29 20:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/3146068606.shtml)
-- 2026-06-29 20:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/29348091211.shtml)
-- 2026-06-29 20:44 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/20510.shtml)
-- 2026-06-29 20:44 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/6861344.shtml)
-- 2026-06-29 20:51 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/93807.shtml)
-- 2026-06-29 20:34 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/386227234.shtml)
-- 2026-06-29 20:51 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/418657.shtml)
-- 2026-06-29 20:52 - [逃狱兄弟](http://www.share.minike.top/Article/details/07098.shtml)
-- 2026-06-29 20:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/516439630413.shtml)
-- 2026-06-29 20:25 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/24449.shtml)
-- 2026-06-29 20:45 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/4849674912.shtml)
-- 2026-06-29 20:28 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/34110.shtml)
-- 2026-06-29 20:52 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/59309208368.shtml)
+- 2026-06-29 20:50 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/8645047.shtml)
+- 2026-06-29 20:36 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/92502.shtml)
+- 2026-06-29 20:54 - [扬名立万](https://www.share.minike.top/Article/details/02520412.shtml)
+- 2026-06-29 20:33 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/8862414.shtml)
+- 2026-06-29 20:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/710745092.shtml)
+- 2026-06-29 20:34 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/35133358.shtml)
+- 2026-06-29 20:49 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/681860.shtml)
+- 2026-06-29 20:39 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/26534862564.shtml)
+- 2026-06-29 20:32 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/55139.shtml)
+- 2026-06-29 20:35 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/29391364047.shtml)
+- 2026-06-29 20:35 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/6228595.shtml)
+- 2026-06-29 20:43 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/22204.shtml)
+- 2026-06-29 20:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/7729238711.shtml)
+- 2026-06-29 20:55 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/6119252.shtml)
+- 2026-06-29 20:38 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/98733.shtml)

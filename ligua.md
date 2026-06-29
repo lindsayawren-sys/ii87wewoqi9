@@ -1,58 +1,59 @@
-# 探访全国唯一元代“连三对唱”古戏台：三戏同台 各唱各调
+# 000703，火了！迎超180家机构调研，一季度业绩大增3774%！
 
-> 更新时间：2026-06-29 20:54:02 UTC+8
+> 更新时间：2026-06-29 21:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 16:08 来源：中国新闻网 近日，山西运城，记者探访全国唯一保留元代“连三对唱”形制的古戏台——奏衍楼。这座始建于元至正十年(1350年)之前的戏台，坐落于池神庙三大殿正对面。戏台面阔七间，横向一字排开。奏衍楼原名“乐楼”，清康熙年间正式更名为“奏衍楼”。每逢农历二月初一产盐开工、八月十五收官，盐商都要花重金请来三台戏班，在同一时间、同一地点
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周（4月13日—17日）机构投资者调研热情不减，截至4月17日，本周共有344家A股上市公司接受机构调研。从赚钱效应来看，超七成机构调研股实现正收益，其中协创数据本周股价创近期新高，累计涨53.18%。 热门调研标的方面，本周有6家上市公司接受超百家机构调研，10家公司接受50家以上机构调研。其中，恒逸石
 
 ## 正文
 
-发布时间：2026年05月12日 16:08 来源：中国新闻网 近日，山西运城，记者探访全国唯一保留元代“连三对唱”形制的古戏台——奏衍楼。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这座始建于元至正十年(1350年)之前的戏台，坐落于池神庙三大殿正对面。
+本周（4月13日—17日）机构投资者调研热情不减，截至4月17日，本周共有344家A股上市公司接受机构调研。
 
-戏台面阔七间，横向一字排开。
+从赚钱效应来看，超七成机构调研股实现正收益，其中协创数据本周股价创近期新高，累计涨53.18%。
 
-奏衍楼原名“乐楼”，清康熙年间正式更名为“奏衍楼”。
+热门调研标的方面，本周有6家上市公司接受超百家机构调研，10家公司接受50家以上机构调研。
 
-每逢农历二月初一产盐开工、八月十五收官，盐商都要花重金请来三台戏班，在同一时间、同一地点连唱三出大戏。
+其中，恒逸石化、润泽科技两家公司本周都接受186家机构调研，成为机构最为关注的“团宠”。
 
-2013年，盐池神庙被列为全国重点文物保护单位。
+华特气体、蓝思科技、耐普矿机分别接受163家、118家、109家机构调研。
 
-(记者 王惠琳) 责任编辑：【刘湃】
+恒逸石化一季报业绩亮眼 恒逸石化（000703）2026年一季度交出亮眼的成绩单，2026年一季度，恒逸石化实现营业收入299.48亿元，同比增长10.23%；归母净利润19.95亿元，同比大增3773.77%。
+
+据恒逸石化介绍，该公司是“炼化—化工—化纤”全产业链一体化龙头企业，以东南亚地区文莱炼化一期项目为上游战略支点，国内PTA-PET及CPL-PA6工厂为产业基石，通过境内外高效联动与上中下游垂直整合，构建了从原油加工到化纤产品的一体化全产业链闭环，形成了国内独有的“涤纶+锦纶”双轮驱动、各业务板块均衡并进的柱状产业布局。
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 20:29 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 20:24 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 20:32 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 20:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 20:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 20:39 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 20:33 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 20:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 20:50 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 20:42 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 20:43 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 20:30 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 20:46 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 20:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 20:56 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 20:40 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 20:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 20:52 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 20:38 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 20:52 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 20:45 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 20:37 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 20:50 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 20:50 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 20:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 20:55 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:39 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/6572504.shtml)
-- 2026-06-29 20:42 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/82427.shtml)
-- 2026-06-29 20:29 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/1206026769.shtml)
-- 2026-06-29 20:47 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/88127834573.shtml)
-- 2026-06-29 20:32 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/12610485.shtml)
-- 2026-06-29 20:42 - [沙丘](https://www.share.minike.top/Article/details/23766166992.shtml)
-- 2026-06-29 20:50 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/556972433.shtml)
-- 2026-06-29 20:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/06299322288.shtml)
-- 2026-06-29 20:39 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/873778068.shtml)
-- 2026-06-29 20:34 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/232697.shtml)
-- 2026-06-29 20:25 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/85413.shtml)
-- 2026-06-29 20:41 - [美以这对亲密盟友要掰了吗](https://www.blog.minike.top/Article/details/504801813.shtml)
-- 2026-06-29 20:35 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/0254498.shtml)
-- 2026-06-29 20:34 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/10214.shtml)
-- 2026-06-29 20:29 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/534347753541.shtml)
+- 2026-06-29 20:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/674390694.shtml)
+- 2026-06-29 20:34 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/723013.shtml)
+- 2026-06-29 20:48 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/6161992915.shtml)
+- 2026-06-29 20:44 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/98526061841.shtml)
+- 2026-06-29 20:30 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/6067418677.shtml)
+- 2026-06-29 20:55 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/283435419.shtml)
+- 2026-06-29 20:40 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/3215671016.shtml)
+- 2026-06-29 20:42 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/05534.shtml)
+- 2026-06-29 20:52 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/60882900583.shtml)
+- 2026-06-29 20:41 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/503934.shtml)
+- 2026-06-29 20:51 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/11465523195.shtml)
+- 2026-06-29 20:32 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/930932.shtml)
+- 2026-06-29 20:49 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/736568.shtml)
+- 2026-06-29 20:40 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/50990699480.shtml)
+- 2026-06-29 20:56 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/312786.shtml)
