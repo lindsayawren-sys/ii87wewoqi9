@@ -1,57 +1,59 @@
-# 健康观察：免疫规划有了智能体，如何让打疫苗更智慧？
+# 特朗普警告伊朗不得向通过霍尔木兹海峡的船只收取费用
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网义乌4月16日电(张煜欢)“真没想到，人在家里就能知道今天能不能打针，不用白跑一趟了！”16日，义乌市民陈女士(化名)通过“浙里办”APP进入“浙里接种”界面预约疫苗时，系统在提交申请后自动弹出橙色的“暂缓接种”温馨提示。 这一“前置辅助预检”功能，让陈女士及时掌握了健康风险，避免了既往带着孩子在门诊排队，终于轮到时却因医生现场预检发现“禁忌症”不能接种的麻烦。 当日，浙
+美国总统特朗普警告伊朗，不得向通过霍尔木兹海峡的船只收取通行费。尽管美伊达成的临时停火协议要求重新开放这一关键水道，但当前该海峡的通行仍明显受阻。 特朗普周四在社交媒体发文称：“有报道称，伊朗正在向通过霍尔木兹海峡的油轮收费。他们最好没有这么做。如果真在收费，他们最好现在就停止！” 特朗普的这番表态显示，美国可能反对任何让伊朗利用其对该海峡影响力收取通行费的新安排。伊朗此前曾表
 
 ## 正文
 
-中新网义乌4月16日电(张煜欢)“真没想到，人在家里就能知道今天能不能打针，不用白跑一趟了！
+美国总统特朗普警告伊朗，不得向通过霍尔木兹海峡的船只收取通行费。
 
-”16日，义乌市民陈女士(化名)通过“浙里办”APP进入“浙里接种”界面预约疫苗时，系统在提交申请后自动弹出橙色的“暂缓接种”温馨提示。
+尽管美伊达成的临时停火协议要求重新开放这一关键水道，但当前该海峡的通行仍明显受阻。
 
-这一“前置辅助预检”功能，让陈女士及时掌握了健康风险，避免了既往带着孩子在门诊排队，终于轮到时却因医生现场预检发现“禁忌症”不能接种的麻烦。
+特朗普周四在社交媒体发文称：“有报道称，伊朗正在向通过霍尔木兹海峡的油轮收费。
 
-当日，浙江省疾病预防控制局、浙江省疾病预防控制中心、义乌市人民政府在义乌联合发布国内首个基于数据互通和垂类模型的浙江省免疫规划综合智能体“疫小盾”——智能辅助预检应用。
+他们最好没有这么做。
 
-作为省-县共建模式下的又一创新成果，该应用的正式推出，标志着浙江在“人工智能+免疫规划”领域迈出了坚实步伐，也为全国免疫规划服务的智能化转型提供了鲜活的浙江探索经验。
+如果真在收费，他们最好现在就停止！
 
-多年来，浙江坚持以数字化改革为引领，从2022年发布全国首张电子预防接种证，到2024年创新“七码合一”疫苗身份证，再到2025年浙江全省智慧接种门诊全面升级、“浙里接种”掌上应用走进千家万户、外籍人员电子预防接种证发布……每一步都在探索数字赋能免疫规划的全新路径。
+” 特朗普的这番表态显示，美国可能反对任何让伊朗利用其对该海峡影响力收取通行费的新安排。
 
-2025年以来，在浙江省疾病预防控制局领导下，浙江省疾病预防控制中心与义乌市卫健局联合组建专班，依托浙江全省免疫规划大数据和义乌市的区域健康信息平台，对海量多源数据进行清洗与打通，逐层搭建起知识库与知识图谱。
+伊朗此前曾表示，这些费用可用于战后重建。
 
-经过200多个日夜的合力攻坚，多智能体协同运行的综合智能体——“疫小盾”正式建成。
+本周初，特朗普提出由美国收取霍尔木兹海峡通行费的构想。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 01:38 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 01:40 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 01:40 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 01:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 01:18 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 01:21 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 01:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 01:33 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 01:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 01:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 01:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 01:24 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 01:47 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 01:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 01:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 01:47 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 01:22 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 01:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 01:27 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 01:23 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 01:32 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 01:37 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 01:19 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:21 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/44472290.shtml)
-- 2026-06-30 01:32 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/115830.shtml)
-- 2026-06-30 01:24 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/3444566.shtml)
-- 2026-06-30 01:37 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/50698454908.shtml)
-- 2026-06-30 01:40 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/783718475.shtml)
-- 2026-06-30 01:12 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/319729.shtml)
-- 2026-06-30 01:23 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/6856806771.shtml)
-- 2026-06-30 01:21 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/180254723402.shtml)
-- 2026-06-30 01:37 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/33290.shtml)
-- 2026-06-30 01:14 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/869087673.shtml)
-- 2026-06-30 01:20 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/640085075943.shtml)
-- 2026-06-30 01:37 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/2317458.shtml)
-- 2026-06-30 01:21 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/385710.shtml)
-- 2026-06-30 01:36 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/599970.shtml)
-- 2026-06-30 01:29 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/1084113.shtml)
+- 2026-06-30 01:35 - [锐评T1零封KC](https://www.share.minike.top/Article/details/54491229.shtml)
+- 2026-06-30 01:35 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/1617977484.shtml)
+- 2026-06-30 01:41 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/8172478213.shtml)
+- 2026-06-30 01:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/484723137662.shtml)
+- 2026-06-30 01:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/067137530.shtml)
+- 2026-06-30 01:21 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/194973.shtml)
+- 2026-06-30 01:38 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/280763151372.shtml)
+- 2026-06-30 01:39 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/05934761.shtml)
+- 2026-06-30 01:34 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/9511411.shtml)
+- 2026-06-30 01:19 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/2637009.shtml)
+- 2026-06-30 01:26 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/85964545442.shtml)
+- 2026-06-30 01:47 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/66983451.shtml)
+- 2026-06-30 01:44 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/763474662925.shtml)
+- 2026-06-30 01:28 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/88984.shtml)
+- 2026-06-30 01:28 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/96017202.shtml)

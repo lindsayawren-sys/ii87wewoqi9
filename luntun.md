@@ -1,57 +1,59 @@
-# 香港都会大学将全方位提升学生AI素养
+# 酒价内参4月9日价格发布，飞天茅台下跌4元
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网香港4月16日电 香港都会大学(下称“都大”)16日公布未来发展蓝图。该校校长林群声说，为全方位提升学生的人工智能(AI)素养，从2026/27学年起，都大本科生须修读两个核心单元“与AI共创：未来的沟通与团队协作”及“人工智能、可持续发展与创业领导力”。 林群声表示，期望通过上述措施培育“AI就绪”(AI-ready)人才，让学生能够以创新、批判且负责任的方式善用新兴的
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月9日延续回调走势。如果主要单品各取一瓶整体打包售卖，今日总售价为9924元，较昨日下跌9元，创下近13天以来新低。市场涨跌分化特征延续，价格在低位区间反复波动，短期仍以震荡整理为主。 今日白酒市场11大单品四涨五跌二平。上涨方面，洋河梦之蓝M6+上涨6元/瓶，渠道补货带动价格修复；青花汾20
 
 ## 正文
 
-中新网香港4月16日电 香港都会大学(下称“都大”)16日公布未来发展蓝图。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月9日延续回调走势。
 
-该校校长林群声说，为全方位提升学生的人工智能(AI)素养，从2026/27学年起，都大本科生须修读两个核心单元“与AI共创：未来的沟通与团队协作”及“人工智能、可持续发展与创业领导力”。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9924元，较昨日下跌9元，创下近13天以来新低。
 
-林群声表示，期望通过上述措施培育“AI就绪”(AI-ready)人才，让学生能够以创新、批判且负责任的方式善用新兴的AI技术。
+市场涨跌分化特征延续，价格在低位区间反复波动，短期仍以震荡整理为主。
 
-他指出，北部都会区是香港未来发展的新引擎，都大将善用“北都大学教育城”的地理优势，聚焦科技教育与研究发展，并深化与粤港澳大湾区企业及科研机构的产学研协作，发挥更强大的协同效应。
+今日白酒市场11大单品四涨五跌二平。
 
-林群声提到，近日正式开幕的都大深圳研究院将会作为该校的深港产学研基地，把握粤港澳大湾区重大发展机遇，促进内地与香港两地学术研究与产业创新深度融合。
+上涨方面，洋河梦之蓝M6+上涨6元/瓶，渠道补货带动价格修复；青花汾20上涨4元/瓶；五粮液普五八代上涨3元/瓶；习酒君品上涨2元/瓶。
 
-(完)
+下跌方面，青花郎跌幅居前，下调7元/瓶，连续第二天自高位回探；精品茅台下跌6元/瓶；飞天茅台与国窖1573均下跌4元/瓶；古井贡古20下跌3元/瓶。
+
+五粮液1618及水晶剑南春价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 01:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 01:17 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:36 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 01:17 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 01:40 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 01:40 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 01:23 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 01:16 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 01:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-30 01:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 01:32 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 01:36 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 01:33 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 01:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 01:40 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 01:47 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:20 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 01:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 01:23 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 01:28 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 01:26 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 01:38 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 01:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 01:34 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 01:46 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 01:43 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 01:42 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/43519840.shtml)
-- 2026-06-30 01:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/057968.shtml)
-- 2026-06-30 01:30 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/2444241961.shtml)
-- 2026-06-30 01:30 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/48700.shtml)
-- 2026-06-30 01:28 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/283171.shtml)
-- 2026-06-30 01:18 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/81264154589.shtml)
-- 2026-06-30 01:22 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/374423292999.shtml)
-- 2026-06-30 01:39 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/0064291081.shtml)
-- 2026-06-30 01:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/208772902.shtml)
-- 2026-06-30 01:39 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/634254294.shtml)
-- 2026-06-30 01:32 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/684666619.shtml)
-- 2026-06-30 01:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/52104039.shtml)
-- 2026-06-30 01:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/5730555222.shtml)
-- 2026-06-30 01:35 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/1182999264.shtml)
-- 2026-06-30 01:12 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/838250543.shtml)
+- 2026-06-30 01:21 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/90441048501.shtml)
+- 2026-06-30 01:18 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/22152744.shtml)
+- 2026-06-30 01:36 - [房价什么时候能涨](http://www.share.minike.top/Article/details/098929.shtml)
+- 2026-06-30 01:36 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/74179.shtml)
+- 2026-06-30 01:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/65540211.shtml)
+- 2026-06-30 01:24 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/679690423.shtml)
+- 2026-06-30 01:46 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/2116820.shtml)
+- 2026-06-30 01:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/2059433612.shtml)
+- 2026-06-30 01:23 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/16783649657.shtml)
+- 2026-06-30 01:45 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/97176.shtml)
+- 2026-06-30 01:21 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/60637177.shtml)
+- 2026-06-30 01:38 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/71283283.shtml)
+- 2026-06-30 01:44 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/56388034.shtml)
+- 2026-06-30 01:38 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/5534632782.shtml)
+- 2026-06-30 01:22 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/2953037.shtml)

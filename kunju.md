@@ -1,60 +1,45 @@
-# 广西宁明“老同节”搭建中越青年“连心桥”
+# 习近平会见郑丽文：两岸同胞走亲走近 走到一起的大潮流不会改变
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网崇左4月16日电(黄艳梅 农佳菁 吴婉梦)4月15日至16日，广西崇左市宁明县北江乡第二届“老同节”暨中越青年交流活动举行，中越两国青年欢聚一堂，以传承百年的“老同”文化为纽带，共叙友情、共话发展。 北江乡地处宁明县东部，“老同”(当地方言，意为“兄弟、好朋友”)习俗世代相传，蕴含重情重义、以诚相交的精神内核。近年来，当地不断赋予“老同”文化新内涵，让古老民俗成为联结民心
+发布时间：2026年04月10日 19:18 来源：央视新闻客户端 责任编辑：【姜媛媛】
 
 ## 正文
 
-中新网崇左4月16日电(黄艳梅 农佳菁 吴婉梦)4月15日至16日，广西崇左市宁明县北江乡第二届“老同节”暨中越青年交流活动举行，中越两国青年欢聚一堂，以传承百年的“老同”文化为纽带，共叙友情、共话发展。
-
-北江乡地处宁明县东部，“老同”(当地方言，意为“兄弟、好朋友”)习俗世代相传，蕴含重情重义、以诚相交的精神内核。
-
-近年来，当地不断赋予“老同”文化新内涵，让古老民俗成为联结民心、促进交流、助力发展的载体。
-
-活动期间，美食展览区农特优品、特色小吃琳琅满目，中越青年驻足品鉴；水田抓猪、窑红薯等民俗互动趣味盎然，两国青年在欢声笑语中拉近距离。
-
-文艺汇演上，壮族山歌婉转悠扬，壮族服饰走秀惊艳亮相；两国青年携手合唱歌曲，用歌声传递友谊与祝福。
-
-在中越青年座谈会上，双方围绕乡村发展、青年担当、文化传承、产业振兴等话题展开对话，分享扎根基层、建设家乡的成长故事与工作经验。
-
-此次“老同节”以民俗为桥、以青春为媒，还开展了篮球比赛、拔河比赛及短视频创作大赛，展现青年风貌，促进文明交流互鉴。
-
-越南青年闭光灵表示，此次活动内容丰富多彩，为两国青年搭建了交流平台，祝愿越中友谊万古长青、世代相传。
+发布时间：2026年04月10日 19:18 来源：央视新闻客户端 责任编辑：【姜媛媛】
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 01:31 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 01:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 01:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 01:23 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 01:32 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 01:41 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 01:15 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 01:23 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 01:22 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 01:21 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 01:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 01:40 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 01:35 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 01:41 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 01:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 01:19 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 01:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 01:27 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 01:25 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 01:23 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 01:44 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 01:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 01:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 01:36 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 01:39 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 01:26 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/1492154623.shtml)
-- 2026-06-30 01:31 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/04027452.shtml)
-- 2026-06-30 01:28 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/53848839534.shtml)
-- 2026-06-30 01:30 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/614368273.shtml)
-- 2026-06-30 01:25 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/43252655712.shtml)
-- 2026-06-30 01:12 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/8737114271.shtml)
-- 2026-06-30 01:34 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/40800086.shtml)
-- 2026-06-30 01:37 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/96284895.shtml)
-- 2026-06-30 01:32 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/463131835301.shtml)
-- 2026-06-30 01:19 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/66734080506.shtml)
-- 2026-06-30 01:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/84662292.shtml)
-- 2026-06-30 01:28 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/792393614558.shtml)
-- 2026-06-30 01:22 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/461119019091.shtml)
-- 2026-06-30 01:12 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/929737.shtml)
-- 2026-06-30 01:27 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/3469548.shtml)
+- 2026-06-30 01:33 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/7063399503.shtml)
+- 2026-06-30 01:23 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/46004905122.shtml)
+- 2026-06-30 01:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/730074472.shtml)
+- 2026-06-30 01:28 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/002430.shtml)
+- 2026-06-30 01:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/056726095038.shtml)
+- 2026-06-30 01:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/523179.shtml)
+- 2026-06-30 01:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/3445119.shtml)
+- 2026-06-30 01:32 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/56492211630.shtml)
+- 2026-06-30 01:31 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/0899566557.shtml)
+- 2026-06-30 01:33 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/95851347963.shtml)
+- 2026-06-30 01:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/81665754.shtml)
+- 2026-06-30 01:30 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/357230846514.shtml)
+- 2026-06-30 01:43 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/067873647.shtml)
+- 2026-06-30 01:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/26998635407.shtml)
+- 2026-06-30 01:28 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/099842029899.shtml)

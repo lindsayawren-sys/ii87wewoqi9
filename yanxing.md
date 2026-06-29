@@ -1,54 +1,60 @@
-# Kan：以色列安全内阁将开会讨论黎巴嫩停火问题
+# 300111，“画饼式”收购处罚落地：申辩意见不予采纳，维持公司与高管合计罚款510万元
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-以色列公共广播公司Kan报道称，以色列安全内阁将于周三晚间召开会议，讨论黎巴嫩停火提案。报道未说明消息来源。 Kan援引一位未具名以色列官员称，围绕停火问题的谈判正在进行，但在真主党停止开火之前，以色列不会停止战斗。 Kan援引另一位未具名官员报道称，目前尚未就停火作出任何决定。 以色列第12频道援引一位未具名官员报道，美国一直在施压以色列，要求其同意临时停火。责任编辑：丁文武
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者 文多 每经编辑 金冥羽，许立波 记者|文多 编辑|金冥羽 许立波 杜波校对|张锦河 4月8日盘后，向日葵（维权）（SZ300111，股价4.13元，市值53.16亿元）披露，已收到浙江证监局下发的《行政处罚决定书》及深交所的通报批评处分。公司在20
 
 ## 正文
 
-以色列公共广播公司Kan报道称，以色列安全内阁将于周三晚间召开会议，讨论黎巴嫩停火提案。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-报道未说明消息来源。
+每经记者 文多 每经编辑 金冥羽，许立波 记者|文多 编辑|金冥羽 许立波 杜波校对|张锦河 4月8日盘后，向日葵（维权）（SZ300111，股价4.13元，市值53.16亿元）披露，已收到浙江证监局下发的《行政处罚决定书》及深交所的通报批评处分。
 
-Kan援引一位未具名以色列官员称，围绕停火问题的谈判正在进行，但在真主党停止开火之前，以色列不会停止战斗。
+公司在2025年9月披露的一份重组预案中，声称拟收购的标的公司具备“自主生产”能力，但实际上其工厂仍在建设中，尚不具备该能力。
 
-Kan援引另一位未具名官员报道称，目前尚未就停火作出任何决定。
+上述预案披露后，曾刺激公司股价连续3个交易日涨停。
 
-以色列第12频道援引一位未具名官员报道，美国一直在施压以色列，要求其同意临时停火。
+如今，这场已于今年1月终止的重组，最终以公司及相关负责人被合计处以510万元罚款的结局尘埃落定。
 
-责任编辑：丁文武
+向日葵遭浙江证监局与深交所双罚 2026年1月14日，向日葵收到中国证监会下发的《立案告知书》，公司被告知因涉嫌信息披露违法违规被立案调查。
+
+3月2日，上市公司及相关当事人收到浙江证监局下发的《行政处罚事先告知书》。
+
+监管认为，向日葵在信息披露中存在误导性陈述的违法行为。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 01:25 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 01:14 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 01:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 01:23 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 01:25 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 01:39 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 01:13 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 01:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 01:23 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 01:23 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 01:21 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 01:27 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 01:25 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 01:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 01:27 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 01:33 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 01:46 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 01:36 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 01:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:38 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 01:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 01:25 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 01:45 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 01:33 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 01:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/3495487274.shtml)
-- 2026-06-30 01:36 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/062123792864.shtml)
-- 2026-06-30 01:40 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/084534340333.shtml)
-- 2026-06-30 01:39 - [天道](https://www.share.minike.top/Article/details/4174137512.shtml)
-- 2026-06-30 01:17 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/7444369435.shtml)
-- 2026-06-30 01:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/74662.shtml)
-- 2026-06-30 01:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/7484374530.shtml)
-- 2026-06-30 01:40 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/560453185.shtml)
-- 2026-06-30 01:16 - [《贺子珍》](http://www.share.minike.top/Article/details/380777048323.shtml)
-- 2026-06-30 01:36 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/58847495.shtml)
-- 2026-06-30 01:28 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/5162183758.shtml)
-- 2026-06-30 01:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/81250189.shtml)
-- 2026-06-30 01:22 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/3581501.shtml)
-- 2026-06-30 01:37 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/27002.shtml)
-- 2026-06-30 01:18 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/528538038.shtml)
+- 2026-06-30 01:23 - [第一炉香](http://www.share.kurohicncr.top/Article/details/472785658899.shtml)
+- 2026-06-30 01:23 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/149332802592.shtml)
+- 2026-06-30 01:36 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/1639386.shtml)
+- 2026-06-30 01:45 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/805179571529.shtml)
+- 2026-06-30 01:33 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/1587027.shtml)
+- 2026-06-30 01:26 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/909622436735.shtml)
+- 2026-06-30 01:20 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/774446737961.shtml)
+- 2026-06-30 01:32 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/4262114.shtml)
+- 2026-06-30 01:25 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/304807171.shtml)
+- 2026-06-30 01:44 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/3118093.shtml)
+- 2026-06-30 01:32 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/40045963269.shtml)
+- 2026-06-30 01:37 - [速度与激情9](https://www.blog.minike.top/Article/details/6678628027.shtml)
+- 2026-06-30 01:34 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/0462632.shtml)
+- 2026-06-30 01:38 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/318936071.shtml)
+- 2026-06-30 01:23 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/89626.shtml)

@@ -1,56 +1,61 @@
-# 中央社会主义学院习近平总书记关于做好新时代党的统一战线工作的重要思想研究中心2026年度课题申报公告
+# 特斯拉正在开发更小、更便宜的紧凑型SUV
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中央社会主义学院习近平总书记关于做好新时代党的统一战线工作的重要思想研究中心2026年年度招标课题面向全国公开招标，现将有关申报事项公告如下： 一、本年度课题招标工作以习近平新时代中国特色社会主义思想为指导，深入贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，重点围绕该重要思想的原理性成果、原创性贡献、标识性概念等方面开展研究。 二、本中心年度招标课题接受单位或个人申
+据报道，特斯拉正在开发一款全新的紧凑型SUV，比其现有任何车型都更小、更便宜，受此消息影响，特斯拉股价上涨0.46%。这家汽车制造商最近几周已联系供应商，讨论该车的制造工艺和零部件规格。这将是一款全新车型，而非现有Model 3或Model Y的变体。生产计划在特斯拉的上海工厂进行，不过该公司尚未确认该项目。 两位消息人士称，这款紧凑型SUV将比Model Y明显更短。预计该车
 
 ## 正文
 
-中央社会主义学院习近平总书记关于做好新时代党的统一战线工作的重要思想研究中心2026年年度招标课题面向全国公开招标，现将有关申报事项公告如下： 一、本年度课题招标工作以习近平新时代中国特色社会主义思想为指导，深入贯彻习近平总书记关于做好新时代党的统一战线工作的重要思想，重点围绕该重要思想的原理性成果、原创性贡献、标识性概念等方面开展研究。
+据报道，特斯拉正在开发一款全新的紧凑型SUV，比其现有任何车型都更小、更便宜，受此消息影响，特斯拉股价上涨0.46%。
 
-二、本中心年度招标课题接受单位或个人申报：个人申报(含以个人名义组建的课题组)数量不超过1项。
+这家汽车制造商最近几周已联系供应商，讨论该车的制造工艺和零部件规格。
 
-单位申报以法人单位本级或内设相关部门为主体进行申报，多单位联合申报须明确一个牵头单位。
+这将是一款全新车型，而非现有Model 3或Model Y的变体。
 
-单位申报数量不超过2项。
+生产计划在特斯拉的上海工厂进行，不过该公司尚未确认该项目。
 
-立项结果由本中心单独通知到单位或个人。
+两位消息人士称，这款紧凑型SUV将比Model Y明显更短。
 
-三、单位课题组成员或个人申报者须同时具备下列条件： (一)具有独立开展研究和组织开展研究的能力，能够胜任实质性研究工作。
+预计该车定价将低于Model 3在中国3.4万美元和美国3.7万美元的入门级价格。
 
-(二)原则上应有副高级以上(含)专业技术职称，或具有博士学位。
+实现较低定价的部分手段包括采用更小的电池组、单电机以及更小的目标车重。
 
-(三)截至2026年4月15日(含)无我院统一战线智库未结项课题(不含已正式提交相关采纳或采用证明的课题)。
+这一努力标志着特斯拉在2024年取消了备受期待的低成本“Model 2”项目、转而专注于机器人出租车和人形机器人之后的一次潜在战略回调。
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 01:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 01:35 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 01:41 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 01:21 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 01:35 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 01:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 01:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 01:24 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 01:25 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 01:27 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 01:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-30 01:47 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 01:44 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-30 01:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 01:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 01:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 01:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 01:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 01:23 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 01:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 01:35 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 01:25 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 01:22 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 01:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/572871009691.shtml)
-- 2026-06-30 01:27 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/78418014087.shtml)
-- 2026-06-30 01:41 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/91364710.shtml)
-- 2026-06-30 01:26 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/2610350.shtml)
-- 2026-06-30 01:31 - [极限挑战第一季](https://www.share.minike.top/Article/details/73958303268.shtml)
-- 2026-06-30 01:21 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/587251.shtml)
-- 2026-06-30 01:20 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/53064145.shtml)
-- 2026-06-30 01:16 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/9765257.shtml)
-- 2026-06-30 01:14 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/519179812.shtml)
-- 2026-06-30 01:41 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/391046153.shtml)
-- 2026-06-30 01:37 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/09278347.shtml)
-- 2026-06-30 01:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/854839859.shtml)
-- 2026-06-30 01:14 - [内马尔替补](https://www.share.minike.top/Article/details/51870886.shtml)
-- 2026-06-30 01:34 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/614352523.shtml)
-- 2026-06-30 01:40 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/5186243.shtml)
+- 2026-06-30 01:34 - [沙丘](http://www.blog.minike.top/Article/details/45926147115.shtml)
+- 2026-06-30 01:37 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/071916791341.shtml)
+- 2026-06-30 01:41 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/86083984102.shtml)
+- 2026-06-30 01:46 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/376851271.shtml)
+- 2026-06-30 01:45 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/90456.shtml)
+- 2026-06-30 01:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/64146352070.shtml)
+- 2026-06-30 01:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/72947.shtml)
+- 2026-06-30 01:43 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/8171712.shtml)
+- 2026-06-30 01:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/49409654.shtml)
+- 2026-06-30 01:42 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/659383568.shtml)
+- 2026-06-30 01:29 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/5418932.shtml)
+- 2026-06-30 01:46 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/61550957.shtml)
+- 2026-06-30 01:43 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/0492379644.shtml)
+- 2026-06-30 01:35 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/2625526918.shtml)
+- 2026-06-30 01:34 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/581193.shtml)

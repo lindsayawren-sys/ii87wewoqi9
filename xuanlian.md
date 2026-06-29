@@ -1,59 +1,58 @@
-# “小而精”的新型研究型大学正在扩招 你会让孩子报考吗？
+# 华盛雷达闯关科创板，寸怀诚掌舵，年入3.79亿却要冲11.5亿大募资 | 长三角资本局
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-目前，南方科技大学、西湖大学等新型研究型大学的综合评价招生正在进行中，部分高校和地区的报名时间截止到本月底。不同于传统大学，新型研究型大学，一般采用“631”模式考核学生，也就是高考成绩占60%、能力测试成绩占30%、高中平时成绩占10%，最终择优录取。统计显示，全国现已成立8所 “新型研究型大学”，比如南方科技大学、西湖大学、福建福耀科技大学、大湾区大学等等，尽管这批大学创办
+文|新浪财经上海站 十里 从通信行业老兵到雷达公司掌舵者，寸怀诚这一次想把华盛雷达带到哪里？一家仍在扩大规模、夯实盈利基础的公司，真的准备好接受科创板的公开检验了吗？ 最近，浙江华盛雷达股份有限公司科创板IPO获上交所受理，目前审核状态为“已问询”，拟融资金额11.50亿元。 对外界而言，这家公司的名字并不算热闹，但招股书里的几组数字并不低调：8.8亿元投向相控阵雷达智能制造产
 
 ## 正文
 
-目前，南方科技大学、西湖大学等新型研究型大学的综合评价招生正在进行中，部分高校和地区的报名时间截止到本月底。
+文|新浪财经上海站 十里 从通信行业老兵到雷达公司掌舵者，寸怀诚这一次想把华盛雷达带到哪里？
 
-不同于传统大学，新型研究型大学，一般采用“631”模式考核学生，也就是高考成绩占60%、能力测试成绩占30%、高中平时成绩占10%，最终择优录取。
+一家仍在扩大规模、夯实盈利基础的公司，真的准备好接受科创板的公开检验了吗？
 
-统计显示，全国现已成立8所 “新型研究型大学”，比如南方科技大学、西湖大学、福建福耀科技大学、大湾区大学等等，尽管这批大学创办时间不长，但是部分高校的录取分数对标985高校，成为高等院校中的“黑马”。
+最近，浙江华盛雷达股份有限公司科创板IPO获上交所受理，目前审核状态为“已问询”，拟融资金额11.50亿元。
 
-南方科技大学、西湖大学等新型研究型大学为何集体扩招？
+对外界而言，这家公司的名字并不算热闹，但招股书里的几组数字并不低调：8.8亿元投向相控阵雷达智能制造产业化及研发中心项目，2亿元投向相控阵雷达智能应用研究中心项目，7000万元用于补充流动资金。
 
-截止到本月30号，南方科技大学面向全国24个省(区、市)开展的综合评价招生网上报名工作将结束，根据计划，今年南科大计划在全国本科招生超1400人，预计比去年增加30至40人，其中在广东将进一步扩招。
+对一家刚刚走出亏损、营收规模还只有数亿元的企业来说，这样的募资动作，很难不引发关注。
 
-南科大招生办主任汪飞介绍，目前报名综合评价招生的考生人数约4万人。
+华盛雷达的故事，首先要从寸怀诚讲起。
 
-汪飞：扩招的这一部分名额的话可能还是重点会投放在广东省内。
+招股书显示，寸怀诚出生于1977年2月，研究生学历，早年曾在广东省邮电技术研究院担任工程师，之后在宜通世纪（维权）历任工程师、网优部经理、无线事业部总经理、子公司总经理、分公司负责人。
 
-我们今年最大的一个变化的话，我们将会增加一个招生省份，在甘肃省招生，就是在一本批次普通高考录取的方式。
+2014年6月起，他进入华盛有限，历任副总经理、总经理、董事长，2024年12月至今担任华盛雷达总经理、董事长。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 01:25 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 01:29 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 01:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 01:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 01:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 01:17 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 01:30 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 01:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:20 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 01:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 01:22 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 01:14 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 01:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 01:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 01:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 01:22 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 01:19 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 01:19 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 01:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 01:38 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 01:35 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 01:38 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 01:23 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 01:34 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [逃狱兄弟](http://www.blog.minike.top/Article/details/48177015008.shtml)
-- 2026-06-30 01:30 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/74521641.shtml)
-- 2026-06-30 01:32 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/4530320.shtml)
-- 2026-06-30 01:19 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/65159281.shtml)
-- 2026-06-30 01:25 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/075742684.shtml)
-- 2026-06-30 01:31 - [世界杯](https://www.share.minike.top/Article/details/7599821.shtml)
-- 2026-06-30 01:31 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/955486.shtml)
-- 2026-06-30 01:37 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/6929675.shtml)
-- 2026-06-30 01:37 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/829042677741.shtml)
-- 2026-06-30 01:37 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/27152817799.shtml)
-- 2026-06-30 01:29 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/467002.shtml)
-- 2026-06-30 01:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/3092139183.shtml)
-- 2026-06-30 01:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/71284833.shtml)
-- 2026-06-30 01:32 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/33690195.shtml)
-- 2026-06-30 01:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/70918.shtml)
+- 2026-06-30 01:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/444836620.shtml)
+- 2026-06-30 01:44 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/280218678.shtml)
+- 2026-06-30 01:30 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/0899889.shtml)
+- 2026-06-30 01:36 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/7915374.shtml)
+- 2026-06-30 01:19 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/6186136027.shtml)
+- 2026-06-30 01:40 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/3632993.shtml)
+- 2026-06-30 01:38 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/170195.shtml)
+- 2026-06-30 01:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/604106762857.shtml)
+- 2026-06-30 01:23 - [电影后室值得看吗](https://www.share.minike.top/Article/details/48743.shtml)
+- 2026-06-30 01:43 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/6690993689.shtml)
+- 2026-06-30 01:39 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/62208564.shtml)
+- 2026-06-30 01:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/539793131808.shtml)
+- 2026-06-30 01:19 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/912496.shtml)
+- 2026-06-30 01:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/12789323663.shtml)
+- 2026-06-30 01:30 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/848747889604.shtml)

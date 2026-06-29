@@ -1,59 +1,49 @@
-# 佩戴头盔从“倡导”变“强制”！北京新规直击骑手交通违法痛点
+# 四川攀枝花安宁河谷“金果果” 绘就富民兴村新画卷
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-新修订的《北京市非机动车管理条例》将于5月1日起实施，其中驾驶和乘坐电动自行车时佩戴安全头盔将从“倡导”变为“强制”。日常使用电动自行车的人群有普通市民，也包括不少外卖骑手。距离新规实施还有半个月，大家是否养成了戴头盔的习惯？还有哪些常见的交通违法行为？外卖平台企业又将如何履行监管责任？来看总台记者跟随交警上路调查采访情况。新修订的《北京市非机动车管理条例》将于5月1日起实施，
+发布时间：2026年04月09日 14:29 来源：中国新闻网 近日，“2026年海外华文媒体攀枝花行”走进米易枇杷生态产业园。来自全球17个国家和地区的20余家海外华文媒体代表在枇杷园亲眼见证了安宁河谷特色农业赋能乡村振兴的生动实践。(杨予頔) 责任编辑：【李季】
 
 ## 正文
 
-新修订的《北京市非机动车管理条例》将于5月1日起实施，其中驾驶和乘坐电动自行车时佩戴安全头盔将从“倡导”变为“强制”。
+发布时间：2026年04月09日 14:29 来源：中国新闻网 近日，“2026年海外华文媒体攀枝花行”走进米易枇杷生态产业园。
 
-日常使用电动自行车的人群有普通市民，也包括不少外卖骑手。
+来自全球17个国家和地区的20余家海外华文媒体代表在枇杷园亲眼见证了安宁河谷特色农业赋能乡村振兴的生动实践。
 
-距离新规实施还有半个月，大家是否养成了戴头盔的习惯？
-
-还有哪些常见的交通违法行为？
-
-外卖平台企业又将如何履行监管责任？
-
-来看总台记者跟随交警上路调查采访情况。
-
-新修订的《北京市非机动车管理条例》将于5月1日起实施，交警对骑手和普通市民开展宣传提示：现行的非机动车管理条例规定是提倡戴头盔，但是新修订的非机动车管理条例执行以后，是强制要求戴头盔，这戴头盔从可选项变成必选项。
-
-根据路查情况，外卖骑手的头盔佩戴率明显高于骑乘电动车的普通市民，北京公安交通管理局安全监督管理支队民警陈瀚彬告诉记者，骑手现在经过交警和行业主管部门还有企业定期指导督促，头盔佩戴率基本上能到90%，但是普通市民还没有达到。
+(杨予頔) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:18 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 01:16 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 01:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-30 01:20 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 01:32 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 01:18 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 01:12 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 01:41 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 01:35 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 01:37 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 01:23 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 01:32 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 01:19 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 01:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 01:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 01:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 01:43 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 01:22 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 01:31 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 01:19 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 01:35 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 01:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 01:47 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 01:40 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 01:19 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/451994398.shtml)
-- 2026-06-30 01:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/33019594550.shtml)
-- 2026-06-30 01:22 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/89056861.shtml)
-- 2026-06-30 01:41 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/4576500.shtml)
-- 2026-06-30 01:18 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/66122616680.shtml)
-- 2026-06-30 01:31 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/02949268.shtml)
-- 2026-06-30 01:36 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/68991.shtml)
-- 2026-06-30 01:40 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/1678684.shtml)
-- 2026-06-30 01:12 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/8170670.shtml)
-- 2026-06-30 01:12 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/653315.shtml)
-- 2026-06-30 01:33 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/41791.shtml)
-- 2026-06-30 01:13 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/70616926.shtml)
-- 2026-06-30 01:13 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1816878.shtml)
-- 2026-06-30 01:21 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/4153095.shtml)
-- 2026-06-30 01:41 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/6781974340.shtml)
+- 2026-06-30 01:25 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/424777.shtml)
+- 2026-06-30 01:33 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/085369782939.shtml)
+- 2026-06-30 01:45 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/23857781.shtml)
+- 2026-06-30 01:43 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/635840719.shtml)
+- 2026-06-30 01:32 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/437505735559.shtml)
+- 2026-06-30 01:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/97094582.shtml)
+- 2026-06-30 01:37 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/425315.shtml)
+- 2026-06-30 01:38 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/07750745666.shtml)
+- 2026-06-30 01:46 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/08900636395.shtml)
+- 2026-06-30 01:47 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/33570225086.shtml)
+- 2026-06-30 01:28 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/5951684.shtml)
+- 2026-06-30 01:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/77055.shtml)
+- 2026-06-30 01:20 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/92282985.shtml)
+- 2026-06-30 01:32 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/9112975.shtml)
+- 2026-06-30 01:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/251937.shtml)

@@ -1,61 +1,61 @@
-# 永辉超市2026年一季报：归母净利润2.87亿 调改门店达327家
+# AI助老“绘记忆”：沈阳上园社区温情服务百余名老人
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月16日晚间消息，永辉超市发布2026年第一季度财务报告。报告显示，2026年第一季度公司实现营业收入133.67亿元，利润总额3.42亿元，同比增长74.73%；归母净利润2.87亿元，同比增长94.4%；扣非后归母净利润为2.47亿元，同比增长79.55%。 永辉超市盈利能力显著攀升，这意味着，永辉超
+中新网沈阳4月10日电(杨茜茜)当老沈阳的胡同烟火气遇上前沿AI技术，当尘封的童年记忆化作可视画卷，4月9日，沈阳市文明办、沈阳市社科联文化艺术实践创新类课题—一场兼具温度与新意的艺术疗愈实践，在沈阳市大东区上园社区新时代文明实践站温情开展。 工作坊聚焦68至75岁老年群体的精神文化需求，创新采用“艺术疗愈+AI技术”模式，目前已顺利完成记忆访谈与AI可视化两大核心环节。活动以
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网沈阳4月10日电(杨茜茜)当老沈阳的胡同烟火气遇上前沿AI技术，当尘封的童年记忆化作可视画卷，4月9日，沈阳市文明办、沈阳市社科联文化艺术实践创新类课题—一场兼具温度与新意的艺术疗愈实践，在沈阳市大东区上园社区新时代文明实践站温情开展。
 
-4月16日晚间消息，永辉超市发布2026年第一季度财务报告。
+工作坊聚焦68至75岁老年群体的精神文化需求，创新采用“艺术疗愈+AI技术”模式，目前已顺利完成记忆访谈与AI可视化两大核心环节。
 
-报告显示，2026年第一季度公司实现营业收入133.67亿元，利润总额3.42亿元，同比增长74.73%；归母净利润2.87亿元，同比增长94.4%；扣非后归母净利润为2.47亿元，同比增长79.55%。
+活动以经典沈阳老童谣暖场，引导老人们围坐畅谈童年往事。
 
-永辉超市盈利能力显著攀升，这意味着，永辉超市第一阶段调改步入正向循环，成效加速兑现。
+工作人员现场梳理老建筑、特色小吃、传统游戏等地域性集体记忆，提炼创作元素。
 
-截至一季度末，永辉超市全国累计调改门店达327家，胖东来理念与永辉经营体系加速融合，整体驶入以价值深耕为核心的第二阶段精细化调改，全面转向经营质量提升。
+在AI绘画体验环节，为消除老年人的数字顾虑，团队安排专业志愿者一对一指导，采用通俗化讲解方式。
 
-自有品牌品质永辉的渗透率持续提升，成为驱动毛利优化的核心动能。
+老人们只需将脑海中的童年场景转化为文字描述，如“1960年沈阳大东附近，坐着有轨电车认真阅读的冬日场景”，通过AIGC技术即可快速生成专属视觉作品。
 
-据了解，2026年“永辉定制”与自有品牌“品质永辉”双系列商品，在全国各大区的销售占比有望突破20%。
+活动现场配备艺术疗愈师与心理辅导师，帮助零基础的长辈在创作中释放情绪。
 
-其中，自有品牌“品质永辉”预计上市200支，单系列占比力争突破10%。
+“心里想了无数遍地跳皮筋‘马兰开花二十一’，居然真的在屏幕上画出来了，就像回到了小时候！
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 01:26 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 01:37 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 01:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 01:13 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 01:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 01:33 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 01:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 01:37 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 01:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 01:36 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 01:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 01:32 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 01:22 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 01:24 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 01:31 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 01:18 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 01:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 01:33 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 01:36 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 01:45 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 01:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 01:37 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 01:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 01:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 01:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 01:36 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 01:27 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 01:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:45 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/70287850628.shtml)
-- 2026-06-30 01:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/8322128027.shtml)
-- 2026-06-30 01:26 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/372542733.shtml)
-- 2026-06-30 01:41 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/391219.shtml)
-- 2026-06-30 01:26 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/82478907.shtml)
-- 2026-06-30 01:28 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/6095401.shtml)
-- 2026-06-30 01:21 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/798545348.shtml)
-- 2026-06-30 01:39 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/47806.shtml)
-- 2026-06-30 01:40 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/026752259.shtml)
-- 2026-06-30 01:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/4094258.shtml)
-- 2026-06-30 01:36 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/109710727584.shtml)
-- 2026-06-30 01:24 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/957633338.shtml)
-- 2026-06-30 01:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/216182650.shtml)
-- 2026-06-30 01:17 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/46652.shtml)
-- 2026-06-30 01:38 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/090110.shtml)
+- 2026-06-30 01:43 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/613513136.shtml)
+- 2026-06-30 01:41 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/07720297.shtml)
+- 2026-06-30 01:33 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/16529559.shtml)
+- 2026-06-30 01:26 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/611519017306.shtml)
+- 2026-06-30 01:45 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/214145.shtml)
+- 2026-06-30 01:20 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/52386.shtml)
+- 2026-06-30 01:20 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/076973670.shtml)
+- 2026-06-30 01:37 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/2532606.shtml)
+- 2026-06-30 01:44 - [刘念回应](https://www.share.minike.top/Article/details/8651064.shtml)
+- 2026-06-30 01:23 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/065230225819.shtml)
+- 2026-06-30 01:22 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/5539563204.shtml)
+- 2026-06-30 01:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/408426433702.shtml)
+- 2026-06-30 01:42 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/7365491.shtml)
+- 2026-06-30 01:32 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/706887056819.shtml)
+- 2026-06-30 01:28 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/185415644.shtml)

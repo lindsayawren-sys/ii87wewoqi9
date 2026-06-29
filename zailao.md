@@ -1,57 +1,58 @@
-# 沪浙共探“生物制造”新经济增长点
+# 斑马智行再闯港交所：亏损逆势大增AI转型或沦为口号 供销高度依赖阿里上汽两大股东
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月16日电(鲍梦妮)“科学咖啡馆·未来产业专场——生物制造新技术·新产品·新场景”活动日前在杭州举行，来自上海、浙江两地政府部门、科研院所、高校、企业的代表汇聚一堂，围绕生物制造领域的AI大模型、高通量平台、酶工程与药物智造等前沿议题展开深度对话。 “十五五”规划明确将生物制造列为前瞻布局的未来产业，要求其“成为新的经济增长点”。全球生物制造正站在产业化的临界点。据
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：昊 近日，斑马智能信息技术股份有限公司（斑马智行）再向港交所递交上市申请，这是继2025年8月首次递表失效后，时隔约七个月再度冲击港股IPO。 作为上汽与阿里联合孵化的智能座舱“独角兽”，斑马智行近几年持续巨亏，与可比公司盈利形成明显反差，研发支出也逆势下滑，AI转型成口
 
 ## 正文
 
-中新网杭州4月16日电(鲍梦妮)“科学咖啡馆·未来产业专场——生物制造新技术·新产品·新场景”活动日前在杭州举行，来自上海、浙江两地政府部门、科研院所、高校、企业的代表汇聚一堂，围绕生物制造领域的AI大模型、高通量平台、酶工程与药物智造等前沿议题展开深度对话。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“十五五”规划明确将生物制造列为前瞻布局的未来产业，要求其“成为新的经济增长点”。
+出品：新浪财经上市公司研究院 作者：昊 近日，斑马智能信息技术股份有限公司（斑马智行）再向港交所递交上市申请，这是继2025年8月首次递表失效后，时隔约七个月再度冲击港股IPO。
 
-全球生物制造正站在产业化的临界点。
+作为上汽与阿里联合孵化的智能座舱“独角兽”，斑马智行近几年持续巨亏，与可比公司盈利形成明显反差，研发支出也逆势下滑，AI转型成口号。
 
-据麦肯锡预测，原则上市场60%的产品可以采用生物制造的方法进行生产，预计在未来10—20年将直接产生约4万亿美元的经济价值。
+除华为、德赛西威等竞争对手挤压，车企自研也逐步成为行业主流，第三方供应商话语权骤降。
 
-面对这一广阔赛道，长三角地区正凭借其雄厚的产业基础与活跃的创新生态，抢占优势。
+斑马智行客户数量和年搭载量逐年增加，但单车操作系统收入却从2023年的364元降至2025年的258元，降幅高达30%。
 
-现场，多位专家学者分享了生物制造领域的最新研究成果与应用进展。
+同时，斑马智行供销两端深度依赖阿里和上汽两大股东，业务独立性问题也一直是公司IPO的实质性障碍之一。
 
-上海科学智能研究院物质科学主任研究员曹风雷分享了基于分子、原子构建物质世界的燧人大模型。
+值得一提的是，全程参与IPO筹备的斑马智行前CFO夏莲，曾公开发表对公司前景的悲观言论。
 
-他指出，该模型以10B参数规模、逾1亿条样本数据构建，实现了对分子微观结构的精准建模。
+再闯港交所，斑马智行似乎依旧困难重重。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 01:32 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 01:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 01:36 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 01:29 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 01:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 01:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 01:39 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 01:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-30 01:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 01:26 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 01:38 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 01:22 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 01:20 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 01:37 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 01:43 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 01:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 01:18 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 01:27 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 01:35 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:20 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 01:27 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 01:46 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:19 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/370053412606.shtml)
-- 2026-06-30 01:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/0118984356.shtml)
-- 2026-06-30 01:17 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/59127.shtml)
-- 2026-06-30 01:26 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/153748249.shtml)
-- 2026-06-30 01:22 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/74344.shtml)
-- 2026-06-30 01:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/14864100521.shtml)
-- 2026-06-30 01:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/49423408.shtml)
-- 2026-06-30 01:16 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/2720652.shtml)
-- 2026-06-30 01:41 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/606469.shtml)
-- 2026-06-30 01:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/535997.shtml)
-- 2026-06-30 01:25 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/817905061.shtml)
-- 2026-06-30 01:40 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/036459722133.shtml)
-- 2026-06-30 01:33 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/457148443.shtml)
-- 2026-06-30 01:15 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/61168498062.shtml)
-- 2026-06-30 01:30 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/0072076.shtml)
+- 2026-06-30 01:38 - [我和我的家乡](http://www.share.minike.top/Article/details/163193584834.shtml)
+- 2026-06-30 01:33 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/62662491.shtml)
+- 2026-06-30 01:22 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/7140500537.shtml)
+- 2026-06-30 01:47 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/81164.shtml)
+- 2026-06-30 01:44 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/466708564410.shtml)
+- 2026-06-30 01:29 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/5411369329.shtml)
+- 2026-06-30 01:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/1224038374.shtml)
+- 2026-06-30 01:29 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/90633205348.shtml)
+- 2026-06-30 01:37 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/15903.shtml)
+- 2026-06-30 01:33 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/606921.shtml)
+- 2026-06-30 01:43 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/860275613893.shtml)
+- 2026-06-30 01:39 - [急先锋](http://www.blog.minike.top/Article/details/72049971238.shtml)
+- 2026-06-30 01:21 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/9900020.shtml)
+- 2026-06-30 01:31 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/18121.shtml)
+- 2026-06-30 01:43 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/47531.shtml)

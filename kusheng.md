@@ -1,60 +1,61 @@
-# 领跑！创业板人工智能持续走牛！高“光”159363暴涨超4%再轰新高！算力牛股狂涌，本周最高已狂飙48%
+# 诺奖得主谈AI发展：需平衡AI技术与基础研究
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-4月16日盘中，创业板人工智能持续走牛，再创新高！算力牛股频出，算力租赁概念股协创数据领涨超10%续创新高，截至今日午盘本周已拉升48%，光模块龙头天孚通信暴涨超8%冲击前高，新易盛大涨7%、中际旭创涨超2%，双双录得历史新高！ 热门ETF方面，双创AI赛道规模第一的创业板人工智能ETF华宝（159363）半日大涨超4%领涨全市场ETF，成功反包迭创新高，实时放量成交超8亿元，
+中新社重庆4月10日电 (梁钦卿)诺贝尔化学奖得主阿里耶·瓦谢尔10日在位于重庆的西南大学接受中新社独家专访时表示，人工智能(AI)技术虽发展迅猛，但在科学研究等关键领域仍需坚持以实体实验为基础的科研范式，避免过度依赖AI。 “我对AI持有一种复杂的看法。”瓦谢尔说，尽管他的研究团队已开始应用AI技术，但其核心工作方式仍立足于实验室的物理建模与实证研究。他认为，AI在处理海量信
 
 ## 正文
 
-4月16日盘中，创业板人工智能持续走牛，再创新高！
+中新社重庆4月10日电 (梁钦卿)诺贝尔化学奖得主阿里耶·瓦谢尔10日在位于重庆的西南大学接受中新社独家专访时表示，人工智能(AI)技术虽发展迅猛，但在科学研究等关键领域仍需坚持以实体实验为基础的科研范式，避免过度依赖AI。
 
-算力牛股频出，算力租赁概念股协创数据领涨超10%续创新高，截至今日午盘本周已拉升48%，光模块龙头天孚通信暴涨超8%冲击前高，新易盛大涨7%、中际旭创涨超2%，双双录得历史新高！
+“我对AI持有一种复杂的看法。
 
-热门ETF方面，双创AI赛道规模第一的创业板人工智能ETF华宝（159363）半日大涨超4%领涨全市场ETF，成功反包迭创新高，实时放量成交超8亿元，交投高居全市场AI主题类ETF首位！
+”瓦谢尔说，尽管他的研究团队已开始应用AI技术，但其核心工作方式仍立足于实验室的物理建模与实证研究。
 
-时间拉长看，光模块CPO等算力方向加速突破，截至4月14日，创业板人工智能ETF华宝（159363）标的指数近1年已累计上涨超176%，大幅跑赢人工智能、CS人工智、科创创业AI、科创AI等同类指数。
+他认为，AI在处理海量信息时确实具有效率优势，但科研工作者应当把握好技术应用的尺度。
 
-展望后市，光模块CPO、IDC算力租赁、AI应用等多重利好共振，创业板人工智能ETF华宝（159363）有望继续受益。
+谈及AI具体应用场景，瓦谢尔表示，在医学诊断等特定领域，AI已展现出替代部分人工工作的能力，并相信未来将对疾病诊疗产生巨大影响。
 
-注：创业板人工智能ETF华宝被动跟踪创业板人工智能指数，该指数基日为2018.12.28，发布日期为2024.7.11，创业板人工智能指数2021-2025年年度涨跌幅分别为：17.57%、-34.52%、47.83%、38.44%、106.35%。
+但在基础研究层面，实体实验仍是不可或缺的关键环节。
 
-指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
+他特别强调，在疾病治疗等关乎人类健康的重大问题上，AI可以作为重要辅助工具，但最终决策权必须掌握在专业人员手中。
 
-一、光模块：景气度爆表，订单锁定至2028年 海外光通信龙头Lumentum表示，科技巨头对光学组件需求加速，2028年产能已面临售罄，本轮行业周期至少还能维持5年左右景气持续性。
+谈及工业应用前景，瓦谢尔预测，在汽车制造等自动化程度较高的行业，AI与机器人技术的融合将扮演越来越重要的角色。
 
 ## 相关推荐
 
-- 2026-06-30 01:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 01:22 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 01:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 01:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:23 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 01:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 01:18 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-30 01:39 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 01:13 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 01:32 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 01:32 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 01:33 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 01:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 01:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 01:18 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 01:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 01:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 01:19 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 01:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 01:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 01:41 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 01:39 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 01:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 01:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 01:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 01:44 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 01:27 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 01:34 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 01:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/56354476807.shtml)
-- 2026-06-30 01:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/35643164821.shtml)
-- 2026-06-30 01:13 - [长沙菜农公交的人间烟火气](https://www.blog.kurohicncr.top/Article/details/849958831.shtml)
-- 2026-06-30 01:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/5114163799.shtml)
-- 2026-06-30 01:38 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/57606059838.shtml)
-- 2026-06-30 01:39 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/161854499.shtml)
-- 2026-06-30 01:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/616132.shtml)
-- 2026-06-30 01:14 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/268824442.shtml)
-- 2026-06-30 01:30 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/8474823.shtml)
-- 2026-06-30 01:33 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/641964.shtml)
-- 2026-06-30 01:26 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/01896397.shtml)
-- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/7416594.shtml)
-- 2026-06-30 01:31 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/44229.shtml)
-- 2026-06-30 01:25 - [千与千寻](http://www.share.kurohicncr.top/Article/details/944161539051.shtml)
-- 2026-06-30 01:14 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/03260848.shtml)
+- 2026-06-30 01:35 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/55303490554.shtml)
+- 2026-06-30 01:30 - [起风了](http://www.share.kurohicncr.top/Article/details/93072890556.shtml)
+- 2026-06-30 01:35 - [月亮](https://www.share.kurohicncr.top/Article/details/14879418.shtml)
+- 2026-06-30 01:36 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/14503.shtml)
+- 2026-06-30 01:45 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/359688.shtml)
+- 2026-06-30 01:31 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/202692.shtml)
+- 2026-06-30 01:47 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/278590.shtml)
+- 2026-06-30 01:37 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/387132.shtml)
+- 2026-06-30 01:22 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/395885725057.shtml)
+- 2026-06-30 01:34 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/41317325874.shtml)
+- 2026-06-30 01:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/68839886848.shtml)
+- 2026-06-30 01:25 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/8590240568.shtml)
+- 2026-06-30 01:26 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/34627252.shtml)
+- 2026-06-30 01:34 - [金刚川](http://www.share.kurohicncr.top/Article/details/567265.shtml)
+- 2026-06-30 01:26 - [恋与深空致歉](http://www.share.minike.top/Article/details/414808725738.shtml)

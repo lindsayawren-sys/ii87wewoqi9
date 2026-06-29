@@ -1,59 +1,58 @@
-# 纽约梅隆银行利润上升，CEO 称市场情绪回暖
+# 德国2月出口额环比增长3.6%
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 第一季度营收增长 13%，至 54.1 亿美元 纽约梅隆银行公布第一季度利润上升，受手续费收入和净利息收入增长提振。 纽约梅隆银行公布第一季度利润走高，该行首席执行官表示，尽管中东地区存在冲突，但经济和市场仍有理由保持乐观。 “只要看看核心买盘和市场偏向，就能感觉到市场整体有上行意愿，” 首席执行官罗宾・文斯在接受记者采访时表示，“但仍有大
+中新社柏林4月9日电 (记者 马秀秀)德国联邦统计局9日公布的数据显示，经工作日和季节性调整后，德国2026年2月出口额为1352亿欧元，环比增长3.6%，显著高于此前经济学家预测的1.0%。 从地区来看，德国对欧盟国家的贸易表现强劲。2月对欧盟国家出口759亿欧元，环比增长5.8%；自欧盟国家进口593亿欧元，增长5.1%。相比之下，对非欧盟国家出口额594亿欧元，仅增长0.
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 第一季度营收增长 13%，至 54.1 亿美元 纽约梅隆银行公布第一季度利润上升，受手续费收入和净利息收入增长提振。
+中新社柏林4月9日电 (记者 马秀秀)德国联邦统计局9日公布的数据显示，经工作日和季节性调整后，德国2026年2月出口额为1352亿欧元，环比增长3.6%，显著高于此前经济学家预测的1.0%。
 
-纽约梅隆银行公布第一季度利润走高，该行首席执行官表示，尽管中东地区存在冲突，但经济和市场仍有理由保持乐观。
+从地区来看，德国对欧盟国家的贸易表现强劲。
 
-“只要看看核心买盘和市场偏向，就能感觉到市场整体有上行意愿，” 首席执行官罗宾・文斯在接受记者采访时表示，“但仍有大量因素需要密切关注，因为我们随时可能遭遇意外情况。
+2月对欧盟国家出口759亿欧元，环比增长5.8%；自欧盟国家进口593亿欧元，增长5.1%。
 
-” 他表示，美股周三创下历史新高，波动率指数也回到冲突爆发前的水平，风险状况正在改善。
+相比之下，对非欧盟国家出口额594亿欧元，仅增长0.8%；自非欧盟国家进口额562亿欧元，增长4.4%。
 
-此外，报税季结束将在未来几周提振散户市场，而企业财报静默期结束则可能带来股票回购。
+尽管美国仍是德国最大出口市场，但出口明显回落。
 
-不过文斯也警告称，中东冲突和高能源价格带来的经济风险依然存在。
+2月对美出口额为122亿欧元，环比下降7.5%，同比下降13.3%。
 
-“战争尚未结束，能源价格较年初有所走高，这些影响会逐步传导，” 文斯称。
+进口方面，2月德国进口额为1154亿欧元，环比增长4.7%。
 
-能源价格居高不下将影响定价、商品成本和信贷环境。
+其中，自中国进口规模最大，达150亿欧元，环比增长6.5%。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 01:31 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 01:32 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 01:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 01:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 01:20 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 01:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 01:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 01:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 01:16 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 01:35 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 01:12 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 01:23 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 01:43 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 01:42 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 01:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 01:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 01:46 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 01:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 01:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 01:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 01:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 01:37 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 01:24 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 01:21 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/06621.shtml)
-- 2026-06-30 01:28 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/57599684.shtml)
-- 2026-06-30 01:17 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/25016098531.shtml)
-- 2026-06-30 01:12 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/3841222340.shtml)
-- 2026-06-30 01:29 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/7536104.shtml)
-- 2026-06-30 01:35 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/06725374133.shtml)
-- 2026-06-30 01:36 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/1946886.shtml)
-- 2026-06-30 01:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/831049900.shtml)
-- 2026-06-30 01:25 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/90724230.shtml)
-- 2026-06-30 01:20 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/905000862476.shtml)
-- 2026-06-30 01:30 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/10083239697.shtml)
-- 2026-06-30 01:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/8617688.shtml)
-- 2026-06-30 01:40 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/554021.shtml)
-- 2026-06-30 01:35 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/305359404.shtml)
-- 2026-06-30 01:36 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/24681.shtml)
+- 2026-06-30 01:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/601030669294.shtml)
+- 2026-06-30 01:40 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/218914575910.shtml)
+- 2026-06-30 01:38 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/755267499977.shtml)
+- 2026-06-30 01:29 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/77835.shtml)
+- 2026-06-30 01:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/5959671.shtml)
+- 2026-06-30 01:18 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/03106459.shtml)
+- 2026-06-30 01:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/510191447534.shtml)
+- 2026-06-30 01:28 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/147633344037.shtml)
+- 2026-06-30 01:31 - [青春环游记第三季](http://www.share.minike.top/Article/details/21308865.shtml)
+- 2026-06-30 01:46 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/8076144.shtml)
+- 2026-06-30 01:34 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/509556248.shtml)
+- 2026-06-30 01:31 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/9851673.shtml)
+- 2026-06-30 01:21 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/0185544726.shtml)
+- 2026-06-30 01:46 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/4789882.shtml)
+- 2026-06-30 01:34 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/04973301.shtml)

@@ -1,57 +1,58 @@
-# 2026儒伊文明对话会在北京举行 中外学者共话传统与启迪
+# “十五五”期间广交会展品税收优惠新政助企享惠
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月16日电 题：2026儒伊文明对话会在北京举行 中外学者共话传统与启迪 中新社记者 徐皇冠 4月16日，以“全球文明观：儒家文化与伊斯兰文明的视角”为主题，2026儒伊文明对话会在北京举行。来自全球24个国家近300名专家学者共话建言，探赜儒伊文明历史、哲学与当代禀赋中的共鸣与启迪。 共话根植历史渊源 儒伊文明对话并非凭空建构，而是根植两者跨越千年的深厚交往史。
+中新网广州4月10日电 (许青青 关悦)“我们公司计划在第139届广交会上展示地毯等家用纺织品，请问这些展品是否能享受免税政策？有没有额度限制？展后未销售的展品怎么处理更方便呢？”4月9日，一家来自埃及的参展企业咨询广交会展品税收优惠新政的具体适用细节。针对企业咨询问题，广州会展中心海关的业务专家逐一解答。 今年3月5日，财政部、海关总署、国家税务总局联合发布《关于“十五五”期
 
 ## 正文
 
-中新社北京4月16日电 题：2026儒伊文明对话会在北京举行 中外学者共话传统与启迪 中新社记者 徐皇冠 4月16日，以“全球文明观：儒家文化与伊斯兰文明的视角”为主题，2026儒伊文明对话会在北京举行。
+中新网广州4月10日电 (许青青 关悦)“我们公司计划在第139届广交会上展示地毯等家用纺织品，请问这些展品是否能享受免税政策？
 
-来自全球24个国家近300名专家学者共话建言，探赜儒伊文明历史、哲学与当代禀赋中的共鸣与启迪。
+有没有额度限制？
 
-共话根植历史渊源 儒伊文明对话并非凭空建构，而是根植两者跨越千年的深厚交往史。
+展后未销售的展品怎么处理更方便呢？
 
-马来西亚国会议员、前副总理旺·阿兹莎博士在致辞中谈及郑和表示，六百多年前出生于穆斯林家庭的郑和，以贸易与邦交使者身份抵达马六甲，成为跨文明交流的不朽象征。
+”4月9日，一家来自埃及的参展企业咨询广交会展品税收优惠新政的具体适用细节。
 
-她引述学者观点说，“伊斯兰在印度尼西亚与马来世界的发展，离不开这位中国穆斯林将领的贡献。
+针对企业咨询问题，广州会展中心海关的业务专家逐一解答。
 
-” 中国教育部党组成员、副部长任友群回溯说，“历史上，两大文明通过陆上与海上丝绸之路互通有无、互学互鉴，留下了学者往来、典籍互译、思想交融的动人篇章，是‘各美其美、美美与共’的文明互鉴典范。
+今年3月5日，财政部、海关总署、国家税务总局联合发布《关于“十五五”期间中国进出口商品交易会展期内销售的进口展品税收优惠政策的通知》(以下简称《通知》)，“十五五”期间(2026—2030年)，对广交会展期内销售的进口展品，在规定额度内继续免征进口关税、进口环节增值税和消费税。
 
-” 中国社会科学院哲学研究所所长张志强指出，伊斯兰文明在历史上将欧亚大陆诸文明以网络化方式联结。
+据了解，自2023年第133届广交会起，财政部、海关总署、国家税务总局分阶段多次联合发布广交会展期内销售进口展品税收优惠政策。
 
-儒伊之间交流汇通充实和丰富了中华文明，中华文明也经由伊斯兰文明，向世界贡献了四大发明。
+据广州会展中心海关统计，自相关政策落地以来，已累计为货值101万元(人民币，下同)的宝石、床上用品、机械用品等进口展品减免税款约26.8万元。
 
 ## 相关推荐
 
-- 2026-06-30 01:22 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 01:41 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 01:17 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 01:19 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 01:28 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 01:37 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 01:33 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 01:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 01:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 01:13 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 01:29 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 01:44 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 01:36 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 01:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 01:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 01:19 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 01:32 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 01:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-30 01:39 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 01:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 01:28 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 01:25 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 01:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/642262.shtml)
-- 2026-06-30 01:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/17856925210.shtml)
-- 2026-06-30 01:12 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/3971275687.shtml)
-- 2026-06-30 01:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/1761797.shtml)
-- 2026-06-30 01:40 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/618940874954.shtml)
-- 2026-06-30 01:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/16682.shtml)
-- 2026-06-30 01:39 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/980791641.shtml)
-- 2026-06-30 01:13 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/894056391020.shtml)
-- 2026-06-30 01:33 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/028059765142.shtml)
-- 2026-06-30 01:38 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/62909879.shtml)
-- 2026-06-30 01:12 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/2596621.shtml)
-- 2026-06-30 01:25 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/82028185187.shtml)
-- 2026-06-30 01:31 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/7757633270.shtml)
-- 2026-06-30 01:20 - [第一炉香](http://www.share.kurohicncr.top/Article/details/72471528468.shtml)
-- 2026-06-30 01:38 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/943635.shtml)
+- 2026-06-30 01:45 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/92910628.shtml)
+- 2026-06-30 01:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/42023.shtml)
+- 2026-06-30 01:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/32951.shtml)
+- 2026-06-30 01:30 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/44777.shtml)
+- 2026-06-30 01:28 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/146978765.shtml)
+- 2026-06-30 01:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/87602535.shtml)
+- 2026-06-30 01:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/252328458.shtml)
+- 2026-06-30 01:35 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/05108700.shtml)
+- 2026-06-30 01:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/452372996560.shtml)
+- 2026-06-30 01:27 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/120093997.shtml)
+- 2026-06-30 01:20 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/32374837468.shtml)
+- 2026-06-30 01:25 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/5304657871.shtml)
+- 2026-06-30 01:45 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/54956462.shtml)
+- 2026-06-30 01:20 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/071360.shtml)
+- 2026-06-30 01:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/085158.shtml)

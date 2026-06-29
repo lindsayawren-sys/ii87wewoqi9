@@ -1,61 +1,61 @@
-# 广西推动打造面向东盟智慧健康产业新高地
+# 内蒙古巴林草原上有一支“马背护鸟队”
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月16日电(林浩)广西壮族自治区人民政府副秘书长刘国晔16日表示，广西正着力打造面向东盟的智慧健康产业新高地，将持续优化营商环境，加强与东盟各国在医药制造、医疗器械、化妆品、功能食品等领域的标准互认和人才培养交流，希望各界企业家积极参与防城港国际医学开放试验区建设，携手深耕东盟医疗医药广阔市场。 当天，广西生物医药及健康产业推介暨广药集团招商大会在南宁市举行，与会嘉
+中新网赤峰4月10日电 题：内蒙古巴林草原上有一支“马背护鸟队” 作者 奥蓝 吴景然 4月的风，吹过内蒙古自治区赤峰市巴林右旗查干诺尔镇，空气中还带着丝丝凉意。西拉沐沦河与查干沐沦河交汇的湿地里，成群的候鸟循着迁徙轨迹陆续归来。 这也是巴林草原“马背护鸟队”最忙碌的时候。这是一支由当地牧民、派出所民警自发组织的队伍，大家分组轮班、全天值守，每天两班轮换，每班3至4人在岗。 每天
 
 ## 正文
 
-中新网南宁4月16日电(林浩)广西壮族自治区人民政府副秘书长刘国晔16日表示，广西正着力打造面向东盟的智慧健康产业新高地，将持续优化营商环境，加强与东盟各国在医药制造、医疗器械、化妆品、功能食品等领域的标准互认和人才培养交流，希望各界企业家积极参与防城港国际医学开放试验区建设，携手深耕东盟医疗医药广阔市场。
+中新网赤峰4月10日电 题：内蒙古巴林草原上有一支“马背护鸟队” 作者 奥蓝 吴景然 4月的风，吹过内蒙古自治区赤峰市巴林右旗查干诺尔镇，空气中还带着丝丝凉意。
 
-当天，广西生物医药及健康产业推介暨广药集团招商大会在南宁市举行，与会嘉宾共话产业发展、共商合作机遇。
+西拉沐沦河与查干沐沦河交汇的湿地里，成群的候鸟循着迁徙轨迹陆续归来。
 
-刘国晔在致辞中介绍，广西是我国的“天然药库”和“中药材之乡”，中药材资源达7542种，有玉林国家级中药材专业市场以及5个药材进出口口岸，是全国8个中医药服务贸易先行先试重点区域之一。
+这也是巴林草原“马背护鸟队”最忙碌的时候。
 
-当前，广西已把生物医药及健康产业作为全区制造业十大现代化支柱产业之一，统筹重点推进，大力推动“AI+医疗卫生”应用发展，筹办全国医保影像AI识图大赛，积极申报国家人工智能应用中试基地(医保影像方向)。
+这是一支由当地牧民、派出所民警自发组织的队伍，大家分组轮班、全天值守，每天两班轮换，每班3至4人在岗。
 
-刘国晔希望各界伙伴，聚焦AI赋能天然药物筛选、中药创新药研发、智慧康养服务等重点领域，与广西携手共建标志性应用场景，共同抢占产业新赛道、培育发展新动能。
+每天清晨6点，早班队员就出发了，大家骑马沿浅滩湿地安静缓行，眼睛时刻盯着水面和芦苇丛。
 
-广州医药集团有限公司党委书记、董事长李小军表示，当前，东盟医药健康市场快速崛起，跨境医药贸易步入快车道。
+水壶和自制的奶食品、肉干等食物是随身标配，马鞍上除了望远镜，还挂着急救包和帆布绳。
 
-广药集团将把南宁作为布局华南、辐射西南、链接全球的战略支点，积极融入“中国—东盟经贸合作”大局，共拓万亿级产业蓝海。
+早些年，这片湿地环境并不好，一度萎缩的河水、淤塞的河道留不住过路的候鸟。
 
-接下来，广药集团还将立足南宁，深度整合西南医药资源、激活庞大消费市场；依托东盟开放优势，携手推动优质产品、标准、模式“走出去”，同时引进东盟特色医药资源、健康产品与合作项目。
+2020年起，当地持续加大生态环境保护力度，实施“河湖长制”、禁牧休牧、水源涵养等一系列举措，来此栖息的候鸟也越来越多。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 01:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 01:30 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 01:19 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-30 01:32 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 01:25 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 01:30 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 01:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 01:22 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 01:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 01:24 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 01:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 01:17 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 01:15 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:30 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 01:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 01:32 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 01:27 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 01:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 01:46 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 01:31 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-30 01:40 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 01:32 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 01:40 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 01:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 01:32 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 01:47 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 01:40 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 01:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/13365.shtml)
-- 2026-06-30 01:30 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/7201976.shtml)
-- 2026-06-30 01:12 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/806368.shtml)
-- 2026-06-30 01:37 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/1980531.shtml)
-- 2026-06-30 01:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/062011904861.shtml)
-- 2026-06-30 01:40 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/09796493.shtml)
-- 2026-06-30 01:16 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/173635093.shtml)
-- 2026-06-30 01:15 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/2126827431.shtml)
-- 2026-06-30 01:13 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/288248642474.shtml)
-- 2026-06-30 01:22 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/751668935.shtml)
-- 2026-06-30 01:37 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/640892.shtml)
-- 2026-06-30 01:37 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/773165.shtml)
-- 2026-06-30 01:25 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/113823670.shtml)
-- 2026-06-30 01:18 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/1291458614.shtml)
-- 2026-06-30 01:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/21897.shtml)
+- 2026-06-30 01:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/201100.shtml)
+- 2026-06-30 01:24 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/54482.shtml)
+- 2026-06-30 01:46 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/2457159446.shtml)
+- 2026-06-30 01:28 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/230365.shtml)
+- 2026-06-30 01:20 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/761216566375.shtml)
+- 2026-06-30 01:23 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/5235058384.shtml)
+- 2026-06-30 01:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/10300074.shtml)
+- 2026-06-30 01:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/848243531752.shtml)
+- 2026-06-30 01:45 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/4683983447.shtml)
+- 2026-06-30 01:20 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/1600971224.shtml)
+- 2026-06-30 01:43 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/59488430.shtml)
+- 2026-06-30 01:36 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/57350.shtml)
+- 2026-06-30 01:25 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/19121990524.shtml)
+- 2026-06-30 01:30 - [流金岁月](http://www.share.kurohicncr.top/Article/details/13628655003.shtml)
+- 2026-06-30 01:36 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/99468137.shtml)

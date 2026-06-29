@@ -1,58 +1,55 @@
-# 鄱阳湖水位上涨突破15米 “湖面落星”景观再现
+# 亚洲开发银行：亚太地区发展中经济体面临加剧的通胀风险
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新社南昌4月17日电 (记者 姜涛)受近期持续降雨等因素影响，中国最大淡水湖鄱阳湖水位快速上涨突破15米大关，作为鄱阳湖水位涨跌天然标尺的千年石岛落星墩与石钟山溶洞等标志性景观均重回湖水“怀抱”。 江西省实时水文信息显示，鄱阳湖标志性水文站星子站17日8时水位15.05米，较16日8时上涨0.14米。随着水位上涨，千年石岛落星墩重新没入万顷碧波，岛上牌坊、禅院与七级古塔宛如水
+专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 亚洲开发银行表示，在中东冲突提前企稳的情况下，主要受能源价格上涨推动，亚太地区发展中经济体的通胀率预计将从2025年的3.0%升至2026年的3.6%。该行预计，随着大宗商品价格正常化，明年通胀率将回落至3.4%。但亚洲开发银行认为，鉴于中断局面现在看来可能比预期持续更长时间，通胀的上行风险将显著增加。能源和大宗商品市场更持
 
 ## 正文
 
-中新社南昌4月17日电 (记者 姜涛)受近期持续降雨等因素影响，中国最大淡水湖鄱阳湖水位快速上涨突破15米大关，作为鄱阳湖水位涨跌天然标尺的千年石岛落星墩与石钟山溶洞等标志性景观均重回湖水“怀抱”。
+专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 亚洲开发银行表示，在中东冲突提前企稳的情况下，主要受能源价格上涨推动，亚太地区发展中经济体的通胀率预计将从2025年的3.0%升至2026年的3.6%。
 
-江西省实时水文信息显示，鄱阳湖标志性水文站星子站17日8时水位15.05米，较16日8时上涨0.14米。
+该行预计，随着大宗商品价格正常化，明年通胀率将回落至3.4%。
 
-随着水位上涨，千年石岛落星墩重新没入万顷碧波，岛上牌坊、禅院与七级古塔宛如水中楼阁，“湖面落星”景观再现。
+但亚洲开发银行认为，鉴于中断局面现在看来可能比预期持续更长时间，通胀的上行风险将显著增加。
 
-今年以来，鄱阳湖水位呈现稳步回升态势，2月27日8时，鄱阳湖水位上涨突破极枯水位8米；3月25日8时上涨至10.31米，突破10米低枯水位后，3月31日突破12米枯水线。
+能源和大宗商品市场更持久的中断将产生更严重的后果，包括化肥价格上涨，从而推高农业生产成本并传导至食品价格。
 
-随着水位上涨，鄱阳湖水体面积进一步扩大，17日8时数据显示，鄱阳湖湖区通江水体面积2620平方公里，较去年大2210平方公里；容积75.3亿立方米，较去年多64.3亿立方米。
+亚洲开发银行的分析表明，如果紧张局势持续到第三季度，2026年通胀率将达到5.6%，然后在2027年放缓至2.8%。
 
-目前，鄱阳湖水位仍呈上涨态势。
-
-目前江西全省已进入汛期，水文部门提请沿湖地区及各相关部门密切关注鄱阳湖水情发展，加强监测预报预警，全力做好各项防汛应对准备。
-
-(完)
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:24 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 01:30 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 01:12 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-30 01:26 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 01:41 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 01:25 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 01:34 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 01:35 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-30 01:27 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 01:23 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 01:34 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-30 01:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 01:44 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 01:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 01:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 01:26 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 01:26 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 01:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 01:18 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 01:37 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 01:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 01:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 01:35 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 01:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 01:41 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/80277304432.shtml)
-- 2026-06-30 01:15 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/94555.shtml)
-- 2026-06-30 01:15 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/682582.shtml)
-- 2026-06-30 01:37 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/3303950.shtml)
-- 2026-06-30 01:19 - [逃狱兄弟](https://www.blog.minike.top/Article/details/160620554995.shtml)
-- 2026-06-30 01:36 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/17183.shtml)
-- 2026-06-30 01:30 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/50792058627.shtml)
-- 2026-06-30 01:16 - [周生如故](http://www.share.kurohicncr.top/Article/details/2284943.shtml)
-- 2026-06-30 01:41 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/36062157.shtml)
-- 2026-06-30 01:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/62050954503.shtml)
-- 2026-06-30 01:24 - [日本16强魔咒](http://www.blog.minike.top/Article/details/83668575.shtml)
-- 2026-06-30 01:20 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/026797311.shtml)
-- 2026-06-30 01:17 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/185395783701.shtml)
-- 2026-06-30 01:35 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/6594650940.shtml)
-- 2026-06-30 01:31 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/3922364.shtml)
+- 2026-06-30 01:22 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/14231859.shtml)
+- 2026-06-30 01:35 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/96937236.shtml)
+- 2026-06-30 01:24 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/6029287.shtml)
+- 2026-06-30 01:44 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/729430063864.shtml)
+- 2026-06-30 01:41 - [美人鱼](http://www.share.minike.top/Article/details/408971644287.shtml)
+- 2026-06-30 01:44 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/519429229.shtml)
+- 2026-06-30 01:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/853958554.shtml)
+- 2026-06-30 01:21 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/566057747182.shtml)
+- 2026-06-30 01:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/2437842851.shtml)
+- 2026-06-30 01:26 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/469092.shtml)
+- 2026-06-30 01:33 - [我们的少年时代2](http://www.share.minike.top/Article/details/0259108.shtml)
+- 2026-06-30 01:27 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/78255.shtml)
+- 2026-06-30 01:36 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/04244.shtml)
+- 2026-06-30 01:20 - [速度与激情9](http://www.blog.minike.top/Article/details/18410126596.shtml)
+- 2026-06-30 01:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/72807512113.shtml)

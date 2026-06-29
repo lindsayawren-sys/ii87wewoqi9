@@ -1,60 +1,59 @@
-# A股3家公司集体跌停，超10万股民可索赔
+# 大理苍山完成“大体检” 聚集云南近24%高等植物
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李山 编辑丨张颖国 2026年4月16日晚，A股市场再爆连环雷。实达集团（维权）（600734）、网达软件（维权）（603189）与GQY视讯（维权）（300076）相继发布业绩预告更正公告，因大幅下修2025年年度业绩，齐齐触发退市风险警示（*ST）
+中新网云南大理4月10日电 (记者 韩帅南)10日，苍山综合科学考察成果发布会在云南省大理白族自治州举行。会上透露，此次科考是40余年来对苍山区域最为全面、系统的“大体检”，科考范围占云南省国土面积的0.25%，聚集了全省近24%的高等植物。 苍山是历史名山，位于大理州中部、横断山脉云岭中支末端，其特殊的地理位置、复杂的地质构造和地形、多样的气候条件孕育了极其丰富的生物多样性和
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网云南大理4月10日电 (记者 韩帅南)10日，苍山综合科学考察成果发布会在云南省大理白族自治州举行。
 
-记者丨李山 编辑丨张颖国 2026年4月16日晚，A股市场再爆连环雷。
+会上透露，此次科考是40余年来对苍山区域最为全面、系统的“大体检”，科考范围占云南省国土面积的0.25%，聚集了全省近24%的高等植物。
 
-实达集团（维权）（600734）、网达软件（维权）（603189）与GQY视讯（维权）（300076）相继发布业绩预告更正公告，因大幅下修2025年年度业绩，齐齐触发退市风险警示（*ST）标准。
+苍山是历史名山，位于大理州中部、横断山脉云岭中支末端，其特殊的地理位置、复杂的地质构造和地形、多样的气候条件孕育了极其丰富的生物多样性和独特的人文自然生态景观，一直以来备受中外科学家关注。
 
-受利空消息影响，实达集团、网达软件17日开盘跌停，GQY视讯更遭遇20CM跌停，合计超10万名投资者遭遇“黑天鹅”。
+受诸多因素的影响，苍山未进行过系统的综合科学考察，生物资源本底、生态要素空间分布格局现状等关键信息不明，制约了苍山科学保护、合理利用和精准治理。
 
-此类业绩“变脸”不仅出反映公司基本面崩塌，更可能隐藏信息披露违规的法律风险，受损投资者有权提起索赔诉讼。
+2022年1月，经大量论证工作，云南省基础研究专项重大项目“苍山综合科学考察(202201BC070001)”立项，云南省林业和草原科学院联合云南省林业调查规划院、中国科学院昆明植物研究所、中国科学院西双版纳热带植物园、中国科学院昆明动物所、云南师范大学、大理大学、大理州林科所等多家单位共同实施。
 
-符合下文条件的股民，可关注“投资快报”公众号，通过右侧“股民索赔”菜单栏挽回损失。
+项目实施期3年，2025年6月以高质量成果通过云南省科技厅组织的验收。
 
-网达软件：盈利变亏损，6100万元收入被砍 4月16日晚间，网达软件发布2025年年度业绩预告更正公告，大幅下修全年营收及净利润预期。
+本次科考首次系统回答苍山生物多样性现状，证实苍山是中国乃至世界生物多样性保护关键区域。
 
-修正后，公司预计2025年扣非净利润为亏损250万元至100万元（此前预计盈利360万元至600万元），且营业收入确认金额低于3亿元，触及*ST标准。
+科考中，苍山高等植物及大型真菌物种记录均实现历史性突破。
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 01:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 01:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 01:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 01:27 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 01:35 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 01:17 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 01:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 01:39 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 01:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 01:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 01:38 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 01:29 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 01:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 01:19 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 01:36 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 01:46 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 01:45 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 01:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 01:39 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 01:40 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 01:28 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 01:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 01:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 01:35 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 01:21 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 01:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/969955.shtml)
-- 2026-06-30 01:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/2208998312.shtml)
-- 2026-06-30 01:38 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/40878938402.shtml)
-- 2026-06-30 01:31 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/51510751149.shtml)
-- 2026-06-30 01:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/22233.shtml)
-- 2026-06-30 01:37 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/1362705.shtml)
-- 2026-06-30 01:37 - [极限挑战第一季](https://www.share.minike.top/Article/details/49045526018.shtml)
-- 2026-06-30 01:34 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/980116.shtml)
-- 2026-06-30 01:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/031706.shtml)
-- 2026-06-30 01:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/931981945.shtml)
-- 2026-06-30 01:30 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/38736470855.shtml)
-- 2026-06-30 01:12 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/263581620.shtml)
-- 2026-06-30 01:25 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/821328067.shtml)
-- 2026-06-30 01:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/09171.shtml)
-- 2026-06-30 01:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/9120610340.shtml)
+- 2026-06-30 01:20 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/08480.shtml)
+- 2026-06-30 01:38 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/421202046900.shtml)
+- 2026-06-30 01:28 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/068606038779.shtml)
+- 2026-06-30 01:42 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/762993585.shtml)
+- 2026-06-30 01:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/32936968.shtml)
+- 2026-06-30 01:33 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/706887400403.shtml)
+- 2026-06-30 01:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/338857.shtml)
+- 2026-06-30 01:38 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/502101.shtml)
+- 2026-06-30 01:33 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/6072980140.shtml)
+- 2026-06-30 01:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/9465949561.shtml)
+- 2026-06-30 01:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/080893.shtml)
+- 2026-06-30 01:45 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/8452961472.shtml)
+- 2026-06-30 01:22 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/737831.shtml)
+- 2026-06-30 01:20 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/9086662.shtml)
+- 2026-06-30 01:43 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/6794608.shtml)

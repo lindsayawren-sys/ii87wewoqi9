@@ -1,57 +1,60 @@
-# 高盛：降港交所目标价至528港元 予“买入”评级
+# 中葡文明交流互鉴合作研究中心成立
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，更新港交所（00388）预测模型，目标价由546港元下调至528港元，评级“买入”，对应2027年预测市盈率35倍。 该行表示，3月份现金日均成交较该行预测低2%，主要由于南向交易活动逊预期，但被非南向成交增加部分抵销。衍生产品成交则表现强劲，股票及商品衍生产品均录得强劲按季增长。该行上调首季交易费及存管费用预测1%，收入及纯利预测上调2%及3%，预计首季纯利同
+中新网4月9日电 4月8日，中国人民大学联合科英布拉大学，在葡萄牙科英布拉成立中葡文明交流互鉴合作研究中心。 中国人民大学校长马怀德、中国驻葡萄牙大使杨义瑞、科英布拉大学副校长若奥·努诺·卡尔文·达席尔瓦出席仪式并致辞，共同为中葡文明交流互鉴合作研究中心揭牌。 马怀德表示，中葡友谊跨越山海、历久弥坚，两国树立了不同社会制度、不同国情国家相互尊重、互利共赢的典范。近年来，中国人民
 
 ## 正文
 
-高盛发布研报称，更新港交所（00388）预测模型，目标价由546港元下调至528港元，评级“买入”，对应2027年预测市盈率35倍。
+中新网4月9日电 4月8日，中国人民大学联合科英布拉大学，在葡萄牙科英布拉成立中葡文明交流互鉴合作研究中心。
 
-该行表示，3月份现金日均成交较该行预测低2%，主要由于南向交易活动逊预期，但被非南向成交增加部分抵销。
+中国人民大学校长马怀德、中国驻葡萄牙大使杨义瑞、科英布拉大学副校长若奥·努诺·卡尔文·达席尔瓦出席仪式并致辞，共同为中葡文明交流互鉴合作研究中心揭牌。
 
-衍生产品成交则表现强劲，股票及商品衍生产品均录得强劲按季增长。
+马怀德表示，中葡友谊跨越山海、历久弥坚，两国树立了不同社会制度、不同国情国家相互尊重、互利共赢的典范。
 
-该行上调首季交易费及存管费用预测1%，收入及纯利预测上调2%及3%，预计首季纯利同比增长14%。
+近年来，中国人民大学持续深化与葡萄牙等欧洲国家高校的交流合作，在欧洲布局多家文明交流互鉴合作研究中心，为构建人类命运共同体、丰富人类文明新形态注入强劲动力。
 
-鉴于中东冲突持续，高盛将MSCI中国及沪深300指数目标下调5%及4%，以反映全球滞胀风险、美国利率更趋僵持及地缘政治风险溢价持续。
+科英布拉大学作为葡萄牙著名高等学府、欧洲最古老的大学之一，在人文、艺术、法学等领域实力雄厚，与中国人民大学学科优势高度契合。
 
-该行相应下调2026年日均成交预测3%，以反映较低的市值预测，并维持成交速渡假设不变，2026年每股盈利预测下调2%。
+期待两校以共建中葡文明交流互鉴合作研究中心为契机，围绕数字人文与艺术、蓝色经济、涉外法治、文化遗产保护等重点领域，共建研究高地、共创交流品牌、共育时代英才、共筑协作网络，打造中葡青年交流、人文对话和文明互鉴的高端平台，为中葡全面战略伙伴关系与人类命运共同体建设贡献智慧力量。
 
-责任编辑：史丽君
+杨义瑞表示，中葡同为文明古国，两国文化交流源远流长，素来有着相互尊重、开放包容的优良传统。
+
+中国人民大学与科英布拉大学两所顶尖学府跨越山海，携手成立中葡文明交流互鉴合作研究中心，促进学术交流和文明对话，是中葡全面战略伙伴关系在学术领域的丰硕成果，也是落实全球文明倡议的生动实践。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 01:12 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 01:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 01:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 01:17 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 01:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 01:18 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 01:36 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 01:37 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 01:21 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 01:38 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 01:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 01:33 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 01:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 01:36 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 01:19 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 01:23 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 01:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 01:37 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 01:19 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 01:27 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 01:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 01:41 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 01:30 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 01:19 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 01:21 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 01:22 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/5287626.shtml)
-- 2026-06-30 01:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/502516657.shtml)
-- 2026-06-30 01:29 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/486108.shtml)
-- 2026-06-30 01:35 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/1636323.shtml)
-- 2026-06-30 01:16 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/8785413.shtml)
-- 2026-06-30 01:40 - [千与千寻](https://www.share.kurohicncr.top/Article/details/82777.shtml)
-- 2026-06-30 01:13 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/254364.shtml)
-- 2026-06-30 01:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/6910134283.shtml)
-- 2026-06-30 01:17 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/99889836877.shtml)
-- 2026-06-30 01:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/394058.shtml)
-- 2026-06-30 01:18 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/31852320034.shtml)
-- 2026-06-30 01:22 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/045448751307.shtml)
-- 2026-06-30 01:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/0042339633.shtml)
-- 2026-06-30 01:27 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/010300140767.shtml)
-- 2026-06-30 01:16 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/0226773618.shtml)
+- 2026-06-30 01:20 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/2143547.shtml)
+- 2026-06-30 01:26 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/81699731335.shtml)
+- 2026-06-30 01:32 - [电影后室值得看吗](https://www.share.minike.top/Article/details/81729.shtml)
+- 2026-06-30 01:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/698772053.shtml)
+- 2026-06-30 01:26 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/0472799.shtml)
+- 2026-06-30 01:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/99697114071.shtml)
+- 2026-06-30 01:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/383310716.shtml)
+- 2026-06-30 01:24 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/998713888578.shtml)
+- 2026-06-30 01:33 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/47765060715.shtml)
+- 2026-06-30 01:25 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/21859338.shtml)
+- 2026-06-30 01:38 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/328238880.shtml)
+- 2026-06-30 01:45 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/8787429738.shtml)
+- 2026-06-30 01:27 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/538077994819.shtml)
+- 2026-06-30 01:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/83792929.shtml)
+- 2026-06-30 01:32 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/6214042.shtml)

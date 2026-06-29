@@ -1,57 +1,61 @@
-# 警惕人工智能让人类陷入“自恋”
+# 4月10日美股成交额前20：亚马逊称自研芯片年化营收已超过200亿美元
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-近日，国家五部门联合发布的《人工智能拟人化互动服务管理暂行办法》明确规定：严禁向未成年人提供虚拟亲属、虚拟伴侣等虚拟亲密关系服务。 为什么要有这样的规定？因为真实生活中免不了情感上的矛盾和冲突，而虚拟伴侣、AI 恋人等产品却可以凭借“全天候陪伴”“无条件包容 ”的特性，精准击中年轻人渴望认同的心理需求。 此前美国《科学》杂志发表的一项研究也显示，当人类用户向人工智能模型寻求建议
+周四美股成交额第1名英伟达收高1.02%，成交211.15亿美元。至此，该股已经连续第七个交易日上涨。分析师指出，在经历数月的收益低迷后，英伟达股价再次反弹，并接近突破其窄幅交易区间，这应视为看涨信号。 这家芯片巨头的股价在过去七个交易日中上涨了10%以上，创下自10月以来最长的连涨纪录。在此之前，该股经历了一段较长的停滞期，从2025年9月到上月底，股价基本持平。 BTIG首
 
 ## 正文
 
-近日，国家五部门联合发布的《人工智能拟人化互动服务管理暂行办法》明确规定：严禁向未成年人提供虚拟亲属、虚拟伴侣等虚拟亲密关系服务。
+周四美股成交额第1名英伟达收高1.02%，成交211.15亿美元。
 
-为什么要有这样的规定？
+至此，该股已经连续第七个交易日上涨。
 
-因为真实生活中免不了情感上的矛盾和冲突，而虚拟伴侣、AI 恋人等产品却可以凭借“全天候陪伴”“无条件包容 ”的特性，精准击中年轻人渴望认同的心理需求。
+分析师指出，在经历数月的收益低迷后，英伟达股价再次反弹，并接近突破其窄幅交易区间，这应视为看涨信号。
 
-此前美国《科学》杂志发表的一项研究也显示，当人类用户向人工智能模型寻求建议时，AI常表现得过度迎合或谄媚，甚至对于一些有害甚至违法的提问，AI也常常肯定用户的立场。
+这家芯片巨头的股价在过去七个交易日中上涨了10%以上，创下自10月以来最长的连涨纪录。
 
-那么，人类为什么要这样设计人工智能？
+在此之前，该股经历了一段较长的停滞期，从2025年9月到上月底，股价基本持平。
 
-AI的讨好和谄媚可能隐藏着怎样的风险？
+BTIG首席市场技术分析师乔纳森·克林斯基表示：“如果英伟达能突破185美元并维持在其上方，我认为资金已准备好重新回流。
 
-一 人工智能的发展无疑是当下受到广泛关注的热点问题，但围绕它的讨论，并不是现在才出现的。
+其长期趋势依然积极。
 
-早在1966年，麻省理工学院科学家约瑟夫·维森鲍姆就开发了第一款具有广泛影响力的聊天机器人ELIZA。
+” 第2名特斯拉收高0.68%，成交210.22亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 01:35 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 01:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 01:28 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-30 01:15 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 01:40 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 01:32 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 01:18 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 01:34 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 01:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 01:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 01:18 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 01:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 01:44 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:18 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-30 01:30 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 01:45 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 01:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 01:36 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 01:38 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 01:45 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 01:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 01:18 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 01:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 01:21 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 01:26 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [一生一世](http://www.share.kurohicncr.top/Article/details/867027515150.shtml)
-- 2026-06-30 01:18 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/71420.shtml)
-- 2026-06-30 01:19 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/329274369258.shtml)
-- 2026-06-30 01:21 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/513158.shtml)
-- 2026-06-30 01:24 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/910916.shtml)
-- 2026-06-30 01:26 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/4467707924.shtml)
-- 2026-06-30 01:31 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/537600441561.shtml)
-- 2026-06-30 01:26 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/560468244168.shtml)
-- 2026-06-30 01:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/953214.shtml)
-- 2026-06-30 01:12 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/377509.shtml)
-- 2026-06-30 01:24 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/101789.shtml)
-- 2026-06-30 01:14 - [这一刀 会很帅](http://www.share.minike.top/Article/details/38830521714.shtml)
-- 2026-06-30 01:15 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/3391375.shtml)
-- 2026-06-30 01:34 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/581784.shtml)
-- 2026-06-30 01:33 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/626711801.shtml)
+- 2026-06-30 01:29 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/27019.shtml)
+- 2026-06-30 01:38 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/701756636937.shtml)
+- 2026-06-30 01:40 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2591294295.shtml)
+- 2026-06-30 01:30 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/2273537578.shtml)
+- 2026-06-30 01:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/31086019.shtml)
+- 2026-06-30 01:19 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/18617527.shtml)
+- 2026-06-30 01:25 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/57550626.shtml)
+- 2026-06-30 01:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/73239752391.shtml)
+- 2026-06-30 01:38 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/3751815715.shtml)
+- 2026-06-30 01:21 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/070559.shtml)
+- 2026-06-30 01:20 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/444384583.shtml)
+- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/347243816.shtml)
+- 2026-06-30 01:26 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/544834.shtml)
+- 2026-06-30 01:24 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/403646.shtml)
+- 2026-06-30 01:20 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/2696590.shtml)

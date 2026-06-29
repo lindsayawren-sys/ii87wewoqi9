@@ -1,56 +1,61 @@
-# AI细分赛道，火爆！两大科技巨头双双发布，这个板块最先受益
+# StarBridge:通胀预期升温压制贵金属走势
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-腾讯和阿里巴巴两大科技公司双双发布新的世界模型。4月16日，阿里巴巴发布世界模型Happy Oyster，该模型基于原生多模态架构而建，支持多模态理解与音视频联合生成，用户可以实时构建可互动、可演绎、可探索的AI数字世界，该产品可生成动态三维环境，支持影视制作、游戏开发等场景。当日，腾讯正式发布并开源混元3D世界模型2.0（HY-World 2.0），该模型是一个多模态世界模型
+4月10日，贵金属市场在周四早盘表现偏弱，金银价格小幅回落，市场整体情绪趋于谨慎。StarBridge认为，在关键通胀数据公布前，投资者倾向于降低风险敞口，使黄金与白银短线承压。从盘面来看，黄金价格维持在约4770美元附近震荡，白银则回落至约74美元区域，整体波动幅度有限，反映出市场观望情绪较为浓厚。 即将公布的通胀数据成为市场关注焦点。数据显示，核心个人消费支出指数月率预计维
 
 ## 正文
 
-腾讯和阿里巴巴两大科技公司双双发布新的世界模型。
+4月10日，贵金属市场在周四早盘表现偏弱，金银价格小幅回落，市场整体情绪趋于谨慎。
 
-4月16日，阿里巴巴发布世界模型Happy Oyster，该模型基于原生多模态架构而建，支持多模态理解与音视频联合生成，用户可以实时构建可互动、可演绎、可探索的AI数字世界，该产品可生成动态三维环境，支持影视制作、游戏开发等场景。
+StarBridge认为，在关键通胀数据公布前，投资者倾向于降低风险敞口，使黄金与白银短线承压。
 
-当日，腾讯正式发布并开源混元3D世界模型2.0（HY-World 2.0），该模型是一个多模态世界模型，能够理解文字、图片、视频等不同类型输入，自动生成、重建和模拟3D世界，同时支持多格式3D资产导出，可以与现有的游戏工作流无缝对接，用于快速生成游戏地图和关卡原型。
+从盘面来看，黄金价格维持在约4770美元附近震荡，白银则回落至约74美元区域，整体波动幅度有限，反映出市场观望情绪较为浓厚。
 
-值得注意的是，4月15日，世界模型领域权威评测平台WorldArena最新榜单显示，一款标注来自阿里巴巴的世界模型ABot-PhysWorld以显著优势登上榜首。
+即将公布的通胀数据成为市场关注焦点。
 
-据悉，该模型出自阿里巴巴旗下高德地图团队，其能够准确预见物体在复杂交互下的运动轨迹，如滑动、倾倒、堆叠、流体变化等，并保持多步因果逻辑的一致性。
+数据显示，核心个人消费支出指数月率预计维持在约0.4%左右，与此前水平相当，而整体通胀年率大致维持在约2.8%左右，核心通胀则略低于此前水平，约在3%左右。
 
-世界模型还获得资本涌入。
+StarBridge认为，这一组合意味着通胀虽未进一步上行，但仍明显高于政策目标区间，价格压力依然存在。
 
-在4月14日，世界模型领域的明星企业——极佳视界宣布完成15亿元融资，公司估值已超百亿元，而就在一个月前，其刚刚完成近10亿元Pre-B轮融资。
+在此背景下，市场对未来利率路径的预期变得更加复杂，贵金属作为无息资产的吸引力受到一定抑制。
 
-在世界模型领域，极佳视界自研的GigaWorld-1世界模型，在顶级评测基准WorldArena中击败国际顶尖机构，荣登全球榜首。
+从政策层面来看，部分市场观点认为，持续的通胀压力可能促使央行维持较为谨慎的立场，甚至不排除在特定条件下重新收紧政策。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 01:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 01:16 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 01:22 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 01:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 01:12 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 01:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 01:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 01:38 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 01:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 01:40 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 01:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-30 01:47 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 01:32 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 01:26 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 01:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 01:33 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 01:39 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 01:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 01:26 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 01:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 01:44 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:19 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 01:31 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 01:37 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/79118928904.shtml)
-- 2026-06-30 01:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/00399323283.shtml)
-- 2026-06-30 01:32 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/6853948781.shtml)
-- 2026-06-30 01:33 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/747289386.shtml)
-- 2026-06-30 01:27 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/06130218962.shtml)
-- 2026-06-30 01:23 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/864143.shtml)
-- 2026-06-30 01:16 - [世界杯](http://www.share.kurohicncr.top/Article/details/30247331457.shtml)
-- 2026-06-30 01:32 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/83246.shtml)
-- 2026-06-30 01:39 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6894997016.shtml)
-- 2026-06-30 01:39 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/5370597.shtml)
-- 2026-06-30 01:22 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/623901329.shtml)
-- 2026-06-30 01:20 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/818804820.shtml)
-- 2026-06-30 01:36 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/03180290916.shtml)
-- 2026-06-30 01:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/2699208981.shtml)
-- 2026-06-30 01:29 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/160802891.shtml)
+- 2026-06-30 01:28 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/19992.shtml)
+- 2026-06-30 01:26 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/5439028281.shtml)
+- 2026-06-30 01:32 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/09713674.shtml)
+- 2026-06-30 01:33 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/60697163042.shtml)
+- 2026-06-30 01:41 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/61331.shtml)
+- 2026-06-30 01:26 - [千香](http://www.blog.minike.top/Article/details/910564452636.shtml)
+- 2026-06-30 01:43 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/3609639.shtml)
+- 2026-06-30 01:40 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/33495387018.shtml)
+- 2026-06-30 01:38 - [美股](https://www.blog.minike.top/Article/details/369713872.shtml)
+- 2026-06-30 01:26 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/754358341.shtml)
+- 2026-06-30 01:26 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/0277247.shtml)
+- 2026-06-30 01:32 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/318273430.shtml)
+- 2026-06-30 01:28 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/406485501.shtml)
+- 2026-06-30 01:24 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/60745.shtml)
+- 2026-06-30 01:31 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/09954876758.shtml)

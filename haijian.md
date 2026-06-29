@@ -1,56 +1,61 @@
-# 花旗：降蓝思科技目标价至25港元 料2026年为过渡年
+# 首次实现承保盈利 大家财险以专业与温度交出高质量发展答卷
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，将蓝思科技（06613）H股目标价由27港元下调至25港元，评级“买入”； 蓝思科技（300433.SZ）A股目标价由32元人民币下调至30元人民币，评级“中性”。尽管2026上半年业绩令人失望，该行认为蓝思科技有望受惠于第二季末至第三季末的iOS补货情绪，并偏好H股因风险回报更佳。 花旗指蓝思科技季业绩逊预期，管理层将疲弱表现归因于客户因内存价格上涨而减少采购
+这一年，大家财险以一份厚重的答卷，回应着时代的命题。当丹东的草莓种植户从“靠天吃饭”到“保收入”无忧，当百万外卖骑手在风雨中多了一份安全保障，当国内首单消费级外骨骼责任险为硬核科技“兜底”——这些微小而坚实的瞬间，汇聚成大家财险2025年最生动的成绩单。大家财险不仅圆满完成三年发展规划，更首次实现承保盈利，综合成本率优化至99.83%，跻身行业中上水平，以106.33亿元的原保
 
 ## 正文
 
-花旗发布研报称，将蓝思科技（06613）H股目标价由27港元下调至25港元，评级“买入”； 蓝思科技（300433.SZ）A股目标价由32元人民币下调至30元人民币，评级“中性”。
+这一年，大家财险以一份厚重的答卷，回应着时代的命题。
 
-尽管2026上半年业绩令人失望，该行认为蓝思科技有望受惠于第二季末至第三季末的iOS补货情绪，并偏好H股因风险回报更佳。
+当丹东的草莓种植户从“靠天吃饭”到“保收入”无忧，当百万外卖骑手在风雨中多了一份安全保障，当国内首单消费级外骨骼责任险为硬核科技“兜底”——这些微小而坚实的瞬间，汇聚成大家财险2025年最生动的成绩单。
 
-花旗指蓝思科技季业绩逊预期，管理层将疲弱表现归因于客户因内存价格上涨而减少采购，以及汇兑损失。
+大家财险不仅圆满完成三年发展规划，更首次实现承保盈利，综合成本率优化至99.83%，跻身行业中上水平，以106.33亿元的原保费收入站上百亿新台阶。
 
-管理层预期，汇兑影响将在未来几季减弱，iOS可折叠机型将从5月开始贡献收入，Android需求可能在2026年下半年回暖。
+这是关于“守护”的坚守，更是关于“价值”的诠释，大家财险以向“内”深耕的定力、以“质”取胜的决心，迈入稳健发展的新阶段。
 
-该行因应首季业绩，下调蓝思科技2026年纯利预测13%至43.6亿元人民币，2027及2028年盈测大致维持不变。
+胸怀“国之大者”，以坚实保障彰显国企担当 大家财险始终牢记国有金融机构的职责使命，近三年累计为社会提供风险保障超过95万亿元，支付赔款170亿元，持续发挥保险“经济减震器”和“社会稳定器”功能。
 
-责任编辑：史丽君
+服务乡村振兴，守护大国粮仓与特色产业。
+
+农业保险服务已覆盖16省市121个县区，三年来，为超137万户次农户提供412亿元风险保障。
+
+不仅持续推进农业保险扩面、增品、提标，更因地制宜创新服务：在辽宁丹东首创草莓全产业链“一揽子”保险，在陕西杨凌开发高标准农田保险，有效满足地方现代农业高质量发展的风险保障需求。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 01:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 01:17 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 01:40 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 01:13 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 01:19 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 01:17 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 01:18 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 01:18 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 01:28 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 01:41 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 01:17 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 01:33 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 01:41 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 01:32 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 01:21 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 01:45 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 01:18 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 01:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 01:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 01:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 01:23 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 01:43 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 01:27 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 01:21 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 01:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 01:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 01:31 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 01:30 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/997297486222.shtml)
-- 2026-06-30 01:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/62375251.shtml)
-- 2026-06-30 01:12 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/983988839.shtml)
-- 2026-06-30 01:31 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/37912992792.shtml)
-- 2026-06-30 01:23 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/34168758136.shtml)
-- 2026-06-30 01:30 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/221868426162.shtml)
-- 2026-06-30 01:23 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/83041.shtml)
-- 2026-06-30 01:28 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/18524917.shtml)
-- 2026-06-30 01:39 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/988680.shtml)
-- 2026-06-30 01:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/9445895433.shtml)
-- 2026-06-30 01:26 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/575636126.shtml)
-- 2026-06-30 01:22 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/06653664347.shtml)
-- 2026-06-30 01:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/9278900839.shtml)
-- 2026-06-30 01:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/824986945770.shtml)
-- 2026-06-30 01:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/215559116.shtml)
+- 2026-06-30 01:27 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/21261.shtml)
+- 2026-06-30 01:43 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/05593653051.shtml)
+- 2026-06-30 01:41 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/15735521046.shtml)
+- 2026-06-30 01:32 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/95472.shtml)
+- 2026-06-30 01:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/2934703.shtml)
+- 2026-06-30 01:26 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/629505709693.shtml)
+- 2026-06-30 01:32 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/7002867.shtml)
+- 2026-06-30 01:19 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/777536604.shtml)
+- 2026-06-30 01:47 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/5261404.shtml)
+- 2026-06-30 01:33 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/68989672137.shtml)
+- 2026-06-30 01:24 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/491203.shtml)
+- 2026-06-30 01:35 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/1550409955.shtml)
+- 2026-06-30 01:46 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/8663418.shtml)
+- 2026-06-30 01:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/5586872690.shtml)
+- 2026-06-30 01:46 - [逃狱兄弟](https://www.blog.minike.top/Article/details/8320710.shtml)

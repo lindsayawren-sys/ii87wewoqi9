@@ -1,56 +1,56 @@
-# 呼和浩特23家羊绒企业组团亮相深圳 对接大湾区市场
+# “不设限”的吴艳妮：一步一栏，跑出自己的新篇章
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月17日电 (记者 程景伟)第32届FASHION SOURCE时尚之源深圳展(以下简称“FS深圳展”)15日至17日在深圳会展中心(福田)举行。一股来自内蒙古草原的“绒”尚力量引人注目，由呼和浩特市工业和信息化局组织的23家优质羊绒企业，组成展团亮相本届展会，积极对接粤港澳大湾区市场。 呼和浩特羊绒产业闻名海内外。在FS深圳展的聚光灯下，呼和浩特展团汇聚羊绒围巾、
+中新网绍兴4月9日电 题：“不设限”的吴艳妮：一步一栏，跑出自己的新篇章 作者 张煜欢 “我今年不想为自己设限，让自己尽力去跑，能跑多快就跑多快。”4月9日，中国女子跨栏名将吴艳妮在接受采访时说道。 当日，2026长三角国际田径钻石赛(上海/绍兴柯桥)启动仪式暨新闻发布会在浙江绍兴柯桥举行，吴艳妮与浙江籍选手奚枭横现场亮相。作为此次赛事上备受关注的中国选手，吴艳妮坦言，“能站在
 
 ## 正文
 
-中新网深圳4月17日电 (记者 程景伟)第32届FASHION SOURCE时尚之源深圳展(以下简称“FS深圳展”)15日至17日在深圳会展中心(福田)举行。
+中新网绍兴4月9日电 题：“不设限”的吴艳妮：一步一栏，跑出自己的新篇章 作者 张煜欢 “我今年不想为自己设限，让自己尽力去跑，能跑多快就跑多快。
 
-一股来自内蒙古草原的“绒”尚力量引人注目，由呼和浩特市工业和信息化局组织的23家优质羊绒企业，组成展团亮相本届展会，积极对接粤港澳大湾区市场。
+”4月9日，中国女子跨栏名将吴艳妮在接受采访时说道。
 
-呼和浩特羊绒产业闻名海内外。
+当日，2026长三角国际田径钻石赛(上海/绍兴柯桥)启动仪式暨新闻发布会在浙江绍兴柯桥举行，吴艳妮与浙江籍选手奚枭横现场亮相。
 
-在FS深圳展的聚光灯下，呼和浩特展团汇聚羊绒围巾、服饰、羊绒衫等细分领域的领军企业。
+作为此次赛事上备受关注的中国选手，吴艳妮坦言，“能站在钻石联赛这样的顶级赛事舞台上，我觉得作为运动员就足够了。
 
-“呼和浩特羊绒”与“呼和浩特羊绒围巾”两大地理标志证明商标产品成为全场焦点之一。
+” 回望2025年，于吴艳妮而言，是收获与遗憾并存的一年。
 
-呼和浩特展团相关负责人表示，该展团依托优质的羊绒资源，通过地理标志规范运营，将“呼和浩特羊绒”与“更细、更软、更高端”特点深度绑定。
+去年初，吴艳妮在2025南京世界田联室内锦标赛中，以8秒01的成绩打破尘封11年的女子室内60米栏全国纪录。
 
-据悉，目前，呼和浩特羊绒基地企业已累计持有国内外自主品牌商标164个、专利95项，产业集群的规模效应与品牌效应日益凸显。
+随后，她在2025年全国田径锦标赛中，以13秒15的成绩获得女子100米栏冠军。
 
-此次展会现场，呼和浩特羊绒产业数字化转型成果引发关注。
+之后，她在2025年全国田径冠军赛暨全国田径大奖赛总决赛中，以12秒90的成绩夺得女子100米栏冠军。
 
 ## 相关推荐
 
-- 2026-06-30 01:15 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 01:23 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 01:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 01:40 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 01:39 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 01:41 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 01:20 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 01:39 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 01:25 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 01:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 01:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 01:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 01:41 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 01:47 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 01:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 01:42 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 01:43 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 01:46 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 01:20 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 01:21 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/928727093.shtml)
-- 2026-06-30 01:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/47040.shtml)
-- 2026-06-30 01:37 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/3478024.shtml)
-- 2026-06-30 01:40 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/659359852048.shtml)
-- 2026-06-30 01:24 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/989856264.shtml)
-- 2026-06-30 01:40 - [啊啊啊](https://www.share.minike.top/Article/details/129066326374.shtml)
-- 2026-06-30 01:23 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/8685044607.shtml)
-- 2026-06-30 01:13 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/4104815952.shtml)
-- 2026-06-30 01:31 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/880323925724.shtml)
-- 2026-06-30 01:15 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/58975471516.shtml)
-- 2026-06-30 01:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/11386385029.shtml)
-- 2026-06-30 01:22 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/406418672.shtml)
-- 2026-06-30 01:13 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/570692229985.shtml)
-- 2026-06-30 01:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/92010448.shtml)
-- 2026-06-30 01:34 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/783306.shtml)
+- 2026-06-30 01:34 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/467029.shtml)
+- 2026-06-30 01:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/19548139290.shtml)
+- 2026-06-30 01:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/420457.shtml)
+- 2026-06-30 01:22 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/6139421675.shtml)
+- 2026-06-30 01:47 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/338674987953.shtml)
+- 2026-06-30 01:30 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/978602.shtml)
+- 2026-06-30 01:35 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/711684.shtml)
+- 2026-06-30 01:21 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/634589481.shtml)
+- 2026-06-30 01:28 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/5500540.shtml)
+- 2026-06-30 01:36 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/101083338.shtml)
+- 2026-06-30 01:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/10292304435.shtml)
+- 2026-06-30 01:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/354975.shtml)
+- 2026-06-30 01:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/304698619.shtml)
+- 2026-06-30 01:46 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/268976574.shtml)
+- 2026-06-30 01:34 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/5601342040.shtml)

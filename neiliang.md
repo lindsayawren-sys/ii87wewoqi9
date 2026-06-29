@@ -1,60 +1,60 @@
-# 第139届广交会开幕首日境外采购商到会超7万人
+# 中国佛教协会代表团赴台出席惟觉长老圆寂十周年纪念活动
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-原标题：视频丨第139届广交会开幕首日境外采购商到会超7万人 第139届广交会昨天(15日)在广州开幕。本届广交会展览规模再创新高，聚焦新质生产力，以更高质量的平台对接全球供需，为我国外贸促稳提质、推动高水平对外开放注入强劲动力。 第139届广交会展览总面积155万平方米，展位总数7.57万个，参展企业超3.2万家，其中，超六成企业拥有自有品牌，约3900家企业首次亮相，现场将
+中新社北京4月9日电 据“中国佛教协会”微信公众号9日消息，中国佛教协会副会长光泉法师4月7日至9日率团赴台出席台湾中台禅寺开山祖师惟觉长老圆寂十周年纪念活动。 惟觉长老是深受两岸佛教界敬重的大德高僧，为佛教在台湾地区的传承发展、为推动两岸佛教界交流交往作出了重要贡献。 4月8日，惟觉长老圆寂十周年纪念法会在中台禅寺庄严举行。两岸诸山长老、大德法师及护法信众齐聚一堂，共同缅怀惟
 
 ## 正文
 
-原标题：视频丨第139届广交会开幕首日境外采购商到会超7万人 第139届广交会昨天(15日)在广州开幕。
+中新社北京4月9日电 据“中国佛教协会”微信公众号9日消息，中国佛教协会副会长光泉法师4月7日至9日率团赴台出席台湾中台禅寺开山祖师惟觉长老圆寂十周年纪念活动。
 
-本届广交会展览规模再创新高，聚焦新质生产力，以更高质量的平台对接全球供需，为我国外贸促稳提质、推动高水平对外开放注入强劲动力。
+惟觉长老是深受两岸佛教界敬重的大德高僧，为佛教在台湾地区的传承发展、为推动两岸佛教界交流交往作出了重要贡献。
 
-第139届广交会展览总面积155万平方米，展位总数7.57万个，参展企业超3.2万家，其中，超六成企业拥有自有品牌，约3900家企业首次亮相，现场将展示超465万件展品。
+4月8日，惟觉长老圆寂十周年纪念法会在中台禅寺庄严举行。
 
-本届广交会参展企业结构持续优化，拥有专精特新、单项冠军等称号的优质企业超1.1万家，同比增长5.1%。
+两岸诸山长老、大德法师及护法信众齐聚一堂，共同缅怀惟觉长老的弘法利生功德。
 
-一大批前沿技术成果与高附加值产品集中亮相，展现了中国制造向高端化、智能化、绿色化转型的强劲势头，吸引全球客商关注。
+法会上，光泉法师代表中国佛教协会向惟觉长老致以深切缅怀与崇高敬意。
 
-开幕首日，境外采购商到会踊跃，线下到会人数超7万人。
+他表示，惟觉长老既是两岸宗教文化交流的坚定力行者，更是两岸关系和平发展的积极推动者。
 
-巴西采购商埃里克·戈尔多尼：中国新技术发展速度之快令人印象深刻，整个产业环境发展非常迅速，所以我希望未来能把这些技术带回我的国家。
+两岸佛教同根同源，法脉相连，惟觉长老用毕生心血为我们铺就的交流之路，我们不仅要矢志坚守、笃定前行，更要接续深耕、广拓新局，让这条大道越走越宽、越行越广。
 
-这也是广交会的意义所在，它为外国客商提供了机会，让我们能看到中国研发的各类产品，并带回本国。
+法会后，代表团一行参加“仰怀宗范——惟觉安公老和尚圆寂十周年纪念特展”开幕剪彩大典，并与中台禅寺住持见颖法师等进行了友好交流。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 01:19 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 01:14 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 01:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 01:12 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 01:34 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 01:34 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 01:27 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 01:24 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-30 01:35 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 01:32 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-30 01:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 01:34 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 01:18 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 01:30 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 01:39 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 01:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 01:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 01:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 01:34 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 01:29 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 01:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 01:43 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 01:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 01:26 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 01:45 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 01:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 01:30 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [点菜也要教吗](https://www.share.minike.top/Article/details/248236.shtml)
-- 2026-06-30 01:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/089484074277.shtml)
-- 2026-06-30 01:39 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/3188521.shtml)
-- 2026-06-30 01:35 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/620470665259.shtml)
-- 2026-06-30 01:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/09802.shtml)
-- 2026-06-30 01:25 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/40676932.shtml)
-- 2026-06-30 01:12 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/902511907.shtml)
-- 2026-06-30 01:31 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/741191788517.shtml)
-- 2026-06-30 01:14 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/028538378828.shtml)
-- 2026-06-30 01:19 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/96547421.shtml)
-- 2026-06-30 01:31 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/3514859.shtml)
-- 2026-06-30 01:22 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/460042982761.shtml)
-- 2026-06-30 01:36 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/60495627.shtml)
-- 2026-06-30 01:36 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/1230908896.shtml)
-- 2026-06-30 01:13 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/422840.shtml)
+- 2026-06-30 01:39 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/93422340.shtml)
+- 2026-06-30 01:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/94551046889.shtml)
+- 2026-06-30 01:19 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/35428488.shtml)
+- 2026-06-30 01:37 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/64443403.shtml)
+- 2026-06-30 01:32 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/955423.shtml)
+- 2026-06-30 01:18 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/71929290.shtml)
+- 2026-06-30 01:32 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/131084.shtml)
+- 2026-06-30 01:26 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/0271764.shtml)
+- 2026-06-30 01:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/252636883020.shtml)
+- 2026-06-30 01:41 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/5099919563.shtml)
+- 2026-06-30 01:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/31871.shtml)
+- 2026-06-30 01:47 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/71186.shtml)
+- 2026-06-30 01:29 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/8634804.shtml)
+- 2026-06-30 01:19 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/4990530.shtml)
+- 2026-06-30 01:24 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/4267593599.shtml)

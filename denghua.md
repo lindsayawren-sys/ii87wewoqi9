@@ -1,58 +1,50 @@
-# 莫桑比克加快发展数字农业
+# 两高：依法加大对新型隐性腐败惩治力度
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-莫桑比克加快发展数字农业 中莫农业合作不断深化 人民日报 本报记者 戴楷然近日，在莫桑比克农业研究所的实验室里，农业技术人员正借助精密数字设备分析土壤样本，相关数据实时上传至国家农业数据库。基于这些数据生成的高分辨率土壤地图，将为当地农户提供精准的施肥指导与种植方案。这项由莫桑比克政府与联合国粮农组织联合发起的“莫桑比克土壤实验室网络”项目，正为当地农业生产注入更多科技动能。
+中新网4月10日电(记者 高萌)4月10日，最高人民法院、最高人民检察院发布《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》，自2026年5月1日起施行。《解释(二)》进一步明确单位受贿罪、单位行贿罪等定罪量刑标准，完善斡旋受贿、介绍贿赂、挪用公款等认定规则，健全特定财物真伪鉴定和价格认定规则，细化预期收益型受贿数额认定规则，依法加大对新型隐性腐败的惩治力度。(完)
 
 ## 正文
 
-莫桑比克加快发展数字农业 中莫农业合作不断深化 人民日报 本报记者 戴楷然近日，在莫桑比克农业研究所的实验室里，农业技术人员正借助精密数字设备分析土壤样本，相关数据实时上传至国家农业数据库。
+中新网4月10日电(记者 高萌)4月10日，最高人民法院、最高人民检察院发布《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》，自2026年5月1日起施行。
 
-基于这些数据生成的高分辨率土壤地图，将为当地农户提供精准的施肥指导与种植方案。
+《解释(二)》进一步明确单位受贿罪、单位行贿罪等定罪量刑标准，完善斡旋受贿、介绍贿赂、挪用公款等认定规则，健全特定财物真伪鉴定和价格认定规则，细化预期收益型受贿数额认定规则，依法加大对新型隐性腐败的惩治力度。
 
-这项由莫桑比克政府与联合国粮农组织联合发起的“莫桑比克土壤实验室网络”项目，正为当地农业生产注入更多科技动能。
-
-农业是莫桑比克国民经济的支柱产业。
-
-数据显示，农业产值约占该国国内生产总值的25%，全国近70%的人口以农业为主要生计来源。
-
-长期以来，农业技术薄弱、市场信息闭塞，以及农业抗灾防灾能力不足等因素，都在一定程度上制约农业发展。
-
-在此背景下，推动农业数字化转型，成为莫桑比克破解农业发展难题、实现农业现代化的关键举措。
-
-为系统推进农业数字化转型，莫桑比克将数字农业纳入《农业发展战略计划2030》，明确转型目标与实施路径。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 01:38 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 01:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 01:16 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 01:35 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 01:17 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 01:34 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 01:18 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 01:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 01:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 01:12 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 01:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 01:39 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 01:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 01:24 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 01:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 01:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 01:36 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 01:38 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 01:40 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 01:46 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 01:22 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 01:25 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 01:42 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 01:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 01:33 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/229062299319.shtml)
-- 2026-06-30 01:34 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/89593.shtml)
-- 2026-06-30 01:17 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/778252656722.shtml)
-- 2026-06-30 01:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/5072184.shtml)
-- 2026-06-30 01:22 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/0369344815.shtml)
-- 2026-06-30 01:27 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/50878.shtml)
-- 2026-06-30 01:39 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/78425622533.shtml)
-- 2026-06-30 01:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/30640912980.shtml)
-- 2026-06-30 01:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/857102.shtml)
-- 2026-06-30 01:17 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/55185192247.shtml)
-- 2026-06-30 01:39 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/4879124.shtml)
-- 2026-06-30 01:20 - [乔家的儿女](http://www.share.minike.top/Article/details/76745789988.shtml)
-- 2026-06-30 01:35 - [美股](http://www.share.kurohicncr.top/Article/details/375435.shtml)
-- 2026-06-30 01:23 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/1395545187.shtml)
-- 2026-06-30 01:37 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/53083.shtml)
+- 2026-06-30 01:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/6506366.shtml)
+- 2026-06-30 01:21 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/239549.shtml)
+- 2026-06-30 01:27 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/07510.shtml)
+- 2026-06-30 01:33 - [85花告别古偶](https://www.share.minike.top/Article/details/133487962.shtml)
+- 2026-06-30 01:29 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/87561505.shtml)
+- 2026-06-30 01:26 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/670502.shtml)
+- 2026-06-30 01:18 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/7452833632.shtml)
+- 2026-06-30 01:28 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/16815725.shtml)
+- 2026-06-30 01:31 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/8595304.shtml)
+- 2026-06-30 01:39 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/93035655442.shtml)
+- 2026-06-30 01:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/74199012.shtml)
+- 2026-06-30 01:20 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/6669096765.shtml)
+- 2026-06-30 01:32 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/03371.shtml)
+- 2026-06-30 01:47 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/954084.shtml)
+- 2026-06-30 01:23 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/80634.shtml)

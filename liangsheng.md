@@ -1,61 +1,57 @@
-# 中国成功发射高精度温室气体综合探测卫星
+# 凯乐士科技午前涨超22%创新高 公司VNA AMR出货量领跑行业
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新社北京4月17日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月17日12时10分，中国在酒泉卫星发射中心使用长征四号丙运载火箭，成功将高精度温室气体综合探测卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 高精度温室气体综合探测卫星是国家民用空间基础设施中长期发展规划的业务卫星，卫星携带大气探测激光雷达、宽幅高光谱温室气体监测仪、红外高光谱大气成分探测仪
+凯乐士科技（02729）午前涨超22%，盘中高见39.26港元，创上市新高。截至发稿，股价上涨22.31%，现报39.14港元，成交额3028.83万港元。 近日，港股“全栈式智能场内物流机器人第一股”凯乐士科技正式登陆港交所，公司聚焦智能场内物流机器人领域。据招股书披露，按2024年收入统计，凯乐士跻身国内第五大综合智能场内物流解决方案提供商，整体市场份额达1.6%；在细分赛
 
 ## 正文
 
-中新社北京4月17日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月17日12时10分，中国在酒泉卫星发射中心使用长征四号丙运载火箭，成功将高精度温室气体综合探测卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+凯乐士科技（02729）午前涨超22%，盘中高见39.26港元，创上市新高。
 
-高精度温室气体综合探测卫星是国家民用空间基础设施中长期发展规划的业务卫星，卫星携带大气探测激光雷达、宽幅高光谱温室气体监测仪、红外高光谱大气成分探测仪、紫外高光谱大气成分探测仪、云和气溶胶成像仪5台有效载荷。
+截至发稿，股价上涨22.31%，现报39.14港元，成交额3028.83万港元。
 
-该卫星将在全球首次实现主被动温室气体联合探测及紫外红外污染气体联合探测，可为自然资源、农业农村、林业和草原、气象等行业应用的观测要素信息提取、业务专题产品批量化生产等业务化运行提供遥感数据支撑，服务现代化基础设施体系构建。
+近日，港股“全栈式智能场内物流机器人第一股”凯乐士科技正式登陆港交所，公司聚焦智能场内物流机器人领域。
 
-高精度温室气体综合探测卫星入轨后，将与大气环境监测卫星协同观测，构建主动激光、紫外、可见光、红外等综合观测手段的环境监测天基平台，大幅提升中国温室气体、污染气体、气溶胶等高精度监测能力，为全球气候变化研究、节能减排、环境外交与履约、污染防治等生态环境管理提供技术支撑。
+据招股书披露，按2024年收入统计，凯乐士跻身国内第五大综合智能场内物流解决方案提供商，整体市场份额达1.6%；在细分赛道上，公司核心产品极窄巷道自主移动机器人（VNA AMR）表现尤为突出，出货量市占率高达19.3%，稳居行业第一。
 
-执行本次发射任务的长征四号丙运载火箭是一款常温液体三级运载火箭，具备发射多种类型、不同轨道要求卫星的能力，可实施一箭一星或多星发射，700公里太阳同步轨道运载能力为3吨。
+值得关注的是，IPO前，公司创始人、董事长兼CEO谷春光博士通过一致行动安排控制公司约40.3%的投票权。
 
-此次任务是长征系列运载火箭的第638次飞行。
+顺丰关联方为最大的外部机构股东，通过顺丰科技及苏州汇道合计持股超过14%（上市调整后仍持有12.89%的股份）。
 
-本次任务星箭均由中国航天科技集团八院抓总研制。
+另值得注意的是，凯乐士科技曾深度绑定顺丰，2022年至2023年顺丰连续两年为其第二大客户，贡献近亿元年收入，但2024年顺丰退出前五大客户之列。
 
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 01:35 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 01:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 01:28 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 01:36 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 01:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 01:31 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 01:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 01:25 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 01:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 01:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 01:26 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 01:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 01:19 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 01:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 01:36 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 01:29 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 01:37 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 01:29 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 01:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 01:35 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 01:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 01:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 01:22 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 01:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 01:40 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/20464497.shtml)
-- 2026-06-30 01:33 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/53140909923.shtml)
-- 2026-06-30 01:31 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/452202978.shtml)
-- 2026-06-30 01:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/462829.shtml)
-- 2026-06-30 01:36 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/249224558.shtml)
-- 2026-06-30 01:12 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/675495843974.shtml)
-- 2026-06-30 01:30 - [房价什么时候能涨](http://www.share.minike.top/Article/details/435899949.shtml)
-- 2026-06-30 01:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/9991541240.shtml)
-- 2026-06-30 01:36 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/891629.shtml)
-- 2026-06-30 01:12 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/084893.shtml)
-- 2026-06-30 01:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/56756.shtml)
-- 2026-06-30 01:20 - [扬名立万](http://www.blog.minike.top/Article/details/61854.shtml)
-- 2026-06-30 01:39 - [这一刀 会很帅](https://www.share.minike.top/Article/details/5980024.shtml)
-- 2026-06-30 01:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/4711914331.shtml)
-- 2026-06-30 01:34 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/044667946.shtml)
+- 2026-06-30 01:42 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/1945311.shtml)
+- 2026-06-30 01:29 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/88082554481.shtml)
+- 2026-06-30 01:19 - [勇敢的心第二部](http://www.share.minike.top/Article/details/29796.shtml)
+- 2026-06-30 01:18 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/920675698.shtml)
+- 2026-06-30 01:41 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/4609473.shtml)
+- 2026-06-30 01:34 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/2073199.shtml)
+- 2026-06-30 01:45 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/8590065.shtml)
+- 2026-06-30 01:39 - [扫黑风暴](https://www.blog.minike.top/Article/details/42184089632.shtml)
+- 2026-06-30 01:23 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/6735019.shtml)
+- 2026-06-30 01:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/27762.shtml)
+- 2026-06-30 01:45 - [世界杯](http://www.share.minike.top/Article/details/29654209.shtml)
+- 2026-06-30 01:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/2473061.shtml)
+- 2026-06-30 01:43 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/548266510.shtml)
+- 2026-06-30 01:46 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/806685429939.shtml)
+- 2026-06-30 01:40 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/43260949.shtml)

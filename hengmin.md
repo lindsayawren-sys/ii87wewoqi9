@@ -1,61 +1,61 @@
-# 霍尔木兹海峡：如何打开“死结”
+# EasyMarkets易信:贵金属反弹 市场情绪与美元走势主导价格
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：陈惟杉 发于2026.4.20总第1232期《中国新闻周刊》杂志 4月13日早上，一位国内货运代理人看到美国封锁霍尔木兹海峡的消息后感慨，“这下更糟糕了”。他称自己从未像现在这样关注国际大事。 自美国、伊朗4月8日宣布停火以来，霍尔木兹海峡的通行情况几次发生变化，外界一度看到通行量上升的曙光，但随着美国宣布封锁海峡，通行量再度暴跌。美伊正在通过层出不穷的封锁措
+4月9日，近期，黄金和白银价格出现明显回升，创下三周高点。EasyMarkets易信认为，美元指数下行是推动贵金属上涨的主要因素，同时投资者对风险资产的谨慎情绪也提振了避险需求。现货黄金一度上涨约140美元至4810美元/盎司，白银上涨约4.5美元至76.5美元/盎司，显示市场正在重新评估资产配置，黄金和白银的避险属性重新受到关注。 能源市场的短期波动对贵金属也产生了影响。西德
 
 ## 正文
 
-中国新闻周刊记者：陈惟杉 发于2026.4.20总第1232期《中国新闻周刊》杂志 4月13日早上，一位国内货运代理人看到美国封锁霍尔木兹海峡的消息后感慨，“这下更糟糕了”。
+4月9日，近期，黄金和白银价格出现明显回升，创下三周高点。
 
-他称自己从未像现在这样关注国际大事。
+EasyMarkets易信认为，美元指数下行是推动贵金属上涨的主要因素，同时投资者对风险资产的谨慎情绪也提振了避险需求。
 
-自美国、伊朗4月8日宣布停火以来，霍尔木兹海峡的通行情况几次发生变化，外界一度看到通行量上升的曙光，但随着美国宣布封锁海峡，通行量再度暴跌。
+现货黄金一度上涨约140美元至4810美元/盎司，白银上涨约4.5美元至76.5美元/盎司，显示市场正在重新评估资产配置，黄金和白银的避险属性重新受到关注。
 
-美伊正在通过层出不穷的封锁措施争夺海峡的控制权，而航运业，以及众多国际贸易的参与者正在为此买单。
+能源市场的短期波动对贵金属也产生了影响。
 
-海峡对峙再升级 在美伊谈判并未达成协议后，美国总统特朗普在社交平台发帖称，美国海军将开始封锁所有试图进出霍尔木兹海峡的船只。
+西德克萨斯中质原油（WTI）期货价格回落约15%，布伦特原油下跌约13%，市场对供应和需求前景的预期有所缓和。
 
-根据他的多条帖文，以及在接受福克斯采访时的表述，“封锁霍尔木兹海峡”主要包含两层含义，一方面是阻止向伊朗支付通行费的船只通过海峡，另一方面是开始清除水雷。
+EasyMarkets易信表示，油价回落不仅缓解了部分能源行业压力，也降低了整体通胀预期，为贵金属提供了支撑。
 
-不过，美国中央司令部当天发表声明，关于“封锁”的表述并不相同。
+从技术面来看，黄金若能稳固突破4800美元关口，将可能吸引更多多头资金关注，而关键上行压力位仍在5000美元附近。
 
-其表示将于美国东部时间4月13日上午10时(北京时间4月13日晚上10时)起，对所有进出伊朗港口的海上交通实施封锁，但是不会阻碍往返于非伊朗港口的船只通过霍尔木兹海峡。
+白银突破76美元关口后短期仍有上涨潜力，但易受美元波动和利率预期影响。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 01:38 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-30 01:32 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 01:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 01:26 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 01:25 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 01:28 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 01:23 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 01:18 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 01:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 01:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 01:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 01:32 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 01:23 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 01:22 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 01:22 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 01:46 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 01:28 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 01:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 01:28 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 01:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 01:35 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 01:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 01:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 01:45 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-30 01:22 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 01:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 01:36 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 01:47 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 01:20 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/896637247598.shtml)
-- 2026-06-30 01:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/95569495.shtml)
-- 2026-06-30 01:23 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/362869.shtml)
-- 2026-06-30 01:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/1135804.shtml)
-- 2026-06-30 01:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/50739080263.shtml)
-- 2026-06-30 01:35 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/54606.shtml)
-- 2026-06-30 01:28 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/06853.shtml)
-- 2026-06-30 01:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/330794621.shtml)
-- 2026-06-30 01:31 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/313316639836.shtml)
-- 2026-06-30 01:35 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/95106911.shtml)
-- 2026-06-30 01:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/56000433.shtml)
-- 2026-06-30 01:35 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/08944403.shtml)
-- 2026-06-30 01:28 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/9160122398.shtml)
-- 2026-06-30 01:17 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/2547788281.shtml)
-- 2026-06-30 01:31 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/34658156.shtml)
+- 2026-06-30 01:47 - [美人鱼](http://www.share.minike.top/Article/details/540653339.shtml)
+- 2026-06-30 01:38 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/791658030.shtml)
+- 2026-06-30 01:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/1940860000.shtml)
+- 2026-06-30 01:27 - [急先锋](http://www.blog.kurohicncr.top/Article/details/80653.shtml)
+- 2026-06-30 01:41 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/5445681.shtml)
+- 2026-06-30 01:41 - [锐评T1零封KC](https://www.share.minike.top/Article/details/9710378046.shtml)
+- 2026-06-30 01:32 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/353978.shtml)
+- 2026-06-30 01:22 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/6850825204.shtml)
+- 2026-06-30 01:34 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/93524.shtml)
+- 2026-06-30 01:47 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/9171510654.shtml)
+- 2026-06-30 01:29 - [天道](https://www.blog.kurohicncr.top/Article/details/405984097.shtml)
+- 2026-06-30 01:19 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/817317778.shtml)
+- 2026-06-30 01:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/186335.shtml)
+- 2026-06-30 01:26 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/24159.shtml)
+- 2026-06-30 01:31 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/0111728.shtml)

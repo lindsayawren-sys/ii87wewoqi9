@@ -1,53 +1,60 @@
-# 伊朗警告：美勿充当霍尔木兹海峡“警察”
+# 上海金融圈，突传大消息！
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网4月17日电 据外媒报道，伊朗最高领袖军事顾问穆赫辛·雷扎伊15日警告称，如果美国在霍尔木兹海峡“指手划脚”，伊朗将击沉美军船舰。 据报道，雷扎伊当天在接受伊朗国家电视台采访时说，“(美国总统)特朗普想当霍尔木兹海峡的警察”，这难道是美军的真正职责所在吗？ 雷扎伊警告称，美军船舰处于伊朗导弹射程内，伊朗将“摧毁”它们。“我们会击沉所有船只。没有人能逃脱我们的追击。”
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】万家基金董事长方一天或将离职，陈广益有望接任董事长职务，莫海波或将出任新一任总经理 中国基金报记者 方丽 陆慧婧 沪上公募基金圈即将迎来重磅人事变动。 据中国基金报记者了解，目前担任万家基金董事长超过十年的方一天未来或将离职，现任总经理陈广益有望接任董事长职务，现任副总经理莫海波或将出任公司新一任总
 
 ## 正文
 
-中新网4月17日电 据外媒报道，伊朗最高领袖军事顾问穆赫辛·雷扎伊15日警告称，如果美国在霍尔木兹海峡“指手划脚”，伊朗将击沉美军船舰。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据报道，雷扎伊当天在接受伊朗国家电视台采访时说，“(美国总统)特朗普想当霍尔木兹海峡的警察”，这难道是美军的真正职责所在吗？
+【导读】万家基金董事长方一天或将离职，陈广益有望接任董事长职务，莫海波或将出任新一任总经理 中国基金报记者 方丽 陆慧婧 沪上公募基金圈即将迎来重磅人事变动。
 
-雷扎伊警告称，美军船舰处于伊朗导弹射程内，伊朗将“摧毁”它们。
+据中国基金报记者了解，目前担任万家基金董事长超过十年的方一天未来或将离职，现任总经理陈广益有望接任董事长职务，现任副总经理莫海波或将出任公司新一任总经理。
 
-“我们会击沉所有船只。
+方一天的下一站或是上海一家大型基金公司。
 
-没有人能逃脱我们的追击。
+据了解，该基金公司的总经理临近退休年龄，方一天或将接任该公司总经理职务。
 
-”
+万家基金董事长方一天或将离职 上海又一家知名基金公司即将迎来高管变更。
+
+据中国基金报记者了解，万家基金董事长方一天或将离任。
+
+公开资料显示，方一天是中共党员，拥有大学学历，曾先后在上海财政证券公司、中国证监会系统、上证所信息网络有限公司任职，他于2014年10月加入万家基金，2014年12月起任公司董事，2015年2月起任公司总经理，2015年7月23日，出任公司董事长。
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 01:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 01:30 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 01:32 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 01:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 01:15 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 01:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 01:13 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 01:12 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 01:37 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 01:14 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 01:40 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 01:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 01:29 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 01:29 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 01:31 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 01:44 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 01:25 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 01:35 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 01:41 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 01:38 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 01:40 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 01:35 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 01:19 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 01:30 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:29 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/601802840026.shtml)
-- 2026-06-30 01:30 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/69993.shtml)
-- 2026-06-30 01:22 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/826167.shtml)
-- 2026-06-30 01:22 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/154281675.shtml)
-- 2026-06-30 01:28 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/513637739326.shtml)
-- 2026-06-30 01:24 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/73652.shtml)
-- 2026-06-30 01:37 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/130269862373.shtml)
-- 2026-06-30 01:16 - [沙丘](https://www.blog.kurohicncr.top/Article/details/298720930.shtml)
-- 2026-06-30 01:22 - [扬名立万](http://www.share.kurohicncr.top/Article/details/229347.shtml)
-- 2026-06-30 01:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/994932471.shtml)
-- 2026-06-30 01:41 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/84728310629.shtml)
-- 2026-06-30 01:26 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/293791.shtml)
-- 2026-06-30 01:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/636580419994.shtml)
-- 2026-06-30 01:12 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/683982107.shtml)
-- 2026-06-30 01:32 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/505690570.shtml)
+- 2026-06-30 01:33 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/337345.shtml)
+- 2026-06-30 01:45 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/8749246450.shtml)
+- 2026-06-30 01:42 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/157167675.shtml)
+- 2026-06-30 01:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/723864298.shtml)
+- 2026-06-30 01:42 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/04514283.shtml)
+- 2026-06-30 01:47 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/7400403322.shtml)
+- 2026-06-30 01:44 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/27919.shtml)
+- 2026-06-30 01:38 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/080676870896.shtml)
+- 2026-06-30 01:46 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/01867605.shtml)
+- 2026-06-30 01:47 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/08953458.shtml)
+- 2026-06-30 01:35 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/926234.shtml)
+- 2026-06-30 01:29 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/2458974.shtml)
+- 2026-06-30 01:45 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/87109.shtml)
+- 2026-06-30 01:41 - [恋与深空 日服](https://www.blog.minike.top/Article/details/182959852.shtml)
+- 2026-06-30 01:34 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/052420.shtml)

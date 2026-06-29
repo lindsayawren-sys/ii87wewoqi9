@@ -1,56 +1,57 @@
-# 易成栋：二手房销售还有继续上升空间
+# 稳定股市！工行、农行、建行纷纷出手，多家券商积极响应
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月16日电 (记者 王梦瑶)中新社国是直通车16日举行“2026年一季度经济形势分析会”，解读新鲜出炉的一季度经济数据。谈及房地产市场形势，中央财经大学管理科学与工程学院教授易成栋在会上表示，今后二手房销售还会有继续上升的空间。 易成栋表示，中国房地产已经从过去供给短缺的阶段走向了供求基本平衡的阶段，从缺房子的阶段走向了高质量发展阶段。看房地产市场时，不只要看新房，
+近日，银行、券商年报陆续披露。作为稳定资本市场的工具之一，证券、基金、保险公司互换便利业务（简称SFISF）的开展情况备受关注。 年报显示，农行、工行、建行等均参与了互换便利业务，助力资本市场稳定。华泰证券、银河证券、申万宏源、国泰海通等券商也在参与。申万宏源称参与进度保持同业前列，招商证券2025年末互换便利质押式回购余额为50亿元。 去年底，央行货币政策委员会召开2025年
 
 ## 正文
 
-中新网北京4月16日电 (记者 王梦瑶)中新社国是直通车16日举行“2026年一季度经济形势分析会”，解读新鲜出炉的一季度经济数据。
+近日，银行、券商年报陆续披露。
 
-谈及房地产市场形势，中央财经大学管理科学与工程学院教授易成栋在会上表示，今后二手房销售还会有继续上升的空间。
+作为稳定资本市场的工具之一，证券、基金、保险公司互换便利业务（简称SFISF）的开展情况备受关注。
 
-易成栋表示，中国房地产已经从过去供给短缺的阶段走向了供求基本平衡的阶段，从缺房子的阶段走向了高质量发展阶段。
+年报显示，农行、工行、建行等均参与了互换便利业务，助力资本市场稳定。
 
-看房地产市场时，不只要看新房，还要看二手房。
+华泰证券、银河证券、申万宏源、国泰海通等券商也在参与。
 
-他表示，最近几年新房和二手房销售面积总量基本稳定在15亿平方米左右。
+申万宏源称参与进度保持同业前列，招商证券2025年末互换便利质押式回购余额为50亿元。
 
-一个很重要的结构性变化是，在整体市场调整的大背景下，二手房销售面积在2023到2025年保持上升，2025年二手房销售面积占比约一半，房地产市场进入新的发展阶段。
+去年底，央行货币政策委员会召开2025年第四季度例会，提出要有效落实好各类结构性货币政策工具，用好证券、基金、保险公司互换便利和股票回购增持再贷款，探索常态化的制度安排，维护资本市场稳定。
 
-他指出，今后二手房还会有继续上升的空间。
+工农建三大行参与 工商银行称，优化证券、基金、保险公司互换便利和股票回购增持再贷款两项支持资本市场货币政策工具。
 
-对于今年房地产市场总体发展，易成栋表示，市场基本趋势是今年总体趋稳，一线城市有所回暖。
+农业银行在年报中表示，切实履行公开市场业务一级交易商职责，高效配合做好货币政策传导。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 01:34 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 01:18 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 01:18 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 01:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 01:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 01:34 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 01:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 01:35 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 01:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 01:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 01:34 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 01:18 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 01:27 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 01:30 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 01:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 01:21 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 01:30 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 01:39 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 01:47 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 01:45 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/257904445387.shtml)
-- 2026-06-30 01:30 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/80183290503.shtml)
-- 2026-06-30 01:22 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/63387988.shtml)
-- 2026-06-30 01:32 - [时光音乐会](http://www.share.minike.top/Article/details/48954952580.shtml)
-- 2026-06-30 01:30 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/364265705.shtml)
-- 2026-06-30 01:17 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/232797.shtml)
-- 2026-06-30 01:37 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/0591177880.shtml)
-- 2026-06-30 01:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/945800.shtml)
-- 2026-06-30 01:20 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/01615.shtml)
-- 2026-06-30 01:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/252286327.shtml)
-- 2026-06-30 01:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/949840424724.shtml)
-- 2026-06-30 01:17 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/714513467.shtml)
-- 2026-06-30 01:40 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/07092.shtml)
-- 2026-06-30 01:38 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/8180256646.shtml)
-- 2026-06-30 01:40 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.minike.top/Article/details/5058814286.shtml)
+- 2026-06-30 01:47 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/6305458.shtml)
+- 2026-06-30 01:29 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/25454854.shtml)
+- 2026-06-30 01:39 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/9461102.shtml)
+- 2026-06-30 01:35 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/836498430335.shtml)
+- 2026-06-30 01:20 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/2950192.shtml)
+- 2026-06-30 01:46 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/492546311106.shtml)
+- 2026-06-30 01:43 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/100729843701.shtml)
+- 2026-06-30 01:33 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/73500945.shtml)
+- 2026-06-30 01:32 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/3078705196.shtml)
+- 2026-06-30 01:38 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/08633986.shtml)
+- 2026-06-30 01:26 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/449400.shtml)
+- 2026-06-30 01:36 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/09078723.shtml)
+- 2026-06-30 01:35 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/56592.shtml)
+- 2026-06-30 01:38 - [金牌调解](https://www.share.minike.top/Article/details/179255.shtml)
+- 2026-06-30 01:31 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/33585.shtml)

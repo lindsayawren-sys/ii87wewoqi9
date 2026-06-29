@@ -1,56 +1,56 @@
-# 人才缺口百万、企业直招进校：安徽万通技师学院的“产教融合”样本
+# 宇树科技和阿里将有出海战略级合作：宇树机器人上手阿里电脑打字 或将落地速卖通
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-新能源汽车行业的人才供需错配，正在从“招聘难”演变为“上岗更难”。官方数据显示，仅新能源汽车维修领域，全国缺口即超百万人。智能制造、PLC编程、工业机器人等岗位供需矛盾同样突出。企业频繁进校，却常遇“招得来、用不上”。 4月15日，中国东方教育（00667.HK）旗下安徽万通技师学院的一场春季招聘会，提供了一个可量化的对照样本：比亚迪、奇瑞、途虎等70余家企业携上千岗位进场，新
+快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。 消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。该项目预计将在 4 月
 
 ## 正文
 
-新能源汽车行业的人才供需错配，正在从“招聘难”演变为“上岗更难”。
+快科技4月9日消息，据申妈的朋友圈今日消息，知情人士透露，宇树科技与阿里正酝酿一项重要的出海战略合作。
 
-官方数据显示，仅新能源汽车维修领域，全国缺口即超百万人。
+宇树科技的最新款机器人R1 近日出现在阿里西溪园区，机器人坐在阿里园区公共区域、在一台电脑前呈打字状态，电脑屏幕上是“邀请函”三个字，并有宇树科技的工作人员随行。
 
-智能制造、PLC编程、工业机器人等岗位供需矛盾同样突出。
+消息提到，围观员工透露，工作人员在现场解释称，此次到访是为一个名为“树卖通”的新项目做准备。
 
-企业频繁进校，却常遇“招得来、用不上”。
+该项目预计将在 4 月中旬于深圳的一场品牌大会上正式对外官宣。
 
-4月15日，中国东方教育（00667.HK）旗下安徽万通技师学院的一场春季招聘会，提供了一个可量化的对照样本：比亚迪、奇瑞、途虎等70余家企业携上千岗位进场，新能源及智能制造岗位占比超六成，多名学生当场获录用意向。
+对于“树卖通”项目，有接近阿里的人士分析认为，从项目名称及宇树科技的海外发展计划来看，此次合作极有可能与阿里巴巴旗下的跨境电商平台 —— 速卖通（AliExpress）相关。
 
-一所技师学院，为何被头部企业视为定点招聘基地？
+值得关注的是，宇树科技与阿里巴巴之间存在业务合作与资本投资的双重关系。
 
-核心机制在于产教融合的具体落地方式。
+具体表现为，在2025年6月19日，阿里巴巴作为领投方之一参与了宇树科技的C轮融资。
 
-传统职业教育长期存在“校热企冷”的问题——学校教的内容滞后于企业需求，学生毕业需要企业再培训3至6个月才能上岗。
+据悉，本轮融资始于2024年9月，由中国移动旗下基金、腾讯、锦秋基金、阿里巴巴、蚂蚁集团、吉利资本联合领投，原股东阵营亦大规模跟投。
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 01:40 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 01:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 01:25 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-30 01:34 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 01:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 01:30 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 01:36 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 01:19 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 01:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 01:20 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 01:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 01:34 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 01:20 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 01:28 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 01:35 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 01:19 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 01:27 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 01:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 01:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/762850158139.shtml)
-- 2026-06-30 01:16 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/84005916952.shtml)
-- 2026-06-30 01:42 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/13151064710.shtml)
-- 2026-06-30 01:28 - [刘念回应](http://www.blog.minike.top/Article/details/543394.shtml)
-- 2026-06-30 01:36 - [女心理师](http://www.blog.minike.top/Article/details/89128.shtml)
-- 2026-06-30 01:24 - [美股](https://www.blog.kurohicncr.top/Article/details/123332.shtml)
-- 2026-06-30 01:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/4911855.shtml)
-- 2026-06-30 01:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/6888299.shtml)
-- 2026-06-30 01:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/21874725572.shtml)
-- 2026-06-30 01:17 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/9304231731.shtml)
-- 2026-06-30 01:32 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/18893230.shtml)
-- 2026-06-30 01:15 - [千与千寻](http://www.share.kurohicncr.top/Article/details/31273469015.shtml)
-- 2026-06-30 01:13 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/280205742.shtml)
-- 2026-06-30 01:35 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/237568574126.shtml)
-- 2026-06-30 01:13 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/02945524.shtml)
+- 2026-06-30 01:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/95324282.shtml)
+- 2026-06-30 01:19 - [流金岁月](https://www.share.minike.top/Article/details/18862693348.shtml)
+- 2026-06-30 01:47 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/2525130312.shtml)
+- 2026-06-30 01:25 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/651858249.shtml)
+- 2026-06-30 01:20 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/43886.shtml)
+- 2026-06-30 01:23 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/7572215.shtml)
+- 2026-06-30 01:18 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/1422910671.shtml)
+- 2026-06-30 01:26 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/076389179075.shtml)
+- 2026-06-30 01:25 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/8371707409.shtml)
+- 2026-06-30 01:26 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/325819003385.shtml)
+- 2026-06-30 01:28 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/950593.shtml)
+- 2026-06-30 01:26 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/0209592240.shtml)
+- 2026-06-30 01:27 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/948887141076.shtml)
+- 2026-06-30 01:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/63654.shtml)
+- 2026-06-30 01:30 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/00831.shtml)

@@ -1,59 +1,60 @@
-# 时政新闻眼丨密集会晤四国政要，习近平为何多次提到“战略定力”？
+# 酒价内参4月10日价格发布，青花汾20小幅回调1元
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-暮春时节，中国元首外交再启“繁忙时刻”。 4月14日至15日，习近平先后在北京人民大会堂同阿联酋阿布扎比王储哈立德，西班牙首相桑切斯，俄罗斯外长拉夫罗夫，越共中央总书记、国家主席苏林举行会见会谈。 引领双边关系发展、破解全球难题困局，习近平在会晤中多次提到“战略定力”，释放重要信息。《时政新闻眼》为你解读。 视频：习近平同越共中央总书记、国家主席苏林举行会谈来源：央视新闻客户端
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月10日延续下行走势。如果主要单品各取一瓶整体打包售卖，今日总售价为9916元，较昨日下跌8元，创下近两周以来新低。部分核心单品连续回落，价格中枢有所下移，后市预计短期仍以弱势整理为主。 今日白酒市场11大单品四涨五跌二平。上涨方面，国窖1573上涨4元/瓶，渠道补货带动价格修复；习酒君品上涨
 
 ## 正文
 
-暮春时节，中国元首外交再启“繁忙时刻”。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月10日延续下行走势。
 
-4月14日至15日，习近平先后在北京人民大会堂同阿联酋阿布扎比王储哈立德，西班牙首相桑切斯，俄罗斯外长拉夫罗夫，越共中央总书记、国家主席苏林举行会见会谈。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9916元，较昨日下跌8元，创下近两周以来新低。
 
-引领双边关系发展、破解全球难题困局，习近平在会晤中多次提到“战略定力”，释放重要信息。
+部分核心单品连续回落，价格中枢有所下移，后市预计短期仍以弱势整理为主。
 
-《时政新闻眼》为你解读。
+今日白酒市场11大单品四涨五跌二平。
 
-视频：习近平同越共中央总书记、国家主席苏林举行会谈来源：央视新闻客户端 01 这些细节见证特殊情谊 15日上午，习近平总书记、国家主席为越共中央总书记、国家主席苏林举行的一系列国事活动在人民大会堂密集展开。
+上涨方面，国窖1573上涨4元/瓶，渠道补货带动价格修复；习酒君品上涨2元/瓶；五粮液1618与洋河梦之蓝M6+均小幅上涨1元/瓶，其中洋河梦之蓝M6+实现三连阳。
 
-三个细节，《时政新闻眼》带你“打开”这场备受瞩目的元首外交。
+下跌方面，精品茅台跌幅居前，下调5元/瓶，受市场化定价及渠道再平衡影响；五粮液普五八代下跌4元/瓶；飞天茅台与青花郎均下跌3元/瓶；青花汾20小幅回调1元/瓶。
 
-一首歌曲。
+古井贡古20及水晶剑南春价格环比保持不变。
 
-“共饮一江水，早相见、晚相望，清晨共听雄鸡高唱。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 01:31 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 01:30 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 01:26 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-30 01:18 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 01:29 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 01:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 01:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 01:37 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 01:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 01:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-30 01:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 01:34 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 01:40 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 01:38 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 01:20 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 01:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 01:44 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 01:27 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 01:21 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 01:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 01:40 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 01:35 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 01:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 01:32 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 01:18 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 01:47 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/58771885571.shtml)
-- 2026-06-30 01:31 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/54335689.shtml)
-- 2026-06-30 01:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/1835360.shtml)
-- 2026-06-30 01:22 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/5771679.shtml)
-- 2026-06-30 01:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/81518.shtml)
-- 2026-06-30 01:27 - [金刚川](https://www.blog.minike.top/Article/details/107557674.shtml)
-- 2026-06-30 01:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/411514321.shtml)
-- 2026-06-30 01:25 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/5271648.shtml)
-- 2026-06-30 01:27 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/525282660.shtml)
-- 2026-06-30 01:24 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/6741889.shtml)
-- 2026-06-30 01:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/29733328.shtml)
-- 2026-06-30 01:25 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/22954.shtml)
-- 2026-06-30 01:38 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/66069761930.shtml)
-- 2026-06-30 01:20 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/8940952.shtml)
-- 2026-06-30 01:27 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/4616978385.shtml)
+- 2026-06-30 01:36 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/16436.shtml)
+- 2026-06-30 01:38 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/903050724.shtml)
+- 2026-06-30 01:29 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/082375.shtml)
+- 2026-06-30 01:27 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/965712501.shtml)
+- 2026-06-30 01:18 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/88891828702.shtml)
+- 2026-06-30 01:43 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/66595356647.shtml)
+- 2026-06-30 01:39 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/100342699955.shtml)
+- 2026-06-30 01:29 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/037577326.shtml)
+- 2026-06-30 01:19 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/36056457977.shtml)
+- 2026-06-30 01:35 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/0954257.shtml)
+- 2026-06-30 01:42 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/57173.shtml)
+- 2026-06-30 01:33 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/05406788.shtml)
+- 2026-06-30 01:30 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/62279.shtml)
+- 2026-06-30 01:46 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/800003218.shtml)
+- 2026-06-30 01:45 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/224398.shtml)

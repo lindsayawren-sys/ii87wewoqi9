@@ -1,57 +1,55 @@
-# Anthropic的Mythos并不威胁比特币 加密货币交易所才面临真正的AI风险
+# 建设银行：同意提名孙孝坤担任执行董事
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-作者：塔娜娅・马切尔 加密行业有一句名言：私钥不在你手，币就不属于你。这通常是在提醒投资者，把加密货币存放在离线钱包更安全，相比你无法掌控钱包私钥的在线交易所，离线钱包更难被攻击。 然而到目前为止，学习自主保管加密资产的复杂流程，让许多潜在投资者望而却步，这也让 Coinbase、Gemini 等行业早期交易所得以迅速发展壮大。 但随着资产数字化程度空前提高、AI 能力持续增强
+4月9日金融一线消息，建设银行今日发布董事会会议决议公告，会议审议通过《关于提名孙孝坤先生担任本行执行董事的议案》，同意提名孙孝坤担任建设银行执行董事；同意担任董事会战略发展委员会和风险管理委员会委员，任职期限与其担任本行执行董事的任职期限相同。 简历显示，孙孝坤，1968年7月出生，中国国籍。自2026年3月起任建设银行党委副书记。高级经济师，1990年获复旦大学理学学士学位
 
 ## 正文
 
-作者：塔娜娅・马切尔 加密行业有一句名言：私钥不在你手，币就不属于你。
+4月9日金融一线消息，建设银行今日发布董事会会议决议公告，会议审议通过《关于提名孙孝坤先生担任本行执行董事的议案》，同意提名孙孝坤担任建设银行执行董事；同意担任董事会战略发展委员会和风险管理委员会委员，任职期限与其担任本行执行董事的任职期限相同。
 
-这通常是在提醒投资者，把加密货币存放在离线钱包更安全，相比你无法掌控钱包私钥的在线交易所，离线钱包更难被攻击。
+简历显示，孙孝坤，1968年7月出生，中国国籍。
 
-然而到目前为止，学习自主保管加密资产的复杂流程，让许多潜在投资者望而却步，这也让 Coinbase、Gemini 等行业早期交易所得以迅速发展壮大。
+自2026年3月起任建设银行党委副书记。
 
-但随着资产数字化程度空前提高、AI 能力持续增强，这一格局可能正在逆转。
+高级经济师，1990年获复旦大学理学学士学位，2004年获暨南大学经济学硕士学位。
 
-像 Anthropic 的 Mythos 这类 AI 模型，能够以极快速度和前所未有的精度挖掘软件漏洞，可能会引发一轮针对加密货币相关企业的新型攻击浪潮 —— 而这个行业本就一直在努力摆脱多年来频发黑客攻击、诈骗与漏洞利用的负面形象。
+孙孝坤于2023年9月至2026年3月任中国农业发展银行副行长；2023年5月至2023年9月任国家开发银行信息科技部总经理；2020年8月至2023年5月任国开证券股份有限公司董事长；2019年4月至2020年8月任国家开发银行巡视工作领导小组办公室主任；2017年5月至2019年4月任国开证券股份有限公司监事长；2016年6月至2017年5月任中非发展基金有限公司监事长；2010年10月至2016年6月先后任国家开发银行风险管理局副局长、信息科技局副局长兼数据运行中心主任、信息科技局副局长兼开发测试中心主任、人事局副局长。
 
-部分加密资产投资者可以放心的是，比特币区块链本身从未被攻破，自 2009 年以来一直安全稳定运行。
-
-加密投资领域如今已远超代币本身，扩展到各类加密主题 ETF 与股票，而类似 Mythos 的 AI 威胁，大概率不会改变比特币的安全现状。
-
-“比特币的核心安全由密码学和一套共识规则保障，”Swan Bitcoin 首席技术官扬・普里茨克表示，“密码学本身不受 AI 影响，而共识规则由全球运行比特币的用户网络共同维护。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 01:18 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 01:29 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 01:38 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 01:14 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 01:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 01:26 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 01:27 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 01:29 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 01:21 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:34 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 01:23 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 01:36 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 01:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 01:27 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 01:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 01:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 01:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 01:32 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 01:29 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 01:19 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 01:21 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-30 01:42 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 01:27 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 01:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/88310449.shtml)
-- 2026-06-30 01:29 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/5197033.shtml)
-- 2026-06-30 01:34 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/9339016.shtml)
-- 2026-06-30 01:30 - [国常会听取人工智能发展情况汇报](https://www.blog.kurohicncr.top/Article/details/549793.shtml)
-- 2026-06-30 01:26 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/448215782.shtml)
-- 2026-06-30 01:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/45284324260.shtml)
-- 2026-06-30 01:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/220987191988.shtml)
-- 2026-06-30 01:18 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/702186486.shtml)
-- 2026-06-30 01:29 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/1939998.shtml)
-- 2026-06-30 01:19 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/44582.shtml)
-- 2026-06-30 01:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/88309.shtml)
-- 2026-06-30 01:24 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/695530.shtml)
-- 2026-06-30 01:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/902868118915.shtml)
-- 2026-06-30 01:36 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/87550609811.shtml)
-- 2026-06-30 01:39 - [恋与深空 巧合](https://www.share.minike.top/Article/details/231270.shtml)
+- 2026-06-30 01:41 - [速度与激情9](http://www.share.minike.top/Article/details/75930.shtml)
+- 2026-06-30 01:44 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/59869826.shtml)
+- 2026-06-30 01:43 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/0615331.shtml)
+- 2026-06-30 01:36 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/57201029.shtml)
+- 2026-06-30 01:24 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/4176952.shtml)
+- 2026-06-30 01:35 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/032360.shtml)
+- 2026-06-30 01:21 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/93931.shtml)
+- 2026-06-30 01:40 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/21441.shtml)
+- 2026-06-30 01:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/76285693.shtml)
+- 2026-06-30 01:38 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/6464293.shtml)
+- 2026-06-30 01:26 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/554777270.shtml)
+- 2026-06-30 01:21 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/535086405.shtml)
+- 2026-06-30 01:40 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/9562193455.shtml)
+- 2026-06-30 01:47 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/793213653356.shtml)
+- 2026-06-30 01:34 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/66555827.shtml)

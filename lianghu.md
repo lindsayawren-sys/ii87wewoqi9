@@ -1,60 +1,60 @@
-# 特朗普：黎巴嫩和以色列将停火10天
+# 中金涨薪了！人均薪酬涨至80万 董事长陈亮年薪微降1万
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿4月16日电 (记者 陈孟统)美国总统特朗普16日宣布，黎巴嫩和以色列将于美东时间当天17时(黎以当地时间17日零时)正式开始停火，为期10天。 黎以冲突因美以2月底对伊朗发起大规模军事行动而重新爆发。在美伊谈判的同时，伊朗一直主张其与美以的临时停火应包含黎巴嫩。4月14日，黎以美在华盛顿举行三方会谈，与会方一致同意，将在黎以双方商定的时间和地点正式启动两国直接谈判
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源|腾讯财经 文|王立广 编辑|刘鹏 2025年，中国资本市场走出资产重估行情，在全球主要市场中涨幅靠前，在行情回暖及资本市场改革有序推进的背景下，券商行业业绩普遍上涨，中金公司在成立三十周年之际，交出了一份营收、净利双增的成绩单。 财报显示，2025年中金公司实现营业收入284.81亿元，同比增长33.
 
 ## 正文
 
-中新社华盛顿4月16日电 (记者 陈孟统)美国总统特朗普16日宣布，黎巴嫩和以色列将于美东时间当天17时(黎以当地时间17日零时)正式开始停火，为期10天。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-黎以冲突因美以2月底对伊朗发起大规模军事行动而重新爆发。
+来源|腾讯财经 文|王立广 编辑|刘鹏 2025年，中国资本市场走出资产重估行情，在全球主要市场中涨幅靠前，在行情回暖及资本市场改革有序推进的背景下，券商行业业绩普遍上涨，中金公司在成立三十周年之际，交出了一份营收、净利双增的成绩单。
 
-在美伊谈判的同时，伊朗一直主张其与美以的临时停火应包含黎巴嫩。
+财报显示，2025年中金公司实现营业收入284.81亿元，同比增长33.50%，归属于母公司股东的净利润达97.91亿元，同比大幅增长71.93%。
 
-4月14日，黎以美在华盛顿举行三方会谈，与会方一致同意，将在黎以双方商定的时间和地点正式启动两国直接谈判。
+2025年末，其总资产为7828.26亿元，同比增长16.02%，净资产为1220.58亿元，同比增长5.82%。
 
-特朗普16日通过社交媒体宣布，他当天与黎巴嫩总统奥恩、以色列总理内塔尼亚胡通电话，黎以领导人已就停火达成一致。
+薪酬方面，随着经营业绩的回暖，2025年中金公司员工人均薪酬为79．93万元，较2024年人均薪酬上涨24．40%，不过较2020年其员工人均薪酬仍大幅下降35．53%。
 
-他已指示美国副总统万斯、国务卿鲁比奥、美军参谋长联席会议主席凯恩与黎以两方合作，推动实现两国持久和平。
+与员工人均薪酬上涨不同，中金公司董监高薪酬在2025年普遍微降，且较2020年已经大幅缩水。
 
-特朗普还表示，他将很快邀请奥恩和内塔尼亚胡到白宫会谈，这将是“1983年以来黎以之间首次具有实质意义的会谈”。
+当前，中金公司正积极推进吸收合并东兴证券、信达证券，试图通过“1+2>3”的整合效应，加速迈向国际一流投行目标。
 
-黎巴嫩和以色列两国没有建立外交关系。
+中金公司合并东兴、信达后 净利润居行业第四 中金公司2025年全年营收与净利润大幅增长，分季度看，2025年第一季度实现营收57.21亿元，后三个季度营收均超70亿元，分别为71.07亿元、79.33亿元、77.20亿元。
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 01:20 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 01:16 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 01:35 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 01:35 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 01:23 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 01:22 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 01:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 01:20 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 01:41 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 01:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 01:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 01:19 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 01:22 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 01:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 01:38 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 01:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 01:25 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 01:39 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 01:45 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 01:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 01:45 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 01:33 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 01:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 01:31 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 01:47 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:43 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/5858254.shtml)
-- 2026-06-30 01:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/2351437.shtml)
-- 2026-06-30 01:29 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/47332.shtml)
-- 2026-06-30 01:28 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/510594425.shtml)
-- 2026-06-30 01:24 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/7611431.shtml)
-- 2026-06-30 01:34 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/95955.shtml)
-- 2026-06-30 01:29 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/474843186463.shtml)
-- 2026-06-30 01:20 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/33695261760.shtml)
-- 2026-06-30 01:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/56806992474.shtml)
-- 2026-06-30 01:15 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/350944593.shtml)
-- 2026-06-30 01:23 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/4596580.shtml)
-- 2026-06-30 01:12 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/467826938.shtml)
-- 2026-06-30 01:26 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/492764.shtml)
-- 2026-06-30 01:38 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/83277027.shtml)
-- 2026-06-30 01:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/94443622295.shtml)
+- 2026-06-30 01:26 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/9147601.shtml)
+- 2026-06-30 01:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/18701234.shtml)
+- 2026-06-30 01:45 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/097469956.shtml)
+- 2026-06-30 01:30 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/88434.shtml)
+- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/92039012.shtml)
+- 2026-06-30 01:35 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/945005646758.shtml)
+- 2026-06-30 01:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/070346781.shtml)
+- 2026-06-30 01:20 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/6155755892.shtml)
+- 2026-06-30 01:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/53038.shtml)
+- 2026-06-30 01:24 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/87068221.shtml)
+- 2026-06-30 01:26 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/19743.shtml)
+- 2026-06-30 01:38 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/26097086961.shtml)
+- 2026-06-30 01:24 - [新官上任三把火](https://www.blog.minike.top/Article/details/207439822014.shtml)
+- 2026-06-30 01:47 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/5179137082.shtml)
+- 2026-06-30 01:42 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/34806664.shtml)

@@ -1,58 +1,52 @@
-# 2026年3月份规上工业原油产量1907万吨 同比增长0.2%
+# 兴发集团：草甘膦价格上行 行业供需格局整体偏紧
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网4月16日电 据国家统计局网站消息，国家统计局16日发布2026年3月份能源生产情况。3月份，规模以上工业(以下简称规上工业)原煤生产规模稳定，原油生产保持增长，天然气生产增速加快，电力生产稳定增长。 一、原煤、原油和天然气生产及相关情况 原煤生产规模稳定。3月份，规上工业原煤产量4.4亿吨，同比持平；日均产量1421万吨。 1—3月份，规上工业原煤产量12.0亿吨，同比
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：人民财讯 兴发集团近日接受机构调研时表示，截至2026年3月末，国内草甘膦原药报价2.95万元/吨，呈现稳步上行趋势；美国已将草甘膦列为国防关键物资，国际市场价格获得政策提振。本轮草甘膦价格上行主要受海外旺季需求强劲、上游原材料成本攀升及供给端环保限产等多重因素共振驱动，行业供需格局整体偏紧。责任编辑
 
 ## 正文
 
-中新网4月16日电 据国家统计局网站消息，国家统计局16日发布2026年3月份能源生产情况。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-3月份，规模以上工业(以下简称规上工业)原煤生产规模稳定，原油生产保持增长，天然气生产增速加快，电力生产稳定增长。
+来源：人民财讯 兴发集团近日接受机构调研时表示，截至2026年3月末，国内草甘膦原药报价2.95万元/吨，呈现稳步上行趋势；美国已将草甘膦列为国防关键物资，国际市场价格获得政策提振。
 
-一、原煤、原油和天然气生产及相关情况 原煤生产规模稳定。
+本轮草甘膦价格上行主要受海外旺季需求强劲、上游原材料成本攀升及供给端环保限产等多重因素共振驱动，行业供需格局整体偏紧。
 
-3月份，规上工业原煤产量4.4亿吨，同比持平；日均产量1421万吨。
-
-1—3月份，规上工业原煤产量12.0亿吨，同比增长0.1%。
-
-原油生产保持增长。
-
-3月份，规上工业原油产量1907万吨，同比增长0.2%；日均产量61.5万吨。
-
-1—3月份，规上工业原油产量5480万吨，同比增长1.3%。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 01:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 01:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 01:18 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 01:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:21 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 01:18 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 01:18 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 01:39 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 01:12 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:12 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 01:39 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 01:12 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 01:27 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 01:43 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 01:39 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 01:26 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 01:25 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 01:31 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 01:30 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 01:46 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 01:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 01:46 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 01:47 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-30 01:40 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 01:24 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 01:18 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [沉睡花园](https://www.blog.minike.top/Article/details/865276965212.shtml)
-- 2026-06-30 01:33 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/95205.shtml)
-- 2026-06-30 01:31 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/8870743.shtml)
-- 2026-06-30 01:19 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/490864266.shtml)
-- 2026-06-30 01:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/34943577.shtml)
-- 2026-06-30 01:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/578894396.shtml)
-- 2026-06-30 01:18 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/571581308.shtml)
-- 2026-06-30 01:14 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/7630261589.shtml)
-- 2026-06-30 01:14 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/31189552031.shtml)
-- 2026-06-30 01:28 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/82736378926.shtml)
-- 2026-06-30 01:25 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/67785603.shtml)
-- 2026-06-30 01:31 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/56589425.shtml)
-- 2026-06-30 01:36 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/29365027.shtml)
-- 2026-06-30 01:29 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/36860608.shtml)
-- 2026-06-30 01:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/39121023.shtml)
+- 2026-06-30 01:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/341502532.shtml)
+- 2026-06-30 01:18 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/3049473134.shtml)
+- 2026-06-30 01:28 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/857410834.shtml)
+- 2026-06-30 01:37 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/3224591910.shtml)
+- 2026-06-30 01:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/49400023.shtml)
+- 2026-06-30 01:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/002181.shtml)
+- 2026-06-30 01:29 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/219153913229.shtml)
+- 2026-06-30 01:21 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/05495.shtml)
+- 2026-06-30 01:23 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/85431176.shtml)
+- 2026-06-30 01:40 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/163226364443.shtml)
+- 2026-06-30 01:23 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/866066885.shtml)
+- 2026-06-30 01:20 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/4299171210.shtml)
+- 2026-06-30 01:36 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/5635993.shtml)
+- 2026-06-30 01:24 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/5390983922.shtml)
+- 2026-06-30 01:36 - [速度与激情9](https://www.blog.minike.top/Article/details/091382.shtml)

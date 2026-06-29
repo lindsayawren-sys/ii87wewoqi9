@@ -1,60 +1,61 @@
-# 珠江流域部分中小河流近期可能出现超警洪水
+# 四川：让代表“良言”转化为治理实效
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月15日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)15日消息，近期，珠江流域西江支流柳江、桂江等河流将出现涨水过程，暴雨区内可能出现中小河流超警洪水，发生山洪灾害风险高。 珠江委介绍，受高空槽、西南气流、切变线影响，预计15日至17日，珠江流域贵州东南部、广西东北部、广东北部等地部分地区累计降雨量有50至100毫米，局地可能超过100毫米，西江支流柳
+中新网成都4月9日电 (程兆)四川省十四届人大五次会议代表建议、批评和意见交办会议9日在成都举行。会议聚焦高质量做好代表建议办理工作，承办单位代表与四川省人大代表现场交流发言，推动代表建议从“提得好”进一步迈向“办得实、落得下”。 代表建议工作，一头连着发展大局，一头系着民生冷暖。四川省人大常委会党组书记、副主任王雁飞在讲话中指出，代表建议的高质量提出，是将“良言”变为“良策”
 
 ## 正文
 
-中新网广州4月15日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)15日消息，近期，珠江流域西江支流柳江、桂江等河流将出现涨水过程，暴雨区内可能出现中小河流超警洪水，发生山洪灾害风险高。
+中新网成都4月9日电 (程兆)四川省十四届人大五次会议代表建议、批评和意见交办会议9日在成都举行。
 
-珠江委介绍，受高空槽、西南气流、切变线影响，预计15日至17日，珠江流域贵州东南部、广西东北部、广东北部等地部分地区累计降雨量有50至100毫米，局地可能超过100毫米，西江支流柳江、桂江等河流将出现涨水过程，暴雨区内可能出现中小河流超警洪水，发生山洪灾害风险高。
+会议聚焦高质量做好代表建议办理工作，承办单位代表与四川省人大代表现场交流发言，推动代表建议从“提得好”进一步迈向“办得实、落得下”。
 
-同时，近期海南维持高温少雨天气，气象干旱可能进一步发展。
+代表建议工作，一头连着发展大局，一头系着民生冷暖。
 
-珠江防总常务副总指挥、珠江委主任吴小龙对近期流域水旱灾害防御工作提出明确要求，强调要立足防大汛、抗大旱，坚持旱涝同防同治，全力以赴做好各项防范应对措施，牢牢守住流域水旱灾害防御底线。
+四川省人大常委会党组书记、副主任王雁飞在讲话中指出，代表建议的高质量提出，是将“良言”变为“良策”；代表建议的高质量办理，则让“良策”结出“良效”。
 
-近日，珠江委召开会商会，分析研判流域防汛抗旱形势，安排部署近期防御重点工作。
+王雁飞表示，今年是“十五五”开局之年，今年四川省人代会上，代表们提出的1328件建议中，近一半聚焦当前四川经济社会发展的重点工作和瓶颈短板。
 
-会商要求，要密切监视流域雨情、水情、汛情、旱情发展态势，滚动预测预报，做好暴雨区内中小河流洪水预报，强化短临暴雨预警，提前发出预警信息直达防御一线。
+各承办单位要把办理代表建议同贯彻落实“十五五”发展目标任务、本领域本部门重点工作结合起来，认真回应代表关切，提升办理落实率和满意率，更好把人民代表大会制度优势转化为治理效能。
 
-同时，要突出抓好山洪灾害和中小河流洪水防御，指导地方严格落实临灾预警“叫应”机制和人员转移“五个关键环节”措施，坚决避免人员伤亡。
+会上，四川省法院、省检察院、省广播电视局交流办理经验，四川省人大常委会委员罗毅和省人大预算委委员张睿作交流发言。
 
-要动态梳理风险隐患，全面掌握暴雨区内中小水库、病险水库、在建水利工程清单，督促地方落实安全责任和抢护措施，确保工程安全度汛。
+“每一条建议背后都是老百姓的期盼。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 01:27 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 01:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 01:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 01:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 01:33 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 01:27 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 01:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 01:42 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 01:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 01:15 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 01:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 01:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 01:32 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 01:24 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 01:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 01:42 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-30 01:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 01:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 01:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 01:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 01:25 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 01:38 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 01:46 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 01:45 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 01:35 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 01:20 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 01:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 01:29 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/34971453562.shtml)
-- 2026-06-30 01:34 - [明星大侦探第一季](https://www.share.minike.top/Article/details/5347744.shtml)
-- 2026-06-30 01:24 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/00808372785.shtml)
-- 2026-06-30 01:21 - [速度与激情9](http://www.share.minike.top/Article/details/93223.shtml)
-- 2026-06-30 01:14 - [起风了](http://www.share.kurohicncr.top/Article/details/797321714141.shtml)
-- 2026-06-30 01:14 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/125653.shtml)
-- 2026-06-30 01:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/86738.shtml)
-- 2026-06-30 01:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/02794438939.shtml)
-- 2026-06-30 01:33 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/631822032433.shtml)
-- 2026-06-30 01:25 - [世界杯](https://www.blog.kurohicncr.top/Article/details/9951075.shtml)
-- 2026-06-30 01:32 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/23036466717.shtml)
-- 2026-06-30 01:24 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/2223148.shtml)
-- 2026-06-30 01:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/80837337.shtml)
-- 2026-06-30 01:13 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/839095.shtml)
-- 2026-06-30 01:13 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/6913633971.shtml)
+- 2026-06-30 01:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/1366667.shtml)
+- 2026-06-30 01:42 - [第一炉香](https://www.share.kurohicncr.top/Article/details/024876.shtml)
+- 2026-06-30 01:45 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/75953.shtml)
+- 2026-06-30 01:26 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/762269163.shtml)
+- 2026-06-30 01:22 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/15576156025.shtml)
+- 2026-06-30 01:22 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/4866133736.shtml)
+- 2026-06-30 01:24 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/27663997.shtml)
+- 2026-06-30 01:40 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/599570451.shtml)
+- 2026-06-30 01:28 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/337415244.shtml)
+- 2026-06-30 01:27 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/751600118464.shtml)
+- 2026-06-30 01:23 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/18112.shtml)
+- 2026-06-30 01:40 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/2751553.shtml)
+- 2026-06-30 01:36 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/75329.shtml)
+- 2026-06-30 01:37 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/40254114967.shtml)
+- 2026-06-30 01:30 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/1130566.shtml)

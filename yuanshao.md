@@ -1,58 +1,56 @@
-# 宗教界人士中华优秀传统文化学习体验活动在武汉启动
+# C4 Therapeutics与罗氏扩大合作，达成逾10亿美元新癌症药物协议
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-要以习近平新时代中国特色社会主义思想为指导，引领我国宗教界进一步自觉学习和践行习近平文化思想，筑牢我国宗教健康传承的思想根基。 4月16日，宗教界人士中华优秀传统文化学习体验活动在湖北省武汉市举行启动仪式。中央统战部副部长、国家宗教事务局局长段毅君出席活动启动仪式并讲话。中国佛教协会会长演觉、中国道教协会会长李光富、中国伊斯兰教协会副会长木哈提热木·西日甫、中国天主教爱国会主席
+C4 Therapeutics（CCCC.O）周四（4月9日）宣布，已与瑞士制药巨头罗氏（ROPC.S）签署一项新的合作协议，共同研发新型癌症药物，交易总价值有望超过10亿美元。 协议核心内容 此次合作将聚焦于一种新兴的癌症疗法——降解剂-抗体偶联物。该技术结合了抗体-药物偶联物与靶向蛋白质降解技术，旨在利用降解剂的催化效率和特异性，以及抗体的精准递送能力，开发新型抗癌疗法。
 
 ## 正文
 
-要以习近平新时代中国特色社会主义思想为指导，引领我国宗教界进一步自觉学习和践行习近平文化思想，筑牢我国宗教健康传承的思想根基。
+C4 Therapeutics（CCCC.O）周四（4月9日）宣布，已与瑞士制药巨头罗氏（ROPC.S）签署一项新的合作协议，共同研发新型癌症药物，交易总价值有望超过10亿美元。
 
-4月16日，宗教界人士中华优秀传统文化学习体验活动在湖北省武汉市举行启动仪式。
+协议核心内容 此次合作将聚焦于一种新兴的癌症疗法——降解剂-抗体偶联物。
 
-中央统战部副部长、国家宗教事务局局长段毅君出席活动启动仪式并讲话。
+该技术结合了抗体-药物偶联物与靶向蛋白质降解技术，旨在利用降解剂的催化效率和特异性，以及抗体的精准递送能力，开发新型抗癌疗法。
 
-中国佛教协会会长演觉、中国道教协会会长李光富、中国伊斯兰教协会副会长木哈提热木·西日甫、中国天主教爱国会主席李山、中国基督教协会会长吴巍带队参加。
+根据协议，双方将就两个未公开的肿瘤靶点开发DAC药物，并保留增加第三个靶点的选择权。
 
-与会宗教界代表人士表示，要以习近平新时代中国特色社会主义思想为指导，引领我国宗教界进一步自觉学习和践行习近平文化思想，筑牢我国宗教健康传承的思想根基。
+具体分工如下： C4 Therapeutics：利用其专有的TORPEDO平台设计具有payload特性的降解剂候选分子。
 
-要坚持以核心价值观为引领，以中华优秀传统文化浸润宗教，系统推进我国宗教中国化；严格落实全面从严治教各项要求，更加自觉加强自我教育、自我管理、自我约束，带头守法遵规、提升宗教修为。
+罗氏：负责筛选和设计抗体，将抗体与降解剂payload进行偶联，并主导后续的临床前研究、临床开发及商业化推广。
 
-本次学习体验活动由中央统战部举办，为期7天，80余名宗教界代表人士参加，将组织开展专题讲座、分组讨论、现场教学等活动。
+财务条款 C4 Therapeutics将获得2000万美元的预付款。
 
-(佟轩) (“统战新语”微信公众号)
+若罗氏行使增加第三个靶点的选择权，C4T还将获得额外付款。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 01:33 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 01:15 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 01:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 01:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 01:38 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 01:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 01:12 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 01:38 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:40 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 01:17 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 01:36 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 01:23 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 01:36 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 01:41 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 01:34 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 01:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-30 01:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 01:21 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 01:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:41 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 01:44 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/468726604.shtml)
-- 2026-06-30 01:15 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/1908721.shtml)
-- 2026-06-30 01:25 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/67801043260.shtml)
-- 2026-06-30 01:32 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/6688192950.shtml)
-- 2026-06-30 01:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/3377152680.shtml)
-- 2026-06-30 01:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/281429065999.shtml)
-- 2026-06-30 01:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/567544047.shtml)
-- 2026-06-30 01:13 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/9349679485.shtml)
-- 2026-06-30 01:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/8630632.shtml)
-- 2026-06-30 01:39 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/3295079.shtml)
-- 2026-06-30 01:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/92295020.shtml)
-- 2026-06-30 01:34 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/0024379952.shtml)
-- 2026-06-30 01:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/070918381697.shtml)
-- 2026-06-30 01:35 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/49015483171.shtml)
-- 2026-06-30 01:19 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/548351178066.shtml)
+- 2026-06-30 01:37 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/4239564.shtml)
+- 2026-06-30 01:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/03015227.shtml)
+- 2026-06-30 01:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/0880653382.shtml)
+- 2026-06-30 01:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/1601192206.shtml)
+- 2026-06-30 01:23 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/304787034910.shtml)
+- 2026-06-30 01:28 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/53634330.shtml)
+- 2026-06-30 01:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/4732524657.shtml)
+- 2026-06-30 01:46 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/37048457485.shtml)
+- 2026-06-30 01:43 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/326171835.shtml)
+- 2026-06-30 01:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/72894755.shtml)
+- 2026-06-30 01:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/5268881235.shtml)
+- 2026-06-30 01:31 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/5724288.shtml)
+- 2026-06-30 01:36 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/741369360.shtml)
+- 2026-06-30 01:33 - [女心理师](https://www.share.minike.top/Article/details/2370175.shtml)
+- 2026-06-30 01:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/6218432.shtml)

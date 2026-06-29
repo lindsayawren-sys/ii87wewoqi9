@@ -1,46 +1,57 @@
-# 中越签署一系列合作文件
+# 霍尔木兹海峡再生变数！底仓配置选项关注沪深300ETF华泰柏瑞（510300）
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-新华社北京4月17日电 4月14日至17日，越共中央总书记、国家主席苏林对中国进行国事访问，中共中央总书记、国家主席习近平同苏林举行会谈。访问期间，双方有关部门和地方签署了以下合作文件： 1.《中国共产党和越南共产党合作计划(2026-2030年)》 2.《中共中央组织部与越共中央组织部合作谅解备忘录(2026-2030年)》 3.《中共中央对外联络部与越南外交部合作协议》4.
+仅隔一夜，全球市场不确定性再度升温。此前美伊停火消息一度提振市场情绪，但昨夜以色列袭击黎巴嫩导致霍尔木兹海峡油轮通行受阻，地缘风险再度抬头；叠加昨日美联储3月FOMC会议纪要释放通胀担忧与加息可能性，进一步加剧外部局势的不确定性。与此同时，内部来看，当前A股正处于财报业绩密集披露期，市场定价逻辑正逐步从情绪扰动回归基本面验证。 面对内外交织的复杂环境，从风险管理的角度出发，长期
 
 ## 正文
 
-新华社北京4月17日电 4月14日至17日，越共中央总书记、国家主席苏林对中国进行国事访问，中共中央总书记、国家主席习近平同苏林举行会谈。
+仅隔一夜，全球市场不确定性再度升温。
 
-访问期间，双方有关部门和地方签署了以下合作文件： 1.《中国共产党和越南共产党合作计划(2026-2030年)》 2.《中共中央组织部与越共中央组织部合作谅解备忘录(2026-2030年)》 3.《中共中央对外联络部与越南外交部合作协议》4.《中华人民共和国政府和越南社会主义共和国政府关于共同推进全球安全倡议框架下合作的谅解备忘录》 5.《中华人民共和国政府和越南社会主义共和国政府关于援越南老街-河内-海防铁路可行性研究项目的交接证书》 6.《中华人民共和国政府和越南社会主义共和国政府关于海关合作与行政互助的协定》 7.《中华人民共和国政府和越南社会主义共和国政府关于援越南传统医药大学新校区一期项目立项换文》 8.《中华人民共和国国家发展和改革委员会与越南社会主义共和国建设部关于开展铁路培训合作提升越南铁路领域人才能力的谅解备忘录》 9.《中华人民共
+此前美伊停火消息一度提振市场情绪，但昨夜以色列袭击黎巴嫩导致霍尔木兹海峡油轮通行受阻，地缘风险再度抬头；叠加昨日美联储3月FOMC会议纪要释放通胀担忧与加息可能性，进一步加剧外部局势的不确定性。
+
+与此同时，内部来看，当前A股正处于财报业绩密集披露期，市场定价逻辑正逐步从情绪扰动回归基本面验证。
+
+面对内外交织的复杂环境，从风险管理的角度出发，长期增长确定性强、受能源供给冲击相对较小的核心资产，其底仓配置价值或突出。
+
+Wind数据显示，作为跟踪市场核心风向标之一的沪深300指数的ETF产品——沪深300ETF华泰柏瑞（510300）近期交投持续活跃，自2026年4月3日起连续3个交易日获资金增持，最新规模稳居A股ETF首位；且在昨日市场回暖行情中，其单日成交额显著放量，较前一交易日环比大增 138%，流动性优势突出。
+
+方正证券针对当前市场环境分析指出，地缘风险并未真正消退，市场核心矛盾仍是增长放缓与降息延后的博弈，消息面扰动依旧较大。
+
+若中东冲突进一步升级，波及能源设施并推动油价继续上行，则通胀与滞胀担忧可能重新抬头。
+
+经过前期震荡调整，沪深300指数的股息优势进一步凸显：Wind数据显示，截至2026年4月8日，指数股息率升至2.67%，与10年期国债收益率的利差高于历史以来93.22%的时间。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 01:26 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 01:18 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 01:33 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 01:24 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 01:26 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 01:28 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 01:25 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 01:37 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 01:22 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 01:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 01:26 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 01:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 01:29 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 01:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 01:42 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 01:21 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 01:22 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 01:45 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 01:41 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 01:23 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 01:28 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 01:40 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/561261161784.shtml)
-- 2026-06-30 01:27 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/934710.shtml)
-- 2026-06-30 01:19 - [爱很美味](http://www.share.minike.top/Article/details/31545.shtml)
-- 2026-06-30 01:20 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/38971.shtml)
-- 2026-06-30 01:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/9766560.shtml)
-- 2026-06-30 01:31 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/49535570.shtml)
-- 2026-06-30 01:21 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/81587820.shtml)
-- 2026-06-30 01:34 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/66918541.shtml)
-- 2026-06-30 01:26 - [巴西vs日本](http://www.share.minike.top/Article/details/5440452.shtml)
-- 2026-06-30 01:23 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/840047906.shtml)
-- 2026-06-30 01:21 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/1654649.shtml)
-- 2026-06-30 01:31 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/003781.shtml)
-- 2026-06-30 01:26 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/302375565466.shtml)
-- 2026-06-30 01:21 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/185893771903.shtml)
-- 2026-06-30 01:33 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/69185763879.shtml)
+- 2026-06-30 01:20 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/365171746108.shtml)
+- 2026-06-30 01:35 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/22779.shtml)
+- 2026-06-30 01:21 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/64884328.shtml)
+- 2026-06-30 01:28 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/37562151.shtml)
+- 2026-06-30 01:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/98196252231.shtml)
+- 2026-06-30 01:20 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/67569786.shtml)
+- 2026-06-30 01:34 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/9912560.shtml)
+- 2026-06-30 01:45 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/70146620.shtml)
+- 2026-06-30 01:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/10364669842.shtml)
+- 2026-06-30 01:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/933073136741.shtml)
+- 2026-06-30 01:26 - [扫黑风暴](http://www.blog.minike.top/Article/details/162825318475.shtml)
+- 2026-06-30 01:30 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/538381206291.shtml)
+- 2026-06-30 01:43 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/034134297.shtml)
+- 2026-06-30 01:38 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/44669.shtml)
+- 2026-06-30 01:36 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/081993.shtml)

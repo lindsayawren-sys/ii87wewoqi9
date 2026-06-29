@@ -1,61 +1,56 @@
-# 棕榈油3月MPOB报告解读：库存及产量高于预期 价格有下调压
+# 多家银行强化薪酬风险回溯，去年“反向讨薪”过亿元
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。 3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚
+银行竟然也加入了“讨薪”大军。“反向讨薪”是金融领域近年来的一个热词。2025年年报披露正酣，银行也披露了去年的“讨薪”情况，截至目前至少有12家银行披露了去年的绩效薪酬追索扣回情况，涉及资金近1.2亿元。 中行一家去年“讨薪”近5000万元 中国银行去年的追索力度最为突出，以4717.82万元的追索金额、4630人次的追索人数，暂列已披露年报银行首位。中国银行已连续三年完整披
 
 ## 正文
 
-卓创资讯棕榈油分析师张兰兰 【导语】4月10日，马来西亚棕榈油局（MPOB）发布2026年3月棕榈油供需数据。
+银行竟然也加入了“讨薪”大军。
 
-数据显示，当月马棕产量环比增加，且高于市场预期；库存环比下降，但高于市场预期。
+“反向讨薪”是金融领域近年来的一个热词。
 
-供需面数据整体偏空，给予棕榈油回落压力，当前因处在增产期且因价格高出口前景有压力，预计4月后半月棕榈油现货价格或呈现高位回落走势。
+2025年年报披露正酣，银行也披露了去年的“讨薪”情况，截至目前至少有12家银行披露了去年的绩效薪酬追索扣回情况，涉及资金近1.2亿元。
 
-3月MPOB报告产量及库存高于预期，价格有回落压力 马来西亚棕榈油总署（MPOB）发布的3月供需报告整体偏空影响。
+中行一家去年“讨薪”近5000万元 中国银行去年的追索力度最为突出，以4717.82万元的追索金额、4630人次的追索人数，暂列已披露年报银行首位。
 
-数据显示，当月产量为138万吨（环比+7.8%），出口量为155万吨（环比+38.39%），月末库存为227万吨（环比-15.93%）。
+中国银行已连续三年完整披露追索细节：2023年追回2275万元、涉及2059人次；2024年追回3250万元、涉及2469人次；2025年追索数据大幅攀升，反向讨薪金额4717.82万元、涉及4630人次；2023年~2025年，中行三年累计追回超1.02亿元，涉及总人次达9158人。
 
-从产量看，3月棕榈油产量138万吨，环比有所提高7.8%，同比略回落0.58%，略高于市场预期值134万吨。
+对于讨薪的具体原因，中国银行年报也给出了解释，银行针对高级管理人员及关键岗位人员，将40%以上绩效薪酬实行延期支付，期限不少于3年；若相关人员在职期间出现职责内风险损失超常暴露，银行可部分或全部追回已发放绩效，并止付未发放部分。
 
-产区处在增产期，产量环比增加符合市场预期，但略高于市场预期值，该数据中性偏空，不利于价格持续走高。
+这一制度设计，正是其追索规模领先的重要原因。
 
-从出口量看，3月棕榈油出口量为155万吨，环比增加38.39%，同比增加54.00%，基本符合市场预期值155-156万吨。
+建设银行也公布了“反向讨薪”的情况，不过显然力度比中国银行要温和许多，数据显示，2025年建设银行对董事及高管无追索记录，仅17名总行管理干部被追索，涉及金额199万元，较2024年的26人次、374万元出现明显下降。
 
 ## 相关推荐
 
-- 2026-06-30 01:22 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 01:26 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 01:21 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 01:37 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-30 01:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 01:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 01:13 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 01:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 01:15 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 01:27 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 01:29 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 01:29 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 01:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 01:15 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 01:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 01:39 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 01:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 01:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 01:26 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 01:47 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 01:35 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 01:42 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 01:32 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:47 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 01:42 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:23 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/99127961412.shtml)
-- 2026-06-30 01:21 - [金刚川](https://www.share.minike.top/Article/details/5126664198.shtml)
-- 2026-06-30 01:29 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/01240731000.shtml)
-- 2026-06-30 01:29 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/36230983.shtml)
-- 2026-06-30 01:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/58568685738.shtml)
-- 2026-06-30 01:39 - [明星大侦探第一季](https://www.share.minike.top/Article/details/78233479215.shtml)
-- 2026-06-30 01:23 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/2997688.shtml)
-- 2026-06-30 01:34 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/70349.shtml)
-- 2026-06-30 01:22 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/198729308.shtml)
-- 2026-06-30 01:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/8557516.shtml)
-- 2026-06-30 01:34 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/27515812035.shtml)
-- 2026-06-30 01:22 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/47392921.shtml)
-- 2026-06-30 01:13 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/9268008.shtml)
-- 2026-06-30 01:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/67882011.shtml)
-- 2026-06-30 01:32 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/0741733.shtml)
+- 2026-06-30 01:30 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/75749175.shtml)
+- 2026-06-30 01:45 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/72495709016.shtml)
+- 2026-06-30 01:44 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/2884580190.shtml)
+- 2026-06-30 01:23 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/363433623.shtml)
+- 2026-06-30 01:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/7143000193.shtml)
+- 2026-06-30 01:32 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/026775823236.shtml)
+- 2026-06-30 01:30 - [啊啊啊](https://www.share.minike.top/Article/details/047659.shtml)
+- 2026-06-30 01:30 - [绘画区你赢了](http://www.share.minike.top/Article/details/66547047111.shtml)
+- 2026-06-30 01:25 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/79145033.shtml)
+- 2026-06-30 01:39 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/0447869073.shtml)
+- 2026-06-30 01:21 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/037143358522.shtml)
+- 2026-06-30 01:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/649688041476.shtml)
+- 2026-06-30 01:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/666866658.shtml)
+- 2026-06-30 01:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/157739779.shtml)
+- 2026-06-30 01:33 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/8008133376.shtml)

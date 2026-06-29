@@ -1,52 +1,56 @@
-# 美财长贝森特承诺支持日本推进投资审查机制
+# 水贝商户称白银销量暴跌90%
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-美国财政部通报称，财政部长斯科特·贝森特承诺大力支持日本实施投资审查制度的努力。 财政部表示，贝森特“重申了美国和日本之间牢固的联盟关系，并强调将保持更加紧密的沟通。” 他还提到，财政部投资安全助理部长Chris Pilkerton近期就美国的外国投资委员会（CFIUS）审查机制与日方进行了沟通。 通报称，贝森特“承诺财政部将大力支持日本政府探索建立自身投资审查机制的路径”。责
+来源：@中国经济周刊微博 【#水贝商户称白银销量暴跌90%#】 #水贝黄金遇冷# 今天，黄金白银价格大幅波动。记者发现，深圳水贝市场人气和销量均出现明显下滑，许多消费者选择“以旧换新”。商户介绍：“成交量可能没有之前这么多，投资类的客户还是会小批量买入，5克、10克就差不多了。”金价的波动不仅影响了零售端，也逐步传导至批发环节。有批发商户告诉记者，由于今天金价大幅上涨，批发端的
 
 ## 正文
 
-美国财政部通报称，财政部长斯科特·贝森特承诺大力支持日本实施投资审查制度的努力。
+来源：@中国经济周刊微博 【#水贝商户称白银销量暴跌90%#】 #水贝黄金遇冷# 今天，黄金白银价格大幅波动。
 
-财政部表示，贝森特“重申了美国和日本之间牢固的联盟关系，并强调将保持更加紧密的沟通。
+记者发现，深圳水贝市场人气和销量均出现明显下滑，许多消费者选择“以旧换新”。
 
-” 他还提到，财政部投资安全助理部长Chris Pilkerton近期就美国的外国投资委员会（CFIUS）审查机制与日方进行了沟通。
+商户介绍：“成交量可能没有之前这么多，投资类的客户还是会小批量买入，5克、10克就差不多了。
 
-通报称，贝森特“承诺财政部将大力支持日本政府探索建立自身投资审查机制的路径”。
+”金价的波动不仅影响了零售端，也逐步传导至批发环节。
 
-责任编辑：丁文武
+有批发商户告诉记者，由于今天金价大幅上涨，批发端的拿货数量出现了明显下滑，整体销量较昨日减少了约三分之一。
+
+“客户拿货量会减半，因为行情波动比较大，担心暴跌、暴涨。
+
+原来是一两公斤进货，现在就是200克、500克这样去进。
+
+”白银方面，虽然今天价格有所回升，但由于前期跌幅较大，消费者购买意愿不强。
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 01:32 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 01:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 01:19 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 01:38 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 01:20 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:41 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 01:20 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 01:40 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 01:13 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 01:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 01:33 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 01:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 01:48 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 01:26 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 01:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 01:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 01:34 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 01:38 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 01:22 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 01:44 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 01:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/832110285049.shtml)
-- 2026-06-30 01:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/485535552330.shtml)
-- 2026-06-30 01:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/75448935.shtml)
-- 2026-06-30 01:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/98488547875.shtml)
-- 2026-06-30 01:14 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/386110537748.shtml)
-- 2026-06-30 01:41 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/06384714965.shtml)
-- 2026-06-30 01:14 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/61926.shtml)
-- 2026-06-30 01:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/02938.shtml)
-- 2026-06-30 01:25 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/82731.shtml)
-- 2026-06-30 01:17 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/248789.shtml)
-- 2026-06-30 01:30 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/42466490.shtml)
-- 2026-06-30 01:30 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/502930429567.shtml)
-- 2026-06-30 01:38 - [流金岁月](http://www.blog.minike.top/Article/details/5537148.shtml)
-- 2026-06-30 01:32 - [金牌调解](http://www.blog.minike.top/Article/details/092839632299.shtml)
-- 2026-06-30 01:19 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/75576960180.shtml)
+- 2026-06-30 01:41 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/40264865.shtml)
+- 2026-06-30 01:26 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/6135908450.shtml)
+- 2026-06-30 01:20 - [急先锋](https://www.share.minike.top/Article/details/595887640250.shtml)
+- 2026-06-30 01:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/981564422.shtml)
+- 2026-06-30 01:18 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/992355745265.shtml)
+- 2026-06-30 01:44 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/098964374758.shtml)
+- 2026-06-30 01:33 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/177165279163.shtml)
+- 2026-06-30 01:21 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/22717968946.shtml)
+- 2026-06-30 01:27 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/306219241026.shtml)
+- 2026-06-30 01:32 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/41467739566.shtml)
+- 2026-06-30 01:32 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/6722087180.shtml)
+- 2026-06-30 01:25 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/52252056873.shtml)
+- 2026-06-30 01:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/590467.shtml)
+- 2026-06-30 01:32 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/2899767.shtml)
+- 2026-06-30 01:34 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/657565908872.shtml)

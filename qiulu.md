@@ -1,60 +1,61 @@
-# 光大证券：维持华润置地“买入”评级 资产运营品牌龙头
+# 华泰期货：美棉维持强势，原糖继续走弱
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-光大证券发布研报称，当前全国房地产销售仍处下行通道，城市分化和区域分化明显，下调华润置地（01109）2026-2027年归母净利润（基本）预测为236.8/230.7亿元（原为252.7/255.3亿元），新增2028年归母净利润（基本）预测为238.9亿元，当前股价对应2026-2028年PE估值（基本）分别为8.2/8.4/8.1倍。公司投资聚焦核心城市，资产运营品牌龙头
+来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约15340元/吨，较前一日变动+165元/吨，幅度+1.09%。现货方面，3128B棉新疆到厂价16550元/吨，较前一日变动-55元/吨，现货基差CF09+1210，较前一日变动-220；3128B棉全国均价16712元/吨，较前一日变动-51元/吨，现货基差CF09+1372，较前
 
 ## 正文
 
-光大证券发布研报称，当前全国房地产销售仍处下行通道，城市分化和区域分化明显，下调华润置地（01109）2026-2027年归母净利润（基本）预测为236.8/230.7亿元（原为252.7/255.3亿元），新增2028年归母净利润（基本）预测为238.9亿元，当前股价对应2026-2028年PE估值（基本）分别为8.2/8.4/8.1倍。
+来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约15340元/吨，较前一日变动+165元/吨，幅度+1.09%。
 
-公司投资聚焦核心城市，资产运营品牌龙头，央企信用优势显著，维持“买入”评级。
+现货方面，3128B棉新疆到厂价16550元/吨，较前一日变动-55元/吨，现货基差CF09+1210，较前一日变动-220；3128B棉全国均价16712元/吨，较前一日变动-51元/吨，现货基差CF09+1372，较前一日变动-216。
 
-光大证券主要观点如下： 事件 公司发布截至2026年3月31日未经审核运营数据。
+近期市场资讯， 据美国农业部，3.27-4.2日一周美国2025/26年度陆地棉净签约72480吨，较前一周减少14%，较近四周平均增加25%；装运陆地棉77733吨，较前一周减少4%，较近四周平均减少2%。
 
-2026年3月，实现合同销售金额224.2亿元，同比下降14.1%；合同销售面59.4万平方米，同比下降34.5%。
+净签约皮马棉1464吨，较前一周减少58%；装运皮马棉2399吨，较前一周增加40%。
 
-2026年1-3月，实现合同销售金额441.2亿元，同比下降13.8%；合同销售面积124.9万平方米，同比下降36.9%。
+签约下年度陆地棉3187吨，未签约下年度皮马棉。
 
-资产运营品牌龙头，稳定现金流贡献提升 2025年，经营性不动产收租型业务板块营业收入254.4亿元（同比增长9.2%），核心净利润98.7亿元（同比增长15.2%）。
+市场分析 昨日郑棉期价震荡反弹。
 
-截至2025年末，1）在营购物中心98座（其中82个零售额位列当地市场前三），总建筑面积1242万平方米（同比增加8.4%），零售额2392亿元（同比增长22.4%），整体经营利润率63.1%，再创历史新高；2）写字楼总建筑面积146万平方米，在营写字楼23座，平均出租率77.7%（同比增长2.8个pct．）；3）酒店总面积79万平方米（同比增长1.2%），平均入住率67.3%（同比增长3.1个pct．）。
+国际方面，本年度全球供需格局整体仍偏宽松，不过近期美棉出口表现亮眼，签约和装运加速，对盘面有所提振。
 
-2026年1-3月，公司实现租金累计收入91.6亿元（同比增长14.0%）。
+26/27年度全球棉市供需格局预期收紧，面积调减和主产区天气均存在较大不确定性，美棉前景依旧偏多。
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 01:28 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-30 01:36 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 01:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 01:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 01:16 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 01:40 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 01:29 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 01:13 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 01:33 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 01:32 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:39 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 01:14 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 01:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 01:41 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 01:22 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 01:33 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 01:25 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 01:33 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-30 01:34 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 01:47 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 01:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 01:39 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:31 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 01:25 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 01:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 01:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 01:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/7127626.shtml)
-- 2026-06-30 01:29 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/1319118.shtml)
-- 2026-06-30 01:24 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/523748306482.shtml)
-- 2026-06-30 01:15 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/21499681.shtml)
-- 2026-06-30 01:24 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/8671086708.shtml)
-- 2026-06-30 01:18 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/21170524521.shtml)
-- 2026-06-30 01:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/62517951786.shtml)
-- 2026-06-30 01:35 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/010406.shtml)
-- 2026-06-30 01:28 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/2217208410.shtml)
-- 2026-06-30 01:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/95541633569.shtml)
-- 2026-06-30 01:22 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/8698993206.shtml)
-- 2026-06-30 01:24 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/255495.shtml)
-- 2026-06-30 01:16 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/4522096.shtml)
-- 2026-06-30 01:26 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/588431006843.shtml)
-- 2026-06-30 01:25 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/0232583565.shtml)
+- 2026-06-30 01:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/960643842241.shtml)
+- 2026-06-30 01:19 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/836915680.shtml)
+- 2026-06-30 01:38 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/156736998.shtml)
+- 2026-06-30 01:19 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/098718352277.shtml)
+- 2026-06-30 01:32 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/257594.shtml)
+- 2026-06-30 01:33 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/81029510278.shtml)
+- 2026-06-30 01:38 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/303614736576.shtml)
+- 2026-06-30 01:29 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/90932083649.shtml)
+- 2026-06-30 01:43 - [千与千寻](https://www.share.kurohicncr.top/Article/details/681119349813.shtml)
+- 2026-06-30 01:41 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/78020236.shtml)
+- 2026-06-30 01:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/4304603.shtml)
+- 2026-06-30 01:22 - [扫黑风暴](http://www.share.minike.top/Article/details/2325194721.shtml)
+- 2026-06-30 01:22 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/3694028523.shtml)
+- 2026-06-30 01:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/9923563649.shtml)
+- 2026-06-30 01:28 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/913125.shtml)

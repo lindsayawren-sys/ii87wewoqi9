@@ -1,59 +1,56 @@
-# 于小镇方圆演绎父子暗战与人性博弈 《方圆八百米》开播
+# 突然！超190亿，“跑了”
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月17日电 (记者 高凯)由毕鉴威任总编剧，裘仲维执导，丁勇岱、许凯、邓恩熙领衔主演，胡可、涂松岩特别主演的情感罪案剧《方圆八百米》自4月17日起正式开播。 该剧故事聚焦20世纪90年代末的丰阳小镇矿区。一具无名女尸的出现，打破了表面的平静，小镇内的违禁药品贩卖网络随之浮出水面。警察陈红兵(丁勇岱 饰)紧跟线索，却步步逼近亲生儿子陈辉(许凯 饰)。在方圆八百米的小天
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】昨日股票ETF资金净流出超192亿元 中国基金报记者 曹雯璟 4月9日，A股三大指数全线收跌，CPO、稀土、光纤概念股轮番演绎。股票ETF资金净流出超192亿元，化工、创新药、黄金、通信等热门主题ETF成为“吸金”大户，中证500指数、中证1000指数、沪深300指数相关宽基ETF成为“失血”大户。
 
 ## 正文
 
-中新网北京4月17日电 (记者 高凯)由毕鉴威任总编剧，裘仲维执导，丁勇岱、许凯、邓恩熙领衔主演，胡可、涂松岩特别主演的情感罪案剧《方圆八百米》自4月17日起正式开播。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该剧故事聚焦20世纪90年代末的丰阳小镇矿区。
+【导读】昨日股票ETF资金净流出超192亿元 中国基金报记者 曹雯璟 4月9日，A股三大指数全线收跌，CPO、稀土、光纤概念股轮番演绎。
 
-一具无名女尸的出现，打破了表面的平静，小镇内的违禁药品贩卖网络随之浮出水面。
+股票ETF资金净流出超192亿元，化工、创新药、黄金、通信等热门主题ETF成为“吸金”大户，中证500指数、中证1000指数、沪深300指数相关宽基ETF成为“失血”大户。
 
-警察陈红兵(丁勇岱 饰)紧跟线索，却步步逼近亲生儿子陈辉(许凯 饰)。
+昨日股票ETF资金净流出超192亿元 4月9日，A股三大指数震荡调整，截至收盘，沪指跌0.72%，深成指跌0.33%，创业板指跌0.73%。
 
-在方圆八百米的小天地里，父子间的对抗、职责与亲情的纠结、法律与人性的交缠，让这个家庭与小城一同面临善恶的抉择与考验。
+从板块上看，旅游、软件开发、医药商业、保险等板块跌幅居前；CPO、稀土、光纤概念、激光雷达等板块涨幅居前。
 
-开播当日释出的“金鱼共生”版预告以极具象征意味的视觉语言开篇，陈辉眼神中的焦灼与女友高松格(邓恩熙 饰)的迷茫相互交织，他们如同鱼缸中的金鱼，极力想要冲破看不见的边界，却一次次被现实弹回原点。
+4月9日，全市场股票ETF（含跨境ETF）资金净流出192.90亿元。
 
-同步曝光的“凝视”版单人海报中六位主角分别以直视镜头的姿态出现，每一道目光都像一把解剖刀，剖开角色内心的隐秘角落。
+从大类型来看，宽基ETF净流出居前，达168.76亿元；规模变化方面，宽基ETF规模下降259.08亿元。
 
-《方圆八百米》以封闭的小镇矿区为舞台，打造了一个极致的情境容器，当血缘与职责、爱情与自保、亲情与法律在方圆八百米内短兵相接，每一个人都成了彼此牢笼的一部分。
+具体到指数维度，中证1000指数单日净流出居前，达41.96亿元。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-30 01:14 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 01:34 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 01:30 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 01:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 01:25 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 01:32 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 01:13 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 01:30 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 01:36 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 01:24 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 01:23 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-30 01:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 01:28 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 01:38 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 01:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 01:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 01:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 01:33 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 01:36 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 01:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 01:37 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 01:20 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/41843303266.shtml)
-- 2026-06-30 01:37 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/08700438.shtml)
-- 2026-06-30 01:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/0970368.shtml)
-- 2026-06-30 01:20 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/554103.shtml)
-- 2026-06-30 01:39 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/1101337353.shtml)
-- 2026-06-30 01:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/987277.shtml)
-- 2026-06-30 01:21 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/737878616106.shtml)
-- 2026-06-30 01:21 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/257155.shtml)
-- 2026-06-30 01:30 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/68629238.shtml)
-- 2026-06-30 01:23 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/4854905.shtml)
-- 2026-06-30 01:22 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/95918315305.shtml)
-- 2026-06-30 01:32 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/116878215.shtml)
-- 2026-06-30 01:13 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/47115032573.shtml)
-- 2026-06-30 01:23 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/42310.shtml)
-- 2026-06-30 01:27 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/2993284.shtml)
+- 2026-06-30 01:20 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/77734022268.shtml)
+- 2026-06-30 01:28 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/74450184736.shtml)
+- 2026-06-30 01:30 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/576775.shtml)
+- 2026-06-30 01:26 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/0845901096.shtml)
+- 2026-06-30 01:21 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/8083678816.shtml)
+- 2026-06-30 01:29 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/58945327.shtml)
+- 2026-06-30 01:28 - [把邻居裸体发群算维权还是侵权](http://www.share.minike.top/Article/details/620149533.shtml)
+- 2026-06-30 01:18 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/514762633.shtml)
+- 2026-06-30 01:45 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/30967409.shtml)
+- 2026-06-30 01:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/3923839.shtml)
+- 2026-06-30 01:42 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/4248462.shtml)
+- 2026-06-30 01:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/6088785346.shtml)
+- 2026-06-30 01:25 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/35408688947.shtml)
+- 2026-06-30 01:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/68448.shtml)
+- 2026-06-30 01:28 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/3751704193.shtml)

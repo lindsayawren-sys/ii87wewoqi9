@@ -1,56 +1,61 @@
-# Stena DrillMAX将在希腊近海钻探首口深水井
+# CBA常规赛：深圳队客场103：98战胜山西队迎11连胜
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-海上钻井承包商Stena Drilling已与Energean签订合同，将在希腊近海开展勘探钻井活动。 该活动预计于2027年初启动，将在希腊近海、位于爱奥尼亚海西北部的2号区块钻探一口确定井，并要求采用控压钻井技术。 这将是希腊有史以来钻探的第一口深水海上井。 Stena Drilling表示：“Stena Drilling与Energean有着长期成功的合作关系，此前曾在以
+中新社太原4月9日电 (记者 李庭耀 杨杰英)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第36轮9日晚在太原举行，深圳马可波罗男篮客场103：98战胜山西汾酒男篮，迎来11连胜。 两队历史上共交手41次，山西队以12胜29负处于下风。上赛季两次交手山西队全胜，本赛季首战告负。 比赛伊始，两队便进入对攻大战，比赛进攻节奏较快，双方均贡献多次快攻。首节过半时，山西队
 
 ## 正文
 
-海上钻井承包商Stena Drilling已与Energean签订合同，将在希腊近海开展勘探钻井活动。
+中新社太原4月9日电 (记者 李庭耀 杨杰英)2025-2026赛季中国男子篮球职业联赛(CBA)常规赛第36轮9日晚在太原举行，深圳马可波罗男篮客场103：98战胜山西汾酒男篮，迎来11连胜。
 
-该活动预计于2027年初启动，将在希腊近海、位于爱奥尼亚海西北部的2号区块钻探一口确定井，并要求采用控压钻井技术。
+两队历史上共交手41次，山西队以12胜29负处于下风。
 
-这将是希腊有史以来钻探的第一口深水海上井。
+上赛季两次交手山西队全胜，本赛季首战告负。
 
-Stena Drilling表示：“Stena Drilling与Energean有着长期成功的合作关系，此前曾在以色列和摩洛哥进行过多轮作业。
+比赛伊始，两队便进入对攻大战，比赛进攻节奏较快，双方均贡献多次快攻。
 
-这一良好的业绩记录充分证明了Stena Drilling支持Energean活动的能力，我们期待继续与Energean合作，共同完成安全、高效、成功的作业。
+首节过半时，山西队领先2分，此后深圳队反超比分。
 
-” Stena DrillMAX是一座第六代恶劣环境双活动动态定位（DP3）钻井船，能够在水深达10，000英尺的海域进行钻井作业。
+无论是前场拼抢还是后场保护，深圳队在篮板球方面占据优势，并以1分优势进入次节。
 
-责任编辑：张俊 SF065
+第二节中，山西队在攻防两端发力，一度反超比分，两队互有攻守、场面胶着。
+
+半场战罢，深圳队以53:49领先。
 
 ## 相关推荐
 
-- 2026-06-30 01:12 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 01:18 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 01:25 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 01:16 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 01:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 01:41 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 01:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 01:29 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 01:18 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 01:37 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 01:27 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 01:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 01:37 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-30 01:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 01:41 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 01:36 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 01:42 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-30 01:29 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 01:39 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 01:22 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 01:46 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 01:32 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 01:44 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 01:41 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 01:33 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-30 01:32 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 01:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:13 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/044406246.shtml)
-- 2026-06-30 01:37 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/50790.shtml)
-- 2026-06-30 01:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/796474381.shtml)
-- 2026-06-30 01:33 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/34888.shtml)
-- 2026-06-30 01:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/01639540544.shtml)
-- 2026-06-30 01:32 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/984121097.shtml)
-- 2026-06-30 01:33 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/178130.shtml)
-- 2026-06-30 01:31 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/86662.shtml)
-- 2026-06-30 01:26 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/1878224.shtml)
-- 2026-06-30 01:20 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/6828809.shtml)
-- 2026-06-30 01:33 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/55326376.shtml)
-- 2026-06-30 01:39 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/94532269659.shtml)
-- 2026-06-30 01:32 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/10236860.shtml)
-- 2026-06-30 01:15 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/297451744830.shtml)
-- 2026-06-30 01:31 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/501762927193.shtml)
+- 2026-06-30 01:39 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/9894176.shtml)
+- 2026-06-30 01:44 - [急先锋](https://www.blog.minike.top/Article/details/743480104780.shtml)
+- 2026-06-30 01:23 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/506801865917.shtml)
+- 2026-06-30 01:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/5623742.shtml)
+- 2026-06-30 01:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/093559859.shtml)
+- 2026-06-30 01:46 - [毒液2](http://www.share.minike.top/Article/details/39317.shtml)
+- 2026-06-30 01:40 - [恋与深空 巧合](http://www.share.minike.top/Article/details/07037.shtml)
+- 2026-06-30 01:31 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/4943263.shtml)
+- 2026-06-30 01:42 - [周生如故](http://www.share.minike.top/Article/details/20759.shtml)
+- 2026-06-30 01:37 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/267804515.shtml)
+- 2026-06-30 01:24 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/15726808685.shtml)
+- 2026-06-30 01:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/07577961.shtml)
+- 2026-06-30 01:35 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/6343546386.shtml)
+- 2026-06-30 01:20 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/3895056.shtml)
+- 2026-06-30 01:20 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/48395278.shtml)

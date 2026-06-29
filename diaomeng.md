@@ -1,51 +1,56 @@
-# 中国—东盟（南宁）动漫游戏产业园揭牌 探索文化传播发展潜力
+# 特朗普关税再被告上最高法院，“122关税案”有哪些焦点？
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 10:04 来源：中国新闻网 中国—东盟(南宁)动漫游戏产业园4月15日在广西南宁市揭牌。该产业园深度融合人工智能技术、文旅资源与产业发展，致力打造成为立足中国西南、辐射东盟的动漫产业新高地。 中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合示范园引入优质IP，搭建面向东
+当地时间10日，美国国际贸易法院将就“122条款”关税举行听证会。 此前，美国最高法院在2月20日裁定，特朗普政府依据《国际紧急经济权力法》（IEEPA）实施的相关大规模关税措施缺乏明确法律授权。裁决公布后，特朗普在当日转而依据《1974年贸易法》第122条，宣布加征“全球进口关税”，税率10%，为期150天。 随后特朗普又在社交平台上发文称，将把对全球商品加征10%的进口关税
 
 ## 正文
 
-发布时间：2026年04月17日 10:04 来源：中国新闻网 中国—东盟(南宁)动漫游戏产业园4月15日在广西南宁市揭牌。
+当地时间10日，美国国际贸易法院将就“122条款”关税举行听证会。
 
-该产业园深度融合人工智能技术、文旅资源与产业发展，致力打造成为立足中国西南、辐射东盟的动漫产业新高地。
+此前，美国最高法院在2月20日裁定，特朗普政府依据《国际紧急经济权力法》（IEEPA）实施的相关大规模关税措施缺乏明确法律授权。
 
-中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合示范园引入优质IP，搭建面向东盟的数字内容加工、译制、发行全链条，推动数字文化产品规模化“出海”，构建双向文化协作通道，实现产业集聚与文化传播双向赋能。
+裁决公布后，特朗普在当日转而依据《1974年贸易法》第122条，宣布加征“全球进口关税”，税率10%，为期150天。
 
-王伟臣 黄艳梅 南宁报道 责任编辑：【周驰】
+随后特朗普又在社交平台上发文称，将把对全球商品加征10%的进口关税的税率水平提高至15%。
+
+不过，目前暂时生效的仍是10%的全球关税。
+
+当前，由24位州总检察长和州长组成的联盟已提起诉讼，试图阻止该关税的实施。
+
+他们的核心观点为，上述关税不仅非法且史无前例，其征收依据也并非真正的“国际收支危机”，而仅仅是贸易逆差数据。
+
+除了这起诉讼外，还有自由正义中心（Liberty Justice Center）代表Burlap & Barrel公司及其他私人原告提起的另一项诉讼。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 01:35 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 01:35 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 01:32 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 01:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 01:18 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 01:21 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 01:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 01:21 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 01:15 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 01:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 01:16 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 01:14 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 01:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 01:28 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 01:42 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 01:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 01:31 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 01:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 01:35 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 01:46 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 01:44 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 01:48 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/61428528847.shtml)
-- 2026-06-30 01:31 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/89975.shtml)
-- 2026-06-30 01:12 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/7081532471.shtml)
-- 2026-06-30 01:21 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/02686740.shtml)
-- 2026-06-30 01:37 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/394605576324.shtml)
-- 2026-06-30 01:25 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/58684.shtml)
-- 2026-06-30 01:16 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/970262.shtml)
-- 2026-06-30 01:25 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/566058588611.shtml)
-- 2026-06-30 01:13 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/777440.shtml)
-- 2026-06-30 01:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/57081363633.shtml)
-- 2026-06-30 01:30 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/670178.shtml)
-- 2026-06-30 01:37 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/269292588511.shtml)
-- 2026-06-30 01:14 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/280012.shtml)
-- 2026-06-30 01:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/58140.shtml)
-- 2026-06-30 01:39 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/4019025.shtml)
+- 2026-06-30 01:36 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/671288499583.shtml)
+- 2026-06-30 01:26 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/24600514303.shtml)
+- 2026-06-30 01:41 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/187859.shtml)
+- 2026-06-30 01:20 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/392492764.shtml)
+- 2026-06-30 01:24 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/17218060988.shtml)
+- 2026-06-30 01:27 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/8937896.shtml)
+- 2026-06-30 01:39 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/33161.shtml)
+- 2026-06-30 01:35 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/743954217.shtml)
+- 2026-06-30 01:42 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/66935993533.shtml)
+- 2026-06-30 01:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/66895417095.shtml)
+- 2026-06-30 01:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/66723038.shtml)
+- 2026-06-30 01:21 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/4307868234.shtml)
+- 2026-06-30 01:38 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/0635895112.shtml)
+- 2026-06-30 01:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/223397065.shtml)
+- 2026-06-30 01:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/335146825.shtml)

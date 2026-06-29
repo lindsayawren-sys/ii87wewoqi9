@@ -1,59 +1,58 @@
-# “医疗特区”海南博鳌乐城签约19个重点产业项目
+# 反弹暂歇，华宝基金港股互联网ETF（513770）回调，基金经理提示当前底部配置价值，阿里重要变动，事关AI
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网海口4月16日电(记者 符宇群)投资中国·2026海南自由贸易港全球产业招商大会成果新闻发布会15日在海口举行，记者从发布会上获悉，海南博鳌乐城国际医疗旅游先行区(简称“乐城”)在大会期间共签约重点产业项目19个，签约总金额超11亿元。乐城先行区作为我国唯一的“医疗特区”和海南自贸港建设的重大功能平台，始终致力于立足自身资源禀赋与政策优势，加速聚集全球高端医疗资源与产业要
+海外局势反复，4月9日，港股早盘低开，恒科指跌超1%，互联网龙头多数回调，昨日大涨6.75%的阿里巴巴-W跌近3%，小米集团-W跌超2%，美团-W微跌0.62%，腾讯控股逆市飘红。港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.59%。 短期港股或仍伴随海外地缘进展波动，但立足当下，港股存在多重亮点：相比海外市场，当前港股估值更低，受流动性冲击的幅度或相
 
 ## 正文
 
-中新网海口4月16日电(记者 符宇群)投资中国·2026海南自由贸易港全球产业招商大会成果新闻发布会15日在海口举行，记者从发布会上获悉，海南博鳌乐城国际医疗旅游先行区(简称“乐城”)在大会期间共签约重点产业项目19个，签约总金额超11亿元。
+海外局势反复，4月9日，港股早盘低开，恒科指跌超1%，互联网龙头多数回调，昨日大涨6.75%的阿里巴巴-W跌近3%，小米集团-W跌超2%，美团-W微跌0.62%，腾讯控股逆市飘红。
 
-乐城先行区作为我国唯一的“医疗特区”和海南自贸港建设的重大功能平台，始终致力于立足自身资源禀赋与政策优势，加速聚集全球高端医疗资源与产业要素，打造生物医药发展的创新策源地和产业新高地。
+港股AI核心工具——港股互联网ETF华宝（513770）场内价格现跌1.59%。
 
-乐城管理局副局长易拓新当日在发布会上介绍，本次大会的签约项目覆盖生物医学新技术、眼科医疗、互联网医院、康养地产、产业基金、健康消费服务等多个前沿领域，签约主体既有国内外生物医药企业和医疗服务平台，也有专业投资机构和健康消费运营主体，整体呈现出科技含量高、产业关联强的特点。
+短期港股或仍伴随海外地缘进展波动，但立足当下，港股存在多重亮点：相比海外市场，当前港股估值更低，受流动性冲击的幅度或相对更小；叠加财报靴子落地，盈利的拖累缓解，港股后续有望“轻装上阵”。
 
-易拓新称，签约的项目，不仅新增了一批合作成果，也进一步增强乐城汇聚全球医疗创新资源的“强磁场”作用，为海南全省医药产业升级注入新的发展动能。
+综合机构观点，后续或有几方面信号值得重点关注：监管更明确的反内卷信号；4月发布的新一代混元和DeepSeek大模型能否加强对中国科技的信心；3-4月经济活动旺季的数据能否再次超预期；美伊谈判进展等。
 
-具体而言，本次签约项目体现了三个方面的积极作用： 一是进一步增强前沿医疗科技集聚效应。
+消息面上，港股互联网龙头——阿里巴巴最新财报指引显示，阿里今年外卖亏损预计减亏一半；云业务增速有望历史首次超40%。
 
-此次签约聚焦生物医学新技术、医疗器械、眼科等重点赛道，尤其是已在乐城获批的29个生物医学新技术项目正加快临床应用与产业化进程，为前沿技术落地提供了丰富的应用场景和制度保障，表明乐城正在从“引进创新药械”逐步向“集聚创新企业、培育创新业态”加快拓展，进一步夯实打造医疗科技创新平台的产业基础。
+此外，阿里昨日宣布AI相关组织调整，包括新设立集团技术委员会，升级通义大模型事业部，加速 AI 建设等。
 
-二是进一步完善了产业链条和生态体系。
+此外，“快乐马”HappyHorse-1.0 屠榜 AI 视频榜单，力压Seedance。
 
-此次签约既有技术研发和细胞与基因诊疗类等成果转化类项目，也有健康管理、养老服务、产业基金等配套项目，有利于推动形成从研发转化、临床应用到健康消费的全链条布局。
+据多方消息确认，其极可能出自阿里巴巴淘天集团旗下。
 
 ## 相关推荐
 
-- 2026-06-30 01:17 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 01:13 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 01:23 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 01:23 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 01:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 01:33 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 01:21 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 01:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 01:38 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 01:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 01:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 01:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 01:14 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 01:21 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 01:41 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:22 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 01:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 01:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 01:40 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 01:29 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 01:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 01:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 01:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 01:36 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 01:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:17 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/52458607.shtml)
-- 2026-06-30 01:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/9164805.shtml)
-- 2026-06-30 01:22 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/603595693926.shtml)
-- 2026-06-30 01:18 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/7861870.shtml)
-- 2026-06-30 01:13 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/707365.shtml)
-- 2026-06-30 01:40 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/23561.shtml)
-- 2026-06-30 01:21 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/194888827.shtml)
-- 2026-06-30 01:38 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/10499818360.shtml)
-- 2026-06-30 01:40 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/395102616.shtml)
-- 2026-06-30 01:18 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/087387.shtml)
-- 2026-06-30 01:32 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/172692.shtml)
-- 2026-06-30 01:20 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/02822966.shtml)
-- 2026-06-30 01:17 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/363457135510.shtml)
-- 2026-06-30 01:14 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/71800202838.shtml)
-- 2026-06-30 01:37 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/041604372785.shtml)
+- 2026-06-30 01:43 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/7290661817.shtml)
+- 2026-06-30 01:38 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/906350913162.shtml)
+- 2026-06-30 01:25 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/576369423.shtml)
+- 2026-06-30 01:20 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/82714704.shtml)
+- 2026-06-30 01:23 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/573631653.shtml)
+- 2026-06-30 01:25 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/1892982146.shtml)
+- 2026-06-30 01:37 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/95054001625.shtml)
+- 2026-06-30 01:34 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/66696908.shtml)
+- 2026-06-30 01:35 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/3464078567.shtml)
+- 2026-06-30 01:40 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/546102014.shtml)
+- 2026-06-30 01:29 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/940535370029.shtml)
+- 2026-06-30 01:40 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/58465653.shtml)
+- 2026-06-30 01:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/84388823.shtml)
+- 2026-06-30 01:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/776317321.shtml)
+- 2026-06-30 01:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/73743.shtml)

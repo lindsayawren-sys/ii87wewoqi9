@@ -1,56 +1,57 @@
-# 广州边检多措并举化解广交会客商难题
+# 豆神教育曾被处罚索赔还可参与，已递交多批次案件立案
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网广州4月17日电 (方伟彬 古宏)一名巴西建材客商在广交会场馆焦急求助：因线上注册时使用旧护照信息，现场却持新护照，导致系统核验无法通过。天河边检站民警迅速安抚客商，细致比对证件，并立即联动主办方与志愿者，协助其按新护照信息重新完成登记，短短数分钟内便化解了这场“办证风波”。 这背后是高效协同的保障机制。记者17日从广州天河边检站获悉，该站与广交会主办方等单位建立了“急事
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、案件已递交立案 2025年7月，豆神教育（维权）因信息披露违规问题被监管处罚，随后引发投资者维权事宜。 上海沪紫律师事务所刘鹏律师团队仍在征集受损股民中，前期收到的案件也已陆续递交立案。（刘鹏律师专栏） 依据处罚，于2022年7月1日-2024年8月15日（含当日）之前买入，并在2024年8月16日之后卖出或仍持有而亏损的即
 
 ## 正文
 
-中新网广州4月17日电 (方伟彬 古宏)一名巴西建材客商在广交会场馆焦急求助：因线上注册时使用旧护照信息，现场却持新护照，导致系统核验无法通过。
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、案件已递交立案 2025年7月，豆神教育（维权）因信息披露违规问题被监管处罚，随后引发投资者维权事宜。
 
-天河边检站民警迅速安抚客商，细致比对证件，并立即联动主办方与志愿者，协助其按新护照信息重新完成登记，短短数分钟内便化解了这场“办证风波”。
+上海沪紫律师事务所刘鹏律师团队仍在征集受损股民中，前期收到的案件也已陆续递交立案。
 
-这背后是高效协同的保障机制。
+（刘鹏律师专栏） 依据处罚，于2022年7月1日-2024年8月15日（含当日）之前买入，并在2024年8月16日之后卖出或仍持有而亏损的即可参与维权，参与索赔的投资者需要准备相关交易记录以及身份证明等材料，以便律师团队进行后续的维权工作。
 
-记者17日从广州天河边检站获悉，该站与广交会主办方等单位建立了“急事急办、要事先办”联动流程，从核查、上报到信息修改、核验、制证，全程无缝衔接。
+（豆神教育维权入口） 刘鹏律师团队已有超过300名投资者完成维权材料提交，将根据监管处罚决定书及交易记录，重点围绕信息披露违规行为与投资者损失之间的因果关系展开论证。
 
-面对第139届广交会展览规模、参展企业、预登记新采购商数量均创历史新高的客流压力，边检部门靠前部署，通过强化材料前置审核、升级志愿者培训、开通7×24小时广交会服务专线等举措，全力保障办证顺畅。
+二、多起诉讼未及时披露 据处罚，经查明，2022年7月至2023年3月，豆神教育及其控股子公司涉及未按规定披露诉讼、仲裁事项5件、未按规定及时披露察布查尔锡伯案、德峰广告案，累计涉案金额1204.2万元。
 
-据天河边检站介绍，针对新客商首次参展可能遇到的各类突发状况，如证件遗漏、信息填报失误、签证辨认难等问题，边检民警灵活采取核对电子ID、查询出入境记录、多单位协同等方式快速解决。
+其次，未按规定及时披露张某案、寓乐湾案、张家口案，也未在2023年半年度报告中予以披露，累计涉案金额1.24亿元。
 
-民警曾为持特殊证件的委内瑞拉客商讲解政策，协助巴基斯坦客商寻回走散同伴，更凭借专业能力，从字迹模糊的波斯文签注中准确识别出有效居留签证，赢得客商赞誉。
+北京证监局决定对豆神教育给予警告，并处以230万元的罚款，相关责任人同样被罚。
 
-本届广交会首次推出“老广交”纪念贴纸，吸引众多资深客商领取。
+相关法律法规中规定发生可能对上市公司证券及其衍生品种交易价格产生较大影响的重大事件，投资者尚未得知时，上市公司应当立即披露。
 
 ## 相关推荐
 
-- 2026-06-30 01:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 01:24 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:19 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 01:41 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 01:12 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 01:16 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 01:23 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 01:33 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 01:28 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 01:13 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 01:43 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 01:47 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 01:41 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 01:31 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 01:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 01:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 01:28 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 01:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 01:27 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 01:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 01:42 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/368328.shtml)
-- 2026-06-30 01:21 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/844880710276.shtml)
-- 2026-06-30 01:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/63527.shtml)
-- 2026-06-30 01:25 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/5263950.shtml)
-- 2026-06-30 01:12 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/5640284688.shtml)
-- 2026-06-30 01:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/5461941.shtml)
-- 2026-06-30 01:21 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/5195891.shtml)
-- 2026-06-30 01:14 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/158227.shtml)
-- 2026-06-30 01:21 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/376177246775.shtml)
-- 2026-06-30 01:15 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/3158469.shtml)
-- 2026-06-30 01:24 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/22577613617.shtml)
-- 2026-06-30 01:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/91736.shtml)
-- 2026-06-30 01:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/773763.shtml)
-- 2026-06-30 01:41 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/577353.shtml)
-- 2026-06-30 01:23 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/2360056584.shtml)
+- 2026-06-30 01:27 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/983966681.shtml)
+- 2026-06-30 01:20 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/997542764.shtml)
+- 2026-06-30 01:45 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/07651601.shtml)
+- 2026-06-30 01:18 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/4643947.shtml)
+- 2026-06-30 01:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/31113222.shtml)
+- 2026-06-30 01:29 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/65428436200.shtml)
+- 2026-06-30 01:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/513604.shtml)
+- 2026-06-30 01:47 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/034992863.shtml)
+- 2026-06-30 01:37 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/11981173.shtml)
+- 2026-06-30 01:30 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/539032401284.shtml)
+- 2026-06-30 01:33 - [恋与深空致歉](http://www.blog.minike.top/Article/details/269223.shtml)
+- 2026-06-30 01:35 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/84389724.shtml)
+- 2026-06-30 01:36 - [斗破苍穹](https://www.share.minike.top/Article/details/849763.shtml)
+- 2026-06-30 01:37 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/509288696930.shtml)
+- 2026-06-30 01:46 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/1494882.shtml)

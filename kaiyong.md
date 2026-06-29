@@ -1,57 +1,57 @@
-# 长江经济带高质量发展论坛（2026）即将举行
+# “夫妻用AI写公众号年赚200万”？微信回应
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网北京4月16日电 (记者 曾玥)记者从中国人民大学获悉，长江经济带高质量发展论坛(2026)将于4月20日至22日在四川省宜宾市举行。 中国人民大学国家发展与战略研究院执行院长刘青介绍，本届论坛设有主论坛、2个主题圆桌和4个分论坛。主论坛将发布《长江经济带高质量发展版图报告2025》和长江经济带高质量发展大模型，相关领域专家学者将与会研讨。主题圆桌和分论坛分别围绕生态环境
+微信公众号出手打击AI创作：不得利用自动化方式替代真人完成内容生产 “夫妻用AI写公众号年赚200万”登上热搜后，微信回应。 最近在社交媒体上，用AI开设“一人公司”的风潮爆火，据某个商业访谈账号分享，有夫妻俩用AI写公众号赚取流量费，一年收入200万。不过，根据公开信息，所谓的200万年收入中，‌绝大部分来自向“内容达人”或学员收取的299元保证金费用‌，而非公众号流量广告。
 
 ## 正文
 
-中新网北京4月16日电 (记者 曾玥)记者从中国人民大学获悉，长江经济带高质量发展论坛(2026)将于4月20日至22日在四川省宜宾市举行。
+微信公众号出手打击AI创作：不得利用自动化方式替代真人完成内容生产 “夫妻用AI写公众号年赚200万”登上热搜后，微信回应。
 
-中国人民大学国家发展与战略研究院执行院长刘青介绍，本届论坛设有主论坛、2个主题圆桌和4个分论坛。
+最近在社交媒体上，用AI开设“一人公司”的风潮爆火，据某个商业访谈账号分享，有夫妻俩用AI写公众号赚取流量费，一年收入200万。
 
-主论坛将发布《长江经济带高质量发展版图报告2025》和长江经济带高质量发展大模型，相关领域专家学者将与会研讨。
+不过，根据公开信息，所谓的200万年收入中，‌绝大部分来自向“内容达人”或学员收取的299元保证金费用‌，而非公众号流量广告。
 
-主题圆桌和分论坛分别围绕生态环境高质量发展、经济金融高质量发展、公共资源交易跨区域发展、长江经济带乡村振兴突破性进展、长江经济带市际战略研商等主题开展深度对话。
+尽管如此，“AI写公众号”的消息也引发外界的广泛关注，不少声音担忧这会对现有内容模式造成巨大冲击。
 
-中国人民大学长江经济带研究院副院长、公共管理学院教授王丛虎介绍，《长江经济带高质量发展版图报告2025》构建生态、产业、创新、资金、人才、国土和文化七大维度的科学评价体系，系统梳理凝练长江流域内各地在经济动能转换、产业链创新链资金链人才链深度融合、国土空间高效利用、文化传承发展中的经验成效，为全国区域协同、绿色转型与创新驱动融合等提供可借鉴、可复制、可推广的发展范式。
+‌‌4月9日，微信团队向澎湃新闻记者回应，微信公众平台一贯鼓励真人创作。
 
-中国人民大学智慧治理学院副院长宋鹭介绍，作为面向区域经济治理与战略决策的垂直领域专用大模型，长江经济带高质量发展大模型系统整合长江沿线11省市产业发展、生态安全、科技创新、人才友好、资金保障、国土空间六大维度多源异构数据，将以智能咨询问答、智能报告生成、决策辅助智能体、部门级专属大模型四大产品，深度服务区域发展与治理研究、政府部门科学决策、企业战略决策三大应用场景，为长江经济带高质量发展提供科学化、智能化、专业化支撑。
+近期，平台关注到利用自动化工具替代真人创作的行为，《微信公众平台运营规范》再次明确：公众号和服务号不得利用AI、脚本、接口或其他自动化方式，替代真人完成内容创作、发布等流程，也不得传播、推广此类自动化创作的教程或服务。
 
-据悉，作为中国人民大学的品牌活动，长江经济带高质量发展系列论坛迄今已成功举办8届，为长江经济带生态环境保护、绿色低碳转型、区域协调发展与中国式现代化建设持续贡献高质量的智力支撑与决策参考。
+一经发现，平台将视违规程度对相关账号采取相应的处理措施。
 
-(完)
+微信团队表示，平台鼓励创作者合理使用工具辅助创作、提升创作效率，但反对完全由自动化程序替代真人完成内容生产的行为。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-30 01:25 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 01:38 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 01:32 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 01:31 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-30 01:38 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 01:33 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 01:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 01:24 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 01:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 01:35 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 01:41 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 01:25 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:36 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 01:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 01:21 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 01:41 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 01:44 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 01:43 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 01:23 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 01:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 01:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:20 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/630747.shtml)
-- 2026-06-30 01:16 - [日本16强魔咒](http://www.blog.minike.top/Article/details/98379657299.shtml)
-- 2026-06-30 01:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/547767.shtml)
-- 2026-06-30 01:36 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/2740676.shtml)
-- 2026-06-30 01:35 - [毒液2](http://www.share.minike.top/Article/details/6790584014.shtml)
-- 2026-06-30 01:19 - [周生如故](https://www.blog.minike.top/Article/details/394733156.shtml)
-- 2026-06-30 01:17 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/8725490.shtml)
-- 2026-06-30 01:33 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/044797.shtml)
-- 2026-06-30 01:32 - [新官上任三把火](https://www.share.minike.top/Article/details/0780057040.shtml)
-- 2026-06-30 01:31 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/3015105372.shtml)
-- 2026-06-30 01:32 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/364317924226.shtml)
-- 2026-06-30 01:26 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/61561753342.shtml)
-- 2026-06-30 01:41 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/335498.shtml)
-- 2026-06-30 01:19 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/06061623658.shtml)
-- 2026-06-30 01:38 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/162537015203.shtml)
+- 2026-06-30 01:41 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/5545677.shtml)
+- 2026-06-30 01:33 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/451554156.shtml)
+- 2026-06-30 01:27 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/9561953982.shtml)
+- 2026-06-30 01:36 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/20491470641.shtml)
+- 2026-06-30 01:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/978049645228.shtml)
+- 2026-06-30 01:47 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/020232041329.shtml)
+- 2026-06-30 01:47 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/73872234765.shtml)
+- 2026-06-30 01:25 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/74144341.shtml)
+- 2026-06-30 01:44 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/97491.shtml)
+- 2026-06-30 01:44 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/3154611065.shtml)
+- 2026-06-30 01:26 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/57032425398.shtml)
+- 2026-06-30 01:47 - [内马尔替补](https://www.blog.minike.top/Article/details/491367072.shtml)
+- 2026-06-30 01:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/53903.shtml)
+- 2026-06-30 01:39 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/950392.shtml)
+- 2026-06-30 01:27 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/970389.shtml)

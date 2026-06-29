@@ -1,46 +1,59 @@
-# N大普微涨超400% 总市值超千亿
+# 消息人士称，SpaceX已开始在得克萨斯州工厂安装设备，目标年底投产
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-每经AI快讯，4月16日，N大普微盘中涨超400%，总市值突破1000亿。
+两名知情消息人士透露，SpaceX已开始在其位于得克萨斯州巴斯特罗普的先进芯片封装工厂安装设备，这家卫星与火箭公司目标在今年年底前启动投产。 其中一位消息人士表示，该时间节点已出现一定延误，但公司仍计划在年底前实现投产。 消息人士称，该工厂将为SpaceX星链卫星互联网系统相关产品所用的射频（RF）芯片进行封装；因相关信息尚未公开，消息人士要求匿名。 据其中一名消息人士及第三名
 
 ## 正文
 
-每经AI快讯，4月16日，N大普微盘中涨超400%，总市值突破1000亿。
+两名知情消息人士透露，SpaceX已开始在其位于得克萨斯州巴斯特罗普的先进芯片封装工厂安装设备，这家卫星与火箭公司目标在今年年底前启动投产。
+
+其中一位消息人士表示，该时间节点已出现一定延误，但公司仍计划在年底前实现投产。
+
+消息人士称，该工厂将为SpaceX星链卫星互联网系统相关产品所用的射频（RF）芯片进行封装；因相关信息尚未公开，消息人士要求匿名。
+
+据其中一名消息人士及第三名消息人士透露，目前巴斯特罗普工厂待封装的射频芯片均由外部供应商完成封装，而SpaceX计划在该工厂投产后，将至少部分封装工序转为内部自主完成。
+
+SpaceX尚未立即回应媒体的置评请求。
+
+2025年，得克萨斯州州长格雷格・阿博特曾表示，未来三年内，SpaceX位于巴斯特罗普的工厂将扩建100万平方英尺，用于生产星链终端及相关组件，其中包括先进封装半导体产品。
+
+阿博特称，此次扩建预计耗资超2.8亿美元。
+
+埃隆・马斯克一直在逐步构建这家航天企业的半导体业务能力，并于上月公布计划，在得克萨斯州奥斯汀一处大型园区建设先进芯片制造工厂。
 
 ## 相关推荐
 
-- 2026-06-30 01:20 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 01:30 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 01:25 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 01:17 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 01:38 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 01:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 01:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 01:39 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 01:34 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 01:38 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 01:26 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 01:16 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 01:16 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 01:24 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 01:38 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 01:37 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 01:21 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 01:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 01:19 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 01:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 01:18 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 01:36 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 01:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 01:28 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 01:19 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 01:26 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 01:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [刘宇宁 好听](https://www.share.minike.top/Article/details/3049860430.shtml)
-- 2026-06-30 01:24 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/745462702.shtml)
-- 2026-06-30 01:24 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/17428046.shtml)
-- 2026-06-30 01:14 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/61099746.shtml)
-- 2026-06-30 01:18 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/237390187284.shtml)
-- 2026-06-30 01:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/9424289246.shtml)
-- 2026-06-30 01:27 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/089272.shtml)
-- 2026-06-30 01:16 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/42908748533.shtml)
-- 2026-06-30 01:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/580633.shtml)
-- 2026-06-30 01:21 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/213717.shtml)
-- 2026-06-30 01:33 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/1775996355.shtml)
-- 2026-06-30 01:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/057613907052.shtml)
-- 2026-06-30 01:41 - [85花告别古偶](http://www.share.minike.top/Article/details/047187.shtml)
-- 2026-06-30 01:20 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/95990522.shtml)
-- 2026-06-30 01:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/4829535807.shtml)
+- 2026-06-30 01:30 - [周生如故](https://www.blog.kurohicncr.top/Article/details/821918.shtml)
+- 2026-06-30 01:40 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/991062266.shtml)
+- 2026-06-30 01:47 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/0778727.shtml)
+- 2026-06-30 01:31 - [小娘惹](https://www.share.minike.top/Article/details/643178299854.shtml)
+- 2026-06-30 01:27 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/975621966.shtml)
+- 2026-06-30 01:43 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/1593829036.shtml)
+- 2026-06-30 01:25 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/74217154427.shtml)
+- 2026-06-30 01:26 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/58378.shtml)
+- 2026-06-30 01:35 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/4380228472.shtml)
+- 2026-06-30 01:18 - [世界杯](http://www.blog.kurohicncr.top/Article/details/317997741631.shtml)
+- 2026-06-30 01:33 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/82660257.shtml)
+- 2026-06-30 01:21 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/289823817.shtml)
+- 2026-06-30 01:46 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/022130830.shtml)
+- 2026-06-30 01:27 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/3878015559.shtml)
+- 2026-06-30 01:45 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/85945468.shtml)

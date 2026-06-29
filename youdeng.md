@@ -1,60 +1,56 @@
-# 涉“幽灵外卖”，京东张奇被罚超16万元
+# 东西问｜田然：伊朗高原的一个太子，他的中文译词何以流传千年？
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电
+中新社北京4月10日电 题：伊朗高原的一个太子，他的中文译词何以流传千年？ ——专访北京语言大学应用中文学院教授田然 中新社记者 徐文欣 公元148年，安世高沿古丝绸之路抵达东汉都城洛阳。他在中国学习中文，翻译佛经，不仅推动了佛教东传，也为汉语注入了新表达。今天我们使用的“念念不忘”“六根清净”“生老病死”等词，皆与他有关。 安世高是谁？他为何东行？历经近两千年的语言流变，他的
 
 ## 正文
 
-4月17日，市场监管总局依法对上海寻梦信息技术有限公司（拼多多）、北京三快科技有限公司（美团）、北京京东叁佰陆拾度电子商务有限公司（京东）、上海拉扎斯信息科技有限公司（原饿了么，现淘宝闪购）、北京抖音科技有限公司（抖音）、浙江淘宝网络有限公司（淘宝）、浙江天猫网络有限公司（天猫）等7家电商平台“幽灵外卖”系列案，依据《中华人民共和国食品安全法》第一百三十一条、《中华人民共和国电子商务法》第八十三条的规定作出行政处罚决定，责令7家电商平台改正违法行为，暂停新增蛋糕店铺3至9个月不等，并处以罚没款共计35.97亿元。
+中新社北京4月10日电 题：伊朗高原的一个太子，他的中文译词何以流传千年？
 
-同时，依据《中华人民共和国食品安全法实施条例》第七十五条的规定，对7家平台企业法定代表人和食品安全总监合计处以罚款1968.74万元。
+——专访北京语言大学应用中文学院教授田然 中新社记者 徐文欣 公元148年，安世高沿古丝绸之路抵达东汉都城洛阳。
 
-国家市场监督管理总局 行政处罚决定书 国市监处罚〔2026〕4号 当事人：张奇 身份证件类型：居民身份证 身份证件号码：略 住址：略 北京京东叁佰陆拾度电子商务有限公司存在未依法履行资质审查义务的违法行为，本局于2025年11月20日依法立案调查，当事人系该公司法定代表人。
+他在中国学习中文，翻译佛经，不仅推动了佛教东传，也为汉语注入了新表达。
 
-本局通过核查平台数据、询问相关人员、调取收入证明、提取书证、电子数据等方式，确定其违法事实。
+今天我们使用的“念念不忘”“六根清净”“生老病死”等词，皆与他有关。
 
-北京京东叁佰陆拾度电子商务有限公司作为网络食品交易第三方平台提供者，未依法履行资质审查义务，本局已决定依据《中华人民共和国食品安全法》第一百三十一条第一款“违反本法规定，网络食品交易第三方平台提供者未对入网食品经营者进行实名登记、审查许可证，或者未履行报告、停止提供网络交易平台服务等义务的，由县级以上人民政府食品安全监督管理部门责令改正，没收违法所得，并处五万元以上二十万元以下罚款；造成严重后果的，责令停业，直至由原发证部门吊销许可证；使消费者的合法权益受到损害的，应当与食品经营者承担连带责任”的规定，对北京京东叁佰陆拾度电子商务有限公司给予行政处罚。
+安世高是谁？
 
-北京京东叁佰陆拾度电子商务有限公司上述违法行为持续时间长、涉及店铺多、影响范围广、存在较高的食品安全风险，已构成《中华人民共和国食品安全法实施条例》第七十五条第一款第二项规定的“违法行为性质恶劣”情形。
+他为何东行？
 
-经查，当事人是北京京东叁佰陆拾度电子商务有限公司的法定代表人，上一年度取得的相关收入（略）。
+历经近两千年的语言流变，他的译词何以留存至今？
 
-上述事实，主要有以下证据证明：北京京东叁佰陆拾度电子商务有限公司的营业执照、增值电信业务经营许可证、网络食品交易第三方平台提供者备案、ICP备案、京东APP软件的主页截图、京东集团股权架构说明；《食品安全事故处置规范》《外卖平台经营管理规范》《京东外卖食品安全管理机构》；相关人员询问笔录；商家财务结算数据等电子数据及核对笔录；相关《服务协议》《合作协议》《情况说明》；当事人的身份证明文件、当事人上一年度收入证明材料等证据。
+近日，北京语言大学应用中文学院教授田然就此接受中新社“东西问”专访。
 
 ## 相关推荐
 
-- 2026-06-30 01:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 01:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 01:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 01:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 01:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 01:37 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 01:21 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 01:36 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 01:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 01:30 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 01:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 01:32 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 01:18 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-30 01:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 01:20 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 01:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 01:33 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 01:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 01:22 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 01:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 01:47 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-30 01:23 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 01:19 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/907787.shtml)
-- 2026-06-30 01:12 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/02085063.shtml)
-- 2026-06-30 01:17 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/79067780.shtml)
-- 2026-06-30 01:32 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/67684.shtml)
-- 2026-06-30 01:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/060909.shtml)
-- 2026-06-30 01:21 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/63337024734.shtml)
-- 2026-06-30 01:28 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/491467945783.shtml)
-- 2026-06-30 01:35 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/1417540613.shtml)
-- 2026-06-30 01:20 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/080171971.shtml)
-- 2026-06-30 01:39 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/47820813.shtml)
-- 2026-06-30 01:36 - [一见倾心](https://www.share.minike.top/Article/details/61306188.shtml)
-- 2026-06-30 01:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/095991.shtml)
-- 2026-06-30 01:18 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/598892669.shtml)
-- 2026-06-30 01:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/51336111.shtml)
-- 2026-06-30 01:29 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/525848.shtml)
+- 2026-06-30 01:33 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/122088556.shtml)
+- 2026-06-30 01:21 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/055977.shtml)
+- 2026-06-30 01:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/41467878.shtml)
+- 2026-06-30 01:30 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/693902564483.shtml)
+- 2026-06-30 01:32 - [一见倾心](https://www.blog.minike.top/Article/details/6817348.shtml)
+- 2026-06-30 01:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/316948921939.shtml)
+- 2026-06-30 01:24 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/4718722304.shtml)
+- 2026-06-30 01:23 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/617004932.shtml)
+- 2026-06-30 01:25 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/74007172.shtml)
+- 2026-06-30 01:41 - [时光音乐会](http://www.share.minike.top/Article/details/63317578.shtml)
+- 2026-06-30 01:30 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/9067531079.shtml)
+- 2026-06-30 01:38 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/848920148377.shtml)
+- 2026-06-30 01:24 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/84134.shtml)
+- 2026-06-30 01:21 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/63421479131.shtml)
+- 2026-06-30 01:24 - [世界杯](http://www.share.kurohicncr.top/Article/details/65448638723.shtml)

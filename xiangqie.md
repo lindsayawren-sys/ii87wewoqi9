@@ -1,58 +1,59 @@
-# 有期徒刑13年 海南省足球协会原主席吕建海受贿、贪污案一审宣判
+# 十几万娶的“外籍新娘”全跑路 揭秘跨境骗婚黑色产业链
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网4月16日电 据“琼中法院”微信公众号消息，2026年4月16日，琼中法院对海南省足球协会原主席吕建海受贿罪、贪污罪一案公开宣判。被告人吕建海犯受贿罪，判处有期徒刑十年，并处罚金75万元；犯贪污罪，判处有期徒刑七年，并处罚金50万元。数罪并罚，决定执行有期徒刑十三年，并处罚金125万元；被告人吕建海违法所得及其孳息依法予以追缴，上缴国库。经审理查明：一、受贿事实。2008
+十几万就能娶越南、缅甸“温柔新娘”？这样的违规广告吸引了一些单身人士的目光。但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，
 
 ## 正文
 
-中新网4月16日电 据“琼中法院”微信公众号消息，2026年4月16日，琼中法院对海南省足球协会原主席吕建海受贿罪、贪污罪一案公开宣判。
+十几万就能娶越南、缅甸“温柔新娘”？
 
-被告人吕建海犯受贿罪，判处有期徒刑十年，并处罚金75万元；犯贪污罪，判处有期徒刑七年，并处罚金50万元。
+这样的违规广告吸引了一些单身人士的目光。
 
-数罪并罚，决定执行有期徒刑十三年，并处罚金125万元；被告人吕建海违法所得及其孳息依法予以追缴，上缴国库。
+但广告的背后，根本不是相亲，而是组织偷渡加连环骗婚的黑色产业链。
 
-经审理查明：一、受贿事实。
+国家移民管理局、公安部、中国海警局自2022年起联合开展“獴猎”行动，严打组织偷渡、伪造证件、跨境电诈、涉外婚骗等违法犯罪，已侦办数万起案件、抓获数万名嫌疑人。
 
-2008年至2024年期间，被告人吕建海利用担任海南省体育赛事中心主任、省体校、省足协主席等职务便利以及职权形成的便利条件，为刘某等10名工程老板在工程项目及体育赛事广告业务承揽、资金拨付、设备采购等方面提供帮助，为叶某某的儿子叶某在干部选拔任用方面提供帮助，非法收受他人财物共计750万余元。
+近日，山东边检总站与湖南省冷水江市公安局公布，两地警方联合办案，凭一条可疑网帖，牵出一桩特大跨境婚骗案。
 
-二、贪污事实。
+一条可疑网帖牵出特大跨境婚骗案 2025年2月，山东边检总站石岛边检站民警在日常网络巡查时，一条高频刷屏的违规广告，瞬间触发预警。
 
-2009年至2024年期间，被告人吕建海利用担任海南省体育赛事中心主任、省体校、省足协主席等职务上的便利，以非法占有为目的，贪污公共财物共计478万余元。
+有人长期公开揽客，专业介绍越南、缅甸美女入境结婚生子。
 
-本院认为，被告人吕建海身为国家工作人员，利用职务上的便利，为他人谋取利益，以及利用职权形成的便利条件，为他人谋取不正当利益，非法收受他人财物共计750万余元，数额特别巨大，其行为侵犯了职务行为的廉洁性、不可收买性，已构成受贿罪；其身为国家工作人员，利用职务上的便利，骗取公共财物共计478万余元，数额特别巨大，其行为已构成贪污罪。
+话术极具诱惑，专门瞄准单身男性。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-30 01:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 01:20 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-30 01:39 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 01:31 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 01:30 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 01:23 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 01:22 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 01:16 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 01:16 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 01:24 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 01:33 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 01:22 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 01:22 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 01:26 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 01:47 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 01:33 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 01:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 01:20 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 01:26 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 01:28 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 01:29 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 01:32 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 01:31 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 01:33 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:34 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/95143286571.shtml)
-- 2026-06-30 01:38 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/476479.shtml)
-- 2026-06-30 01:15 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/099971291.shtml)
-- 2026-06-30 01:41 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/999788.shtml)
-- 2026-06-30 01:23 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/36805492.shtml)
-- 2026-06-30 01:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/7963416.shtml)
-- 2026-06-30 01:40 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/77375.shtml)
-- 2026-06-30 01:31 - [扬名立万](https://www.share.minike.top/Article/details/8033047886.shtml)
-- 2026-06-30 01:41 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/289608719.shtml)
-- 2026-06-30 01:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/605567439318.shtml)
-- 2026-06-30 01:35 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/63545566.shtml)
-- 2026-06-30 01:21 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/30352766.shtml)
-- 2026-06-30 01:14 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/29383162.shtml)
-- 2026-06-30 01:37 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/415446438.shtml)
-- 2026-06-30 01:21 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/230394141505.shtml)
+- 2026-06-30 01:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/8265770.shtml)
+- 2026-06-30 01:29 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/57082180751.shtml)
+- 2026-06-30 01:40 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/4730170286.shtml)
+- 2026-06-30 01:47 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/4760952.shtml)
+- 2026-06-30 01:46 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/008699113938.shtml)
+- 2026-06-30 01:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/005884631.shtml)
+- 2026-06-30 01:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/622304.shtml)
+- 2026-06-30 01:41 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/04229.shtml)
+- 2026-06-30 01:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/386220691315.shtml)
+- 2026-06-30 01:22 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/162742049.shtml)
+- 2026-06-30 01:22 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/4719026.shtml)
+- 2026-06-30 01:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/2834167652.shtml)
+- 2026-06-30 01:37 - [金刚川](https://www.blog.kurohicncr.top/Article/details/84817427339.shtml)
+- 2026-06-30 01:26 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/621659420.shtml)
+- 2026-06-30 01:33 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/682655156397.shtml)

@@ -1,56 +1,49 @@
-# 国家体育总局武术中心：未来三年将系统性支持海南武术发展
+# 工商银行：完成发行500亿元二级资本债券
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新网海口4月17日电(记者 王晓斌)17日在海口召开的第四届武术套路世界杯新闻发布会上，国家体育总局武术运动管理中心副主任、中国武术协会副主席陈冲表示，未来三年将系统性支持海南武术事业发展，大力支持海南打造“运动员、教练员、裁判员、管理干部、医科保障‘五位一体’的人才体系”。陈冲介绍，《海南省武术发展三年行动计划(2024—2026)》已出台实施，为项目普及与提升提供了坚实的
+4月10日金融一线消息，工商银行今日发布公告称，该行2026年二级资本债券（第一期）（债券通）（简称本期债券）已于近日在全国银行间债券市场发行完毕。 工商银行表示，本期债券发行规模为人民币500亿元，品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率为2.00%。本期债券募集资金在扣除发行费用后，将依据适用法律和主管部门的批准，补充银行的二级资本。 责任编辑
 
 ## 正文
 
-中新网海口4月17日电(记者 王晓斌)17日在海口召开的第四届武术套路世界杯新闻发布会上，国家体育总局武术运动管理中心副主任、中国武术协会副主席陈冲表示，未来三年将系统性支持海南武术事业发展，大力支持海南打造“运动员、教练员、裁判员、管理干部、医科保障‘五位一体’的人才体系”。
+4月10日金融一线消息，工商银行今日发布公告称，该行2026年二级资本债券（第一期）（债券通）（简称本期债券）已于近日在全国银行间债券市场发行完毕。
 
-陈冲介绍，《海南省武术发展三年行动计划(2024—2026)》已出台实施，为项目普及与提升提供了坚实的政策保障。
+工商银行表示，本期债券发行规模为人民币500亿元，品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率为2.00%。
 
-同时，海南自贸港建设的澎湃动能与区位优势相互叠加，为举办高水平国际武术赛事、深化武术文化交流创造了得天独厚的条件。
+本期债券募集资金在扣除发行费用后，将依据适用法律和主管部门的批准，补充银行的二级资本。
 
-在人才根基方面，体育总局武术中心和中国武协将支持海南组建专业武术队，深化“名校联培”机制提升竞技实力；支持引进国内外顶尖教练与优秀管理人才，加强本土骨干裁判培养；支持组建复合型医科保障团队，为科学化训练与参赛提供坚实支撑。
-
-品牌打造方面，中国武协将支持海南构建涵盖专业竞技、社会武术、青少年交流、商业赛事于一体的多元化赛事体系，积极推动更多武术套路、散打、短兵、搏击类高水平赛事落户海南，持续扶持海南国际武术大赛等品牌做大做强。
-
-陈冲透露，《中国武术王中王》赛事真人秀第二季已落户海南，节目上线四个月，全网曝光量突破30亿次，成为探索“武旅融合”新业态的前瞻性实践。
-
-文化传播方面，对内将支持海南深入挖掘、整理、规范本土传统武术资源，大力推动武术进学校、进社区、进机关、进企业、进乡村、进商圈、进景区；对外将支持海南依托自贸港开放平台，创新武术国际传播路径，坚持“请进来”与“走出去”相结合，充分利用“博鳌亚洲论坛”等高端平台，深化国际武术交流合作。
-
-(完)
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 01:21 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 01:13 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 01:28 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 01:36 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 01:35 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-30 01:17 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 01:30 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 01:39 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 01:24 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-30 01:36 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 01:46 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 01:32 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-30 01:29 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 01:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 01:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 01:19 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 01:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 01:26 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 01:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 01:29 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 01:42 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/345104814789.shtml)
-- 2026-06-30 01:25 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/74547.shtml)
-- 2026-06-30 01:17 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/23307.shtml)
-- 2026-06-30 01:35 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/315192.shtml)
-- 2026-06-30 01:12 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/31191.shtml)
-- 2026-06-30 01:23 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/981679500.shtml)
-- 2026-06-30 01:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/5623058497.shtml)
-- 2026-06-30 01:18 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/385789.shtml)
-- 2026-06-30 01:37 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/4842597822.shtml)
-- 2026-06-30 01:34 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/7105388.shtml)
-- 2026-06-30 01:39 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/061059826.shtml)
-- 2026-06-30 01:35 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/565863.shtml)
-- 2026-06-30 01:30 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/7051385.shtml)
-- 2026-06-30 01:19 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/2104987.shtml)
-- 2026-06-30 01:23 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/559007355381.shtml)
+- 2026-06-30 01:36 - [一生一世](http://www.blog.kurohicncr.top/Article/details/97317016.shtml)
+- 2026-06-30 01:42 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/7341736.shtml)
+- 2026-06-30 01:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/79695507378.shtml)
+- 2026-06-30 01:37 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/3907487.shtml)
+- 2026-06-30 01:38 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/811947680004.shtml)
+- 2026-06-30 01:28 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/3850821164.shtml)
+- 2026-06-30 01:21 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/786454513859.shtml)
+- 2026-06-30 01:21 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/363761734.shtml)
+- 2026-06-30 01:22 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/6085457.shtml)
+- 2026-06-30 01:23 - [逃狱兄弟](http://www.blog.minike.top/Article/details/743870651.shtml)
+- 2026-06-30 01:30 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/4469217184.shtml)
+- 2026-06-30 01:42 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/4492495364.shtml)
+- 2026-06-30 01:23 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/236370161.shtml)
+- 2026-06-30 01:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/77391258327.shtml)
+- 2026-06-30 01:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/5370079.shtml)

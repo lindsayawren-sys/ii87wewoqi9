@@ -1,61 +1,58 @@
-# LINLEE林里春日“龙井系列”正式上市
+# 五维互嵌筑同心，伍乐聚才谱新篇——奉贤区金海街道开展铸牢中华民族共同体意识实践
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月16日，手打柠檬茶品牌“LINLEE林里”推出全新春季限定——“龙井系列”茶饮。 据悉，本次“龙井系列”严选源自浙江主产区的龙井茶，恪守传统制茶工艺制作，配合门店“现泡、新鲜”的出品标准，呈现出“三重茶香”——入口鲜爽，尾韵带有幽雅的兰花香。 在风味研发与呈现上，林里针对不同产品采取了“加减法”策略。研
+上海之鱼的碧波之畔，“汇在金海 伍乐聚才”铸牢中华民族共同体意识实践阵地内暖意融融。各族同胞围坐一堂，品尝特色小吃、聊着生活日常，一旁的“法援石榴籽微讲堂”中，志愿者正用通俗语言讲解法律知识，空气中洋溢着邻里相融的烟火气息。作为奉贤新城的核心区域，金海街道这座“青春之城”深耕民族团结进步事业，以“汇在金海 伍乐聚才”路径为依托，推动“五个互嵌”融入日常、落在经常，相关实践亮点纷
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+上海之鱼的碧波之畔，“汇在金海 伍乐聚才”铸牢中华民族共同体意识实践阵地内暖意融融。
 
-4月16日，手打柠檬茶品牌“LINLEE林里”推出全新春季限定——“龙井系列”茶饮。
+各族同胞围坐一堂，品尝特色小吃、聊着生活日常，一旁的“法援石榴籽微讲堂”中，志愿者正用通俗语言讲解法律知识，空气中洋溢着邻里相融的烟火气息。
 
-据悉，本次“龙井系列”严选源自浙江主产区的龙井茶，恪守传统制茶工艺制作，配合门店“现泡、新鲜”的出品标准，呈现出“三重茶香”——入口鲜爽，尾韵带有幽雅的兰花香。
+作为奉贤新城的核心区域，金海街道这座“青春之城”深耕民族团结进步事业，以“汇在金海 伍乐聚才”路径为依托，推动“五个互嵌”融入日常、落在经常，相关实践亮点纷呈。
 
-在风味研发与呈现上，林里针对不同产品采取了“加减法”策略。
+提升空间互嵌，筑巢聚心打造“共融港湾” 立足“南上海城市会客厅”的区位优势，金海街道将服务平台深度嵌入15分钟社区生活圈，构建起抬头可见、举手可及的“一站式”交往交流交融空间。
 
-研发团队将手工暴打的鲜切香水柠檬与清冽龙井结合，追求“甜酸平衡不抢味”。
+场所规划注重功能布局，打造“法援石榴籽微讲堂”法律服务空间和“V爱石榴籽微公益”课堂，实现党群服务资源互通共享，形成互嵌融居的温馨家园。
 
-另外，林里也同步推出了1000ml超大容量的“霸王杯”，锁定追剧、加班、户外出行等多场景的畅饮需求。
+自2023年起，每年国庆期间各族群众欢聚社区拉面馆“同吃一碗国庆面”，在一餐一饭中拉近距离、增进情谊。
 
-林里的超级IP“林里鸭”也同步换上了“春游江南”新装。
+“以前常待在家里，现在这里成了我常来的地方。
 
-消费者既能随机解锁摇着折扇的“林小生鸭”或“林佳人鸭”，还能获得专为出游设计的外带包“林里春游菜篮子”。
+”——各族群众的欢声笑语，映照出“你中有我、我中有你”的融居格局，归属感与幸福感油然而生。
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 01:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 01:40 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 01:36 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 01:38 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 01:21 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 01:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 01:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 01:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 01:12 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 01:25 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 01:36 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 01:25 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 01:24 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 01:12 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 01:37 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 01:34 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 01:20 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 01:44 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 01:24 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:40 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 01:33 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 01:38 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 01:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 01:35 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 01:18 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 01:42 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:13 - [恋与深空回应争议](https://www.share.minike.top/Article/details/21520065.shtml)
-- 2026-06-30 01:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/798333077316.shtml)
-- 2026-06-30 01:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/9978610.shtml)
-- 2026-06-30 01:36 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/616966.shtml)
-- 2026-06-30 01:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/2939226796.shtml)
-- 2026-06-30 01:17 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/08957.shtml)
-- 2026-06-30 01:39 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/14324970.shtml)
-- 2026-06-30 01:20 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/7132517896.shtml)
-- 2026-06-30 01:18 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/87018752.shtml)
-- 2026-06-30 01:21 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/818729225.shtml)
-- 2026-06-30 01:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/99282934398.shtml)
-- 2026-06-30 01:14 - [千香](http://www.blog.kurohicncr.top/Article/details/5631219.shtml)
-- 2026-06-30 01:20 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/9666681.shtml)
-- 2026-06-30 01:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/11874213.shtml)
-- 2026-06-30 01:30 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/33952815.shtml)
+- 2026-06-30 01:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/32074039202.shtml)
+- 2026-06-30 01:36 - [明星大侦探第一季](http://www.share.minike.top/Article/details/049310.shtml)
+- 2026-06-30 01:37 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/67397.shtml)
+- 2026-06-30 01:24 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/8136131788.shtml)
+- 2026-06-30 01:33 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/3777393.shtml)
+- 2026-06-30 01:22 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/016219112810.shtml)
+- 2026-06-30 01:47 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/2162009066.shtml)
+- 2026-06-30 01:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/309914995.shtml)
+- 2026-06-30 01:27 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6075087516.shtml)
+- 2026-06-30 01:32 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/7812251697.shtml)
+- 2026-06-30 01:28 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/5581201.shtml)
+- 2026-06-30 01:36 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/68746289115.shtml)
+- 2026-06-30 01:39 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/2369903293.shtml)
+- 2026-06-30 01:38 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/9063457121.shtml)
+- 2026-06-30 01:43 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/1335720.shtml)

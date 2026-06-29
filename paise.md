@@ -1,55 +1,59 @@
-# 四川有好戏｜蔡雅康：以《苏母》探寻“三苏”背后的温情力量
+# 第二十九届哈佛中国论坛将于4月启幕 聚焦商业、科技创新、可持续发展等多元议题
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月17日 11:06 来源：中国新闻网 “三苏”的文坛盛名流传千年，而在他们背后的这位女性，终于走上舞台被看见。四川人艺话剧《苏母》另辟蹊径，跳出东坡题材的创作热潮，将目光投向“三苏”背后的程夫人，填补了“三苏”题材中女性叙事的空白。 这部作品以“正剧喜演”的川味表达，揉进方言与川剧元素，写意的宋代美学舞美让苏母的坚韧与淡雅具象化。以史为骨、想象为肉，于
+专题：第二十九届哈佛中国论坛 新浪财经讯 第二十九届哈佛中国论坛将于2026年4月11日至12日在哈佛校园举行。本届论坛以“百川异源，汇于今朝”为主题，延续其作为北美地区规模最大、历史最悠久的中国主题学生主导峰会之一的定位，汇聚来自学界、商界、政界与科技领域的代表人物，围绕全球议题展开交流。新浪财经将作为合作伙伴到场报道。 自1997年创立以来，哈佛中国论坛每年吸引逾千名与会者
 
 ## 正文
 
-发布时间：2026年04月17日 11:06 来源：中国新闻网 “三苏”的文坛盛名流传千年，而在他们背后的这位女性，终于走上舞台被看见。
+专题：第二十九届哈佛中国论坛 新浪财经讯 第二十九届哈佛中国论坛将于2026年4月11日至12日在哈佛校园举行。
 
-四川人艺话剧《苏母》另辟蹊径，跳出东坡题材的创作热潮，将目光投向“三苏”背后的程夫人，填补了“三苏”题材中女性叙事的空白。
+本届论坛以“百川异源，汇于今朝”为主题，延续其作为北美地区规模最大、历史最悠久的中国主题学生主导峰会之一的定位，汇聚来自学界、商界、政界与科技领域的代表人物，围绕全球议题展开交流。
 
-这部作品以“正剧喜演”的川味表达，揉进方言与川剧元素，写意的宋代美学舞美让苏母的坚韧与淡雅具象化。
+新浪财经将作为合作伙伴到场报道。
 
-以史为骨、想象为肉，于日常点滴中见伟大，于蜀地烟火中品母性力量。
+自1997年创立以来，哈佛中国论坛每年吸引逾千名与会者及百余位嘉宾参与，逐步发展为连接中美思想界与产业界的重要平台。
 
-本期节目我们邀请到四川艺术职业学院原副院长、一级导演蔡雅康带我们读懂话剧《苏母》的创作巧思，读懂“三苏”背后那份不可或缺的温柔支撑。
+论坛通过主题演讲、圆桌讨论及跨界对话等形式，探讨在经济发展、科技创新与全球治理等领域面临的机遇与挑战。
 
-(高嘉琪 戴书凌) 责任编辑：【周驰】
+在议题设置上，本届论坛将重点聚焦多项前沿方向，包括人工智能与前沿科技驱动下的产业重构、全球资本流动与金融体系演进、气候变化与可持续发展路径、生物科技创新及其伦理边界、媒体与信息传播格局变迁，以及地缘政治与国际关系的新变量等。
+
+主办方表示，这些议题不仅反映当下全球关注的核心问题，也将成为影响未来十年的关键变量。
+
+据主办方介绍，本届论坛主题“百川异源，汇于今朝”取意于中国古籍《淮南子·氾论训》“百川异源，而皆归于海”，旨在强调多元视角与差异背景下的交流价值。
 
 ## 相关推荐
 
-- 2026-06-30 01:16 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 01:39 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 01:14 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 01:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 01:12 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 01:39 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 01:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 01:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 01:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 01:36 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 01:31 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 01:13 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 01:25 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 01:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 01:20 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 01:32 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 01:25 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 01:30 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 01:20 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 01:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 01:45 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 01:36 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-30 01:42 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 01:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 01:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 01:24 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:33 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/2074185561.shtml)
-- 2026-06-30 01:31 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/95035.shtml)
-- 2026-06-30 01:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/06029975.shtml)
-- 2026-06-30 01:33 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/0791119833.shtml)
-- 2026-06-30 01:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/719357862.shtml)
-- 2026-06-30 01:18 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/76276537285.shtml)
-- 2026-06-30 01:37 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/922352.shtml)
-- 2026-06-30 01:27 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/7843607883.shtml)
-- 2026-06-30 01:28 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/6658967.shtml)
-- 2026-06-30 01:33 - [斗破苍穹](http://www.share.minike.top/Article/details/04467180267.shtml)
-- 2026-06-30 01:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/4201052.shtml)
-- 2026-06-30 01:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/31928498.shtml)
-- 2026-06-30 01:21 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/0160504.shtml)
-- 2026-06-30 01:35 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/48898.shtml)
-- 2026-06-30 01:14 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/765310134492.shtml)
+- 2026-06-30 01:34 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/46176875.shtml)
+- 2026-06-30 01:35 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/50617795730.shtml)
+- 2026-06-30 01:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/73787648121.shtml)
+- 2026-06-30 01:47 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/7546977.shtml)
+- 2026-06-30 01:37 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/077652436.shtml)
+- 2026-06-30 01:23 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/973233.shtml)
+- 2026-06-30 01:38 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/653097226.shtml)
+- 2026-06-30 01:26 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/39430397011.shtml)
+- 2026-06-30 01:44 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/252372859847.shtml)
+- 2026-06-30 01:45 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/39990069661.shtml)
+- 2026-06-30 01:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/28962815147.shtml)
+- 2026-06-30 01:41 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/47442588.shtml)
+- 2026-06-30 01:28 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/7322351.shtml)
+- 2026-06-30 01:19 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/81762.shtml)
+- 2026-06-30 01:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/307920373364.shtml)

@@ -1,56 +1,57 @@
-# A股三大股指涨跌互现：CPO概念爆发，光伏产业链午后崛起
+# 当AI与书法艺术结合 艺术家王绍强呈现另一种可能
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股三大股指4月17日开盘涨跌互现。早盘沪指弱势窄震，深市小幅震荡上行。午后冲高回落，依旧保持沪弱深强的格局。 从盘面上看，CPO概念股爆发，个股大面积创新高；光伏产业链午后崛起，PCB、半导体设备、能源金属、锂电池、商业航天、AI应用题材活跃。医药、白酒、化工板块走弱。 至收盘，上证综指跌0.1%，报40
+中新网北京4月9日电 (记者 应妮)面对AI时代，艺术家可以做什么？正在京展出的展览“厚土流光：王绍强的行察与通变”，呈现出另一种全新可能。 王绍强现任广东美术馆馆长，多年来专注于东方哲学思想与自然观的深入研究，关注于传统文脉的当代转换，不断在观念与方法论层面寻找突破。他大胆把人工智能引入到研究和创作过程中，发展出一种面向全球语境的语言观念艺术，在对水墨、纸本材料的尊重与谙熟的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月9日电 (记者 应妮)面对AI时代，艺术家可以做什么？
 
-A股三大股指4月17日开盘涨跌互现。
+正在京展出的展览“厚土流光：王绍强的行察与通变”，呈现出另一种全新可能。
 
-早盘沪指弱势窄震，深市小幅震荡上行。
+王绍强现任广东美术馆馆长，多年来专注于东方哲学思想与自然观的深入研究，关注于传统文脉的当代转换，不断在观念与方法论层面寻找突破。
 
-午后冲高回落，依旧保持沪弱深强的格局。
+他大胆把人工智能引入到研究和创作过程中，发展出一种面向全球语境的语言观念艺术，在对水墨、纸本材料的尊重与谙熟的基础上，形成独到的视觉逻辑、当代观念及艺术维度。
 
-从盘面上看，CPO概念股爆发，个股大面积创新高；光伏产业链午后崛起，PCB、半导体设备、能源金属、锂电池、商业航天、AI应用题材活跃。
+展览以五个单元逐步呈现艺术家近年来持续推进的观念书写实践及其跨文化诠释路径。
 
-医药、白酒、化工板块走弱。
+第一单元的第一件作品《孜孜千字》就是一幅非传统意义上的书法作品。
 
-至收盘，上证综指跌0.1%，报4051.43点；深证成指涨0.6%，报14885.42点；创业板指涨1.43%，报3678.29点。
+王绍强将传统笔法书写的《千字文》和《千字文》的英文翻译叠加在一起，将中国文言文转译成英文的工作是AI完成的，当AI生成结果不准确或是有错误时，艺术家再继续修改完善。
 
-Wind统计显示，两市及北交所共2390家上涨，2982家下跌，平盘有124家。
+最终，所有的书写、修改、思考、涂抹痕迹叠加在一起，形成了这件作品。
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 01:37 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 01:29 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 01:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 01:20 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 01:29 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 01:22 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 01:37 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 01:25 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 01:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 01:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 01:31 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 01:29 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 01:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 01:38 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 01:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 01:40 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 01:29 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 01:31 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 01:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:15 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/7600180063.shtml)
-- 2026-06-30 01:17 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/520494380.shtml)
-- 2026-06-30 01:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/93892644.shtml)
-- 2026-06-30 01:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/757466.shtml)
-- 2026-06-30 01:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/55818971324.shtml)
-- 2026-06-30 01:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/5206003404.shtml)
-- 2026-06-30 01:13 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/496951355.shtml)
-- 2026-06-30 01:24 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/3638885.shtml)
-- 2026-06-30 01:34 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/2608257049.shtml)
-- 2026-06-30 01:17 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/865188.shtml)
-- 2026-06-30 01:22 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/51498.shtml)
-- 2026-06-30 01:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/082077531422.shtml)
-- 2026-06-30 01:25 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/782483182.shtml)
-- 2026-06-30 01:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/4931135704.shtml)
-- 2026-06-30 01:39 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/9080405014.shtml)
+- 2026-06-30 01:46 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/082839.shtml)
+- 2026-06-30 01:26 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/573570.shtml)
+- 2026-06-30 01:20 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/881343678.shtml)
+- 2026-06-30 01:38 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/54369.shtml)
+- 2026-06-30 01:38 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/79998437502.shtml)
+- 2026-06-30 01:28 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/2350928043.shtml)
+- 2026-06-30 01:35 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/12138895028.shtml)
+- 2026-06-30 01:20 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/3306890515.shtml)
+- 2026-06-30 01:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/844827327.shtml)
+- 2026-06-30 01:43 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/399943571771.shtml)
+- 2026-06-30 01:47 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/9680381684.shtml)
+- 2026-06-30 01:35 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/758307.shtml)
+- 2026-06-30 01:26 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/26272800.shtml)
+- 2026-06-30 01:21 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/887219.shtml)
+- 2026-06-30 01:32 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/78610626426.shtml)

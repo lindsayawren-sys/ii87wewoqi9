@@ -1,60 +1,45 @@
-# 机构称中东冲突对泰国物价影响显现
+# 宝积资本授出1.205亿份购股权
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中新社曼谷4月16日电 (李映民 刘宇博)泰国开泰研究中心16日发布报告称，中东冲突对泰国能源及部分商品价格的影响已开始显现。 报告援引泰国商务部的数据称，2026年3月泰国通货膨胀率同比下降0.08%，较2月的0.88%明显收窄。 数据显示，能源价格仍为通胀主要下拉因素。3月能源价格指数同比下降2.8%，拉低整体通胀0.3个百分点。尽管国际油价上涨推动布伦特原油均价同比上升，
+宝积资本（08168）发布公告，于2026年4月8日，公司根据其于2025年2月18日采纳的购股权计划授出合共1.205亿份购股权予15名合资格参与者，彼等为集团的董事、高级管理层及雇员，但须待承授人接纳后方可作实。责任编辑：卢昱君
 
 ## 正文
 
-中新社曼谷4月16日电 (李映民 刘宇博)泰国开泰研究中心16日发布报告称，中东冲突对泰国能源及部分商品价格的影响已开始显现。
+宝积资本（08168）发布公告，于2026年4月8日，公司根据其于2025年2月18日采纳的购股权计划授出合共1.205亿份购股权予15名合资格参与者，彼等为集团的董事、高级管理层及雇员，但须待承授人接纳后方可作实。
 
-报告援引泰国商务部的数据称，2026年3月泰国通货膨胀率同比下降0.08%，较2月的0.88%明显收窄。
-
-数据显示，能源价格仍为通胀主要下拉因素。
-
-3月能源价格指数同比下降2.8%，拉低整体通胀0.3个百分点。
-
-尽管国际油价上涨推动布伦特原油均价同比上升，但在政府补贴作用下，泰国国内能源价格仍同比下降，其中柴油价格在3月中旬前维持低位，带动当月能源价格整体走低；此后柴油价格快速上调。
-
-与此同时，中东冲突推升泰国部分商品价格上涨，建筑材料及公共交通费用涨幅较为明显。
-
-在统计的464类商品中，价格上涨品类占比由上月的47.6%升至49.8%，显示价格上涨面有所扩大。
-
-开泰研究中心预计，随着能源价格上行，泰国通胀率自4月起将转为正值，并将2026年全年通胀预期由0.4%上调至3.4%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 01:33 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 01:12 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 01:23 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 01:33 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 01:37 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-30 01:19 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 01:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:39 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 01:24 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 01:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 01:19 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 01:19 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 01:16 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 01:40 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 01:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 01:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 01:24 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 01:19 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 01:30 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 01:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 01:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-30 01:23 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 01:28 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 01:42 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:14 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/10125295.shtml)
-- 2026-06-30 01:41 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/566847.shtml)
-- 2026-06-30 01:38 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/4443253845.shtml)
-- 2026-06-30 01:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/7129958.shtml)
-- 2026-06-30 01:28 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/825093879.shtml)
-- 2026-06-30 01:15 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/988969.shtml)
-- 2026-06-30 01:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/422085.shtml)
-- 2026-06-30 01:35 - [啊啊啊](https://www.share.minike.top/Article/details/219169074.shtml)
-- 2026-06-30 01:15 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/2893816.shtml)
-- 2026-06-30 01:29 - [周生如故](https://www.blog.minike.top/Article/details/373525786130.shtml)
-- 2026-06-30 01:13 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/269198375870.shtml)
-- 2026-06-30 01:22 - [沉睡花园](https://www.share.minike.top/Article/details/64386525637.shtml)
-- 2026-06-30 01:29 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/33648.shtml)
-- 2026-06-30 01:34 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/02154111836.shtml)
-- 2026-06-30 01:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/70746698.shtml)
+- 2026-06-30 01:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/8286161403.shtml)
+- 2026-06-30 01:18 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/24944208046.shtml)
+- 2026-06-30 01:36 - [绘画区你赢了](http://www.share.minike.top/Article/details/8027782727.shtml)
+- 2026-06-30 01:35 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/050345.shtml)
+- 2026-06-30 01:36 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/17351870.shtml)
+- 2026-06-30 01:22 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/534359.shtml)
+- 2026-06-30 01:46 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/23163032273.shtml)
+- 2026-06-30 01:40 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/13017930.shtml)
+- 2026-06-30 01:32 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/63248661.shtml)
+- 2026-06-30 01:46 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/73854.shtml)
+- 2026-06-30 01:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/1221570.shtml)
+- 2026-06-30 01:44 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/723415.shtml)
+- 2026-06-30 01:36 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/0601886299.shtml)
+- 2026-06-30 01:27 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/272151621.shtml)
+- 2026-06-30 01:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/8817068.shtml)

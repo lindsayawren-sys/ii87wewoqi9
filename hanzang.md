@@ -1,58 +1,56 @@
-# 业绩夯爆了！中际旭创一季度净利狂增262%！高“光”创业板人工智能ETF华宝（159363）暴涨创新高，资金抢跑
+# 多位书记省长会见一位外企高管
 
-> 更新时间：2026-06-30 01:42:03 UTC+8
+> 更新时间：2026-06-30 01:48:02 UTC+8
 
 ## 摘要
 
-中际旭创发布的2026年第一季度业绩报告显示，公司营业收入为194.96亿元，同比增长192.12%；归属母公司股东净利润为57.35亿元，同比增长262.28%。此次业绩增长主要源于终端客户在算力基础设施方面的持续投入，推动公司产品出货量显著提升。 行情方面，4月16日，光模块龙头中际旭创涨近4%，股价录得历史新高！重仓光模块龙头的创业板人工智能ETF华宝（159363）场内
+短短一个多月内，山东、辽宁、江苏三省份的省级党政一把手先后会见了同一位外企高管——沃尔玛中国总裁及首席执行官朱晓静。 最新一次会见发生在4月7日。山东省委书记林武在济南会见了朱晓静一行。此前的3月18日，辽宁省委书记许昆林在沈阳与朱晓静举行会谈；2月26日，江苏省省长刘小涛在南京会见了朱晓静。 如此密集的高层互动，释放了什么信号？ 从公开报道看，三省省级党委或政府主要负责人在与
 
 ## 正文
 
-中际旭创发布的2026年第一季度业绩报告显示，公司营业收入为194.96亿元，同比增长192.12%；归属母公司股东净利润为57.35亿元，同比增长262.28%。
+短短一个多月内，山东、辽宁、江苏三省份的省级党政一把手先后会见了同一位外企高管——沃尔玛中国总裁及首席执行官朱晓静。
 
-此次业绩增长主要源于终端客户在算力基础设施方面的持续投入，推动公司产品出货量显著提升。
+最新一次会见发生在4月7日。
 
-行情方面，4月16日，光模块龙头中际旭创涨近4%，股价录得历史新高！
+山东省委书记林武在济南会见了朱晓静一行。
 
-重仓光模块龙头的创业板人工智能ETF华宝（159363）场内暴涨4.97%创历史新高，交投创阶段新高！
+此前的3月18日，辽宁省委书记许昆林在沈阳与朱晓静举行会谈；2月26日，江苏省省长刘小涛在南京会见了朱晓静。
 
-资金抢跑买入，单日净流入8105万元！
+如此密集的高层互动，释放了什么信号？
 
-热点追踪 中际旭创2026年第一季度业绩表现亮眼，呈现高速增长态势，主要受益于AI算力需求爆发推动的高端光模块市场景气度持续提升。
+从公开报道看，三省省级党委或政府主要负责人在与朱晓静会谈时，均不约而同地提到了几个关键词：提振消费、供应链对接、新业态新模式。
 
-公司作为全球光模块龙头，800G等高端产品出货量大幅增长，叠加产能利用率和良品率提升，推动盈利能力显著增强。
+在山东，林武明确表示，希望沃尔玛继续加大投入力度，优化业务布局，推动更多优质项目落户山东。
 
-公司主动将一季报披露时间提前至4月17日，也反映出管理层对业绩表现的信心。
+他特别提出，希望双方持续深化产业链供应链合作，推动更多山东优质农产品和工业制品纳入沃尔玛全球供应链体系，共同打造一批引领消费零售领域标杆项目。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 01:35 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 01:25 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 01:23 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 01:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 01:28 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 01:28 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 01:38 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 01:27 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 01:19 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 01:41 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 01:13 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 01:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 01:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 01:32 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-30 01:20 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 01:18 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 01:39 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:32 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-30 01:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 01:47 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 01:34 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/146319912146.shtml)
-- 2026-06-30 01:29 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/4612451806.shtml)
-- 2026-06-30 01:27 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/54213258063.shtml)
-- 2026-06-30 01:16 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/19414856.shtml)
-- 2026-06-30 01:26 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/3433665633.shtml)
-- 2026-06-30 01:31 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/80092.shtml)
-- 2026-06-30 01:32 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/660696643.shtml)
-- 2026-06-30 01:17 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/38479.shtml)
-- 2026-06-30 01:27 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/3054563036.shtml)
-- 2026-06-30 01:22 - [逃狱兄弟](http://www.share.minike.top/Article/details/2607877915.shtml)
-- 2026-06-30 01:35 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/32271770149.shtml)
-- 2026-06-30 01:33 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/7095788.shtml)
-- 2026-06-30 01:30 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/488964.shtml)
-- 2026-06-30 01:35 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/6076809.shtml)
-- 2026-06-30 01:41 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/366820.shtml)
+- 2026-06-30 01:45 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/7095760.shtml)
+- 2026-06-30 01:25 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/894817993.shtml)
+- 2026-06-30 01:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/5111257952.shtml)
+- 2026-06-30 01:24 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/12422015338.shtml)
+- 2026-06-30 01:36 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/773763363.shtml)
+- 2026-06-30 01:28 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/001921.shtml)
+- 2026-06-30 01:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/87570953176.shtml)
+- 2026-06-30 01:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/40418309.shtml)
+- 2026-06-30 01:34 - [天道](http://www.share.kurohicncr.top/Article/details/6373232.shtml)
+- 2026-06-30 01:20 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/7998880509.shtml)
+- 2026-06-30 01:29 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/721449755850.shtml)
+- 2026-06-30 01:34 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/06002560.shtml)
+- 2026-06-30 01:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/3142805465.shtml)
+- 2026-06-30 01:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/62805.shtml)
+- 2026-06-30 01:34 - [恋与深空回应争议](https://www.share.minike.top/Article/details/0564799214.shtml)
