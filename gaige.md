@@ -1,59 +1,50 @@
-# 斯诺克世锦赛：赵心童胜丁俊晖进八强 吴宜泽暂时领先塞尔比
+# 金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新社英国谢菲尔德4月27日电 当地时间26日，2026斯诺克世界锦标赛在英国谢菲尔德继续16进8轮次之战。中国选手中，赵心童以13比9战胜丁俊晖晋级八强，吴宜泽与英格兰名将马克·塞尔比两阶段战罢暂时以9比7领先。斯诺克世锦赛是斯诺克最具影响力和最高水平的赛事。此次赵心童与丁俊晖均以种子选手身份参赛，二人的强强对话吸引了各方关注。 按照赛制，该轮比赛采用25局13胜制，此前比赛
+中新网5月18日电 据朝中社18日报道，朝鲜劳动党总书记、国务委员会委员长金正恩17日召开朝鲜人民军全军师旅指挥员会议，要求“特别加强守卫南部边境的一线部队，把边界筑成坚不可摧的要塞”。 据报道，金正恩在会上表示，练兵备战是军队的本职工作，他提出关于适应现代战争变化模式和朝鲜人民军发展趋势，整顿训练体系、加强实用训练的方针。 金正恩在谈到领土防卫政策时指出，要求“加强守卫南部边
 
 ## 正文
 
-中新社英国谢菲尔德4月27日电 当地时间26日，2026斯诺克世界锦标赛在英国谢菲尔德继续16进8轮次之战。
+中新网5月18日电 据朝中社18日报道，朝鲜劳动党总书记、国务委员会委员长金正恩17日召开朝鲜人民军全军师旅指挥员会议，要求“特别加强守卫南部边境的一线部队，把边界筑成坚不可摧的要塞”。
 
-中国选手中，赵心童以13比9战胜丁俊晖晋级八强，吴宜泽与英格兰名将马克·塞尔比两阶段战罢暂时以9比7领先。
+据报道，金正恩在会上表示，练兵备战是军队的本职工作，他提出关于适应现代战争变化模式和朝鲜人民军发展趋势，整顿训练体系、加强实用训练的方针。
 
-斯诺克世锦赛是斯诺克最具影响力和最高水平的赛事。
+金正恩在谈到领土防卫政策时指出，要求“加强守卫南部边境的一线部队，把边界筑成坚不可摧的要塞”。
 
-此次赵心童与丁俊晖均以种子选手身份参赛，二人的强强对话吸引了各方关注。
-
-按照赛制，该轮比赛采用25局13胜制，此前比赛前两阶段较量，赵心童以9比7暂时领先。
-
-关键的第三阶段，丁俊晖开场先扳一局，赵心童以稳定表现连下两城将领先优势扩大为11比8。
-
-此后尽管丁俊晖以一个单杆76分再追一分，但卫冕冠军随即奉上单杆108分率先抵达赛点，并抓住机会果断上手再拿一局，终以13比9取得胜利。
-
-赢下焦点战的赵心童成功进入八强，接下来的比赛将对阵英格兰名将肖恩·墨菲。
+金正恩还表示，随着朝鲜人民军军事技术装备快速现代化，要重新定义各方面作战概念，并积极推进将之运用于各部队战斗训练的计划工作。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 12:33 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 12:50 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 12:29 - [媒体：湖人把薪资空间玩明白了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 12:25 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 12:49 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 12:25 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 12:21 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 12:50 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 12:27 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 12:33 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 12:45 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 12:48 - [张杰下沉市场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 12:37 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:35 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:30 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:40 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:42 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:48 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:29 - [美国特使抵达格陵兰岛首府努克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:35 - [来华留学生博物馆里“看世界”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:41 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:36 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:37 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:53 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/20416.shtml)
-- 2026-06-29 12:50 - [詹姆斯下赛季会在哪里](https://www.blog.minike.top/Article/details/45028922808.shtml)
-- 2026-06-29 12:50 - [杨紫《生命树》播放量破百亿](https://www.blog.kurohicncr.top/Article/details/714572586.shtml)
-- 2026-06-29 12:41 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/9502758.shtml)
-- 2026-06-29 12:46 - [2026年Mac能玩游戏了吗](https://www.share.kurohicncr.top/Article/details/75508544096.shtml)
-- 2026-06-29 12:32 - [男子在家一丝不挂 邻居拍照发业主群](https://www.blog.kurohicncr.top/Article/details/67756756.shtml)
-- 2026-06-29 12:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/262326.shtml)
-- 2026-06-29 12:23 - [恋与深空需直面玩家6大疑问](http://www.blog.minike.top/Article/details/268632146.shtml)
-- 2026-06-29 12:48 - [神23乘组太空出差满月](https://www.share.kurohicncr.top/Article/details/629011199288.shtml)
-- 2026-06-29 12:49 - [陈露发声引舆论反转](http://www.blog.kurohicncr.top/Article/details/969036565.shtml)
-- 2026-06-29 12:22 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/382866082708.shtml)
-- 2026-06-29 12:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/09659422.shtml)
-- 2026-06-29 12:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/4901351159.shtml)
-- 2026-06-29 12:39 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/6639194.shtml)
-- 2026-06-29 12:42 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/1297854213.shtml)
+- 2026-06-29 12:27 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](http://www.share.minike.top/Article/details/64815937.shtml)
+- 2026-06-29 12:31 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](http://www.blog.kurohicncr.top/Article/details/578566.shtml)
+- 2026-06-29 12:50 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.kurohicncr.top/Article/details/364006.shtml)
+- 2026-06-29 12:42 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.blog.minike.top/Article/details/3093473.shtml)
+- 2026-06-29 12:27 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](http://www.share.minike.top/Article/details/4839249.shtml)
+- 2026-06-29 12:34 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.share.minike.top/Article/details/839079949.shtml)
+- 2026-06-29 12:32 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.share.minike.top/Article/details/87603009.shtml)
+- 2026-06-29 12:29 - [中俄林业教育科技产业创新联盟成立](http://www.share.kurohicncr.top/Article/details/95300750575.shtml)
+- 2026-06-29 12:43 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.share.minike.top/Article/details/21690.shtml)
+- 2026-06-29 12:25 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.kurohicncr.top/Article/details/599490779720.shtml)
+- 2026-06-29 12:31 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.blog.kurohicncr.top/Article/details/472241.shtml)
+- 2026-06-29 12:52 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.share.minike.top/Article/details/4259298.shtml)
+- 2026-06-29 12:51 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.share.kurohicncr.top/Article/details/95118474553.shtml)
+- 2026-06-29 12:29 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.blog.minike.top/Article/details/98444.shtml)
+- 2026-06-29 12:53 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lisacumin64-arch)

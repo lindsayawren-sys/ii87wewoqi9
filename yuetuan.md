@@ -1,56 +1,61 @@
-# 跨越重洋的“主动选择” 浙江法院何以赢得世界信任？
+# 以刀刻雅韵 非遗紫砂雕刻展在沪开幕
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网杭州4月25日电(郭其钰)当两艘外轮在马六甲海峡意外碰撞，面对五个国家的司法管辖权，双方当事人共同把信任票投给了浙江法院，折射了国际社会对浙江涉外司法的认可。 浙江是开放型经济大省，与全球市场联系紧密，跨境商事活动频繁。法治浙江建设20年来，从早期探索涉外经济审判，到建立大民事审判格局下的涉外商事海事审判，浙江法院不断优化涉外司法供给，以公正裁判赢得世界信任。 2025年
+中新社上海5月16日电 (范宇斌)“玩壶尚志 彬心游艺”贺志斌紫砂雕刻展16日在上海开幕。本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的200多件作品，集中展现海派紫砂雕刻的独特韵味与文化底蕴。 紫砂雕刻是传统紫砂陶装饰工艺，于明清时期走向成熟，融汇书法、绘画、金石、篆刻多重艺术。清代书画家、篆刻家陈鸿寿与
 
 ## 正文
 
-中新网杭州4月25日电(郭其钰)当两艘外轮在马六甲海峡意外碰撞，面对五个国家的司法管辖权，双方当事人共同把信任票投给了浙江法院，折射了国际社会对浙江涉外司法的认可。
+中新社上海5月16日电 (范宇斌)“玩壶尚志 彬心游艺”贺志斌紫砂雕刻展16日在上海开幕。
 
-浙江是开放型经济大省，与全球市场联系紧密，跨境商事活动频繁。
+本次展览展出江苏省溧阳市紫砂雕刻非遗代表性传承人、一级(高级)陶艺师、中华文化促进会紫砂产业工作委员会副秘书长贺志斌的200多件作品，集中展现海派紫砂雕刻的独特韵味与文化底蕴。
 
-法治浙江建设20年来，从早期探索涉外经济审判，到建立大民事审判格局下的涉外商事海事审判，浙江法院不断优化涉外司法供给，以公正裁判赢得世界信任。
+紫砂雕刻是传统紫砂陶装饰工艺，于明清时期走向成熟，融汇书法、绘画、金石、篆刻多重艺术。
 
-2025年，浙江法院审结涉外涉港澳台商事海事案件9282件，148个国家和地区的境外当事人主动选择到浙江法院诉讼。
+清代书画家、篆刻家陈鸿寿与匠师杨彭年合作设计“曼生壶”，将金石书画与壶形结合，确立“壶随字贵、字随壶传”的审美标准。
 
-数字赋能 涉外审判繁案精审 在司法实践中，涉外审判往往面临着独有难题。
+自19世纪末起，海派书画名家推动紫砂从实用器具向艺术品转型，奠定海派紫砂雕刻金石韵味与书卷气息兼具的艺术特点。
 
-涉外法律文书“送达难”、跨境“开庭难”、域外法“适用难”，每一个环节都制约着涉外审判质效。
+贺志斌师承海派雕刻大师、上海市文史研究馆馆员龚展，深耕历代书画，秉持“以意趣为尚”的创作理念，将文人写意美学融入紫砂创作。
 
-从何处破题？
+贺志斌表示，紫砂雕刻难点不在于技法，而在于创作者的文化涵养。
 
-在浙江，一场以数字赋能为核心的涉外审判变革正悄然发生。
+海派紫砂雕刻主打书画融合，依托古画底蕴结合器型二次创作，赋予紫砂器物独特的文化质感。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 12:41 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 12:34 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 12:38 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:44 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 12:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 12:35 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:46 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 12:47 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 12:32 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 12:25 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:27 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:41 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:32 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:35 - [法国“戴高乐”号航母抵达阿拉伯海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:25 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:44 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:52 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:36 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:37 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:36 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:42 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:29 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:47 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:47 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/4900215716.shtml)
-- 2026-06-29 12:34 - [细节之中抓作风](http://www.blog.kurohicncr.top/Article/details/127228147.shtml)
-- 2026-06-29 12:24 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/41032632536.shtml)
-- 2026-06-29 12:35 - [极限挑战第一季](http://www.blog.minike.top/Article/details/91907.shtml)
-- 2026-06-29 12:50 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.kurohicncr.top/Article/details/9275011.shtml)
-- 2026-06-29 12:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/039548905636.shtml)
-- 2026-06-29 12:28 - [韩红携4000万物资抵呼和浩特](https://www.blog.minike.top/Article/details/9362724.shtml)
-- 2026-06-29 12:48 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/132830.shtml)
-- 2026-06-29 12:45 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.minike.top/Article/details/1821747469.shtml)
-- 2026-06-29 12:31 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/4443687.shtml)
-- 2026-06-29 12:48 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/115740843957.shtml)
-- 2026-06-29 12:32 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/353659937.shtml)
-- 2026-06-29 12:46 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/502963.shtml)
-- 2026-06-29 12:39 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/6130906649.shtml)
-- 2026-06-29 12:29 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/54503685191.shtml)
+- 2026-06-29 12:36 - [吉利汽车因认股权获行使而发行13.28万股](http://www.share.kurohicncr.top/Article/details/042937286.shtml)
+- 2026-06-29 12:26 - [中东部有大范围强降水 黄海海域有大雾](http://www.blog.kurohicncr.top/Article/details/69918253278.shtml)
+- 2026-06-29 12:41 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](http://www.share.minike.top/Article/details/357989104.shtml)
+- 2026-06-29 12:52 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](http://www.blog.minike.top/Article/details/1059806086.shtml)
+- 2026-06-29 12:34 - [中俄共绘教育合作新图景](http://www.share.kurohicncr.top/Article/details/355595.shtml)
+- 2026-06-29 12:53 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](http://www.blog.minike.top/Article/details/09432.shtml)
+- 2026-06-29 12:31 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](http://www.blog.minike.top/Article/details/398912.shtml)
+- 2026-06-29 12:24 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](http://www.blog.minike.top/Article/details/715463574054.shtml)
+- 2026-06-29 12:48 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](http://www.share.minike.top/Article/details/74953.shtml)
+- 2026-06-29 12:37 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](http://www.blog.kurohicncr.top/Article/details/8315147.shtml)
+- 2026-06-29 12:53 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.minike.top/Article/details/199454688.shtml)
+- 2026-06-29 12:52 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](http://www.share.minike.top/Article/details/4156868.shtml)
+- 2026-06-29 12:49 - [十大机构论市：双创冲高回落 科技行情结束了吗？](http://www.blog.kurohicncr.top/Article/details/35182.shtml)
+- 2026-06-29 12:31 - [文脉华章|我们为什么需要博物馆](https://github.com/lisacumin64-arch)

@@ -1,60 +1,59 @@
-# 神马股份信披违规被立案，股价下跌索赔正式开启
+# 三大运营商即将免月租？官方回应
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月24日，神马股份（维权）公告，因涉嫌信息披露违法违规，证监会决定对公司立案。神马股份作为横跨化工、化纤行业的大型国企，此次被立案主要源于财务数据的混乱。 上海沪紫律师事务所刘鹏律师指出：该公司超6万股民可积极参与维权挽回损失，目前维权窗口已开启。目前符合于2026年4月24日（含当日）之前买入，并在2026年4月25日之后卖
+近日，社交媒体上热传“三大运营商即将全面推出免月租、按量计费套餐”，不少用户发出疑问：传统月租套餐要终结了吗？ 记者梳理市场现状发现，目前只有中国联通上线了零月租、设最低消费门槛的“魔方”按量套餐，中国移动和中国电信暂未推出同类产品。这种去月租、按量计费的模式，未来会成为行业内的主流选择吗？ 联通推出“零月租”产品，但含最低消费 移动、电信尚无此类计划 “据公开消息，中国电信6
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 4月24日，神马股份（维权）公告，因涉嫌信息披露违法违规，证监会决定对公司立案。
+近日，社交媒体上热传“三大运营商即将全面推出免月租、按量计费套餐”，不少用户发出疑问：传统月租套餐要终结了吗？
 
-神马股份作为横跨化工、化纤行业的大型国企，此次被立案主要源于财务数据的混乱。
+记者梳理市场现状发现，目前只有中国联通上线了零月租、设最低消费门槛的“魔方”按量套餐，中国移动和中国电信暂未推出同类产品。
 
-上海沪紫律师事务所刘鹏律师指出：该公司超6万股民可积极参与维权挽回损失，目前维权窗口已开启。
+这种去月租、按量计费的模式，未来会成为行业内的主流选择吗？
 
-目前符合于2026年4月24日（含当日）之前买入，并在2026年4月25日之后卖出或仍持有而亏损。
+联通推出“零月租”产品，但含最低消费 移动、电信尚无此类计划 “据公开消息，中国电信6月1日起，全国试点‘天翼按量付’，执行0月租，语音、短信流量均按量计费；中国移动6月起试点0月租按量计费模式，9月底前全国全面覆盖。
 
-（神马股份维权入口） 根据神马股份发布的公告及前期会计差错更正说明，公司在2024年至2025年第三季度期间，存在多计在建工程约33.68亿元、少计固定资产约32.23亿元的情况。
+” 近日，不少互联网博主在短视频里介绍，三大运营商即将取消月租费，改为按量计费模式，他们甚至还列出了推出该政策明确的时间节点。
 
-同时，由于未及时将在建工程转入固定资产并计提折旧，导致少计提折旧约1.12亿元。
+中国联通的确在4月28日举办“联通魔方”产品发布会，宣称这一产品以“明白办、放心用、拖拉拽”三大卖点为支撑，语音、流量、短彩信按量计费—— 国内语音0.1元/分钟； 短彩信0.1元/条； 国内流量实行阶梯计价：前20GB按1.5元/GB，20GB（不含）至50GB按1.2元/GB，50GB（不含）以上按1元/GB，越用越便宜，彻底打消流量焦虑。
 
-追溯调整后，公司的财务数据出现“大变脸”。
+联通客服人员介绍，虽然没了月租，却仍然有最低消费门槛。
 
-上市公司的年报以及财报是投资者投资的一个评判标准，如上市公司在年报中出现差错，那么很大可能会对投资者的决策产生误导而造成投资损失。
+有报道称，部分地区的最低消费为每月39元，而在北京则为55元，如果仅用流量，不打电话，55元可以每月使用将近41GB的流量；如果仅打电话，不用流量，需要打9小时10分钟电话才能覆盖最低消费。
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 12:23 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 12:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 12:22 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 12:24 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 12:23 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 12:39 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 12:48 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 12:31 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 12:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:25 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 12:25 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 12:35 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 12:48 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 12:34 - [吉利汽车因认股权获行使而发行13.28万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:45 - [中东部有大范围强降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:50 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:45 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:33 - [中俄共绘教育合作新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:42 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:26 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:39 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:25 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:53 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:37 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:33 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:35 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/7337649.shtml)
-- 2026-06-29 12:26 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/108692108.shtml)
-- 2026-06-29 12:40 - [周生如故](https://www.share.minike.top/Article/details/088477160.shtml)
-- 2026-06-29 12:28 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/40262338.shtml)
-- 2026-06-29 12:48 - [曝韩国球员目睹出局时正吃饭](http://www.share.kurohicncr.top/Article/details/33008876.shtml)
-- 2026-06-29 12:39 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/368147.shtml)
-- 2026-06-29 12:44 - [扫黑风暴](https://www.share.minike.top/Article/details/7247273900.shtml)
-- 2026-06-29 12:48 - [小娘惹](https://www.share.minike.top/Article/details/8271319.shtml)
-- 2026-06-29 12:32 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/1329099.shtml)
-- 2026-06-29 12:22 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/58429.shtml)
-- 2026-06-29 12:27 - [爱很美味](https://www.share.kurohicncr.top/Article/details/2676691.shtml)
-- 2026-06-29 12:36 - [张一山说杨紫早该拿奖了](http://www.share.kurohicncr.top/Article/details/6395218.shtml)
-- 2026-06-29 12:37 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/87343347503.shtml)
-- 2026-06-29 12:34 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/143371.shtml)
-- 2026-06-29 12:47 - [A股限售股解禁一览](http://www.share.kurohicncr.top/Article/details/58676259785.shtml)
+- 2026-06-29 12:46 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.share.kurohicncr.top/Article/details/768526353.shtml)
+- 2026-06-29 12:32 - [美国特使抵达格陵兰岛首府努克](http://www.share.kurohicncr.top/Article/details/626858673607.shtml)
+- 2026-06-29 12:38 - [来华留学生博物馆里“看世界”](http://www.blog.minike.top/Article/details/88688.shtml)
+- 2026-06-29 12:35 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](http://www.blog.kurohicncr.top/Article/details/983027206866.shtml)
+- 2026-06-29 12:32 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](http://www.blog.kurohicncr.top/Article/details/9995308839.shtml)
+- 2026-06-29 12:36 - [近镜头｜中美元首会晤速览](http://www.share.kurohicncr.top/Article/details/40445196.shtml)
+- 2026-06-29 12:48 - [我们为什么需要博物馆？](http://www.share.kurohicncr.top/Article/details/73446.shtml)
+- 2026-06-29 12:25 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](http://www.share.kurohicncr.top/Article/details/146835525090.shtml)
+- 2026-06-29 12:36 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](http://www.share.minike.top/Article/details/848956213108.shtml)
+- 2026-06-29 12:40 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](http://www.blog.minike.top/Article/details/1898747.shtml)
+- 2026-06-29 12:35 - [高阶产能落地美国 阿特斯加速转型“北美制造”](http://www.share.kurohicncr.top/Article/details/22998159.shtml)
+- 2026-06-29 12:26 - [墨西哥中部发生枪击事件 造成至少10人死亡](http://www.share.minike.top/Article/details/54016.shtml)
+- 2026-06-29 12:36 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](http://www.blog.minike.top/Article/details/1380197.shtml)
+- 2026-06-29 12:31 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](http://www.blog.minike.top/Article/details/907237112953.shtml)
+- 2026-06-29 12:42 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.share.minike.top/Article/details/991864200154.shtml)

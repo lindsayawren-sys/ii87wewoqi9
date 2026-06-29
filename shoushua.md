@@ -1,50 +1,60 @@
-# 大华继显：长城汽车目标价降至15港元 维持“买入”评级
+# 2026广东省定向公开赛（广州·增城站）举行
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-大华继显发布研报称，维持长城汽车（02333）“买入”评级，但因应较高的开支比率，下调长城汽车2026至2028年纯利预测15%、16%及17%，目标价由16港元下调至15港元，基于预测2026年市盈率12倍不变。 该行认为长城汽车首季纯利同比下跌46%至9.45亿元人民币（下同），逊预期，按季亦跌23%，仅相当于该行全年预测的9%。盈利下跌主要由于销售及研发开支高于预期，但若
+中新网广州5月17日电 (记者 张璐)5月17日，“逐风环两山·定向悦增城”2026广东省定向公开赛(广州·增城站)(简称“赛事”)在广州市增城区莲塘春色景区收官。赛事以定向运动为纽带，串联生态景观与乡村风貌，吸引广东省近千名运动爱好者同场竞技。 本次赛事设置8个参赛组别，涵盖成年男子组、成年女子组、青少年男子组、青少年女子组、少年男子组、少年女子组、亲子组及村民体验组，覆盖全
 
 ## 正文
 
-大华继显发布研报称，维持长城汽车（02333）“买入”评级，但因应较高的开支比率，下调长城汽车2026至2028年纯利预测15%、16%及17%，目标价由16港元下调至15港元，基于预测2026年市盈率12倍不变。
+中新网广州5月17日电 (记者 张璐)5月17日，“逐风环两山·定向悦增城”2026广东省定向公开赛(广州·增城站)(简称“赛事”)在广州市增城区莲塘春色景区收官。
 
-该行认为长城汽车首季纯利同比下跌46%至9.45亿元人民币（下同），逊预期，按季亦跌23%，仅相当于该行全年预测的9%。
+赛事以定向运动为纽带，串联生态景观与乡村风貌，吸引广东省近千名运动爱好者同场竞技。
 
-盈利下跌主要由于销售及研发开支高于预期，但若剔除去年同期的10.3亿元外汇收益，首季纯利实质应录得超过30%的同比增长。
+本次赛事设置8个参赛组别，涵盖成年男子组、成年女子组、青少年男子组、青少年女子组、少年男子组、少年女子组、亲子组及村民体验组，覆盖全年龄段参赛需求。
 
-大华继显表示，长城汽车投资主题中的盈利复苏仍然完整，受惠于强劲产品管线、新技术推出及出口复苏。
+经过激烈的角逐，陈志锋获成年男子组1组冠军、王鸿凯获成年男子组2组冠军，吴晓雯获成年女子组冠军，青少年男子组和青少年女子组的桂冠由郑栩烨和罗偲琳夺得，蓝永森、汤俊朗和林楚乔分获少年男子组1组、少年男子组2组、少年女子组冠军，亲子组的冠军由庞智晓、庞晨熹夺得。
 
-责任编辑：卢昱君
+据介绍，近年来，增城区紧扣“环南昆山—罗浮山引领区”建设目标，大力推动体育赛事与生态旅游、乡村休闲深度融合。
+
+赛事期间，不少参赛选手和游客在比赛之余，前往莲塘景区周边的农家乐、民宿消费，进一步拉动了乡村经济。
+
+一位当地农户表示：“这次比赛带来了很多游客，我们的土特产卖得特别好，希望以后能举办更多这样的活动。
+
+” 据介绍，下一步，增城区将持续优化赛事供给、提升办赛品质，围绕“环两山”发展布局，持续引进和培育品牌体育赛事，推动农、文、旅、体多元融合，加快建设大湾区高品质户外运动度假目的地，以体育活力赋能城乡高质量发展。
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 12:32 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 12:39 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 12:44 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 12:42 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:36 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 12:49 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 12:24 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 12:30 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 12:30 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 12:41 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:34 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:48 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:30 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:42 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:49 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:26 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:40 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:32 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:51 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:45 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:27 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:53 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:36 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [医护人员观影《四渡》传承长征精神](http://www.blog.kurohicncr.top/Article/details/824150104.shtml)
-- 2026-06-29 12:33 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/25311395.shtml)
-- 2026-06-29 12:42 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.share.kurohicncr.top/Article/details/088323553498.shtml)
-- 2026-06-29 12:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/4934303.shtml)
-- 2026-06-29 12:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/92432.shtml)
-- 2026-06-29 12:46 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/05379614.shtml)
-- 2026-06-29 12:36 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/499838920.shtml)
-- 2026-06-29 12:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/499538.shtml)
-- 2026-06-29 12:39 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/22162600.shtml)
-- 2026-06-29 12:38 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/64872594.shtml)
-- 2026-06-29 12:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/838312.shtml)
-- 2026-06-29 12:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/04345339222.shtml)
-- 2026-06-29 12:35 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/6032327.shtml)
-- 2026-06-29 12:24 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/317570472.shtml)
-- 2026-06-29 12:47 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/636094.shtml)
+- 2026-06-29 12:36 - [长城基金汪立：流动性冲击或为短期扰动](http://www.share.kurohicncr.top/Article/details/97536651.shtml)
+- 2026-06-29 12:40 - [蓝鸿春再谈《给阿嬷的情书》创作信条：从心而发打动自己](http://www.blog.minike.top/Article/details/22603.shtml)
+- 2026-06-29 12:44 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [军工板块三连跌，中国船舶重挫6%！华宝基金军工ETF（512810）下探半年线，场内频现溢价！](http://www.blog.kurohicncr.top/Article/details/35851959.shtml)
+- 2026-06-29 12:27 - [从史前器物到族群记忆：台湾少数民族同胞探寻两岸共同源流](http://www.blog.kurohicncr.top/Article/details/820820535036.shtml)
+- 2026-06-29 12:51 - [消息称G6上市近两年后 小鹏X9也已获准在澳大利亚销售](http://www.share.kurohicncr.top/Article/details/69951487443.shtml)
+- 2026-06-29 12:49 - [大雾黄色预警：河北浙江等地部分地区有大雾](http://www.share.kurohicncr.top/Article/details/8592145789.shtml)
+- 2026-06-29 12:36 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](http://www.blog.kurohicncr.top/Article/details/560652717925.shtml)
+- 2026-06-29 12:52 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](http://www.blog.kurohicncr.top/Article/details/796449.shtml)
+- 2026-06-29 12:38 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.blog.minike.top/Article/details/7155082624.shtml)
+- 2026-06-29 12:53 - [业绩炸裂！存储芯片龙头净利预增2244%](http://www.share.minike.top/Article/details/13652711969.shtml)
+- 2026-06-29 12:33 - [德银天下于5月15日斥资570.94万港元回购150万股](http://www.blog.kurohicncr.top/Article/details/25279.shtml)
+- 2026-06-29 12:47 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](http://www.share.minike.top/Article/details/61912.shtml)
+- 2026-06-29 12:37 - [中企承建的阿斯塔纳轻轨投入运营](http://www.blog.kurohicncr.top/Article/details/145452337422.shtml)
+- 2026-06-29 12:33 - [中蒙将举行“草原伙伴-2026”陆军联训](https://github.com/lisacumin64-arch)

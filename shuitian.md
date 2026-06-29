@@ -1,61 +1,61 @@
-# 辽宁以营商环境之“优”促文旅假日之“热”
+# （文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网沈阳4月25日电 (记者 韩宏)“五一”未至，辽宁已“热”。随着辽宁多地推行中小学春假制度，4月末的“春假”与“五一”假期相连，不少家庭迎来长达8天的出游档期。同程旅行平台上，辽宁省“五一”旅游产品整体搜索及预订热度同比增长69%。 假日之“热”的背后，并非偶然。刚刚过去的清明假期，辽宁接待游客人次和旅游综合收入实现两位数增长。而从“听劝”服务到“免罚”清单，从智慧平台到
+中新社太原5月16日电 题：中国热播剧带火古戏台 戏曲大省山西戏韵悠长 中新社记者 范丽芳 “近700岁的老戏台见证时光流转，终于在镜头前成了主角。”近日，随着中国知名导演张艺谋的新剧《主角》热播，剧中“破蒙戏”核心取景地——山西芮城县东吕村的元代“连三舞台”，引发社交媒体平台网友对古戏台的关注。 在戏曲大省山西，2800余座古戏台星罗棋布，约占中国现存古戏台的70%，中国现存
 
 ## 正文
 
-中新网沈阳4月25日电 (记者 韩宏)“五一”未至，辽宁已“热”。
+中新社太原5月16日电 题：中国热播剧带火古戏台 戏曲大省山西戏韵悠长 中新社记者 范丽芳 “近700岁的老戏台见证时光流转，终于在镜头前成了主角。
 
-随着辽宁多地推行中小学春假制度，4月末的“春假”与“五一”假期相连，不少家庭迎来长达8天的出游档期。
+”近日，随着中国知名导演张艺谋的新剧《主角》热播，剧中“破蒙戏”核心取景地——山西芮城县东吕村的元代“连三舞台”，引发社交媒体平台网友对古戏台的关注。
 
-同程旅行平台上，辽宁省“五一”旅游产品整体搜索及预订热度同比增长69%。
+在戏曲大省山西，2800余座古戏台星罗棋布，约占中国现存古戏台的70%，中国现存金元时期戏台皆位于此。
 
-假日之“热”的背后，并非偶然。
+近日，记者走访散落民间的古戏台，探寻赓续不绝的戏曲文脉。
 
-刚刚过去的清明假期，辽宁接待游客人次和旅游综合收入实现两位数增长。
+走进临汾市魏村，牛王庙戏台古朴苍劲。
 
-而从“听劝”服务到“免罚”清单，从智慧平台到信用监管，一场以营商环境之“优”促文旅假日之“热”的深层变革，正让辽宁成为越来越多游客“来了不想走，走了还想来”的目的地。
+中国戏曲梅花奖获得者梁静饰演的精卫戎装明艳，只见她一手高抬挽住长长雉翎，一手稳稳提握花枪，旋停亮相刹那，英武飒爽，高亢的蒲腔撞上老木梁，回声在柱间盘旋。
 
-放眼一季度，辽宁省经济运行平稳开局，地区生产总值同比增长2.8%。
+“每次站上古戏台，都心生敬畏。
 
-尽管第三产业增速有所放缓，但新动能潜力巨大。
+”梁静说，几百年前，先辈就在这方戏台吟唱演绎、传承戏曲，“这种古今相望、时空对话的感觉触动人心。
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 12:39 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 12:35 - [凯恩何时能拿到国际大赛冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:29 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:36 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 12:23 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 12:30 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 12:35 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 12:46 - [网友偶遇胡军和李乃文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 12:32 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 12:28 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 12:23 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 12:26 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 12:45 - [三轮车被自家狗“推”进池塘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 12:30 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 12:35 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:44 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:31 - [特斯拉在美国上调Model Y车型的售价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:42 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:51 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:44 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:53 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:45 - [西藏居然有三家公募基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:35 - [M4Markets:金价剧震下蓄力新方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:33 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:45 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:49 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:36 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:50 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:42 - [法国“戴高乐”号航母抵达阿拉伯海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/982806.shtml)
-- 2026-06-29 12:30 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/02435785815.shtml)
-- 2026-06-29 12:23 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.kurohicncr.top/Article/details/004284684565.shtml)
-- 2026-06-29 12:42 - [恋与深空需直面玩家6大疑问](https://www.blog.minike.top/Article/details/754188831686.shtml)
-- 2026-06-29 12:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/350603.shtml)
-- 2026-06-29 12:34 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/1090113101.shtml)
-- 2026-06-29 12:31 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/42193.shtml)
-- 2026-06-29 12:30 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/659913.shtml)
-- 2026-06-29 12:28 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/9739937.shtml)
-- 2026-06-29 12:35 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/99457398607.shtml)
-- 2026-06-29 12:39 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/45466330.shtml)
-- 2026-06-29 12:37 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/205030103256.shtml)
-- 2026-06-29 12:28 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/94800.shtml)
-- 2026-06-29 12:44 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/279697352.shtml)
-- 2026-06-29 12:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/999034822196.shtml)
+- 2026-06-29 12:52 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](http://www.blog.kurohicncr.top/Article/details/08532547411.shtml)
+- 2026-06-29 12:31 - [2026“粤超”联赛继续 广州赛场氛围浓](http://www.blog.kurohicncr.top/Article/details/59035.shtml)
+- 2026-06-29 12:31 - [三大运营商即将免月租？官方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](http://www.blog.kurohicncr.top/Article/details/71796418960.shtml)
+- 2026-06-29 12:43 - [防病控“三高”别错过这些果蔬](http://www.share.minike.top/Article/details/08672138.shtml)
+- 2026-06-29 12:39 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](http://www.blog.minike.top/Article/details/04541109.shtml)
+- 2026-06-29 12:53 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](http://www.blog.minike.top/Article/details/889525456689.shtml)
+- 2026-06-29 12:45 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.share.minike.top/Article/details/832309897.shtml)
+- 2026-06-29 12:50 - [吉利汽车因认股权获行使而发行13.28万股](http://www.share.minike.top/Article/details/40507.shtml)
+- 2026-06-29 12:33 - [中东部有大范围强降水 黄海海域有大雾](http://www.share.kurohicncr.top/Article/details/673924610689.shtml)
+- 2026-06-29 12:32 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](http://www.share.minike.top/Article/details/7100135827.shtml)
+- 2026-06-29 12:25 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](http://www.share.kurohicncr.top/Article/details/4600454365.shtml)
+- 2026-06-29 12:41 - [中俄共绘教育合作新图景](http://www.blog.kurohicncr.top/Article/details/258165.shtml)

@@ -1,59 +1,59 @@
-# 莫言呼吁关爱“星星的孩子”：行慈善者必受慈善之惠
+# 陈茂波：香港经济基调良好、前景正面
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。 此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。 该展览由莫言与“两块砖公益基金
+来源：中国基金报 【导读】香港特区政府财政司司长陈茂波：香港经济基调良好、前景正面，有助吸引更多国际长期资金投资 中国基金报记者 储是 5月17日，香港特区政府财政司司长陈茂波发表网志表示，香港经济基调良好、前景正面，有助吸引国际长期资金。数据显示，今年首季香港GDP按年增长5.9%，创近五年最强季度增速，消费、投资、外贸同步发力。 陈茂波将出访法、比、瑞三国，面向欧洲金融机构
 
 ## 正文
 
-中新网郑州4月27日电 (王佳宁)“行慈善者必受慈善之惠。
+来源：中国基金报 【导读】香港特区政府财政司司长陈茂波：香港经济基调良好、前景正面，有助吸引更多国际长期资金投资 中国基金报记者 储是 5月17日，香港特区政府财政司司长陈茂波发表网志表示，香港经济基调良好、前景正面，有助吸引国际长期资金。
 
-”诺贝尔文学奖得主、中国著名作家莫言27日现身河南郑州“与星同行——中国著名作家手稿展首展”现场，呼吁社会各界关注并帮助“星星的孩子”(又称孤独症儿童)。
+数据显示，今年首季香港GDP按年增长5.9%，创近五年最强季度增速，消费、投资、外贸同步发力。
 
-此次展览于25日在郑州开幕，莫言、冯骥才、梁晓声、刘慈欣等86位当代中国作家联合捐出200余件珍贵创作手稿，旨在为孤独症儿童筹集善款。
+陈茂波将出访法、比、瑞三国，面向欧洲金融机构、家族办公室及私募基金推介香港新机遇，持续扩大引资与国际合作。
 
-该展览由莫言与“两块砖公益基金”共同发起，“两块砖公益基金”策展，人民文学出版社、河南日报社协办。
+香港经济基调良好、前景正面 5月17日，香港特区政府财政司司长陈茂波发表网志表示，近期不同国际机构对香港的客观认可，反映外界更了解香港的最新发展与未来潜力。
 
-展品涵盖莫言的小说手稿、冯骥才与梁晓声的散文手迹，以及苏童《妻妾成群》、刘慈欣《三体》等创作原稿摘录。
+这些认可不仅反映香港经济基调良好、前景正面，也有助于吸引更多国际长期资金投资香港。
 
-该展览完成全国巡展后，所有手稿将进行拍卖，所得款项将全部用于孤独症照护者技能培训等公益项目。
+陈茂波称，国际货币基金组织近日发表最新报告，肯定香港作为国际金融中心及“超级联系人”的角色，并认同包括发展北部都会区在内的各项政策措施，有助于香港发展创科与高增值服务，支持经济增长与经济结构转型。
 
-谈及为何选择拍卖作家创作手稿这一方式发起慈善，莫言表示，这些手稿表现了中国作家对社会弱势群体的关注、对慈善事业的热忱。
+国际评级机构穆迪与惠誉亦确认香港的信贷评级和“稳定”展望。
 
-近年来，莫言积极投身于各类慈善活动。
+他强调，这些认可不仅反映了香港经济基调良好、前景正面、公共财政稳健，更说明持续沟通讲解，能让国际机构更充分地了解香港的现状、发展方向和机遇。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:47 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 12:41 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 12:49 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 12:22 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 12:41 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:48 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 12:33 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 12:47 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 12:26 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 12:26 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 12:49 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 12:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 12:48 - [2026中德企业乒乓球邀请赛在慕尼黑举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:47 - [北汽张国富：越野门槛降低不是稀释而是加强，“尝鲜”的人越多专业优势越明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:30 - [诺泰生物索赔递交立案，曾因财务造假被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:35 - [2026年好用的基金实时估值工具有哪些？推荐一下这款靠谱的APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:41 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:53 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:28 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:49 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:50 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:32 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:26 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:53 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:46 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/221386825879.shtml)
-- 2026-06-29 12:43 - [国乒全主力参加美国大满贯](http://www.blog.kurohicncr.top/Article/details/61862926659.shtml)
-- 2026-06-29 12:44 - [岭南电影为何迎来“南方热”](http://www.share.minike.top/Article/details/803690549394.shtml)
-- 2026-06-29 12:39 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/86305914351.shtml)
-- 2026-06-29 12:25 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/80493918429.shtml)
-- 2026-06-29 12:24 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/86270.shtml)
-- 2026-06-29 12:25 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/53138898.shtml)
-- 2026-06-29 12:27 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/2376879883.shtml)
-- 2026-06-29 12:40 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/73165565332.shtml)
-- 2026-06-29 12:25 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/98344511000.shtml)
-- 2026-06-29 12:48 - [韩媒称韩国队遭中国网民嘲讽](http://www.blog.minike.top/Article/details/407599.shtml)
-- 2026-06-29 12:35 - [记者率先试乘西十高铁](https://www.share.minike.top/Article/details/604725429.shtml)
-- 2026-06-29 12:36 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/057227015.shtml)
-- 2026-06-29 12:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/5303831.shtml)
-- 2026-06-29 12:44 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/02435532648.shtml)
+- 2026-06-29 12:42 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](http://www.share.minike.top/Article/details/840949505.shtml)
+- 2026-06-29 12:51 - [渣打集团任命科斯特洛为首席财务官](http://www.blog.kurohicncr.top/Article/details/25831198.shtml)
+- 2026-06-29 12:31 - [湖南省文化馆数字文旅体验空间开馆](http://www.share.kurohicncr.top/Article/details/417444.shtml)
+- 2026-06-29 12:28 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](http://www.blog.kurohicncr.top/Article/details/7392724.shtml)
+- 2026-06-29 12:39 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](http://www.share.minike.top/Article/details/37912630640.shtml)
+- 2026-06-29 12:49 - [债券市场异动预示利率或将大幅走高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](http://www.share.minike.top/Article/details/24978980679.shtml)
+- 2026-06-29 12:45 - [我国成功发射千帆星座第9批组网卫星](http://www.blog.kurohicncr.top/Article/details/584189151885.shtml)
+- 2026-06-29 12:42 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.share.minike.top/Article/details/34957331304.shtml)
+- 2026-06-29 12:45 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.blog.minike.top/Article/details/17557.shtml)
+- 2026-06-29 12:25 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.blog.minike.top/Article/details/941829278825.shtml)
+- 2026-06-29 12:52 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.share.minike.top/Article/details/23880.shtml)

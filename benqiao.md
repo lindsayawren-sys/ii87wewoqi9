@@ -1,52 +1,54 @@
-# 多国客商盛赞广交会：令人惊叹 5天狂逛60公里
+# 广州海关查获毒品氯胺酮4997.87克
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 13:52 来源：中国新闻网 一场广交盛会，万邦来客齐聚羊城，第139届广交会第二期继续在广州举办，来自世界各地的采购商络绎不绝。广州白云国际机场是外商到达广州的第一站，不少外商在白云机场口岸跟移民管理警察分享，中国和中国的产品都让他们惊叹，参与广交会，成为有趣的经历。作为全球规模最大的贸易盛会之一，广交会正凭借智能制造与绿色创新，持续赢得越来
+中新网5月18日电 据“海关发布”微信公众号消息，近日，广州海关在广州白云机场口岸查获一批毒品氯胺酮(俗称“K粉”)，重4997.87克。 广州海关所属广州白云机场海关关员在对一票申报为“水性木器漆”的转运快件进行监管时，发现机检图像异常。海关关员随即拦截并进一步查验，发现快件内有6罐相同规格和品牌的油漆，打开油漆桶后，发现桶内藏有数包用塑料袋封装的白色块状晶体。经送技术机构鉴
 
 ## 正文
 
-发布时间：2026年04月25日 13:52 来源：中国新闻网 一场广交盛会，万邦来客齐聚羊城，第139届广交会第二期继续在广州举办，来自世界各地的采购商络绎不绝。
+中新网5月18日电 据“海关发布”微信公众号消息，近日，广州海关在广州白云机场口岸查获一批毒品氯胺酮(俗称“K粉”)，重4997.87克。
 
-广州白云国际机场是外商到达广州的第一站，不少外商在白云机场口岸跟移民管理警察分享，中国和中国的产品都让他们惊叹，参与广交会，成为有趣的经历。
+广州海关所属广州白云机场海关关员在对一票申报为“水性木器漆”的转运快件进行监管时，发现机检图像异常。
 
-作为全球规模最大的贸易盛会之一，广交会正凭借智能制造与绿色创新，持续赢得越来越多海外客商的信赖与点赞。
+海关关员随即拦截并进一步查验，发现快件内有6罐相同规格和品牌的油漆，打开油漆桶后，发现桶内藏有数包用塑料袋封装的白色块状晶体。
 
-(王庆然 王程彬 邵雪琪 制作 徐妙巧) 责任编辑：【叶攀】
+经送技术机构鉴定，在该批白色块状晶体中检出氯胺酮成分，重4997.87克。
+
+氯胺酮俗称“K粉”，具有致幻成瘾性，滥用会导致脑损伤及呼吸抑制。
+
+海关提醒：根据《中华人民共和国刑法》《中华人民共和国禁毒法》等相关法律规定，毒品是指鸦片、海洛因、甲基苯丙胺(冰毒)、吗啡、大麻、可卡因以及国家规定管制的其他能使人形成瘾癖的麻醉药品和精神药品。
+
+走私、贩卖、运输、制造毒品，无论数量多少，都应当追究刑事责任，予以刑事处罚。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 12:42 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 12:25 - [媒体：湖人把薪资空间玩明白了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 12:23 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 12:41 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 12:40 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 12:34 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 12:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 12:21 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 12:41 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 12:29 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 12:22 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 12:37 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:38 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 12:31 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:47 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:51 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:49 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:26 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:46 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:29 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:34 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:39 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:44 - [南京银行：董事王厚印辞任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.minike.top/Article/details/90444389990.shtml)
-- 2026-06-29 12:45 - [王楚钦美国大满贯晋级32强](https://www.share.minike.top/Article/details/958224170237.shtml)
-- 2026-06-29 12:32 - [马杜罗社交媒体账号再发文](http://www.share.kurohicncr.top/Article/details/326574901532.shtml)
-- 2026-06-29 12:25 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/5405143369.shtml)
-- 2026-06-29 12:36 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/07353463.shtml)
-- 2026-06-29 12:48 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/697894.shtml)
-- 2026-06-29 12:41 - [三只羊线下课已下架](https://www.blog.kurohicncr.top/Article/details/21849034867.shtml)
-- 2026-06-29 12:35 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/7068807.shtml)
-- 2026-06-29 12:33 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/6015700.shtml)
-- 2026-06-29 12:41 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/8925722.shtml)
-- 2026-06-29 12:30 - [老虎瘦成纸片还吃草 园方回应](http://www.share.kurohicncr.top/Article/details/830964322286.shtml)
-- 2026-06-29 12:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/1967822066.shtml)
-- 2026-06-29 12:26 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/99208.shtml)
-- 2026-06-29 12:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/0119436.shtml)
-- 2026-06-29 12:33 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/11718.shtml)
+- 2026-06-29 12:52 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [债券市场异动预示利率或将大幅走高](http://www.share.minike.top/Article/details/782268508652.shtml)
+- 2026-06-29 12:35 - [微视频｜在文化遗存前 总书记驻足凝视](http://www.share.kurohicncr.top/Article/details/71965177231.shtml)
+- 2026-06-29 12:30 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](http://www.share.kurohicncr.top/Article/details/096145.shtml)
+- 2026-06-29 12:47 - [我国成功发射千帆星座第9批组网卫星](http://www.share.minike.top/Article/details/8087228.shtml)
+- 2026-06-29 12:44 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.blog.minike.top/Article/details/276431204.shtml)
+- 2026-06-29 12:52 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.blog.minike.top/Article/details/03155311.shtml)
+- 2026-06-29 12:41 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.blog.kurohicncr.top/Article/details/9128631330.shtml)
+- 2026-06-29 12:53 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](http://www.blog.minike.top/Article/details/110357927517.shtml)
+- 2026-06-29 12:43 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.share.minike.top/Article/details/233743.shtml)
+- 2026-06-29 12:53 - [河南省举办高校残疾大学生就业双选会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.minike.top/Article/details/10894609.shtml)
+- 2026-06-29 12:43 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](http://www.share.kurohicncr.top/Article/details/3091671911.shtml)

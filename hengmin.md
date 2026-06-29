@@ -1,59 +1,60 @@
-# 险资“扫货”高股息资产热情不改！红利类策略人气ETF“吸金”效应显著
+# 中国汽车专利公开量全球领先 新能源领域年均增长率17.1%
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-上周，伴随美伊谈判陷入“极限拉扯”，外部局势的不确定性再度升温，地缘政治正从此前的阶段性扰动演变为长期制约因素。在此背景下，拥有较稳定现金流、较高分红能力且绑定实体“硬资产”的高股息标的，配置价值或愈发凸显。 数据显示，在已发布2025年年报的A股上市公司中，242家公司的前十大流通股股东名单出现险资身影。从重仓个股所属行业来看，险资更青睐银行、电信服务、石油石化、交通运输等板
+中国汽车技术研究中心昨天(16日)发布了《汽车产业知识产权十年发展报告》。报告显示，过去十年，我国汽车工业电动化、智能化的相关知识产权已经成为全球市场核心竞争力的重要抓手。 数据显示，中国汽车专利公开量近十年持续保持全球领先，远超美国、日本和欧洲等国家和地区。其中，新能源汽车领域专利公开量由2016年的5万余件增长至2025年的11万余件，年均增长率达17.1%。智能网联汽车专
 
 ## 正文
 
-上周，伴随美伊谈判陷入“极限拉扯”，外部局势的不确定性再度升温，地缘政治正从此前的阶段性扰动演变为长期制约因素。
+中国汽车技术研究中心昨天(16日)发布了《汽车产业知识产权十年发展报告》。
 
-在此背景下，拥有较稳定现金流、较高分红能力且绑定实体“硬资产”的高股息标的，配置价值或愈发凸显。
+报告显示，过去十年，我国汽车工业电动化、智能化的相关知识产权已经成为全球市场核心竞争力的重要抓手。
 
-数据显示，在已发布2025年年报的A股上市公司中，242家公司的前十大流通股股东名单出现险资身影。
+数据显示，中国汽车专利公开量近十年持续保持全球领先，远超美国、日本和欧洲等国家和地区。
 
-从重仓个股所属行业来看，险资更青睐银行、电信服务、石油石化、交通运输等板块蓝筹股。
+其中，新能源汽车领域专利公开量由2016年的5万余件增长至2025年的11万余件，年均增长率达17.1%。
 
-港股方面，资金也在对冲市场风险的需求驱动下持续买入银行股保险股，根据2026年4月22日港交所披露信息显示，某大型险资增持某国有银行与保险板块H股，持股比例均创下新高，或反映出AH两地市场对红利类资产的配置意愿均在持续增强。
+智能网联汽车专利则由4.4万件增长至2025年的9.3万件，年均增长率达11.6%。
 
-与此同时，Wind数据显示，10年期国债收益率自2026年4月13日以来跌破1.8%以下，在低利率环境延续、中长端利率逐步下行的背景下，红利指数、红利低波指数、中证央企红利指数、港股通高股息（CNY）等部分主流红利类指数仍与其存在较为明显的利差，分别高于近十年53.04%、57.84%、67.84%、41.55%的时间，股息率吸引力相对突出。
+我国汽车企业海外专利布局已覆盖50多个国家和地区。
 
-伴随资金关注度的日益升温，A股与港股红利类策略人气ETF近期“吸金”效应显著。
+东风汽车集团有限公司研发总院院长 展新：我们目前已累计申请专利超过5万件，其中发明专利占比持续提升。
 
-Wind数据显示，截至2026年4月24日，华泰柏瑞“红利全家桶”中的人气品种——红利ETF华泰柏瑞（512890）、央企红利ETF华泰柏瑞（561580）、港股通红利ETF（513530）已连续9个、3个、3个交易日获资金加持，近一周分别累计吸引5.4亿元、1.2亿元、1亿元资金净流入。
+在海外市场，重点围绕欧洲、东南亚等出口市场推进专利和商标布局，建立海外知识产权风险监测和预警机制。
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:37 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 12:50 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 12:40 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 12:32 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 12:21 - [三只羊大杨哥不直播改卖课](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 12:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 12:48 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 12:41 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 12:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 12:49 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 12:34 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 12:31 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 12:43 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:46 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:51 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:31 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:46 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:38 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:49 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:28 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:35 - [北京稻香村涉事门店回应“反向抹零”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:47 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:24 - [高盛：央行要“加码”买黄金了，金价年底看5400](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:36 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:39 - [Anthropic将向监管机构通报网络风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:51 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.blog.kurohicncr.top/Article/details/595618.shtml)
-- 2026-06-29 12:36 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/1875800.shtml)
-- 2026-06-29 12:31 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/12878976.shtml)
-- 2026-06-29 12:45 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/456260511490.shtml)
-- 2026-06-29 12:34 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/22290.shtml)
-- 2026-06-29 12:39 - [未来5年 充电供热供暖将有大变化](http://www.blog.minike.top/Article/details/47071483.shtml)
-- 2026-06-29 12:23 - [中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/723032.shtml)
-- 2026-06-29 12:24 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/16910133.shtml)
-- 2026-06-29 12:50 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/15463117424.shtml)
-- 2026-06-29 12:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/36787.shtml)
-- 2026-06-29 12:48 - [未来5年 充电供热供暖将有大变化](https://www.blog.kurohicncr.top/Article/details/68805.shtml)
-- 2026-06-29 12:40 - [大罗力挺内马尔](http://www.share.minike.top/Article/details/634960.shtml)
-- 2026-06-29 12:21 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/04083684949.shtml)
-- 2026-06-29 12:48 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/68948146236.shtml)
-- 2026-06-29 12:32 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/8084532.shtml)
+- 2026-06-29 12:50 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.blog.kurohicncr.top/Article/details/36461540.shtml)
+- 2026-06-29 12:42 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.share.kurohicncr.top/Article/details/19977426331.shtml)
+- 2026-06-29 12:28 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.blog.minike.top/Article/details/334680366110.shtml)
+- 2026-06-29 12:25 - [安徽休宁：初夏育秧忙](http://www.blog.minike.top/Article/details/10507537545.shtml)
+- 2026-06-29 12:37 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [百度高管解读Q1财报：将继续坚定投入文心大模型](http://www.blog.minike.top/Article/details/68220638.shtml)
+- 2026-06-29 12:39 - [陈克明鸡蛋挂面被指玩文字游戏，鸡蛋含量极低，客服回应：是鸡蛋风味面](http://www.blog.minike.top/Article/details/69895887501.shtml)
+- 2026-06-29 12:33 - [雅各布·弗兰克尔：各国应着力提升经济与金融体系韧性](http://www.share.kurohicncr.top/Article/details/7288355960.shtml)
+- 2026-06-29 12:30 - [i茅台调整每日开售时间](http://www.share.minike.top/Article/details/401881738.shtml)
+- 2026-06-29 12:35 - [“红色昌都·红色文旅名家讲坛”网络直播活动在西藏昌都举行](http://www.blog.minike.top/Article/details/430146622.shtml)
+- 2026-06-29 12:46 - [尼泊尔两名登山家刷新珠峰登顶纪录](http://www.blog.minike.top/Article/details/92510019425.shtml)
+- 2026-06-29 12:40 - [黑龙江：入境客流增加激活文旅消费 带动边境经济](http://www.blog.minike.top/Article/details/665197274981.shtml)
+- 2026-06-29 12:48 - [“福建好人”谢惠容30年公益路：以小平台汇聚巾帼大能量](http://www.blog.minike.top/Article/details/0324711522.shtml)
+- 2026-06-29 12:51 - [美伊局势，突生变数！刚刚，美以讨论重启对伊战事，特朗普发出威胁！](http://www.share.minike.top/Article/details/99563.shtml)

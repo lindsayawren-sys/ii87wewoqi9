@@ -1,56 +1,58 @@
-# 多位台胞打卡青岛：大陆已经这么厉害，像科幻片一样
+# 盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-近日，多位台湾同胞来到山东青岛。他们中有退役舰长、青年导演、自媒体博主……身份不同，年龄各异。 在青岛，他们登上了人民海军舰艇，也一路走过了海底隧道、造船厂、影视基地、自动化码头、跨海大桥等。 一路上，大家反复提及三个关键词——那也是从心底发出的声音：惊艳、骄傲、期待。 视频：台湾青年导演邱庆龄：身为中国人 我非常骄傲 希望和大陆的导演一起创造出属于中国人的电影来源：中国新闻网
+一季度业绩超预期，为股息上调奠定基础 Alerus Financial即将于本月底公布其2026年第二季度的股息政策。这家总部位于明尼苏达州的金融服务公司已连续29年上调年度股息，市场普遍预期其有望在本季度再次宣布小幅上调，延续这一纪录。 此次乐观预期主要源于公司强劲的业绩复苏。公司2026年4月29日公布的一季报显示，净利润达2300万美元，合每股收益0.89美元，远超市场预
 
 ## 正文
 
-近日，多位台湾同胞来到山东青岛。
+一季度业绩超预期，为股息上调奠定基础 Alerus Financial即将于本月底公布其2026年第二季度的股息政策。
 
-他们中有退役舰长、青年导演、自媒体博主……身份不同，年龄各异。
+这家总部位于明尼苏达州的金融服务公司已连续29年上调年度股息，市场普遍预期其有望在本季度再次宣布小幅上调，延续这一纪录。
 
-在青岛，他们登上了人民海军舰艇，也一路走过了海底隧道、造船厂、影视基地、自动化码头、跨海大桥等。
+此次乐观预期主要源于公司强劲的业绩复苏。
 
-一路上，大家反复提及三个关键词——那也是从心底发出的声音：惊艳、骄傲、期待。
+公司2026年4月29日公布的一季报显示，净利润达2300万美元，合每股收益0.89美元，远超市场预期的0.58美元，较去年同期的每股亏损1.27美元实现业绩反转。
 
-视频：台湾青年导演邱庆龄：身为中国人 我非常骄傲 希望和大陆的导演一起创造出属于中国人的电影来源：中国新闻网 惊艳： “大陆已经这么厉害” “这像科幻片一样。
+剔除去年同期的非经常性商誉减值因素，盈利能力的根本性改善为其持续慷慨派息提供了坚实的基础。
 
-”站在山东港口青岛港全自动化码头的观景台上，台湾青年郑诗吟举着手机，录了又录。
+拨开迷雾，真实的派息率远低于表象 从表面看，其过去12个月的派息率一度高达123.53%，引发了投资者对于股息可持续性的担忧。
 
-山东港口青岛港全自动化码头是亚洲首个真正意义上的全自动化集装箱码头，13次打破自动化码头装卸效率世界纪录。
+然而，最新的财报数据揭示，这一高位派息率主要是受此前几个季度非经常性亏损的拖累。
 
-“我一直在拍，停不下来。
+以第一季度0.89美元的每股收益计算，其每股0.21美元的季度股息对应的实际派息率仅为约24%。
 
 ## 相关推荐
 
-- 2026-06-29 12:21 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 12:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 12:51 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 12:29 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 12:45 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 12:23 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 12:26 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 12:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 12:43 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 12:26 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:26 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:33 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:50 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:46 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:35 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:41 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:32 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:46 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:37 - [债券市场异动预示利率或将大幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:26 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:31 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:48 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/35332287079.shtml)
-- 2026-06-29 12:38 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/6027692686.shtml)
-- 2026-06-29 12:26 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/34034364.shtml)
-- 2026-06-29 12:23 - [曝韩国球员目睹出局时正吃饭](http://www.blog.kurohicncr.top/Article/details/394177.shtml)
-- 2026-06-29 12:35 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/8854330.shtml)
-- 2026-06-29 12:22 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.share.kurohicncr.top/Article/details/232032369.shtml)
-- 2026-06-29 12:45 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/213464.shtml)
-- 2026-06-29 12:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/8891747.shtml)
-- 2026-06-29 12:36 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/492631343.shtml)
-- 2026-06-29 12:38 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/9669998.shtml)
-- 2026-06-29 12:24 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/971827103.shtml)
-- 2026-06-29 12:25 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/708901.shtml)
-- 2026-06-29 12:43 - [普京：俄罗斯将坚定捍卫自身根本利益](https://www.blog.minike.top/Article/details/0032831.shtml)
-- 2026-06-29 12:51 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/1511507.shtml)
-- 2026-06-29 12:31 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/407795638.shtml)
+- 2026-06-29 12:52 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.blog.kurohicncr.top/Article/details/35599637233.shtml)
+- 2026-06-29 12:37 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](http://www.share.kurohicncr.top/Article/details/96266.shtml)
+- 2026-06-29 12:44 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](http://www.blog.kurohicncr.top/Article/details/46626674.shtml)
+- 2026-06-29 12:37 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](http://www.blog.kurohicncr.top/Article/details/75744074824.shtml)
+- 2026-06-29 12:24 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](http://www.blog.kurohicncr.top/Article/details/95239.shtml)
+- 2026-06-29 12:48 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.share.kurohicncr.top/Article/details/16432045426.shtml)
+- 2026-06-29 12:52 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](http://www.blog.kurohicncr.top/Article/details/829128.shtml)
+- 2026-06-29 12:32 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](http://www.blog.minike.top/Article/details/830055163999.shtml)
+- 2026-06-29 12:24 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.share.kurohicncr.top/Article/details/02967472403.shtml)
+- 2026-06-29 12:49 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.blog.kurohicncr.top/Article/details/6932731.shtml)
+- 2026-06-29 12:44 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](http://www.share.minike.top/Article/details/829375431307.shtml)
+- 2026-06-29 12:30 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.minike.top/Article/details/40769354150.shtml)
+- 2026-06-29 12:38 - [外交部发言人就美国总统特朗普涉台表态答记者问](http://www.share.minike.top/Article/details/451116.shtml)

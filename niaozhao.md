@@ -1,60 +1,57 @@
-# 利欧股份业绩“暴雷”，股价大跌引发索赔潮
+# 中信证券：调整何解？重建杠铃结构
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 A股市场再次上演业绩“变脸”惊魂。曾经的“大牛股”利欧股份（维权）（002131）在2026年4月底投下了一枚重磅炸弹：公司一纸公告将2025年全年净利润预期从此前的最高2.5亿元大幅下修至不足4500万元，下修幅度超过80%。这一远超市场预期的利空直接导致股价重挫，也正式拉开了投资者索赔的序幕。 目前于‌2026年1月31日‌
+来源：中信证券研究 文|裘翔 张铭楷 陈峰 高玉森 陈泽平 此轮结构性行情的资金驱动力主要来源于存量调仓和融资盘流入，TMT成交占比阶段性见顶后，我们估计全A换手率会逐步回落至1.8%以下。特朗普访华确立了中美关系回到“竞争但不冲突”的框架，不过市场情绪可能是阶段性高位，一旦情绪回落，全球流动性收紧预期在投资者决策中的影响权重会开始上升。降温后，市场结构的多元化特征料将会有所回
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 A股市场再次上演业绩“变脸”惊魂。
+来源：中信证券研究 文|裘翔 张铭楷 陈峰 高玉森 陈泽平 此轮结构性行情的资金驱动力主要来源于存量调仓和融资盘流入，TMT成交占比阶段性见顶后，我们估计全A换手率会逐步回落至1.8%以下。
 
-曾经的“大牛股”利欧股份（维权）（002131）在2026年4月底投下了一枚重磅炸弹：公司一纸公告将2025年全年净利润预期从此前的最高2.5亿元大幅下修至不足4500万元，下修幅度超过80%。
+特朗普访华确立了中美关系回到“竞争但不冲突”的框架，不过市场情绪可能是阶段性高位，一旦情绪回落，全球流动性收紧预期在投资者决策中的影响权重会开始上升。
 
-这一远超市场预期的利空直接导致股价重挫，也正式拉开了投资者索赔的序幕。
+降温后，市场结构的多元化特征料将会有所回归，重返杠铃结构的必要性在增加，预计AI+能化是今年更合适的结构。
 
-目前于‌2026年1月31日‌-2026年4月23日‌期间买入，并在2026年4月24日之后卖出或仍持有而亏损的即可登记索赔。
+此轮结构性行情的资金驱动力 主要来源于存量调仓和融资盘流入 在市场经历全面降仓的剧烈调整之后，通常将经历“全面仓位回补”、“回补结构分化”、“存量资金轮动”三个阶段，我们认为当前市场仓位回升的过程接近尾声，正逐渐进入存量资金轮动的阶段。
 
-（利欧股份维权入口） 2026年4月23日晚，利欧股份发布了《2025年度业绩预告修正公告》，根据公告，公司此前在2026年1月31日预测全年归母净利润为1.90亿元至2.50亿元。
+融资盘的迅猛突破构成此轮结构性行情的主要增量。
 
-但是修正公告中显示该数据被修正为仅3000万元至4500万元。
+杠杆资金在3月的回调过程中展现出韧性，并且在此后继续持续上升，截至5月14日，沪深两市融资买入额在两市总成交额中的占比（MA5）为10.3%，位于2021年以来92.2%分位数水平，同时，杠杆资金主要聚焦于以通信、电子为代表的泛AI板块，最近4周通信+电子行业融资净买入占比分别为51%、55%、42%、61%。
 
-对于业绩巨幅下修的原因，公司在公告中将其归结为“对参股公司的长期股权投资计提大额减值准备”。
+除了杠杆资金，其他资金流指标显示市场增量有限，存量资金调仓的结构性行情特征明显。
 
-不过二级市场并不买单。
+4月9日以来，存量A股ETF累计净赎回4591亿元；期间，宽基ETF累计净赎回3986亿元，2025年末汇金持有的主要宽基ETF累计净赎回2861亿元；行业/主题ETF累计净赎回605亿元，其中，科技、周期、制造类分别累计净赎回457亿、175亿、160亿元，红利类净申购146亿元。
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 12:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 12:46 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 12:43 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 12:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 12:27 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 12:46 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 12:49 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 12:28 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 12:30 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 12:29 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 12:25 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 12:47 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 12:36 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 12:43 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:41 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:26 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:45 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:35 - [从过去探寻未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:39 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:34 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:36 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:39 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:49 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:49 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [某高校学生被辅导员等人扭送至公安](https://www.share.minike.top/Article/details/927542938.shtml)
-- 2026-06-29 12:25 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/794714410.shtml)
-- 2026-06-29 12:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/0769396.shtml)
-- 2026-06-29 12:38 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/744447058.shtml)
-- 2026-06-29 12:31 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/25409.shtml)
-- 2026-06-29 12:28 - [恋与深空女玩家不该被冒犯](https://www.share.minike.top/Article/details/24941839529.shtml)
-- 2026-06-29 12:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/5528931.shtml)
-- 2026-06-29 12:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/6052624806.shtml)
-- 2026-06-29 12:50 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/93498.shtml)
-- 2026-06-29 12:29 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/928337316.shtml)
-- 2026-06-29 12:34 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/963284842.shtml)
-- 2026-06-29 12:31 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/56627817.shtml)
-- 2026-06-29 12:50 - [国乒男单资格赛全员出局](https://www.blog.minike.top/Article/details/0225538.shtml)
-- 2026-06-29 12:41 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/248205377248.shtml)
-- 2026-06-29 12:42 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/97902347462.shtml)
+- 2026-06-29 12:27 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](http://www.blog.minike.top/Article/details/705737479564.shtml)
+- 2026-06-29 12:33 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.blog.kurohicncr.top/Article/details/881166089.shtml)
+- 2026-06-29 12:53 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](http://www.share.minike.top/Article/details/359146.shtml)
+- 2026-06-29 12:26 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](http://www.share.minike.top/Article/details/5225051251.shtml)
+- 2026-06-29 12:32 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.blog.minike.top/Article/details/9923293102.shtml)
+- 2026-06-29 12:38 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](http://www.blog.minike.top/Article/details/2167025099.shtml)
+- 2026-06-29 12:48 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](http://www.share.minike.top/Article/details/853642833.shtml)
+- 2026-06-29 12:40 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](http://www.share.kurohicncr.top/Article/details/951944598630.shtml)
+- 2026-06-29 12:45 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.kurohicncr.top/Article/details/77736.shtml)
+- 2026-06-29 12:27 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.share.minike.top/Article/details/78699.shtml)
+- 2026-06-29 12:49 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.share.minike.top/Article/details/781108870651.shtml)
+- 2026-06-29 12:52 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.share.minike.top/Article/details/3882151700.shtml)
+- 2026-06-29 12:31 - [中俄林业教育科技产业创新联盟成立](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lisacumin64-arch)

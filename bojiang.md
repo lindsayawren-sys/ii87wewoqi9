@@ -1,47 +1,46 @@
-# 北京银行：拟授予华夏银行同业机构综合授信额度500亿元
+# 美的集团于5月18日斥资1亿元回购121万股A股
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，北京银行发布公告称，总行经内部授权程序审议通过华夏银行的授信方案，拟同意授予华夏银行同业机构综合授信额度人民币500亿元，额度有效期3年，经股东会审批通过后，自内部审批意见表生效之日起生效。 责任编辑：王馨茹
+美的集团（00300）发布公告，该公司于2026年5月18日斥资1亿元人民币回购121万股A股，每股回购价格为82.09-83元人民币。责任编辑：卢昱君
 
 ## 正文
 
-4月27日金融一线消息，北京银行发布公告称，总行经内部授权程序审议通过华夏银行的授信方案，拟同意授予华夏银行同业机构综合授信额度人民币500亿元，额度有效期3年，经股东会审批通过后，自内部审批意见表生效之日起生效。
+美的集团（00300）发布公告，该公司于2026年5月18日斥资1亿元人民币回购121万股A股，每股回购价格为82.09-83元人民币。
 
-责任编辑：王馨茹
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 12:46 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 12:27 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 12:33 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 12:22 - [本届世界杯黑马扎堆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 12:35 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 12:45 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 12:25 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 12:37 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 12:38 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:34 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 12:24 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 12:32 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 12:52 - [伊朗战争重创全球富庶强国之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:24 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:43 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:28 - [最高法、中国残联发布第二批残疾人诉讼服务和多元解纷典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:45 - [北京三里屯UR玻璃会看到裙底？最新回应：已经做处理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:48 - [李大霄：5月18日美债收益率破5%暗藏的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:45 - [中国空间站：神二十一乘组在轨近200天 状态良好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:24 - [Boskalis投资新建高容量电缆铺设船，瞄准海上风电与互联市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:29 - [司法部、中国残联发布残疾人法律援助典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:40 - [在新疆兵团，葫芦雕刻何以“破圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:33 - [河北一高校博物馆独具特色 吸引民众观展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:38 - [香港赛马会2026年广州市“飞人杯”田径接力赛收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [男子撸铁后擦汗 脸部感染“脚气”](http://www.blog.minike.top/Article/details/55399130.shtml)
-- 2026-06-29 12:41 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/412124.shtml)
-- 2026-06-29 12:47 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/573295415.shtml)
-- 2026-06-29 12:44 - [曾沛慈夺冠后人气](http://www.blog.minike.top/Article/details/01458810061.shtml)
-- 2026-06-29 12:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/687670.shtml)
-- 2026-06-29 12:46 - [凯恩何时能拿到国际大赛冠军](https://www.blog.minike.top/Article/details/584654.shtml)
-- 2026-06-29 12:35 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/6558832.shtml)
-- 2026-06-29 12:26 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/860083563047.shtml)
-- 2026-06-29 12:37 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.minike.top/Article/details/96111.shtml)
-- 2026-06-29 12:22 - [伊朗球员致歉](http://www.share.minike.top/Article/details/103169524.shtml)
-- 2026-06-29 12:27 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/23662669300.shtml)
-- 2026-06-29 12:23 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/1189672985.shtml)
-- 2026-06-29 12:46 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/05362801816.shtml)
-- 2026-06-29 12:49 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/3766947909.shtml)
-- 2026-06-29 12:30 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/69235739.shtml)
+- 2026-06-29 12:37 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [河南省举办高校残疾大学生就业双选会](http://www.blog.kurohicncr.top/Article/details/69650625.shtml)
+- 2026-06-29 12:26 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.minike.top/Article/details/09902957491.shtml)
+- 2026-06-29 12:26 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](http://www.share.kurohicncr.top/Article/details/4713081837.shtml)
+- 2026-06-29 12:53 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](http://www.blog.minike.top/Article/details/2710887041.shtml)
+- 2026-06-29 12:39 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](http://www.share.kurohicncr.top/Article/details/552335.shtml)
+- 2026-06-29 12:25 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](http://www.share.kurohicncr.top/Article/details/84978395.shtml)
+- 2026-06-29 12:34 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [特斯拉在美国上调Model Y车型的售价](http://www.share.kurohicncr.top/Article/details/6090233014.shtml)
+- 2026-06-29 12:44 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](http://www.blog.minike.top/Article/details/697106095.shtml)
+- 2026-06-29 12:52 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [西藏居然有三家公募基金](https://github.com/lisacumin64-arch)

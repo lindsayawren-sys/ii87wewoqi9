@@ -1,58 +1,55 @@
-# 印度尼西亚河北商会揭牌成立
+# 美国特使抵达格陵兰岛首府努克
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网雅加达4月26日电 (记者 李志全)印度尼西亚河北商会4月25日在雅加达举行揭牌仪式，宣布正式成立。 来自印尼政府机构、中印尼工商界、各省兄弟商会、会员企业及河北籍各界人士等200余人出席活动。 印尼河北商会会长康兆辉表示，商会将致力于打造务实高效的交流平台，帮助新来企业降低试错成本、少走弯路。未来，商会工作将围绕信息共享、资源对接、服务保障等方面展开，秉持“实干兴商”理
+中新网北京5月18日电 格陵兰岛努克消息：美国格陵兰岛特使杰夫·兰德里17日抵达格陵兰岛首府努克，这是他上任以来首次访问格陵兰岛。 据路透社等媒体报道，兰德里计划参加将于19日至20日举行的“未来格陵兰”商业博览会，美国驻丹麦大使肯·豪厄里将陪同其参加。 格陵兰岛位于北美洲东北部，是世界第一大岛，也是丹麦自治领地，有高度自治权，国防和外交事务由丹麦政府掌管。 美国方面多次表示要
 
 ## 正文
 
-中新网雅加达4月26日电 (记者 李志全)印度尼西亚河北商会4月25日在雅加达举行揭牌仪式，宣布正式成立。
+中新网北京5月18日电 格陵兰岛努克消息：美国格陵兰岛特使杰夫·兰德里17日抵达格陵兰岛首府努克，这是他上任以来首次访问格陵兰岛。
 
-来自印尼政府机构、中印尼工商界、各省兄弟商会、会员企业及河北籍各界人士等200余人出席活动。
+据路透社等媒体报道，兰德里计划参加将于19日至20日举行的“未来格陵兰”商业博览会，美国驻丹麦大使肯·豪厄里将陪同其参加。
 
-印尼河北商会会长康兆辉表示，商会将致力于打造务实高效的交流平台，帮助新来企业降低试错成本、少走弯路。
+格陵兰岛位于北美洲东北部，是世界第一大岛，也是丹麦自治领地，有高度自治权，国防和外交事务由丹麦政府掌管。
 
-未来，商会工作将围绕信息共享、资源对接、服务保障等方面展开，秉持“实干兴商”理念，不辜负家乡重托与会员信任。
+美国方面多次表示要得到格陵兰岛，遭到丹麦及多方强烈反对。
 
-印尼中国商会总会秘书长黄瑞金、印尼中华总商会秘书长周维樑分别致辞，对河北商会成立表示祝贺。
+2025年12月，兰德里被任命为美国格陵兰岛特使。
 
-他们表示，河北历史文化底蕴深厚，民风淳朴，素以重信守义、务实进取著称；印尼市场充满活力与潜力，值得长期深耕。
-
-双方期待与河北商会保持良好互动，加强沟通协作和信息交流，为在印尼发展的企业营造更加顺畅的合作环境，助力两国经贸合作不断深化。
-
-河北是中国重要的经济大省，工业基础雄厚，资源禀赋良好，民营经济活跃。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 12:26 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 12:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 12:39 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:25 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 12:49 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 12:29 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 12:39 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 12:26 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 12:41 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 12:36 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 12:33 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 12:46 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:44 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:53 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:39 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:49 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:32 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:39 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:36 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:35 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:44 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:29 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:33 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:31 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/81739157.shtml)
-- 2026-06-29 12:35 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/8393628.shtml)
-- 2026-06-29 12:41 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/465174098.shtml)
-- 2026-06-29 12:31 - [三轮车被自家狗“推”进池塘](http://www.blog.kurohicncr.top/Article/details/86758778.shtml)
-- 2026-06-29 12:40 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/703647.shtml)
-- 2026-06-29 12:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/8592691.shtml)
-- 2026-06-29 12:49 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/4381234705.shtml)
-- 2026-06-29 12:47 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/1239982.shtml)
-- 2026-06-29 12:48 - [AG 钟意](https://www.share.minike.top/Article/details/859611.shtml)
-- 2026-06-29 12:43 - [日本和澳大利亚能代表亚洲足球走多远](https://www.blog.kurohicncr.top/Article/details/33862.shtml)
-- 2026-06-29 12:32 - [105年初心滚烫](https://www.share.minike.top/Article/details/32423.shtml)
-- 2026-06-29 12:23 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/15877664142.shtml)
-- 2026-06-29 12:23 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/554540162.shtml)
-- 2026-06-29 12:42 - [日本媒体：板仓滉已回归日本队合练](https://www.blog.minike.top/Article/details/48798.shtml)
-- 2026-06-29 12:49 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/891291087.shtml)
+- 2026-06-29 12:33 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.blog.kurohicncr.top/Article/details/97438.shtml)
+- 2026-06-29 12:31 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.kurohicncr.top/Article/details/9397967.shtml)
+- 2026-06-29 12:27 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.share.minike.top/Article/details/32662885472.shtml)
+- 2026-06-29 12:47 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.share.minike.top/Article/details/20779917313.shtml)
+- 2026-06-29 12:29 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.share.minike.top/Article/details/53642289971.shtml)
+- 2026-06-29 12:41 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [北京稻香村涉事门店回应“反向抹零”](http://www.blog.kurohicncr.top/Article/details/045056472.shtml)
+- 2026-06-29 12:31 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.blog.minike.top/Article/details/41086.shtml)
+- 2026-06-29 12:25 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [Anthropic将向监管机构通报网络风险](http://www.blog.kurohicncr.top/Article/details/16434741.shtml)
+- 2026-06-29 12:45 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](http://www.blog.minike.top/Article/details/46628249.shtml)
+- 2026-06-29 12:49 - [A股“股王”激战！近1个月来频繁易主](http://www.share.minike.top/Article/details/4958957110.shtml)
+- 2026-06-29 12:42 - [四大证券报头版头条内容精华摘要_2026年5月18日_财经新闻](http://www.blog.kurohicncr.top/Article/details/5734526.shtml)
+- 2026-06-29 12:49 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lisacumin64-arch)

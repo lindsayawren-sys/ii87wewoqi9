@@ -1,60 +1,59 @@
-# 华安基金刘潇|洞见医药创新：拥抱政策技术双红利
+# 电影《在伊犁》项目在乌鲁木齐启动
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-当一款创新药从实验室走向临床的时间不断缩短，当医保谈判与创新激励形成良性循环，我们不禁要问：中国医药创新的下一个爆发点究竟在哪里？答案或许不在单一维度的突破，而在于“政策”与“技术”的历史性交汇。政策红利正在重塑产业生态，技术红利则在重构研发路径。面对这场静水深流的变革，洞见创新方向、拥抱双重红利，才能看清医药行业的底层逻辑与未来图景。 华安基金作为业内最早深耕科技投资的基金公
+中新网乌鲁木齐5月18日电 (苟继鹏)18日，电影《在伊犁》项目启动仪式在乌鲁木齐市的天山电影制片厂举办，人民艺术家王蒙与各界嘉宾、主创团队共同出席活动。 据悉，该片由新疆维吾尔自治区党委宣传部、天山电影制片厂联合策划创作，改编自人民艺术家国家荣誉称号获得者、中国当代著名作家、原文化部部长王蒙同名作品《在伊犁》，是自治区文艺精品重点工程及文艺扶持激励资金重点项目。 影片紧扣铸牢
 
 ## 正文
 
-当一款创新药从实验室走向临床的时间不断缩短，当医保谈判与创新激励形成良性循环，我们不禁要问：中国医药创新的下一个爆发点究竟在哪里？
+中新网乌鲁木齐5月18日电 (苟继鹏)18日，电影《在伊犁》项目启动仪式在乌鲁木齐市的天山电影制片厂举办，人民艺术家王蒙与各界嘉宾、主创团队共同出席活动。
 
-答案或许不在单一维度的突破，而在于“政策”与“技术”的历史性交汇。
+据悉，该片由新疆维吾尔自治区党委宣传部、天山电影制片厂联合策划创作，改编自人民艺术家国家荣誉称号获得者、中国当代著名作家、原文化部部长王蒙同名作品《在伊犁》，是自治区文艺精品重点工程及文艺扶持激励资金重点项目。
 
-政策红利正在重塑产业生态，技术红利则在重构研发路径。
+影片紧扣铸牢中华民族共同体意识主线，以二十世纪六十年代的伊犁为背景，讲述各族群众守望相助、相知相融的温情往事，生动勾勒出各民族休戚与共、亲如一家的美好图景。
 
-面对这场静水深流的变革，洞见创新方向、拥抱双重红利，才能看清医药行业的底层逻辑与未来图景。
+“好电影靠的是生活，我希望这个电影里充满生活。
 
-华安基金作为业内最早深耕科技投资的基金公司之一，集结了“产业学术背景+投研实力”的投研团队，凭借深厚的产业积淀与团队协作能力，在科技投资领域不断扩容、深耕与迭代探索。
+”王蒙在启动仪式上说，新疆各族人民的生活热烈、浪漫又有活力，尤其是生活在伊犁的人们，充满乐观主义、浪漫主义和想象力。
 
-基金经理刘潇是华安基金投研团队的医药投资实力派，生物药学背景，且家族三代从医，因此对中国医疗行业的变革发展及医疗政策都保持着敏锐的感知力。
+希望这部影片能展现可爱的新疆各族人民的故事。
 
-刘潇拥有15年从业经验和超7年的投资管理经验，2021年11月加入华安基金后，持续深耕医药领域的同时，不断拓宽视野，专注挖掘真正优质的标的。
+天山电影制片厂党委书记荆鲁洲表示，全体主创将秉持工匠精神，全力打造兼具思想性、艺术性、观赏性的影视精品，以光影为媒讲好新疆故事。
 
-《洞见﹒新产业》第四期对话基金经理刘潇，以下是精彩观点分享。
+据悉，影片创作团队已于2025年9月赴伊犁实地采风，剧本经多轮打磨已正式定稿，各项筹备工作正有序推进。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 12:35 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 12:39 - [媒体：湖人把薪资空间玩明白了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 12:25 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 12:23 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 12:38 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 12:46 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 12:44 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 12:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 12:38 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 12:46 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 12:21 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 12:45 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 12:35 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:30 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:53 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:45 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:38 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:24 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:38 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:49 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:40 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:33 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:37 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:50 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:39 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [加拿大92分钟绝杀南非](http://www.blog.kurohicncr.top/Article/details/400357.shtml)
-- 2026-06-29 12:30 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.kurohicncr.top/Article/details/1557599416.shtml)
-- 2026-06-29 12:35 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/4903657938.shtml)
-- 2026-06-29 12:24 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/605143422.shtml)
-- 2026-06-29 12:46 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/1516420031.shtml)
-- 2026-06-29 12:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/9007778.shtml)
-- 2026-06-29 12:30 - [起风了](http://www.blog.kurohicncr.top/Article/details/3542844147.shtml)
-- 2026-06-29 12:35 - [A股](https://www.blog.kurohicncr.top/Article/details/100129032.shtml)
-- 2026-06-29 12:26 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/2222654.shtml)
-- 2026-06-29 12:22 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/451110.shtml)
-- 2026-06-29 12:50 - [马杜罗社交媒体账号再发文](http://www.blog.kurohicncr.top/Article/details/79738.shtml)
-- 2026-06-29 12:46 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/2031892.shtml)
-- 2026-06-29 12:25 - [三只羊大杨哥不直播改卖课](http://www.blog.minike.top/Article/details/1816361.shtml)
-- 2026-06-29 12:39 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/03505895901.shtml)
-- 2026-06-29 12:30 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/3482325776.shtml)
+- 2026-06-29 12:31 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.blog.kurohicncr.top/Article/details/479728.shtml)
+- 2026-06-29 12:25 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.share.kurohicncr.top/Article/details/062653209756.shtml)
+- 2026-06-29 12:51 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.minike.top/Article/details/026782.shtml)
+- 2026-06-29 12:30 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.blog.minike.top/Article/details/30091.shtml)
+- 2026-06-29 12:26 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.share.kurohicncr.top/Article/details/97522.shtml)
+- 2026-06-29 12:51 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.blog.minike.top/Article/details/87747421111.shtml)
+- 2026-06-29 12:25 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](http://www.share.minike.top/Article/details/5089234215.shtml)
+- 2026-06-29 12:42 - [北京稻香村涉事门店回应“反向抹零”](http://www.share.minike.top/Article/details/314017341601.shtml)
+- 2026-06-29 12:31 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](http://www.share.kurohicncr.top/Article/details/591721587935.shtml)
+- 2026-06-29 12:40 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.share.kurohicncr.top/Article/details/60293024513.shtml)
+- 2026-06-29 12:52 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.blog.minike.top/Article/details/810892418.shtml)
+- 2026-06-29 12:44 - [Anthropic将向监管机构通报网络风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](http://www.blog.kurohicncr.top/Article/details/742921298818.shtml)
+- 2026-06-29 12:39 - [A股“股王”激战！近1个月来频繁易主](http://www.blog.kurohicncr.top/Article/details/158285885.shtml)
+- 2026-06-29 12:53 - [四大证券报头版头条内容精华摘要_2026年5月18日_财经新闻](http://www.share.minike.top/Article/details/74514.shtml)

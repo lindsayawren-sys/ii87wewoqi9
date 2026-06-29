@@ -1,57 +1,58 @@
-# 第48届世界技能大赛部分参赛项目广州邀请赛开幕
+# 伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网广州4月27日电 (记者 程景伟)第48届世界技能大赛部分参赛项目广州邀请赛27日在广州市工贸技师学院科教城校区开幕。赛事涵盖CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理5个项目。 据悉，世界技能大赛(以下简称：世赛)被誉为“世界技能奥林匹克”。此次邀请赛，来自20个国家和地区的青年技能选手、专家、教练近170人相聚羊城，共襄盛会、切磋技能，为第48届
+决策与表态 阿联酋伊玛尔地产公司宣布，将退出其在大马士革第八门混合用途开发项目中的合资结构，今后将在叙利亚独立运营该项目。此举被市场解读为对叙利亚经济复苏前景投下的重磅信任票。 伊玛尔地产创始人穆罕默德·阿拉巴尔表示：“我们退出第八门项目合资结构的决定，是对叙利亚及其人民坚定信念的声明。伊玛尔地产的建立基于一个信念——伟大的城市值得拥有伟大的社区，而大马士革是世界上最伟大的城市
 
 ## 正文
 
-中新网广州4月27日电 (记者 程景伟)第48届世界技能大赛部分参赛项目广州邀请赛27日在广州市工贸技师学院科教城校区开幕。
+决策与表态 阿联酋伊玛尔地产公司宣布，将退出其在大马士革第八门混合用途开发项目中的合资结构，今后将在叙利亚独立运营该项目。
 
-赛事涵盖CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理5个项目。
+此举被市场解读为对叙利亚经济复苏前景投下的重磅信任票。
 
-据悉，世界技能大赛(以下简称：世赛)被誉为“世界技能奥林匹克”。
+伊玛尔地产创始人穆罕默德·阿拉巴尔表示：“我们退出第八门项目合资结构的决定，是对叙利亚及其人民坚定信念的声明。
 
-此次邀请赛，来自20个国家和地区的青年技能选手、专家、教练近170人相聚羊城，共襄盛会、切磋技能，为第48届世赛预热蓄力。
+伊玛尔地产的建立基于一个信念——伟大的城市值得拥有伟大的社区，而大马士革是世界上最伟大的城市之一。
 
-据悉，第48届世赛将于今年9月在上海举办。
+” 项目背景与运营标准 第八门项目始建于2005年，是叙利亚首个总体规划社区，位于距大马士革市中心约22公里的亚富尔地区。
 
-广州市工贸技师学院(以下简称：广工贸)是第48届世赛CAD机械设计、制冷与空调、移动应用开发、软件测试、网络系统管理、网站技术6个项目中国集训基地。
+该项目价值约5亿美元，占地30万平方米，集商业、零售、酒店和住宅于一体。
 
-在当天的邀请赛开幕式中，广工贸与韩国全球技能转移研究所签订“共建世界技能大赛国际联合集训基地框架合作协议”。
+伊玛尔在声明中强调，独立运营后，将确保第八门项目按照公司全球统一的高标准交付。
 
-这是双方自2024年首次签约合作后再度携手，将共建世赛国际联合集训基地，在共议集训体系、共商集训计划、共搭技能平台、共评选手水平、共组专家教练队伍等方面开展深度合作。
+该项目将采用与迪拜市中心、迪拜山庄庄园和伊玛尔海滨等标志性目的地相同的运营严谨性和设计理念。
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 12:21 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 12:39 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 12:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 12:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 12:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 12:37 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 12:35 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 12:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 12:40 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 12:33 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 12:44 - [债券市场异动预示利率或将大幅走高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:38 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:31 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:27 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:39 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:25 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:31 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:47 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:39 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:26 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:26 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:51 - [河南省举办高校残疾大学生就业双选会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [医护人员观影《四渡》传承长征精神](http://www.share.kurohicncr.top/Article/details/045882.shtml)
-- 2026-06-29 12:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/89193593721.shtml)
-- 2026-06-29 12:32 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/2348119164.shtml)
-- 2026-06-29 12:26 - [这位猫咪，请你自重！](http://www.share.kurohicncr.top/Article/details/122117577.shtml)
-- 2026-06-29 12:39 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/052865127.shtml)
-- 2026-06-29 12:51 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/13995588381.shtml)
-- 2026-06-29 12:27 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.minike.top/Article/details/84774245.shtml)
-- 2026-06-29 12:46 - [这位猫咪，请你自重！](https://www.share.kurohicncr.top/Article/details/057399611997.shtml)
-- 2026-06-29 12:43 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/740702.shtml)
-- 2026-06-29 12:21 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/83551213318.shtml)
-- 2026-06-29 12:31 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/907635044947.shtml)
-- 2026-06-29 12:44 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.minike.top/Article/details/235991109642.shtml)
-- 2026-06-29 12:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/838180.shtml)
-- 2026-06-29 12:22 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.kurohicncr.top/Article/details/7383926.shtml)
-- 2026-06-29 12:50 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/899347929096.shtml)
+- 2026-06-29 12:46 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](http://www.share.minike.top/Article/details/298981179.shtml)
+- 2026-06-29 12:31 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](http://www.blog.minike.top/Article/details/300448260.shtml)
+- 2026-06-29 12:27 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.blog.minike.top/Article/details/85517658956.shtml)
+- 2026-06-29 12:51 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.blog.minike.top/Article/details/89744.shtml)
+- 2026-06-29 12:40 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.minike.top/Article/details/26751.shtml)
+- 2026-06-29 12:30 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](http://www.blog.minike.top/Article/details/713017982.shtml)
+- 2026-06-29 12:25 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](http://www.blog.minike.top/Article/details/84238.shtml)
+- 2026-06-29 12:31 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](http://www.blog.kurohicncr.top/Article/details/9562858.shtml)
+- 2026-06-29 12:49 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](http://www.share.kurohicncr.top/Article/details/634120.shtml)
+- 2026-06-29 12:33 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](http://www.blog.kurohicncr.top/Article/details/488605.shtml)
+- 2026-06-29 12:44 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.share.kurohicncr.top/Article/details/591406429.shtml)
+- 2026-06-29 12:34 - [去年全国核发绿证超过29亿个](https://github.com/lisacumin64-arch)

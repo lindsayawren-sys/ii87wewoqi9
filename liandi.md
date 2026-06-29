@@ -1,56 +1,49 @@
-# 科技与文化跨界交融 西电第九届“终南杯”校园诗词大赛决赛举行
+# 特斯拉在美国上调Model Y车型的售价
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网西安4月25日电 (记者 阿琳娜)西安电子科技大学第九届“终南杯”校园诗词大赛决赛24日举办，不仅为诗词爱好者搭建了致敬经典、交流学习的平台，更以诗词为纽带，让千年诗意在新时代焕发蓬勃生机。 除校内组外，大赛继续开设中学组、小学组赛道。本次大赛还首次设置了高校友谊赛，特邀西安交通大学、西北工业大学、陕西师范大学、长安大学、西北大学五所省内兄弟高校的代表队，齐聚一堂，以诗会
+据特斯拉官网消息，特斯拉于周六在美国上调了Model Y车型的售价。 该公司将Model Y Premium全轮驱动版和Model Y Premium后轮驱动版的售价分别上调1000美元，至49990美元和45990美元。 网站显示，该公司还将Model Y Performance全轮驱动版在美国的售价上调500美元，至57990美元。责任编辑：李桐
 
 ## 正文
 
-中新网西安4月25日电 (记者 阿琳娜)西安电子科技大学第九届“终南杯”校园诗词大赛决赛24日举办，不仅为诗词爱好者搭建了致敬经典、交流学习的平台，更以诗词为纽带，让千年诗意在新时代焕发蓬勃生机。
+据特斯拉官网消息，特斯拉于周六在美国上调了Model Y车型的售价。
 
-除校内组外，大赛继续开设中学组、小学组赛道。
+该公司将Model Y Premium全轮驱动版和Model Y Premium后轮驱动版的售价分别上调1000美元，至49990美元和45990美元。
 
-本次大赛还首次设置了高校友谊赛，特邀西安交通大学、西北工业大学、陕西师范大学、长安大学、西北大学五所省内兄弟高校的代表队，齐聚一堂，以诗会友。
+网站显示，该公司还将Model Y Performance全轮驱动版在美国的售价上调500美元，至57990美元。
 
-大赛的试题设计，兼具文化性、直观性与趣味性。
-
-赛事题目深度融入音乐歌舞、饮食文化、器物服饰、礼乐典章等六大文化维度，紧扣西安“唐诗之都”的城市特质，围绕“地铁里的唐文化”主题，从“西电科大南校区·未来之瞳站”出发，串联大唐芙蓉园站、太白南路站、马腾空站等特色站点，通过站点空间与唐诗意境的对应，由学生进行现场演绎，实现跨越时空的古今对话，生动再现了长安的盛世风貌。
-
-比赛还巧妙运用AI情景创设、实景演绎、音画线索猜诗等多元形式，将静态的诗词转化为可感可知的沉浸式体验。
-
-中小学组决赛同样精彩纷呈。
-
-小学组围绕“光、明、远”，中学组紧扣“星、河、关”等关键字展开飞花令角逐。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 12:44 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 12:24 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 12:34 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 12:22 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 12:34 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:42 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 12:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 12:34 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 12:44 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 12:27 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:36 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:42 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:29 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:40 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:24 - [法国“戴高乐”号航母抵达阿拉伯海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:49 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:43 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:49 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:27 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:44 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/748617.shtml)
-- 2026-06-29 12:46 - [一生一世](http://www.blog.kurohicncr.top/Article/details/444712.shtml)
-- 2026-06-29 12:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/576320.shtml)
-- 2026-06-29 12:49 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/262235.shtml)
-- 2026-06-29 12:49 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/01240.shtml)
-- 2026-06-29 12:26 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/55491954.shtml)
-- 2026-06-29 12:22 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/91577313790.shtml)
-- 2026-06-29 12:35 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/23061342.shtml)
-- 2026-06-29 12:33 - [三轮车被自家狗“推”进池塘](https://www.blog.kurohicncr.top/Article/details/2893938.shtml)
-- 2026-06-29 12:35 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/81968510372.shtml)
-- 2026-06-29 12:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/51628151639.shtml)
-- 2026-06-29 12:26 - [俄政府批准巩固俄语地位行动计划](http://www.share.minike.top/Article/details/213327.shtml)
-- 2026-06-29 12:28 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/4839676.shtml)
-- 2026-06-29 12:48 - [美人鱼](http://www.blog.minike.top/Article/details/24278.shtml)
-- 2026-06-29 12:28 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/039531.shtml)
+- 2026-06-29 12:47 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.share.minike.top/Article/details/20215.shtml)
+- 2026-06-29 12:53 - [吉利汽车因认股权获行使而发行13.28万股](http://www.share.kurohicncr.top/Article/details/1457135.shtml)
+- 2026-06-29 12:30 - [中东部有大范围强降水 黄海海域有大雾](http://www.share.minike.top/Article/details/146402747.shtml)
+- 2026-06-29 12:45 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](http://www.share.kurohicncr.top/Article/details/100293.shtml)
+- 2026-06-29 12:33 - [中俄共绘教育合作新图景](http://www.share.minike.top/Article/details/732606419925.shtml)
+- 2026-06-29 12:43 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](http://www.blog.minike.top/Article/details/65703863634.shtml)
+- 2026-06-29 12:38 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](http://www.share.minike.top/Article/details/17595867.shtml)
+- 2026-06-29 12:45 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](http://www.share.kurohicncr.top/Article/details/09165784230.shtml)
+- 2026-06-29 12:25 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](http://www.blog.kurohicncr.top/Article/details/7809341.shtml)
+- 2026-06-29 12:24 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](http://www.blog.minike.top/Article/details/96527794.shtml)
+- 2026-06-29 12:40 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](http://www.share.kurohicncr.top/Article/details/5564504299.shtml)
+- 2026-06-29 12:33 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.share.minike.top/Article/details/346335.shtml)
+- 2026-06-29 12:27 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](http://www.blog.minike.top/Article/details/294479790.shtml)
+- 2026-06-29 12:53 - [十大机构论市：双创冲高回落 科技行情结束了吗？](http://www.blog.minike.top/Article/details/67906897087.shtml)

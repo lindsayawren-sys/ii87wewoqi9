@@ -1,57 +1,47 @@
-# 英诺赛科午后涨逾5% 针对英飞凌的两件氮化镓核心专利行政诉讼全面胜诉
+# 娄山观|谁说山地不能刚？贵州农业硬核登场
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-英诺赛科（02577）盘中涨超5%，截至发稿，股价上涨4.98%，现报67.40港元，成交额3.14亿港元。 4月24日，英诺赛科公司迎来专利诉讼领域的重大进展，收到北京知识产权法院发来的两件专利行政诉讼胜诉判决。法院全面维持了英诺赛科公司两件氮化镓技术核心发明专利的有效性，驳回英飞凌公司的无效诉讼请求，英诺赛科在这两项关键行政诉讼中再次取得重大胜利。 值得注意的是，谷歌近期正
+发布时间：2026年05月17日 20:52 来源：人民日报客户端贵州频道 责任编辑：【田博川】
 
 ## 正文
 
-英诺赛科（02577）盘中涨超5%，截至发稿，股价上涨4.98%，现报67.40港元，成交额3.14亿港元。
-
-4月24日，英诺赛科公司迎来专利诉讼领域的重大进展，收到北京知识产权法院发来的两件专利行政诉讼胜诉判决。
-
-法院全面维持了英诺赛科公司两件氮化镓技术核心发明专利的有效性，驳回英飞凌公司的无效诉讼请求，英诺赛科在这两项关键行政诉讼中再次取得重大胜利。
-
-值得注意的是，谷歌近期正式发布其第八代TPU处理器的两款全新产品，分别是专为AI模型训练设计的TPU 8t与专为推理优化的TPU 8i。
-
-据了解，TPU是AI计算核心，GaN为TPU集群高效供电的关键功率器件，共同支撑高算力、低功耗的AI基础设施。
-
-英诺赛科2025年报显示，期内销售氮化镓模块所得收益4.462亿元，同比增加142.6%，责任编辑：卢昱君
+发布时间：2026年05月17日 20:52 来源：人民日报客户端贵州频道 责任编辑：【田博川】
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 12:36 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 12:35 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:32 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 12:25 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 12:41 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 12:37 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 12:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 12:31 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 12:50 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 12:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 12:26 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 12:39 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 12:27 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 12:35 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:40 - [平台支付需留神 莫让“付钱”变“借钱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:53 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:38 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:36 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:27 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:38 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:38 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:24 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:40 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:39 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:50 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:47 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:37 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:29 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/766580.shtml)
-- 2026-06-29 12:22 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/599501699.shtml)
-- 2026-06-29 12:34 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/28255447486.shtml)
-- 2026-06-29 12:37 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/050851.shtml)
-- 2026-06-29 12:49 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/995907261646.shtml)
-- 2026-06-29 12:41 - [白鹿呵呵挽手比心](http://www.blog.kurohicncr.top/Article/details/050726195345.shtml)
-- 2026-06-29 12:39 - [青春环游记第三季](https://www.share.minike.top/Article/details/809024710.shtml)
-- 2026-06-29 12:33 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/30123.shtml)
-- 2026-06-29 12:43 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/9186905.shtml)
-- 2026-06-29 12:35 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/65108953880.shtml)
-- 2026-06-29 12:47 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/518507.shtml)
-- 2026-06-29 12:39 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.minike.top/Article/details/7816983057.shtml)
-- 2026-06-29 12:32 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/2614506.shtml)
-- 2026-06-29 12:25 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/511373681815.shtml)
-- 2026-06-29 12:44 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/3479781.shtml)
+- 2026-06-29 12:38 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](http://www.blog.minike.top/Article/details/0325913943.shtml)
+- 2026-06-29 12:36 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](http://www.share.minike.top/Article/details/23500.shtml)
+- 2026-06-29 12:35 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](http://www.blog.kurohicncr.top/Article/details/813334.shtml)
+- 2026-06-29 12:43 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](http://www.share.minike.top/Article/details/958185436015.shtml)
+- 2026-06-29 12:50 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [中信证券：调整何解？重建杠铃结构](http://www.blog.minike.top/Article/details/799402303578.shtml)
+- 2026-06-29 12:47 - [A股，重磅新规！千家公司面临调整](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.blog.kurohicncr.top/Article/details/07391.shtml)
+- 2026-06-29 12:25 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.blog.kurohicncr.top/Article/details/916496837314.shtml)
+- 2026-06-29 12:27 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](http://www.blog.kurohicncr.top/Article/details/93126408.shtml)
+- 2026-06-29 12:44 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.blog.kurohicncr.top/Article/details/67685649.shtml)
+- 2026-06-29 12:49 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.share.kurohicncr.top/Article/details/2943287.shtml)
+- 2026-06-29 12:25 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.minike.top/Article/details/9309929426.shtml)

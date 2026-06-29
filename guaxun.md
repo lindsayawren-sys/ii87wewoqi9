@@ -1,56 +1,59 @@
-# 沪镍大涨：矿端扰动点燃情绪，成本抬升夯实支撑
+# 电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-一、行情表述 4月27日，沪镍主力合约收报149310元/吨，涨幅3.05%，盘中最高触及150280元/吨，刷新2026年2月以来新高；持仓量增15755手至191745手，成交量52.40万手，资金净流入5.19亿元。 二、原因分析 配额大幅削减，矿端供应收紧兑现：据SMM，印尼2026年将全国镍矿开采配额从3.79亿吨缩减至约2.6—2.7亿吨，降幅超30%。Weda B
+战略收缩：578亿日元减值后重新聚焦 继日产与梅赛德斯-奔驰之后，斯巴鲁成为最新一家宣布推迟电动化目标的车企。受全球电动汽车市场需求放缓及美国关税政策影响，斯巴鲁决定推迟其自主开发的首款纯电动车型的上市时间，并将部分资源重新转向混合动力和传统燃油车领域。 这一决策伴随着巨大的财务阵痛，在此次战略调整中，斯巴鲁计入了高达578亿日元的相关减值损失，导致2025财年营业利润同比暴跌
 
 ## 正文
 
-一、行情表述 4月27日，沪镍主力合约收报149310元/吨，涨幅3.05%，盘中最高触及150280元/吨，刷新2026年2月以来新高；持仓量增15755手至191745手，成交量52.40万手，资金净流入5.19亿元。
+战略收缩：578亿日元减值后重新聚焦 继日产与梅赛德斯-奔驰之后，斯巴鲁成为最新一家宣布推迟电动化目标的车企。
 
-二、原因分析 配额大幅削减，矿端供应收紧兑现：据SMM，印尼2026年将全国镍矿开采配额从3.79亿吨缩减至约2.6—2.7亿吨，降幅超30%。
+受全球电动汽车市场需求放缓及美国关税政策影响，斯巴鲁决定推迟其自主开发的首款纯电动车型的上市时间，并将部分资源重新转向混合动力和传统燃油车领域。
 
-Weda Bay矿山初批配额仅1200万湿吨，较2025年的4200万湿吨削减逾70%，预计5月中旬配额用尽后将进入停产维护状态，市场担忧供应短缺进一步加剧。
+这一决策伴随着巨大的财务阵痛，在此次战略调整中，斯巴鲁计入了高达578亿日元的相关减值损失，导致2025财年营业利润同比暴跌90%至401亿日元。
 
-硫磺断供抬升湿法成本：据Mysteel，印尼约75%—80%的硫磺进口依赖中东。
+在财报说明会上，斯巴鲁社长大崎笃坦言，由于核心市场美国的电动化普及速度远低于预期，公司必须重新审视原有的激进计划。
 
-每生产1金属吨MHP需消耗9-10吨硫磺，受霍尔木兹海峡航运封锁影响，近期印尼某MHP企业7月交期硫磺采购价已达1100-1200美元/吨，较年初涨幅超100%，多家印尼镍加工企业自上月以来被迫将产量削减至少10%。
+他表示：“考虑到这一点，我们的纯电动车市场导入时间将被推迟。
 
-HPM新政重塑矿端成本曲线：据Mysteel，印尼HPM新政4月15日生效，将1.6%品位镍矿修正系数从17%大幅上调至30%，并将钴、铁等伴生元素首次纳入计价，矿端税费显著提升，冶炼成本全面上移。
+我们希望全面重新评估包括车型在内的整个战略。
 
-宏观资金增仓助推：增量投机资金大量重返镍市，破位追涨情绪浓厚，与存量基本面资金形成博弈，共同推动期价上行。
+” 柔性生产应对需求变局 尽管推迟了自研纯电项目，斯巴鲁并未停止电动化步伐。
 
-三、后市展望 印尼供应收紧方向明确，但WBN配额补充审批尚需约35个工作日，硫磺短缺若持续则湿法产线或进一步减产。
+公司仍将按计划与合作伙伴丰田共同开发新车型，此前在纽约车展亮相的三排座纯电SUV“Getaway”预计将在2026年下半年投放北美市场。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:28 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 12:33 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 12:44 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 12:28 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 12:34 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 12:45 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 12:38 - [晋城暴雨车辆被淹冰箱在水中漂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 12:31 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:25 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 12:36 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:41 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:51 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:42 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:53 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:24 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:40 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:36 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:41 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:26 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:42 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:36 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:28 - [伊朗计划在两年内完成南帕尔斯气田重建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [陈露发声引舆论反转](http://www.share.kurohicncr.top/Article/details/868187937.shtml)
-- 2026-06-29 12:48 - [陈露发声引舆论反转](http://www.share.minike.top/Article/details/02105369.shtml)
-- 2026-06-29 12:24 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/0113121420.shtml)
-- 2026-06-29 12:48 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/7845352090.shtml)
-- 2026-06-29 12:40 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/03722.shtml)
-- 2026-06-29 12:31 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/88373244346.shtml)
-- 2026-06-29 12:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/690514128.shtml)
-- 2026-06-29 12:50 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/901966138450.shtml)
-- 2026-06-29 12:28 - [线路错接女子替7户邻居交17年电费](http://www.share.minike.top/Article/details/775486955.shtml)
-- 2026-06-29 12:22 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/667627700529.shtml)
-- 2026-06-29 12:22 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/17135246.shtml)
-- 2026-06-29 12:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/689066315.shtml)
-- 2026-06-29 12:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/4508435177.shtml)
-- 2026-06-29 12:25 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/2972730.shtml)
-- 2026-06-29 12:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/43783547519.shtml)
+- 2026-06-29 12:44 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.blog.minike.top/Article/details/40348482194.shtml)
+- 2026-06-29 12:34 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.share.minike.top/Article/details/523216663958.shtml)
+- 2026-06-29 12:38 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.blog.minike.top/Article/details/06839868.shtml)
+- 2026-06-29 12:48 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.share.minike.top/Article/details/32934387.shtml)
+- 2026-06-29 12:28 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.share.kurohicncr.top/Article/details/27983468931.shtml)
+- 2026-06-29 12:32 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [从过去探寻未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.share.kurohicncr.top/Article/details/951178604.shtml)
+- 2026-06-29 12:42 - [金价回落 后市怎么走？](http://www.blog.kurohicncr.top/Article/details/68481.shtml)
+- 2026-06-29 12:47 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.blog.kurohicncr.top/Article/details/43958.shtml)
+- 2026-06-29 12:27 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.share.minike.top/Article/details/94406955.shtml)
+- 2026-06-29 12:41 - [EMCOR高管团队将出席三场投资者会议](http://www.blog.kurohicncr.top/Article/details/62101667481.shtml)
+- 2026-06-29 12:31 - [习言道｜三个维度观察中美元首北京会晤](http://www.blog.minike.top/Article/details/149728983.shtml)
+- 2026-06-29 12:27 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.blog.minike.top/Article/details/67484343467.shtml)
+- 2026-06-29 12:52 - [美国特使抵达格陵兰岛首府努克](http://www.share.minike.top/Article/details/997273741.shtml)

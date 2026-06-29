@@ -1,60 +1,56 @@
-# 护航低空亿级赛道 浙江绍兴奏响安全“三重奏”
+# 北汽张国富：越野门槛降低不是稀释而是加强，“尝鲜”的人越多专业优势越明显
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网绍兴4月26日电(项菁)“浙江一带地形多样、应用场景丰富，只要守牢安全底线、坚持合规运行，低空经济必将释放出巨大动能。”欧洲科学院院士、世界无人机大会主席杨金才近日接受中新网专访时说。 无安全，不低空。在全国低空经济万亿新赛道上，安全始终是不可逾越的底线，更是产业高质量发展的支撑。 作为浙江低空经济矩阵的重要一翼，绍兴市空域条件优越、低空产业起步较早。眼下，当地空域飞行流
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。谈及“硬派越野门槛正在降低”的现象，北汽集团副总经理、北汽股份董事长张国富回应称，这一趋势对北京越野而言不是稀释，反而会得到加强。 张国富表示，越野与SUV之间的区别越来越小，“尝鲜越野”的人就会越来越多。如此一来，专业越野的优势和“爽感”自然会越来越明显。“没有
 
 ## 正文
 
-中新网绍兴4月26日电(项菁)“浙江一带地形多样、应用场景丰富，只要守牢安全底线、坚持合规运行，低空经济必将释放出巨大动能。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-”欧洲科学院院士、世界无人机大会主席杨金才近日接受中新网专访时说。
+谈及“硬派越野门槛正在降低”的现象，北汽集团副总经理、北汽股份董事长张国富回应称，这一趋势对北京越野而言不是稀释，反而会得到加强。
 
-无安全，不低空。
+张国富表示，越野与SUV之间的区别越来越小，“尝鲜越野”的人就会越来越多。
 
-在全国低空经济万亿新赛道上，安全始终是不可逾越的底线，更是产业高质量发展的支撑。
+如此一来，专业越野的优势和“爽感”自然会越来越明显。
 
-作为浙江低空经济矩阵的重要一翼，绍兴市空域条件优越、低空产业起步较早。
+“没有对比就没有伤害，没有门槛就显不出高下。
 
-眼下，当地空域飞行流量持续攀升，无人机月均飞行量已突破8万架次，仅今年一季度备案飞行活动就超过5300条。
+” 他结合自身多年越野经验指出，北汽曾在全国发起“百大英雄团”，组织过小型环塔拉力赛，也参与了达喀尔拉力赛，同时拥有全国几百个车友群和多个越野体验基地。
 
-活跃的低空活动释放强劲经济效能的同时，也给空域安全与有序运行带来全新挑战。
+他认为，整个越野的基盘越大，不是在分蛋糕，而是在造一个更大的盘子。
 
-向着2030年产业规模突破千亿元的目标，绍兴如何平衡“管得住”与“飞得好”，让低空经济在安全轨道上行稳致远？
+张国富总结道，越野门槛的降低，本质上是让更多人“被种草”。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 12:33 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 12:31 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 12:42 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 12:50 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 12:47 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 12:47 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 12:40 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 12:22 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:32 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 12:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 12:31 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 12:37 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 12:31 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 12:33 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:29 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:53 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:26 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:44 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:38 - [南京银行：董事王厚印辞任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:31 - [广西北海海上风电单桩基础设备出运越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:43 - [伊朗战争重创全球富庶强国之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:31 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:37 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/96654324.shtml)
-- 2026-06-29 12:41 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/220037941.shtml)
-- 2026-06-29 12:50 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/4174320.shtml)
-- 2026-06-29 12:43 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/8239646.shtml)
-- 2026-06-29 12:23 - [恋与深空需直面玩家6大疑问](https://www.blog.kurohicncr.top/Article/details/871321.shtml)
-- 2026-06-29 12:49 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/7139417.shtml)
-- 2026-06-29 12:41 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/50163077262.shtml)
-- 2026-06-29 12:28 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/2969525783.shtml)
-- 2026-06-29 12:27 - [亚洲成世界杯最大失意者联盟](https://www.blog.kurohicncr.top/Article/details/0035736478.shtml)
-- 2026-06-29 12:45 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/9711469896.shtml)
-- 2026-06-29 12:24 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/93244618973.shtml)
-- 2026-06-29 12:41 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/2877627709.shtml)
-- 2026-06-29 12:40 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/41468.shtml)
-- 2026-06-29 12:46 - [AG 钟意](http://www.share.kurohicncr.top/Article/details/82280.shtml)
-- 2026-06-29 12:26 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/4232525.shtml)
+- 2026-06-29 12:51 - [我国成功发射千帆星座第9批组网卫星](http://www.blog.kurohicncr.top/Article/details/361079458756.shtml)
+- 2026-06-29 12:28 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.blog.kurohicncr.top/Article/details/774155439277.shtml)
+- 2026-06-29 12:29 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.blog.minike.top/Article/details/516730876.shtml)
+- 2026-06-29 12:32 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.blog.minike.top/Article/details/3737774075.shtml)
+- 2026-06-29 12:40 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.share.minike.top/Article/details/703925.shtml)
+- 2026-06-29 12:43 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.share.kurohicncr.top/Article/details/49746.shtml)
+- 2026-06-29 12:48 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.share.kurohicncr.top/Article/details/0488894464.shtml)
+- 2026-06-29 12:39 - [河南省举办高校残疾大学生就业双选会](http://www.share.minike.top/Article/details/1555878.shtml)
+- 2026-06-29 12:30 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.kurohicncr.top/Article/details/93595101.shtml)
+- 2026-06-29 12:33 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](http://www.share.minike.top/Article/details/39342798760.shtml)
+- 2026-06-29 12:44 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](http://www.share.kurohicncr.top/Article/details/762603.shtml)
+- 2026-06-29 12:32 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](http://www.share.kurohicncr.top/Article/details/32321.shtml)

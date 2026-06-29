@@ -1,57 +1,61 @@
-# 尼泊尔举行国际中文日活动
+# 北京三里屯UR玻璃会看到裙底？最新回应：已经做处理
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新社加德满都4月26日电 (记者 崔楠)2026年国际中文日活动26日在尼泊尔加德满都谷地城市勒利德布尔举行。 此次活动由中国驻尼泊尔大使馆主办、特里布文大学孔子学院承办，主题为“中文：点亮多彩梦想”，吸引数百名中尼各界人士到场。来自特里布文大学、加德满都大学、LRI孔子课堂等机构的尼泊尔学员带来中尼特色舞蹈、中文歌曲、诗朗诵和小品等节目。诗朗诵《将进酒》气势磅礴，中文小品《
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日消息，近日，有网友发帖称，北京“三里屯UR玻璃会看到裙底”引发热议。该网友提醒，“穿短裙的女生最好不要走这边，底下会看到。” 对此情况，“UR三里屯日记”在评论区回复并配图：“我们已高度重视大家的反馈，给大家带来不好的体验，在此真诚致歉。目前，该区域已临时增加围挡，现场也有工作人员进行提示。今晚我
 
 ## 正文
 
-中新社加德满都4月26日电 (记者 崔楠)2026年国际中文日活动26日在尼泊尔加德满都谷地城市勒利德布尔举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次活动由中国驻尼泊尔大使馆主办、特里布文大学孔子学院承办，主题为“中文：点亮多彩梦想”，吸引数百名中尼各界人士到场。
+5月18日消息，近日，有网友发帖称，北京“三里屯UR玻璃会看到裙底”引发热议。
 
-来自特里布文大学、加德满都大学、LRI孔子课堂等机构的尼泊尔学员带来中尼特色舞蹈、中文歌曲、诗朗诵和小品等节目。
+该网友提醒，“穿短裙的女生最好不要走这边，底下会看到。
 
-诗朗诵《将进酒》气势磅礴，中文小品《总裁，请就诊》引发阵阵笑声。
+” 对此情况，“UR三里屯日记”在评论区回复并配图：“我们已高度重视大家的反馈，给大家带来不好的体验，在此真诚致歉。
 
-现场还设置书法、茶艺、拓印、投壶等中国文化体验项目。
+目前，该区域已临时增加围挡，现场也有工作人员进行提示。
 
-尼泊尔学员苏曼一边展示茶艺，一边用流利中文向尼泊尔同学介绍：“在中国，倒茶不可满杯，需七分满以示尊敬。
+今晚我们将紧急加装封闭贴膜，保证在明天开业前彻底解决视线通透问题。
 
-”他说，自己经营尼泊尔茶叶生意已有13年，学习中国茶艺超过10年，希望通过茶艺向更多中国朋友推介尼泊尔茶。
+此次事件反映出我们在门店空间设计上考量不周，对此我们全权承担责任，绝不找任何理由。
 
-活动尾声，中国驻尼泊尔大使张茂明为13名在中国汉语水平考试中取得优异成绩的尼泊尔学员颁奖。
+” 今日，UR三里屯门店工作人员回应表示，“我们店铺刚开业，设计确实这方面欠考虑，我们这边已经向上级反馈这个问题，已经在做整改，目前这部分已经做了处理，有了相应的处理方式了。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 12:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 12:44 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 12:36 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 12:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 12:40 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 12:49 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 12:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 12:47 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 12:32 - [刘宇宁现偶我就不要了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 12:37 - [跑步机上“爬坡”减肥公式爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 12:27 - [香港赛马会2026年广州市“飞人杯”田径接力赛收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:30 - [古巴国家主席说美对古军事威胁已构成国际犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:53 - [深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:52 - [盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:53 - [廊坊银行股权变更获批 厦门国际银行持股比例达6.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:44 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:26 - [中央气象台今早继续发布暴雨黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:27 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:37 - [中外记者打卡合肥创新科技](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:49 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:50 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:32 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:38 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:34 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:35 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/03938681.shtml)
-- 2026-06-29 12:37 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.kurohicncr.top/Article/details/31406072832.shtml)
-- 2026-06-29 12:43 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/75290.shtml)
-- 2026-06-29 12:30 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/72394.shtml)
-- 2026-06-29 12:34 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/25199800.shtml)
-- 2026-06-29 12:39 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/487616546.shtml)
-- 2026-06-29 12:48 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/81809796.shtml)
-- 2026-06-29 12:42 - [晋城暴雨车辆被淹冰箱在水中漂](https://www.share.minike.top/Article/details/4358604.shtml)
-- 2026-06-29 12:38 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/729837345252.shtml)
-- 2026-06-29 12:34 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/827370703.shtml)
-- 2026-06-29 12:44 - [本周做什么都顺的星座](http://www.blog.minike.top/Article/details/05340123740.shtml)
-- 2026-06-29 12:31 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/590369.shtml)
-- 2026-06-29 12:43 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/83597914330.shtml)
-- 2026-06-29 12:42 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/421656184.shtml)
-- 2026-06-29 12:41 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/582434229.shtml)
+- 2026-06-29 12:51 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](http://www.blog.kurohicncr.top/Article/details/969054646248.shtml)
+- 2026-06-29 12:34 - [原油：油价震荡上涨 美伊和平谈判再现波折](http://www.blog.kurohicncr.top/Article/details/09742411326.shtml)
+- 2026-06-29 12:25 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.blog.minike.top/Article/details/7575213383.shtml)
+- 2026-06-29 12:40 - [西藏居然有三家公募基金](http://www.blog.minike.top/Article/details/3215357046.shtml)
+- 2026-06-29 12:50 - [M4Markets:金价剧震下蓄力新方向](http://www.share.minike.top/Article/details/03471095.shtml)
+- 2026-06-29 12:49 - [5月11日—5月17日国家铁路运输货物8198.9万吨](http://www.share.kurohicncr.top/Article/details/980596986948.shtml)
+- 2026-06-29 12:45 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](http://www.share.kurohicncr.top/Article/details/264938893658.shtml)
+- 2026-06-29 12:27 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.blog.minike.top/Article/details/871489038.shtml)
+- 2026-06-29 12:24 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.share.minike.top/Article/details/70911.shtml)
+- 2026-06-29 12:32 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.blog.kurohicncr.top/Article/details/1844085.shtml)
+- 2026-06-29 12:25 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](http://www.blog.kurohicncr.top/Article/details/510139286.shtml)
+- 2026-06-29 12:32 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](http://www.blog.kurohicncr.top/Article/details/409164.shtml)
+- 2026-06-29 12:32 - [缅甸发生5.2级地震 震源深度10千米](http://www.share.minike.top/Article/details/92106916956.shtml)

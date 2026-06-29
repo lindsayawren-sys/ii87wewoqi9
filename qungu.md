@@ -1,59 +1,42 @@
-# 第34届白玉兰戏剧奖揭晓获奖名单 伊莎贝拉·于佩尔等十人获主角奖
+# 关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网上海4月25日电 (记者 王笈)第34届上海白玉兰戏剧表演艺术奖(以下简称“白玉兰戏剧奖”)颁奖晚会24日晚在上海文化广场举行，伊莎贝拉·于佩尔(Isabelle Huppert)、刘守正、江珊、李嘉宜、张亚鸽、张梓溪、郝帅、侯红琴、焦媛、谢莉莉获本届白玉兰戏剧奖主角奖。 法国国宝级演员伊莎贝拉·于佩尔凭借法语话剧《樱桃园》摘得“白玉兰”。她在剧中塑造了一个立体复杂的柳鲍
+发布时间：2026年05月18日 11:01 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网上海4月25日电 (记者 王笈)第34届上海白玉兰戏剧表演艺术奖(以下简称“白玉兰戏剧奖”)颁奖晚会24日晚在上海文化广场举行，伊莎贝拉·于佩尔(Isabelle Huppert)、刘守正、江珊、李嘉宜、张亚鸽、张梓溪、郝帅、侯红琴、焦媛、谢莉莉获本届白玉兰戏剧奖主角奖。
-
-法国国宝级演员伊莎贝拉·于佩尔凭借法语话剧《樱桃园》摘得“白玉兰”。
-
-她在剧中塑造了一个立体复杂的柳鲍芙，赋予角色现代疏离感，以松弛自然又极具张力的独特表演质感，为经典剧目注入了新的活力。
-
-“大家可能比较多的是通过电影认识我，这次能获得白玉兰戏剧奖主角奖，对我而言意义非凡。
-
-”伊莎贝拉·于佩尔获奖后表示，一年前，自己就是在上海文化广场的剧场里演绎了这个非常具有创造力的《樱桃园》版本，“我其实来中国演出的机会很多，每次来都能感受到中国观众的巨大热情，希望未来可以跟中国观众有更多交流”。
-
-马志晨、李丹、李炜铃、吴佳燕、符传杰、董旭阳、韩秀一、谭一梅、霍敏获配角奖；方书剑、杨韵儿、炼雯晴、游佳琦获新人主角奖；王柯边、任晓璇、安一鑫、陈宇杰获新人配角奖。
-
-值得一提的是，本届白玉兰戏剧奖将特殊贡献奖授予上海昆剧团“昆大班”的王芝泉、方洋、计镇华、张洵澎、张铭荣、岳美缇、梁谷音、蔡正仁。
-
-72年前的春天，一群12岁左右的少年走进华东戏曲研究院昆曲演员训练班，成为新中国培养的第一批昆曲人才——“昆大班”。
+发布时间：2026年05月18日 11:01 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 12:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 12:22 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 12:34 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 12:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 12:21 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 12:29 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 12:25 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 12:51 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 12:45 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 12:33 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 12:34 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 12:33 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 12:42 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:36 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:25 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:48 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:30 - [美国特使抵达格陵兰岛首府努克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:28 - [来华留学生博物馆里“看世界”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:46 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:41 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:30 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:30 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:22 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/18566.shtml)
-- 2026-06-29 12:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/9254510.shtml)
-- 2026-06-29 12:30 - [腾讯回应做独立支付APP](https://www.share.minike.top/Article/details/105470.shtml)
-- 2026-06-29 12:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/449981593.shtml)
-- 2026-06-29 12:26 - [岭南电影为何迎来“南方热”](https://www.share.minike.top/Article/details/735353854.shtml)
-- 2026-06-29 12:21 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/641007.shtml)
-- 2026-06-29 12:28 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/29357.shtml)
-- 2026-06-29 12:37 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.blog.kurohicncr.top/Article/details/49725659731.shtml)
-- 2026-06-29 12:38 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/8976008449.shtml)
-- 2026-06-29 12:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/44800505578.shtml)
-- 2026-06-29 12:37 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/17414765.shtml)
-- 2026-06-29 12:36 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/91967831.shtml)
-- 2026-06-29 12:46 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.kurohicncr.top/Article/details/256890.shtml)
-- 2026-06-29 12:49 - [曝韩国球员目睹出局时正吃饭](https://www.blog.minike.top/Article/details/2633706265.shtml)
-- 2026-06-29 12:23 - [小娘惹](https://www.share.minike.top/Article/details/282908.shtml)
+- 2026-06-29 12:49 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:26 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.share.minike.top/Article/details/75802172.shtml)
+- 2026-06-29 12:32 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](http://www.share.minike.top/Article/details/1208359.shtml)
+- 2026-06-29 12:37 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.share.kurohicncr.top/Article/details/7597799.shtml)
+- 2026-06-29 12:27 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.share.kurohicncr.top/Article/details/8644279.shtml)
+- 2026-06-29 12:49 - [中俄林业教育科技产业创新联盟成立](http://www.share.kurohicncr.top/Article/details/637645944.shtml)
+- 2026-06-29 12:28 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.blog.minike.top/Article/details/067178346.shtml)
+- 2026-06-29 12:52 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.kurohicncr.top/Article/details/885220777316.shtml)
+- 2026-06-29 12:36 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.share.kurohicncr.top/Article/details/42621969.shtml)
+- 2026-06-29 12:39 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.blog.minike.top/Article/details/11657663.shtml)
+- 2026-06-29 12:43 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.share.minike.top/Article/details/93684448671.shtml)
+- 2026-06-29 12:52 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.blog.kurohicncr.top/Article/details/9801704.shtml)
+- 2026-06-29 12:30 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.kurohicncr.top/Article/details/288330.shtml)
+- 2026-06-29 12:33 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.blog.kurohicncr.top/Article/details/05707201169.shtml)
+- 2026-06-29 12:26 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.blog.kurohicncr.top/Article/details/392976624.shtml)

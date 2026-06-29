@@ -1,61 +1,48 @@
-# 用猪血刷墙？神兽是下凡的神仙？ 打假故宫“伪知识”
+# “Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-用猪血刷墙？神兽是下凡的神仙？ 坐在故宫屋檐下 打假故宫“伪知识” 近日，生活·读书·新知三联书店出版《坐在故宫屋檐下：图解紫禁城五十问》。这是一本以学术作为支撑，以通俗易懂、图文并茂方式呈现，打假故宫“伪知识”的书。作为一名故宫学者，我写这本书的主要目的，就是准确讲好故宫故事，弘扬和传播好中华优秀传统文化。而我写作的动机，主要源于3个方面：公众对故宫知识的渴求、网络关于故宫知
+发布时间：2026年05月17日 21:28 来源：中国新闻网 “Happy Birthday. l love you.”妈妈空降学校外，带着蛋糕和烟花给当天生日的男孩送来祝福。网友：这大概就是16岁最好的礼物！ 责任编辑：【姚为】
 
 ## 正文
 
-用猪血刷墙？
+发布时间：2026年05月17日 21:28 来源：中国新闻网 “Happy Birthday. l love you.”妈妈空降学校外，带着蛋糕和烟花给当天生日的男孩送来祝福。
 
-神兽是下凡的神仙？
+网友：这大概就是16岁最好的礼物！
 
-坐在故宫屋檐下 打假故宫“伪知识” 近日，生活·读书·新知三联书店出版《坐在故宫屋檐下：图解紫禁城五十问》。
-
-这是一本以学术作为支撑，以通俗易懂、图文并茂方式呈现，打假故宫“伪知识”的书。
-
-作为一名故宫学者，我写这本书的主要目的，就是准确讲好故宫故事，弘扬和传播好中华优秀传统文化。
-
-而我写作的动机，主要源于3个方面：公众对故宫知识的渴求、网络关于故宫知识的不实传言，以及部分导游对故宫知识的错误解读。
-
-公众为何走进故宫：从“打卡”到“求知”故宫又名紫禁城，在历史上曾为明清皇宫。
-
-故宫拥有世界上现存规模最大、保存最为完整的木结构古代宫殿建筑群。
+责任编辑：【姚为】
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 12:35 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 12:26 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 12:24 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 12:33 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 12:24 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 12:33 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 12:24 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 12:26 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 12:38 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 12:48 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 12:43 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:33 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 12:28 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 12:48 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 12:31 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:37 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:39 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:28 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:46 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:49 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:52 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:26 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:37 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:42 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:52 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:28 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/112101797677.shtml)
-- 2026-06-29 12:42 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/83906848.shtml)
-- 2026-06-29 12:24 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/743038925401.shtml)
-- 2026-06-29 12:25 - [请回答王牌2019](https://www.share.minike.top/Article/details/832824019.shtml)
-- 2026-06-29 12:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/159079.shtml)
-- 2026-06-29 12:38 - [本周做什么都顺的星座](http://www.blog.kurohicncr.top/Article/details/85748.shtml)
-- 2026-06-29 12:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/0234765332.shtml)
-- 2026-06-29 12:32 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/76877775.shtml)
-- 2026-06-29 12:42 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/4318446845.shtml)
-- 2026-06-29 12:47 - [中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/29306556393.shtml)
-- 2026-06-29 12:39 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/1843386435.shtml)
-- 2026-06-29 12:50 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/62576820043.shtml)
-- 2026-06-29 12:50 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/9828249776.shtml)
-- 2026-06-29 12:38 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.kurohicncr.top/Article/details/479797.shtml)
-- 2026-06-29 12:28 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.kurohicncr.top/Article/details/62156348093.shtml)
+- 2026-06-29 12:24 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](http://www.blog.kurohicncr.top/Article/details/101282.shtml)
+- 2026-06-29 12:28 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](http://www.blog.minike.top/Article/details/849985.shtml)
+- 2026-06-29 12:51 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](http://www.share.kurohicncr.top/Article/details/07057125057.shtml)
+- 2026-06-29 12:45 - [中信证券：调整何解？重建杠铃结构](http://www.share.kurohicncr.top/Article/details/056341073.shtml)
+- 2026-06-29 12:37 - [A股，重磅新规！千家公司面临调整](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.blog.kurohicncr.top/Article/details/67570226.shtml)
+- 2026-06-29 12:36 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.share.minike.top/Article/details/013272677249.shtml)
+- 2026-06-29 12:48 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](http://www.blog.kurohicncr.top/Article/details/6881829.shtml)
+- 2026-06-29 12:34 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.share.kurohicncr.top/Article/details/101868792681.shtml)
+- 2026-06-29 12:47 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.share.minike.top/Article/details/47327.shtml)
+- 2026-06-29 12:43 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.share.kurohicncr.top/Article/details/831417.shtml)
+- 2026-06-29 12:24 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.share.minike.top/Article/details/674890709345.shtml)
+- 2026-06-29 12:43 - [从过去探寻未来](https://github.com/lisacumin64-arch)

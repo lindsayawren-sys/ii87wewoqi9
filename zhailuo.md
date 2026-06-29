@@ -1,60 +1,60 @@
-# 78幅精品呈现油画语言探索研究 陈伟平个展亮相长沙
+# 打破感官壁垒 视障人士在浙江省博物馆“看见”历史
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网长沙4月26日电 (邓霞 丁阳亮)4月25日，“陈伟平油画语言探索研究展”在位于长沙的李自健美术馆开幕。展览集中展出了油画家陈伟平近年创作的78幅精品画作，系统呈现其在油画本体语言领域的深入探索与创作实践。 油画自西方传入中国已逾百年，对油画本体语言的研究始终是中国油画家的核心课题。陈伟平为中国美术家协会会员、徐州市油画学会副主席，亦是中国美术学院首届“全山石油画高级创研
+中新网杭州5月16日电(曹丹)5月16日，在第三十六个全国助残日与“5·18国际博物馆日”来临之际，“触摸文明”视障人士体验活动在浙江省博物馆举行。来自杭州市淳安县的26位视障人士走进博物馆，通过触摸、聆听与交流，沉浸式感受中华文明的温度与魅力。 在人文探索体验馆，视障人士用手依次触摸浙江省博物馆9件镇馆之宝的仿制品。 志愿者董臻讲解良渚玉琮王时，鼓励大家将手探到玉琮中间的孔洞
 
 ## 正文
 
-中新网长沙4月26日电 (邓霞 丁阳亮)4月25日，“陈伟平油画语言探索研究展”在位于长沙的李自健美术馆开幕。
+中新网杭州5月16日电(曹丹)5月16日，在第三十六个全国助残日与“5·18国际博物馆日”来临之际，“触摸文明”视障人士体验活动在浙江省博物馆举行。
 
-展览集中展出了油画家陈伟平近年创作的78幅精品画作，系统呈现其在油画本体语言领域的深入探索与创作实践。
+来自杭州市淳安县的26位视障人士走进博物馆，通过触摸、聆听与交流，沉浸式感受中华文明的温度与魅力。
 
-油画自西方传入中国已逾百年，对油画本体语言的研究始终是中国油画家的核心课题。
+在人文探索体验馆，视障人士用手依次触摸浙江省博物馆9件镇馆之宝的仿制品。
 
-陈伟平为中国美术家协会会员、徐州市油画学会副主席，亦是中国美术学院首届“全山石油画高级创研班”学员。
+志愿者董臻讲解良渚玉琮王时，鼓励大家将手探到玉琮中间的孔洞中——这件中国最早的微雕作品之一，孔洞以竹管加解玉砂上下对钻而成，因两端未完全对齐，孔壁留有一道棱。
 
-在全山石的指导下，他系统梳理了不同艺术阶段的材料特性与语言特征，深入研习古典油画大师的画面技法与创作观念，逐渐凝练出属于自己的艺术语言。
+“这是工艺的不完美性，也是唯有触摸方能感知的细节。
 
-陈伟平对油画语言的探索始终从本源出发，从生活中发现美，特别关注画面的构成、黑白对比关系、几何形体的组合、块面的处理，尤其强调外轮廓线的表现力以及人物动态的造型。
+”董臻感慨道，“步入博物馆，面对未知的历史，视力健全者与视障者其实没有区别，我们都在'摸黑'前行。
 
-他将这些造型美的形式元素，转化成油画的语言加以呈现。
+” 现场，教育员用生动语言描述文物的时代背景与使用场景，并引导视障人士用双手细细感知文物的纹饰、形状与材质。
 
-对西方艺术博采众长的同时，近年来他愈发注重对意境的表达，将中国写意体系的平面性和灵动的笔意融入油画语言中。
+有人轻轻摩挲战国伎乐铜屋模型仿制品中乐师的乐器，有人反复感受唐落霞式“彩凤鸣岐”七弦琴仿制品边缘灵动起伏的线条，还有人用手指勾勒以《富春山居图·剩山图》为蓝本的浮雕线条。
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 12:35 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 12:43 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 12:30 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 12:22 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 12:39 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 12:22 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 12:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 12:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 12:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 12:46 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 12:25 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 12:22 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 12:30 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 12:32 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:34 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:28 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:37 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:29 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:36 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:50 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:50 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:26 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:24 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:34 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:54 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:27 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:50 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:21 - [神23乘组太空出差满月](http://www.blog.kurohicncr.top/Article/details/153622.shtml)
-- 2026-06-29 12:46 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/5436625952.shtml)
-- 2026-06-29 12:29 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/76576172769.shtml)
-- 2026-06-29 12:50 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/145779.shtml)
-- 2026-06-29 12:47 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/15845.shtml)
-- 2026-06-29 12:41 - [T1对战KC](http://www.share.minike.top/Article/details/26958.shtml)
-- 2026-06-29 12:38 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/42314024431.shtml)
-- 2026-06-29 12:35 - [BW2026游览指南](http://www.share.minike.top/Article/details/91505814.shtml)
-- 2026-06-29 12:51 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/968709096880.shtml)
-- 2026-06-29 12:41 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/54970.shtml)
-- 2026-06-29 12:35 - [这位猫咪，请你自重！](https://www.blog.kurohicncr.top/Article/details/24146831.shtml)
-- 2026-06-29 12:44 - [三都主：淘汰赛我会支持日本](https://www.share.kurohicncr.top/Article/details/89483.shtml)
-- 2026-06-29 12:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/668432770.shtml)
-- 2026-06-29 12:41 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.minike.top/Article/details/3473653.shtml)
-- 2026-06-29 12:49 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/460150.shtml)
+- 2026-06-29 12:52 - [大雾黄色预警：河北浙江等地部分地区有大雾](http://www.blog.kurohicncr.top/Article/details/881832.shtml)
+- 2026-06-29 12:25 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](http://www.blog.kurohicncr.top/Article/details/4786780.shtml)
+- 2026-06-29 12:51 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](http://www.blog.minike.top/Article/details/83659372.shtml)
+- 2026-06-29 12:32 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.blog.kurohicncr.top/Article/details/74932877766.shtml)
+- 2026-06-29 12:32 - [业绩炸裂！存储芯片龙头净利预增2244%](http://www.share.kurohicncr.top/Article/details/91906644.shtml)
+- 2026-06-29 12:34 - [德银天下于5月15日斥资570.94万港元回购150万股](http://www.blog.kurohicncr.top/Article/details/7072665674.shtml)
+- 2026-06-29 12:42 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](http://www.share.kurohicncr.top/Article/details/420982.shtml)
+- 2026-06-29 12:41 - [中企承建的阿斯塔纳轻轨投入运营](http://www.share.kurohicncr.top/Article/details/92209612.shtml)
+- 2026-06-29 12:29 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.share.kurohicncr.top/Article/details/6263957792.shtml)
+- 2026-06-29 12:41 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.blog.kurohicncr.top/Article/details/41149.shtml)
+- 2026-06-29 12:26 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.blog.minike.top/Article/details/363969.shtml)
+- 2026-06-29 12:41 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.blog.minike.top/Article/details/198751006705.shtml)
+- 2026-06-29 12:30 - [安徽休宁：初夏育秧忙](http://www.blog.kurohicncr.top/Article/details/75763.shtml)
+- 2026-06-29 12:54 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.share.kurohicncr.top/Article/details/68900567.shtml)
+- 2026-06-29 12:33 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](http://www.blog.kurohicncr.top/Article/details/9978965092.shtml)

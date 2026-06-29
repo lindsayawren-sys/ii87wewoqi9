@@ -1,56 +1,60 @@
-# 达·芬奇等文艺复兴巨匠作品亮相中国美术馆
+# 来华留学生博物馆里“看世界”
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 (记者 应妮)27日在中国美术馆开幕的“致敬巨匠：从达·芬奇到卡拉瓦乔——意大利文艺复兴名作展”，汇集达·芬奇、米开朗基罗、拉斐尔、波提切利、提香等20余位艺术巨匠的36件真迹作品。 中国美术馆和意大利乌菲齐美术馆的专家共同遴选出展出作品，涵盖油画、蛋彩画、素描等多种艺术形式，包括达·芬奇的《战斗中的骑士、半人马与战士》、米开朗基罗的《劫掠伽倪墨得斯》、
+中新网兰州5月16日电 (记者 丁思)观展、写汉字、编竹简、唱中文歌……16日，来自加纳、布隆迪、埃塞俄比亚、喀麦隆等多个国家的甘肃农业大学来华留学生，以及甘肃省人民政府外事办公室的青年语言干部共同走进甘肃简牍博物馆，借助多媒体等多元形式，深入了解中国文化，探寻中国与世界的深厚联结。 5月18日是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。该主题凸显了博物馆作为桥梁的
 
 ## 正文
 
-中新社北京4月27日电 (记者 应妮)27日在中国美术馆开幕的“致敬巨匠：从达·芬奇到卡拉瓦乔——意大利文艺复兴名作展”，汇集达·芬奇、米开朗基罗、拉斐尔、波提切利、提香等20余位艺术巨匠的36件真迹作品。
+中新网兰州5月16日电 (记者 丁思)观展、写汉字、编竹简、唱中文歌……16日，来自加纳、布隆迪、埃塞俄比亚、喀麦隆等多个国家的甘肃农业大学来华留学生，以及甘肃省人民政府外事办公室的青年语言干部共同走进甘肃简牍博物馆，借助多媒体等多元形式，深入了解中国文化，探寻中国与世界的深厚联结。
 
-中国美术馆和意大利乌菲齐美术馆的专家共同遴选出展出作品，涵盖油画、蛋彩画、素描等多种艺术形式，包括达·芬奇的《战斗中的骑士、半人马与战士》、米开朗基罗的《劫掠伽倪墨得斯》、拉斐尔的《手拿苹果的青年男子肖像》、波提切利的《圣母子像》、提香的《花神》等经典之作，多数为首次来华展出。
+5月18日是国际博物馆日，今年的主题为“博物馆：联结世界的桥梁”。
 
-达·芬奇的《战斗中的骑士、半人马与战士》距今500余年，画面以笔墨细致勾勒出奔跑、扬蹄的马匹和骑士战斗的场景，是达·芬奇艺术创作中反复出现的主题。
+该主题凸显了博物馆作为桥梁的潜力，能够跨越文化、社会和地缘政治的分歧，促进全球社群内部及社群之间的对话、理解、包容与和平。
 
-米开朗基罗的《劫掠伽倪墨得斯》是一件纸本粉笔画的素描，描绘了年轻牧人伽倪墨得斯被猛禽掳往奥利匹斯山的情景，灵感源于艺术家对古典雕塑的深入研究，一展人体之美。
+甘肃简牍博物馆馆藏近4万枚汉、魏晋时期的简牍，是目前中国汉简藏量最大的专题类博物馆。
 
-拉斐尔的油画《手拿苹果的青年男子肖像》色彩饱满、光影柔和，面部和衣着等细节刻画入微。
+走进馆内，满墙的文字，以及竹简上密密麻麻的文字，让正在学习中文的尼泊尔留学生 NIROULA SUJAN倍感“佩服”。
 
-展览共分三个章节，还呈现了威尼斯画派代表画家乔瓦尼·贝利尼、乔尔乔内、提香等大师的作品，包括《花神》《勒达与天鹅》等美术史上的经典之作，以及卡拉瓦乔的两幅著名肖像作品。
+“即使在物资匮乏的古代，中国古人们依然坚持用文字记录思想与学识，传承给后代，这太难得了。
 
-中国美术馆馆长潘义奎表示，这些作品不仅是西方艺术的瑰宝，更是人类文明共同的精神财富。
+”他感慨道。
 
-在中国美术馆汇聚这些经典之作，不只是为了致敬巨匠、回望经典，更是为了汲取艺术营养、传承人文精神。
+25岁的NIROULA SUJAN有一个中文名字“苏喜林”，目前就读于甘肃农业大学生物化学与分子生物学专业，他对自己的中文名字十分中意。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 12:24 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 12:42 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 12:26 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 12:44 - [日本媒体：板仓滉已回归日本队合练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 12:38 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 12:39 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 12:40 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 12:41 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 12:49 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 12:32 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:40 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:28 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:27 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:27 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:25 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:33 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:32 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:41 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:49 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:53 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:33 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:45 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:29 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.blog.minike.top/Article/details/36829147624.shtml)
-- 2026-06-29 12:26 - [刘仲华院士愿当贺永辉导师](https://www.blog.minike.top/Article/details/15260689.shtml)
-- 2026-06-29 12:25 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/37719.shtml)
-- 2026-06-29 12:24 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/705680832.shtml)
-- 2026-06-29 12:32 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/05600728079.shtml)
-- 2026-06-29 12:26 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/0823408.shtml)
-- 2026-06-29 12:43 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/433120341.shtml)
-- 2026-06-29 12:46 - [【独家】牧神记 第89集 明心](https://www.blog.kurohicncr.top/Article/details/45753.shtml)
-- 2026-06-29 12:31 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/946849833.shtml)
-- 2026-06-29 12:46 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/099123.shtml)
-- 2026-06-29 12:24 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/470651.shtml)
-- 2026-06-29 12:42 - [刘仲华院士愿当贺永辉导师](https://www.share.kurohicncr.top/Article/details/5756555680.shtml)
-- 2026-06-29 12:23 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/85664.shtml)
-- 2026-06-29 12:46 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/237921622.shtml)
-- 2026-06-29 12:40 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/17677.shtml)
+- 2026-06-29 12:31 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.minike.top/Article/details/51336.shtml)
+- 2026-06-29 12:44 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.share.minike.top/Article/details/3710289.shtml)
+- 2026-06-29 12:26 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.blog.kurohicncr.top/Article/details/750612.shtml)
+- 2026-06-29 12:38 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.share.kurohicncr.top/Article/details/29640.shtml)
+- 2026-06-29 12:27 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](http://www.blog.minike.top/Article/details/76725773.shtml)
+- 2026-06-29 12:38 - [北京稻香村涉事门店回应“反向抹零”](http://www.blog.minike.top/Article/details/42646386385.shtml)
+- 2026-06-29 12:29 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](http://www.share.minike.top/Article/details/12197813486.shtml)
+- 2026-06-29 12:48 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.share.kurohicncr.top/Article/details/2684381.shtml)
+- 2026-06-29 12:49 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.blog.minike.top/Article/details/646331919663.shtml)
+- 2026-06-29 12:51 - [Anthropic将向监管机构通报网络风险](http://www.blog.minike.top/Article/details/99460.shtml)
+- 2026-06-29 12:31 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [A股“股王”激战！近1个月来频繁易主](http://www.share.minike.top/Article/details/63499870.shtml)
+- 2026-06-29 12:52 - [四大证券报头版头条内容精华摘要_2026年5月18日_财经新闻](http://www.share.kurohicncr.top/Article/details/6374562.shtml)
+- 2026-06-29 12:26 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](http://www.share.kurohicncr.top/Article/details/75137106560.shtml)
+- 2026-06-29 12:43 - [探访“人工智能+教育”：你的AI科研“搭子”靠谱吗](https://github.com/lisacumin64-arch)

@@ -1,52 +1,56 @@
-# 中国著名作家手稿展首展在河南郑州开展 86位作家200余件手稿展出
+# 高培勇：改革在宏观经济治理当中的地位和作用显著增强
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 15:09 来源：中国新闻网 4月25日，“与星同行——中国著名作家手稿展首展”在河南省美术馆亮相，共展出86位作家的200余件珍贵手稿，均为首次与读者见面。观众在字里行间重温经典，致敬作家，感悟文学力量的深厚底蕴。 据介绍，郑州首展后，该展览将在全国进行巡展。全国巡展结束后，活动主办方将对展出手稿进行拍卖，所筹款项将捐赠至由莫言发起的“与莫言
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月18日消息，由财政部指导、新理财杂志社主办的第二十届中国CFO大会近日在北京召开。中国社会科学院学部委员高培勇在题为“从加强宏观经济治理中可以悟出什么？”的演讲中指出，提升宏观经济治理效能已经成为近两年间的高频词汇。2026年4月28日的中央政治局会议强调，精准有效的实施更加积极的财政政策和适度宽松的货
 
 ## 正文
 
-发布时间：2026年04月26日 15:09 来源：中国新闻网 4月25日，“与星同行——中国著名作家手稿展首展”在河南省美术馆亮相，共展出86位作家的200余件珍贵手稿，均为首次与读者见面。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-观众在字里行间重温经典，致敬作家，感悟文学力量的深厚底蕴。
+5月18日消息，由财政部指导、新理财杂志社主办的第二十届中国CFO大会近日在北京召开。
 
-据介绍，郑州首展后，该展览将在全国进行巡展。
+中国社会科学院学部委员高培勇在题为“从加强宏观经济治理中可以悟出什么？
 
-全国巡展结束后，活动主办方将对展出手稿进行拍卖，所筹款项将捐赠至由莫言发起的“与莫言同行”公益行动设立的“两块砖公益基金”，用于帮助孤独症儿童及其家庭，将文学资源转化为帮扶孤独症家庭的实际力量，让更多“星星的孩子”及其家庭感受到来自文学的温暖与呵护。
+”的演讲中指出，提升宏观经济治理效能已经成为近两年间的高频词汇。
 
-(赵梦阳） 责任编辑：【周驰】
+2026年4月28日的中央政治局会议强调，精准有效的实施更加积极的财政政策和适度宽松的货币政策。
+
+基于这一具有转折意义的全新表述，高培勇表示，在宏观经济治理方面，企业管理者应形成以下三点共识。
+
+一是宏观经济治理的意义日趋重要，已经成为关乎企业运行、关乎企业高质量发展的一个关键变量。
+
+“十五五”时期，通过宏观经济治理确保经济保持必要的增速，显然是一个非完成不可的重要任务，而“十五五”时期的经济发展在很大程度上取决于宏观经济治理的效能。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 12:47 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 12:50 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 12:36 - [国乒男单资格赛全员出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 12:34 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 12:21 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 12:30 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 12:46 - [线路错接女子替7户邻居交17年电费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 12:23 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 12:33 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 12:29 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 12:28 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 12:48 - [特斯拉在美国上调Model Y车型的售价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:38 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:36 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:52 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:27 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:24 - [西藏居然有三家公募基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:39 - [M4Markets:金价剧震下蓄力新方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:39 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:24 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:31 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/047441.shtml)
-- 2026-06-29 12:34 - [詹姆斯下赛季会在哪里](http://www.blog.kurohicncr.top/Article/details/31925.shtml)
-- 2026-06-29 12:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/0444489.shtml)
-- 2026-06-29 12:43 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.blog.minike.top/Article/details/2998576688.shtml)
-- 2026-06-29 12:42 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/81194642.shtml)
-- 2026-06-29 12:36 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/4086773.shtml)
-- 2026-06-29 12:29 - [《贺子珍》](http://www.blog.minike.top/Article/details/94524024917.shtml)
-- 2026-06-29 12:30 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/01754.shtml)
-- 2026-06-29 12:44 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/93098.shtml)
-- 2026-06-29 12:34 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/6040989433.shtml)
-- 2026-06-29 12:33 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/33529464991.shtml)
-- 2026-06-29 12:22 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.kurohicncr.top/Article/details/77278385390.shtml)
-- 2026-06-29 12:29 - [复盘葡萄牙逼平哥伦比亚](http://www.blog.kurohicncr.top/Article/details/278863.shtml)
-- 2026-06-29 12:34 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/0986031804.shtml)
-- 2026-06-29 12:29 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/51111160.shtml)
+- 2026-06-29 12:47 - [2026“粤超”联赛继续 广州赛场氛围浓](http://www.share.minike.top/Article/details/80385888.shtml)
+- 2026-06-29 12:42 - [三大运营商即将免月租？官方回应](http://www.blog.minike.top/Article/details/5155331.shtml)
+- 2026-06-29 12:39 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](http://www.share.minike.top/Article/details/26549340069.shtml)
+- 2026-06-29 12:28 - [防病控“三高”别错过这些果蔬](http://www.share.kurohicncr.top/Article/details/71955657344.shtml)
+- 2026-06-29 12:49 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](http://www.blog.minike.top/Article/details/213553831108.shtml)
+- 2026-06-29 12:43 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [公众科学日：水下仿生机器鱼展演栩栩如生](http://www.share.minike.top/Article/details/976804082.shtml)
+- 2026-06-29 12:45 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.share.minike.top/Article/details/52645.shtml)
+- 2026-06-29 12:38 - [吉利汽车因认股权获行使而发行13.28万股](http://www.share.minike.top/Article/details/9801691.shtml)
+- 2026-06-29 12:51 - [中东部有大范围强降水 黄海海域有大雾](http://www.blog.minike.top/Article/details/325166021393.shtml)
+- 2026-06-29 12:44 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](http://www.blog.minike.top/Article/details/07899.shtml)
+- 2026-06-29 12:39 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](http://www.blog.minike.top/Article/details/09740602355.shtml)
+- 2026-06-29 12:26 - [中俄共绘教育合作新图景](http://www.blog.minike.top/Article/details/8982374.shtml)
+- 2026-06-29 12:52 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](http://www.blog.kurohicncr.top/Article/details/89238.shtml)
+- 2026-06-29 12:42 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](http://www.blog.kurohicncr.top/Article/details/216138.shtml)

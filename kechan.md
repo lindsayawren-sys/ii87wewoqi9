@@ -1,60 +1,53 @@
-# 财务造假、资金占用！一夜之间7家A股公司被查被罚，证监会重拳出击
+# 伊朗计划在两年内完成南帕尔斯气田重建
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨崔文静 4月24日，又有七家上市公司被中国证监会或地方证监局点名。 其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处
+伊朗议会能源委员会发言人称，受损的南帕尔斯基础设施重建工作将在两年内完成。 发言人表示，约50%的重建工作预计将在冬季来临前完成，南帕尔斯地区的炼油和石化基础设施将进行翻新和重建。相关设施将采用“新设计和技术”恢复生产，产能将高于此前水平。责任编辑：李桐
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+伊朗议会能源委员会发言人称，受损的南帕尔斯基础设施重建工作将在两年内完成。
 
-记者丨崔文静 4月24日，又有七家上市公司被中国证监会或地方证监局点名。
+发言人表示，约50%的重建工作预计将在冬季来临前完成，南帕尔斯地区的炼油和石化基础设施将进行翻新和重建。
 
-其中，神马股份、黑芝麻（含公司及时任董事长）因涉嫌信息披露违法违规被立案调查；行云科技、ST嘉澳（维权）、ST章鼓（维权）、ST达华（维权）、ST海泰（维权）等5家公司则收到了《行政处罚决定书》。
+相关设施将采用“新设计和技术”恢复生产，产能将高于此前水平。
 
-值得注意的是，就在几天前的4月22日，*ST数源（维权）、傲农生物（维权）、欢瑞世纪（维权）、兰石重装（维权）4家公司也刚被立案调查。
-
-也就是说，短短5天内，已有11家上市公司披露被查或被罚。
-
-实际上，一周数家乃至十余家公司被查被罚，已成为监管新常态。
-
-这并不意味着问题公司数量在增多，恰恰相反，它是监管效率提升、技术手段升级的结果。
-
-随着存量问题被不断出清，上市公司的合规意识将逐步增强，假以时日，A股上市公司整体质量有望显著提升。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 12:46 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 12:24 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 12:21 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 12:32 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 12:26 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 12:28 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 12:37 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 12:39 - [国乒全主力参加美国大满贯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 12:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 12:22 - [高超感谢女友王佳欣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 12:25 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 12:38 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 12:51 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 12:54 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:36 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:29 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:38 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:53 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:31 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:40 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:31 - [十大机构论市：双创冲高回落 科技行情结束了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:39 - [文脉华章|我们为什么需要博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:31 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:39 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:30 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:50 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:32 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:38 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/922284565476.shtml)
-- 2026-06-29 12:24 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/3804499048.shtml)
-- 2026-06-29 12:36 - [人民日报：伊朗队昂着头告别世界杯](http://www.blog.kurohicncr.top/Article/details/159079850.shtml)
-- 2026-06-29 12:42 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/185421639755.shtml)
-- 2026-06-29 12:26 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/29223281.shtml)
-- 2026-06-29 12:32 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/86630.shtml)
-- 2026-06-29 12:38 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/209522.shtml)
-- 2026-06-29 12:49 - [男子撸铁后擦汗 脸部感染“脚气”](http://www.blog.kurohicncr.top/Article/details/33247703369.shtml)
-- 2026-06-29 12:44 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/50640.shtml)
-- 2026-06-29 12:21 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/476306919018.shtml)
-- 2026-06-29 12:21 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.minike.top/Article/details/596844051.shtml)
-- 2026-06-29 12:26 - [凯恩何时能拿到国际大赛冠军](http://www.blog.minike.top/Article/details/90069.shtml)
-- 2026-06-29 12:41 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/704471187004.shtml)
-- 2026-06-29 12:38 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/55838.shtml)
-- 2026-06-29 12:25 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/35773513742.shtml)
+- 2026-06-29 12:41 - [我们为什么需要博物馆？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](http://www.blog.minike.top/Article/details/152266393791.shtml)
+- 2026-06-29 12:46 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](http://www.share.minike.top/Article/details/9228692357.shtml)
+- 2026-06-29 12:49 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [墨西哥中部发生枪击事件 造成至少10人死亡](http://www.blog.minike.top/Article/details/041491650775.shtml)
+- 2026-06-29 12:38 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](http://www.share.minike.top/Article/details/84899211006.shtml)
+- 2026-06-29 12:41 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.share.minike.top/Article/details/03227.shtml)
+- 2026-06-29 12:28 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [川投新能源公司总经理刘亮被遣返回国](http://www.share.minike.top/Article/details/94219015151.shtml)
+- 2026-06-29 12:43 - [美伊谈判，又有新消息](http://www.share.minike.top/Article/details/19596.shtml)
+- 2026-06-29 12:49 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](http://www.share.kurohicncr.top/Article/details/173550460.shtml)
+- 2026-06-29 12:31 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](http://www.blog.minike.top/Article/details/364022829.shtml)
+- 2026-06-29 12:31 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](http://www.share.kurohicncr.top/Article/details/881070215.shtml)

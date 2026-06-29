@@ -1,61 +1,58 @@
-# 东莞桥头镇、万江街道侨联召开工作会议凝心聚力推动侨联工作提质增效
+# 寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-桥头镇、万江街道侨联召开工作会议凝心聚力推动侨联工作提质增效 近日，东莞桥头镇、万江街道侨联相继召开工作会议，紧扣上级部署要求，总结工作、明确任务，持续凝聚侨心、汇聚侨智、发挥侨力，助力镇街高质量发展。 4月23日，桥头镇侨联召开工作座谈会，由镇侨联主席刘仲奇主持，镇统战办相关负责人及侨联班子成员参会。会议集中学习东莞市侨联八届五次全委会会议精神，通报近期工作情况，详细解读20
+来源：北京商报 作者： 李秀梅 寄希望于“外脑”破局，成为当下许多险企应对转型压力、谋求发展突破的重要路径。5月18日，北京商报记者注意到，中华联合保险集团股份有限公司（以下简称“中华保险集团”）发布了副总经理招聘信息，根据招聘需求，该集团社会招聘副总经理1名，分管集团公司投资板块相关工作。 当前，中华保险集团旗下财险、寿险两大子公司业绩双双承压，合规风险、偿付能力等压力并存，
 
 ## 正文
 
-桥头镇、万江街道侨联召开工作会议凝心聚力推动侨联工作提质增效 近日，东莞桥头镇、万江街道侨联相继召开工作会议，紧扣上级部署要求，总结工作、明确任务，持续凝聚侨心、汇聚侨智、发挥侨力，助力镇街高质量发展。
+来源：北京商报 作者： 李秀梅 寄希望于“外脑”破局，成为当下许多险企应对转型压力、谋求发展突破的重要路径。
 
-4月23日，桥头镇侨联召开工作座谈会，由镇侨联主席刘仲奇主持，镇统战办相关负责人及侨联班子成员参会。
+5月18日，北京商报记者注意到，中华联合保险集团股份有限公司（以下简称“中华保险集团”）发布了副总经理招聘信息，根据招聘需求，该集团社会招聘副总经理1名，分管集团公司投资板块相关工作。
 
-会议集中学习东莞市侨联八届五次全委会会议精神，通报近期工作情况，详细解读2026年镇街侨联重点工作计划及市侨联助力“九大行动”工作方案，明确任务分工与推进要求。
+当前，中华保险集团旗下财险、寿险两大子公司业绩双双承压，合规风险、偿付能力等压力并存，对于管理层而言，面临着不小的考验。
 
-同时，传达东莞市、镇街侨联第三联系协作组活动安排，部署筹备工作。
+社招副总经理 一季度董事长刘元章正式就位后，二季度中华保险集团开启了高管市场化选聘工作。
 
-与会人员围绕侨资源盘活、侨乡文化建设、为侨服务提质等议题交流建言。
+5月18日，中华保险集团官网显示，该集团招聘副总经理一名，履行集团公司副总经理职责，分管集团公司投资板块相关工作，理顺投资管理及决策机制，加强投资能力建设；执行公司投资策略，优化资产配置组合，主导公司重大投资决策。
 
-会议强调，要夯实侨务工作基础，做细为侨服务，吸引侨界人才回乡兴业，推动侨联工作再上新台阶。
+主导一家保险集团的投资事宜，对应聘者能力要求显然不低。
 
-4月24日，万江街道侨联班子在东莞铭丰包装股份有限公司召开2026年第一季度工作会议。
+应聘资格条件提到，具备10年以上的保险、证券、基金、银行等金融资管工作经验，熟悉金融资管公司的运营模式和业务流程，具备丰富的固定收益类、权益类等领域的投资管理经验；具备丰富的领导岗位工作经验，有较强的管理能力、组织能力、沟通协调能力和风险管理能力等。
 
-会议总结一季度政治引领、侨情走访、为侨服务等工作进展，集中学习市侨联助力“九大行动”方案及年度工作部署，研究年度重点工作。
+中华保险集团的高管招聘并非孤例，北京商报记者注意到，近两年越来越多保险公司将最核心管理岗位的选拔渠道面向市场，掀起了一场持续升温的“海选”潮。
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 12:24 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 12:47 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 12:49 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:27 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:34 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 12:39 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 12:47 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 12:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 12:24 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 12:23 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 12:34 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:27 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 12:38 - [赵今麦客串电影版开端](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 12:24 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 12:48 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:51 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:35 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:37 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:27 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:45 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:24 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:48 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:33 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:36 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:45 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:52 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/87426.shtml)
-- 2026-06-29 12:33 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/8510519.shtml)
-- 2026-06-29 12:29 - [农业谣言岂能如此“变态”](https://www.blog.minike.top/Article/details/9217488841.shtml)
-- 2026-06-29 12:21 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/4011858.shtml)
-- 2026-06-29 12:23 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/879355.shtml)
-- 2026-06-29 12:27 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/842213.shtml)
-- 2026-06-29 12:40 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/87699.shtml)
-- 2026-06-29 12:43 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/27352398.shtml)
-- 2026-06-29 12:38 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/51338765438.shtml)
-- 2026-06-29 12:29 - [爱很美味](https://www.share.kurohicncr.top/Article/details/171019650.shtml)
-- 2026-06-29 12:47 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/73558044.shtml)
-- 2026-06-29 12:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/52551.shtml)
-- 2026-06-29 12:46 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/573992523080.shtml)
-- 2026-06-29 12:47 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/82863928.shtml)
-- 2026-06-29 12:29 - [韩体育部长回应李在明痛批](http://www.blog.kurohicncr.top/Article/details/359397243.shtml)
+- 2026-06-29 12:42 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.share.kurohicncr.top/Article/details/04762835.shtml)
+- 2026-06-29 12:33 - [业绩炸裂！存储芯片龙头净利预增2244%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [德银天下于5月15日斥资570.94万港元回购150万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](http://www.blog.minike.top/Article/details/660873585.shtml)
+- 2026-06-29 12:36 - [中企承建的阿斯塔纳轻轨投入运营](http://www.blog.kurohicncr.top/Article/details/72796155.shtml)
+- 2026-06-29 12:37 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.blog.kurohicncr.top/Article/details/69555291.shtml)
+- 2026-06-29 12:49 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.share.minike.top/Article/details/57044.shtml)
+- 2026-06-29 12:53 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.share.kurohicncr.top/Article/details/63027.shtml)
+- 2026-06-29 12:46 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.blog.kurohicncr.top/Article/details/735774095.shtml)
+- 2026-06-29 12:26 - [安徽休宁：初夏育秧忙](http://www.share.kurohicncr.top/Article/details/800431771.shtml)
+- 2026-06-29 12:35 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.share.minike.top/Article/details/052544975165.shtml)
+- 2026-06-29 12:31 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](http://www.blog.kurohicncr.top/Article/details/54230496.shtml)
+- 2026-06-29 12:44 - [百度高管解读Q1财报：将继续坚定投入文心大模型](http://www.share.kurohicncr.top/Article/details/2745665.shtml)
+- 2026-06-29 12:53 - [陈克明鸡蛋挂面被指玩文字游戏，鸡蛋含量极低，客服回应：是鸡蛋风味面](http://www.blog.kurohicncr.top/Article/details/4811573.shtml)

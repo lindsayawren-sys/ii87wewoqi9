@@ -1,52 +1,49 @@
-# 小摩：继续视智谱与MiniMax-W为中国AI采用周期结构性受益者 续予“增持”评级
+# 外交部：中国坚决反对美国向中国台湾地区出售武器的立场是一贯的、明确的
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，持续认为智谱（02513）与MiniMax-W（00100）均为中国人工智能采用周期的结构性受益者，其背后有强劲的API需求、不断改善的变现能力，以及国内市场企业级AI工作负载扩展仍处初期阶段作为支撑，均予 “增持”评级，目标价分别950港元及1，100港元。 在乐观展望下，两者目前提供不同模式体现有关主题：智谱具更清晰变现框架，且在达至年底年化收入约10亿
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。有记者就赖清德涉美对台军售有关言论提问。 郭嘉昆：中国坚决反对美国向中国台湾地区出售武器的立场是一贯的、明确的。(完)
 
 ## 正文
 
-摩根大通发布研报称，持续认为智谱（02513）与MiniMax-W（00100）均为中国人工智能采用周期的结构性受益者，其背后有强劲的API需求、不断改善的变现能力，以及国内市场企业级AI工作负载扩展仍处初期阶段作为支撑，均予 “增持”评级，目标价分别950港元及1，100港元。
+中新网北京5月18日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆18日主持例行记者会。
 
-在乐观展望下，两者目前提供不同模式体现有关主题：智谱具更清晰变现框架，且在达至年底年化收入约10亿美元的执行路径上更具可衡量性，得益于API定价及代码采用情况的高透明度； MiniMax则具备更大的年化收入率上行空间，相较于当前股价反映的约年终年化收入率7亿美元，若其能更灵活地跨区域调度与部署运算资源，在业界仍受限于GPU供应紧缺下，将能更快扩大规模并提升营收。
+有记者就赖清德涉美对台军售有关言论提问。
 
-该行指，行业关键的基本面风险点包括相对商业模式定位、竞争态势、定价纪律、中美技术能力差距，以及使用量增长转化为年化收入率的能力。
+郭嘉昆：中国坚决反对美国向中国台湾地区出售武器的立场是一贯的、明确的。
 
-只要相关条件持续有利，股价技术性回调应被视为加仓良机。
-
-若条件恶化，该行将采取更谨慎的观点。
-
-责任编辑：卢昱君
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 12:46 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 12:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 12:34 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 12:45 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 12:35 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 12:38 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:44 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 12:22 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 12:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 12:37 - [诺泰生物索赔递交立案，曾因财务造假被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:25 - [2026年好用的基金实时估值工具有哪些？推荐一下这款靠谱的APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:32 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:47 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:45 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:37 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:37 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:30 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:30 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:33 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:39 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.kurohicncr.top/Article/details/5756153788.shtml)
-- 2026-06-29 12:45 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/10205.shtml)
-- 2026-06-29 12:21 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.minike.top/Article/details/0121961486.shtml)
-- 2026-06-29 12:32 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/5536029.shtml)
-- 2026-06-29 12:31 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/23959.shtml)
-- 2026-06-29 12:42 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/640054.shtml)
-- 2026-06-29 12:51 - [吴海燕兰西雅漫步复兴岛](https://www.share.minike.top/Article/details/632992161.shtml)
-- 2026-06-29 12:42 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/53832409328.shtml)
-- 2026-06-29 12:22 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/958632.shtml)
-- 2026-06-29 12:45 - [一见倾心](https://www.share.minike.top/Article/details/1241176417.shtml)
-- 2026-06-29 12:25 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/052802555.shtml)
-- 2026-06-29 12:37 - [中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/89193.shtml)
-- 2026-06-29 12:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/59773293767.shtml)
-- 2026-06-29 12:28 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/401203.shtml)
-- 2026-06-29 12:27 - [复盘葡萄牙逼平哥伦比亚](https://www.share.minike.top/Article/details/11886.shtml)
+- 2026-06-29 12:43 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](http://www.blog.kurohicncr.top/Article/details/873653.shtml)
+- 2026-06-29 12:46 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](http://www.share.minike.top/Article/details/16459935684.shtml)
+- 2026-06-29 12:37 - [债券市场异动预示利率或将大幅走高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [微视频｜在文化遗存前 总书记驻足凝视](http://www.blog.minike.top/Article/details/9119692528.shtml)
+- 2026-06-29 12:24 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](http://www.share.kurohicncr.top/Article/details/850114160.shtml)
+- 2026-06-29 12:25 - [我国成功发射千帆星座第9批组网卫星](http://www.share.kurohicncr.top/Article/details/01418802611.shtml)
+- 2026-06-29 12:36 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.blog.minike.top/Article/details/189762055645.shtml)
+- 2026-06-29 12:47 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.blog.minike.top/Article/details/580336.shtml)
+- 2026-06-29 12:48 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.blog.kurohicncr.top/Article/details/15075358643.shtml)
+- 2026-06-29 12:44 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.blog.minike.top/Article/details/6424589.shtml)
+- 2026-06-29 12:28 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](http://www.blog.kurohicncr.top/Article/details/323484697.shtml)
+- 2026-06-29 12:27 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.share.minike.top/Article/details/940928703.shtml)
+- 2026-06-29 12:48 - [河南省举办高校残疾大学生就业双选会](http://www.share.kurohicncr.top/Article/details/879786386.shtml)

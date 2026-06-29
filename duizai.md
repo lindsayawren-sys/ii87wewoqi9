@@ -1,59 +1,55 @@
-# 诈骗分子或瞄准霍尔木兹海峡滞留船只，索要加密货币“通行费”
+# （滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-滞留在霍尔木兹海峡附近的数千艘船只及其所属的航运公司正成为诈骗者的目标，至少一艘船只可能被骗。 希腊海上风险管理公司Marisks于4月20日发出这类骗局的首个警告。该公司提醒船东，有身份不明者自称代表伊朗当局，向部分航运公司发送信息，要求以比特币或泰达币（USDT）等加密货币支付“清关”过境费。该公司明确表示：“这些信息是骗局”，并指出相关信息并非由伊朗当局发出。 据新华社2
+发布时间：2026年05月17日 21:30 来源：中国新闻网 在滇藏线丙察察段的尽头，西藏自治区林芝市察隅县下察隅镇沙琼村的“僜人村落”妇女，将家当都穿戴在了身上。僜人妇女上衣为黑底彩色条纹，下配全手工彩色筒裙。每一条花纹独一无二。额前雕日月花纹的银饰称“格崩”，胸前灯笼形银饰叫“八纹得刚”，寓意吉祥。银饰越多越显富贵，可谓把全副家当穿戴在身上。(完) 责任编辑：【刘湃】
 
 ## 正文
 
-滞留在霍尔木兹海峡附近的数千艘船只及其所属的航运公司正成为诈骗者的目标，至少一艘船只可能被骗。
+发布时间：2026年05月17日 21:30 来源：中国新闻网 在滇藏线丙察察段的尽头，西藏自治区林芝市察隅县下察隅镇沙琼村的“僜人村落”妇女，将家当都穿戴在了身上。
 
-希腊海上风险管理公司Marisks于4月20日发出这类骗局的首个警告。
+僜人妇女上衣为黑底彩色条纹，下配全手工彩色筒裙。
 
-该公司提醒船东，有身份不明者自称代表伊朗当局，向部分航运公司发送信息，要求以比特币或泰达币（USDT）等加密货币支付“清关”过境费。
+每一条花纹独一无二。
 
-该公司明确表示：“这些信息是骗局”，并指出相关信息并非由伊朗当局发出。
+额前雕日月花纹的银饰称“格崩”，胸前灯笼形银饰叫“八纹得刚”，寓意吉祥。
 
-据新华社24日报道援引伊朗法尔斯通讯社报道，伊朗中央银行证实，对通过霍尔木兹海峡船只收取的通行费已经以“现金外汇”形式入账。
+银饰越多越显富贵，可谓把全副家当穿戴在身上。
 
-此前，一些媒体曾声称，伊朗以“加密货币”的形式收取霍尔木兹海峡通行费。
-
-Marisks发现，诈骗事件发生在一个短暂的窗口期内。
-
-4月18日，伊朗方面声称允许接受检查的船只通过。
+(完) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 12:39 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 12:26 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 12:34 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:42 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 12:42 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 12:38 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:51 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 12:51 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 12:36 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 12:38 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 12:26 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:32 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 12:26 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:32 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:30 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:41 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:52 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:33 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:36 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:32 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:38 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:50 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:41 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:28 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:28 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/49050361.shtml)
-- 2026-06-29 12:41 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/172329843155.shtml)
-- 2026-06-29 12:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/1524782.shtml)
-- 2026-06-29 12:47 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.kurohicncr.top/Article/details/85363190861.shtml)
-- 2026-06-29 12:48 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/88591.shtml)
-- 2026-06-29 12:26 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/908504838.shtml)
-- 2026-06-29 12:44 - [某高校学生被辅导员等人扭送至公安](https://www.share.kurohicncr.top/Article/details/40565.shtml)
-- 2026-06-29 12:35 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/55535.shtml)
-- 2026-06-29 12:31 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/0751197.shtml)
-- 2026-06-29 12:48 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/6019697469.shtml)
-- 2026-06-29 12:50 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/05808630.shtml)
-- 2026-06-29 12:30 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/742210.shtml)
-- 2026-06-29 12:51 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/73380001.shtml)
-- 2026-06-29 12:30 - [急先锋](http://www.blog.kurohicncr.top/Article/details/51301609.shtml)
-- 2026-06-29 12:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/36804453561.shtml)
+- 2026-06-29 12:25 - [司法部、中国残联联合发布残疾人法律援助典型案例](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [业绩炸裂！存储芯片龙头净利预增2244%](http://www.blog.kurohicncr.top/Article/details/9344409.shtml)
+- 2026-06-29 12:44 - [德银天下于5月15日斥资570.94万港元回购150万股](http://www.blog.kurohicncr.top/Article/details/57393.shtml)
+- 2026-06-29 12:51 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](http://www.share.kurohicncr.top/Article/details/4098060.shtml)
+- 2026-06-29 12:39 - [中企承建的阿斯塔纳轻轨投入运营](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [中蒙将举行“草原伙伴-2026”陆军联训](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.blog.kurohicncr.top/Article/details/9111924031.shtml)
+- 2026-06-29 12:37 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.blog.kurohicncr.top/Article/details/27510.shtml)
+- 2026-06-29 12:37 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.share.minike.top/Article/details/90178949273.shtml)
+- 2026-06-29 12:49 - [安徽休宁：初夏育秧忙](http://www.blog.kurohicncr.top/Article/details/3053414697.shtml)
+- 2026-06-29 12:43 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.blog.minike.top/Article/details/71897.shtml)
+- 2026-06-29 12:34 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [百度高管解读Q1财报：将继续坚定投入文心大模型](http://www.share.kurohicncr.top/Article/details/521787813377.shtml)
+- 2026-06-29 12:34 - [陈克明鸡蛋挂面被指玩文字游戏，鸡蛋含量极低，客服回应：是鸡蛋风味面](http://www.blog.minike.top/Article/details/6278757813.shtml)
+- 2026-06-29 12:37 - [雅各布·弗兰克尔：各国应着力提升经济与金融体系韧性](http://www.share.minike.top/Article/details/3263435231.shtml)

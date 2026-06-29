@@ -1,51 +1,56 @@
-# 吉林检察机关依法对费东斌涉嫌受贿案提起公诉
+# 平台支付需留神 莫让“付钱”变“借钱”
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据最高检官方微博消息，交通运输部原党组成员，国家铁路局原党组书记、局长费东斌涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。最高人民检察院依法以涉嫌受贿罪对费东斌作出逮捕决定，并指定由吉林省长春市人民检察院审查起诉。近日，吉林省长春市人民检察院已向长春市中级人民法院提起公诉。 检察机关在审查起诉阶段，依法告知了被告人费东斌享有的诉讼权利，并讯问
+莫让“付钱”变“借钱” “我什么时候开通过月付功能？”收到还款提醒的那一刻，有消费者才发现，过去几个月以来自己点外卖、骑共享单车、在平台买菜，默认支付方式竟然都是某平台的“月付”信贷产品。原本消费者不过是想痛快付个钱，却稀里糊涂地“借了款”。 这种“无感借贷”之所以能够屡屡“得手”，少不了精细设计的“套路”。在支付页面，信贷产品往往与银行卡、账户余额等支付方式并列展示，再叠加“
 
 ## 正文
 
-中新网4月27日电 据最高检官方微博消息，交通运输部原党组成员，国家铁路局原党组书记、局长费东斌涉嫌受贿一案，由国家监察委员会调查终结，移送检察机关审查起诉。
+莫让“付钱”变“借钱” “我什么时候开通过月付功能？
 
-最高人民检察院依法以涉嫌受贿罪对费东斌作出逮捕决定，并指定由吉林省长春市人民检察院审查起诉。
+”收到还款提醒的那一刻，有消费者才发现，过去几个月以来自己点外卖、骑共享单车、在平台买菜，默认支付方式竟然都是某平台的“月付”信贷产品。
 
-近日，吉林省长春市人民检察院已向长春市中级人民法院提起公诉。
+原本消费者不过是想痛快付个钱，却稀里糊涂地“借了款”。
 
-检察机关在审查起诉阶段，依法告知了被告人费东斌享有的诉讼权利，并讯问了被告人，听取了辩护人的意见。
+这种“无感借贷”之所以能够屡屡“得手”，少不了精细设计的“套路”。
 
-检察机关起诉指控：被告人费东斌利用担任原北京铁路局党委常委、常务副局长，原济南铁路局党委常委、常务副局长，原呼和浩特铁路局党委副书记、局长，内蒙古自治区乌兰察布市委副书记、市长，河南省副省长，河南省委常委、副省长，交通运输部党组成员，国家铁路局党组书记、局长等职务上的便利以及职权或者地位形成的便利条件，通过其他国家工作人员职务上的行为，为有关单位和个人谋取利益，非法收受他人财物，数额特别巨大，依法应当以受贿罪追究其刑事责任。
+在支付页面，信贷产品往往与银行卡、账户余额等支付方式并列展示，再叠加“立减”“随机优惠”等诱惑，配上醒目的推荐标签，利用用户在支付时的惯性思维，模糊了“花自己的钱”和“借钱花”的界限。
+
+更为隐蔽的是，信贷产品的开通流程被简化，没有强制阅读条款的环节，没有身份验证的门槛，只需勾选一个选项，即可“一键开通”。
+
+消费者本意是支付，支付行为却变成了借贷行为。
+
+借贷是要还的，可能产生利息，逾期还有违约责任，这和支付相比，完全是两种性质的行为。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [香港航天员黎家盈带招牌笑容工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 12:25 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 12:30 - [欧洲热死人不是开玩笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 12:50 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 12:48 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:34 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 12:43 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 12:34 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 12:47 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 12:49 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 12:31 - [线路错接女子替7户邻居交17年电费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 12:52 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:31 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:38 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:45 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:26 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:27 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:45 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:32 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:41 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:36 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/0335513.shtml)
-- 2026-06-29 12:37 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/161389.shtml)
-- 2026-06-29 12:27 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/57633491766.shtml)
-- 2026-06-29 12:34 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/66616162.shtml)
-- 2026-06-29 12:47 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/1841865.shtml)
-- 2026-06-29 12:26 - [C罗关心罗德里戈伤情](https://www.blog.kurohicncr.top/Article/details/396687421427.shtml)
-- 2026-06-29 12:23 - [大罗力挺内马尔](https://www.share.kurohicncr.top/Article/details/0971517968.shtml)
-- 2026-06-29 12:26 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/027254.shtml)
-- 2026-06-29 12:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/471703117772.shtml)
-- 2026-06-29 12:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/812500285468.shtml)
-- 2026-06-29 12:30 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/30787864975.shtml)
-- 2026-06-29 12:25 - [农业谣言岂能如此“变态”](http://www.share.minike.top/Article/details/6099849.shtml)
-- 2026-06-29 12:51 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/677317718209.shtml)
-- 2026-06-29 12:36 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/9142051837.shtml)
-- 2026-06-29 12:23 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/527545.shtml)
+- 2026-06-29 12:39 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.share.kurohicncr.top/Article/details/1886047.shtml)
+- 2026-06-29 12:50 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.blog.minike.top/Article/details/94047055555.shtml)
+- 2026-06-29 12:49 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.blog.minike.top/Article/details/930162.shtml)
+- 2026-06-29 12:50 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.blog.minike.top/Article/details/740900004.shtml)
+- 2026-06-29 12:46 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/59055988501.shtml)
+- 2026-06-29 12:53 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.share.kurohicncr.top/Article/details/71770482.shtml)
+- 2026-06-29 12:32 - [从过去探寻未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.blog.kurohicncr.top/Article/details/9504408077.shtml)
+- 2026-06-29 12:36 - [金价回落 后市怎么走？](http://www.share.minike.top/Article/details/49711.shtml)
+- 2026-06-29 12:39 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.blog.kurohicncr.top/Article/details/5728925245.shtml)
+- 2026-06-29 12:34 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.share.minike.top/Article/details/8533306295.shtml)
+- 2026-06-29 12:24 - [EMCOR高管团队将出席三场投资者会议](http://www.blog.kurohicncr.top/Article/details/84253.shtml)
+- 2026-06-29 12:45 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lisacumin64-arch)

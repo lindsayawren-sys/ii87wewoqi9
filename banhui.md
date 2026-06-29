@@ -1,60 +1,50 @@
-# Moneta Markets外汇:黄金储备调整背后逻辑
+# 我国成功发射千帆星座第9批组网卫星
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-4月27日，经历一季度的市场波动后，黄金在全球资产配置中的角色再度引发关注。Moneta Markets外汇认为，在不确定性持续存在的环境下，部分主权机构对黄金的操作从单纯增持转向更灵活的动态管理，这在一定程度上增加了价格的短期波动。数据显示，一家主权财富基金在第一季度出售约21.9吨黄金，将其资产组合中黄金占比由38.2%下调至35.6%，对应总持仓降至178.1吨。这一变化
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社海南文昌5月17日电（记者陈凯姿）17日22时42分，在海南商业航天发射场，长征八号运载火箭将千帆星座第9批组网卫星顺利送入预定轨道，所有卫星状态正常，发射任务获得圆满成功。（完）责任编辑：宋雅芳
 
 ## 正文
 
-4月27日，经历一季度的市场波动后，黄金在全球资产配置中的角色再度引发关注。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Moneta Markets外汇认为，在不确定性持续存在的环境下，部分主权机构对黄金的操作从单纯增持转向更灵活的动态管理，这在一定程度上增加了价格的短期波动。
+新华社海南文昌5月17日电（记者陈凯姿）17日22时42分，在海南商业航天发射场，长征八号运载火箭将千帆星座第9批组网卫星顺利送入预定轨道，所有卫星状态正常，发射任务获得圆满成功。
 
-数据显示，一家主权财富基金在第一季度出售约21.9吨黄金，将其资产组合中黄金占比由38.2%下调至35.6%，对应总持仓降至178.1吨。
-
-这一变化并非趋势性看空，而更多是出于组合再平衡与风险控制的需要。
-
-从配置逻辑来看，黄金依然处于核心资产地位。
-
-Moneta Markets外汇表示，尽管个别机构出现阶段性减持，但并未改变黄金在全球储备体系中的重要性。
-
-数据显示，该基金过去12个月黄金持有量仍由165.3吨提升至更高水平，说明中长期配置需求依旧稳固。
-
-同时，其内部政策对黄金持仓设定上限，当比例接近或超过区间时进行调整，本质上属于纪律性操作，而非对市场前景的否定。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 12:22 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 12:22 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 12:27 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 12:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 12:48 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 12:26 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 12:29 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 12:42 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 12:32 - [男子在家一丝不挂 邻居拍照发业主群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 12:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 12:26 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 12:34 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 12:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 12:42 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:51 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:35 - [河南省举办高校残疾大学生就业双选会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:38 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:24 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:41 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:53 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:33 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:24 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:48 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:48 - [特斯拉在美国上调Model Y车型的售价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:45 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:42 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:27 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:36 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:24 - [某高校学生被辅导员等人扭送至公安](http://www.share.minike.top/Article/details/114489707738.shtml)
-- 2026-06-29 12:23 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/36569894.shtml)
-- 2026-06-29 12:21 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/920611337662.shtml)
-- 2026-06-29 12:49 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/48608179.shtml)
-- 2026-06-29 12:31 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/002573.shtml)
-- 2026-06-29 12:43 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/77003726.shtml)
-- 2026-06-29 12:31 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/556920.shtml)
-- 2026-06-29 12:27 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/062913.shtml)
-- 2026-06-29 12:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/728363768308.shtml)
-- 2026-06-29 12:50 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/015963948.shtml)
-- 2026-06-29 12:50 - [急先锋](https://www.blog.minike.top/Article/details/7127630.shtml)
-- 2026-06-29 12:29 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/13651878793.shtml)
-- 2026-06-29 12:38 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/76552131118.shtml)
-- 2026-06-29 12:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/5907668.shtml)
-- 2026-06-29 12:38 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/9992428289.shtml)
+- 2026-06-29 12:42 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](http://www.share.minike.top/Article/details/092298854624.shtml)
+- 2026-06-29 12:39 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](http://www.blog.kurohicncr.top/Article/details/9017540319.shtml)
+- 2026-06-29 12:39 - [2025年全国博物馆接待观众15.6亿人次](http://www.blog.kurohicncr.top/Article/details/46638607032.shtml)
+- 2026-06-29 12:51 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.blog.kurohicncr.top/Article/details/411316003.shtml)
+- 2026-06-29 12:27 - [去年全国核发绿证超过29亿个](http://www.share.kurohicncr.top/Article/details/96869.shtml)
+- 2026-06-29 12:41 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](http://www.blog.kurohicncr.top/Article/details/36751594.shtml)
+- 2026-06-29 12:26 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](http://www.blog.kurohicncr.top/Article/details/331990.shtml)
+- 2026-06-29 12:28 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](http://www.blog.minike.top/Article/details/379104986625.shtml)
+- 2026-06-29 12:37 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [三大运营商即将免月租？官方回应](http://www.blog.kurohicncr.top/Article/details/277324846679.shtml)
+- 2026-06-29 12:34 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](http://www.share.kurohicncr.top/Article/details/372710191.shtml)
+- 2026-06-29 12:40 - [防病控“三高”别错过这些果蔬](http://www.share.kurohicncr.top/Article/details/25377956.shtml)
+- 2026-06-29 12:33 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](http://www.share.minike.top/Article/details/227429578.shtml)
+- 2026-06-29 12:38 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lisacumin64-arch)

@@ -1,60 +1,44 @@
-# 药明康德首次在一季度营收百亿，称适当时机上调全年指引
+# 西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-“CXO一哥”药明康德一季报实现开门红，还透露在适当时机上调全年指引。 4月27日，无锡药明康德新药开发股份有限公司（药明康德，603259.SH；2359.HK）发布2026年一季报。报告期内，营业收入为124.4亿元，同比增长28.81%，首次在第一季度迈入百亿大关。其中，持续经营业务收入同比增长39.4%。利润方面，归母净利润为46.5亿元，同比增长26.68%；归母扣非
+西南证券发布研报称，劲方医药（02595）以产品矩阵进军胰腺癌、非小细胞肺癌、恶病质等大适应症市场，力求覆盖1L及各线治疗，产品进度全球领先；预计2026-2028年收入分别为0.85/1.02/3.11亿元，分别同比-35%/+20%/+205%，首次覆盖，建议积极关注。责任编辑：卢昱君
 
 ## 正文
 
-“CXO一哥”药明康德一季报实现开门红，还透露在适当时机上调全年指引。
+西南证券发布研报称，劲方医药（02595）以产品矩阵进军胰腺癌、非小细胞肺癌、恶病质等大适应症市场，力求覆盖1L及各线治疗，产品进度全球领先；预计2026-2028年收入分别为0.85/1.02/3.11亿元，分别同比-35%/+20%/+205%，首次覆盖，建议积极关注。
 
-4月27日，无锡药明康德新药开发股份有限公司（药明康德，603259.SH；2359.HK）发布2026年一季报。
-
-报告期内，营业收入为124.4亿元，同比增长28.81%，首次在第一季度迈入百亿大关。
-
-其中，持续经营业务收入同比增长39.4%。
-
-利润方面，归母净利润为46.5亿元，同比增长26.68%；归母扣非净利润为42.8亿元，同比增长83.56%；经调整non-IFRS归母净利润达到46亿元，同比增长71.7%。
-
-药明康德第一季度业绩表现 此外，药明康德还介绍，公司第一季度毛利率攀升至50.4%，经调整利润率达37%，双双创下历史最高水平。
-
-公司称，公司持续聚焦及加强CRDMO业务模式，营业收入持续增长，同时持续优化生产工艺和经营效率，以及临床后期和商业化项目增长带来的产能效率提升，提高了整体的盈利能力。
-
-具体业务板块来看，药明康德的化学业务、测试业务和生物学业务均实现双位数增长。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:27 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 12:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 12:30 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 12:47 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 12:23 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 12:44 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 12:34 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 12:28 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 12:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 12:48 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 12:33 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 12:30 - [英国高温已致多人死亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 12:36 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 12:51 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 12:37 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:44 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:42 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:41 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:46 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:33 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:25 - [中国第42次南极考察队“雪龙2”号凯旋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:27 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:49 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:39 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/73814.shtml)
-- 2026-06-29 12:50 - [《贺子珍》](https://www.share.minike.top/Article/details/51464.shtml)
-- 2026-06-29 12:48 - [媒体：湖人把薪资空间玩明白了](http://www.share.minike.top/Article/details/557794.shtml)
-- 2026-06-29 12:27 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/019195515085.shtml)
-- 2026-06-29 12:50 - [美加墨世界杯首支16强诞生](http://www.share.kurohicncr.top/Article/details/79006882.shtml)
-- 2026-06-29 12:47 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/757621119.shtml)
-- 2026-06-29 12:41 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/69027721439.shtml)
-- 2026-06-29 12:50 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/8908203.shtml)
-- 2026-06-29 12:29 - [杨紫《生命树》播放量破百亿](http://www.blog.kurohicncr.top/Article/details/25346438258.shtml)
-- 2026-06-29 12:49 - [女子拍邻居家中裸照发业主群](https://www.blog.kurohicncr.top/Article/details/209832.shtml)
-- 2026-06-29 12:33 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.minike.top/Article/details/6210880172.shtml)
-- 2026-06-29 12:42 - [陈露发声引舆论反转](https://www.share.minike.top/Article/details/5606922.shtml)
-- 2026-06-29 12:48 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/96422015.shtml)
-- 2026-06-29 12:35 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/071273520787.shtml)
-- 2026-06-29 12:51 - [韩国政府将对世界杯出局追责](http://www.blog.minike.top/Article/details/1850448858.shtml)
+- 2026-06-29 12:47 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](http://www.share.kurohicncr.top/Article/details/861380.shtml)
+- 2026-06-29 12:29 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](http://www.blog.minike.top/Article/details/676850.shtml)
+- 2026-06-29 12:46 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.share.kurohicncr.top/Article/details/5478022521.shtml)
+- 2026-06-29 12:31 - [业绩炸裂！存储芯片龙头净利预增2244%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [德银天下于5月15日斥资570.94万港元回购150万股](http://www.share.kurohicncr.top/Article/details/536412550006.shtml)
+- 2026-06-29 12:40 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:32 - [中企承建的阿斯塔纳轻轨投入运营](http://www.share.minike.top/Article/details/2458551.shtml)
+- 2026-06-29 12:37 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.blog.kurohicncr.top/Article/details/659967707690.shtml)
+- 2026-06-29 12:24 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.share.minike.top/Article/details/334584.shtml)
+- 2026-06-29 12:50 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.share.kurohicncr.top/Article/details/944006.shtml)
+- 2026-06-29 12:30 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.share.kurohicncr.top/Article/details/891651.shtml)
+- 2026-06-29 12:50 - [安徽休宁：初夏育秧忙](http://www.blog.kurohicncr.top/Article/details/86220235418.shtml)
+- 2026-06-29 12:51 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.share.kurohicncr.top/Article/details/435228209707.shtml)
+- 2026-06-29 12:45 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](http://www.share.kurohicncr.top/Article/details/845568653042.shtml)
+- 2026-06-29 12:32 - [百度高管解读Q1财报：将继续坚定投入文心大模型](http://www.blog.minike.top/Article/details/84012266.shtml)

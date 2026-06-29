@@ -1,56 +1,60 @@
-# 广西财政下达3400万元风险补偿资金 纾解科技企业融资难题
+# A股，重磅新规！千家公司面临调整
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网南宁4月25日电 (王以照)广西壮族自治区财政厅4月25日介绍，广西财政厅近期下达3400万元广西科技贷款风险补偿资金，有效撬动信贷资源精准流向科技领域，助力缓解科技企业融资困难。 此次下达资金紧扣《广西金融惠企三年行动方案(2025—2027年)》部署，会同有关部门印发《广西科技贷款风险补偿实施办法》，明确政策边界与操作规范。政策覆盖高新技术企业、科技型中小企业、“专精
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！证监会发布的《上市公司董事会秘书监管规则》（本文中简称“董秘新规”或“董秘规则”），即将于2026年5月24日起施行，其中提到“董事会秘书不得兼任经理、分管经营业务的副经理、财务负责人”。 上述董秘新规虽暂未正式落地，但不少A股上市公司已在摩拳擦掌，积极物色
 
 ## 正文
 
-中新网南宁4月25日电 (王以照)广西壮族自治区财政厅4月25日介绍，广西财政厅近期下达3400万元广西科技贷款风险补偿资金，有效撬动信贷资源精准流向科技领域，助力缓解科技企业融资困难。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次下达资金紧扣《广西金融惠企三年行动方案(2025—2027年)》部署，会同有关部门印发《广西科技贷款风险补偿实施办法》，明确政策边界与操作规范。
+证监会发布的《上市公司董事会秘书监管规则》（本文中简称“董秘新规”或“董秘规则”），即将于2026年5月24日起施行，其中提到“董事会秘书不得兼任经理、分管经营业务的副经理、财务负责人”。
 
-政策覆盖高新技术企业、科技型中小企业、“专精特新”中小企业等各类科技主体，精准对接融资需求。
+上述董秘新规虽暂未正式落地，但不少A股上市公司已在摩拳擦掌，积极物色董秘人选，应对新变化。
 
-风险补偿资金实行年度额度管理，建立年度1亿元上限的“风险补偿资金池”，按银行新增科技贷款投放占比分配额度，确保资金向投放力度大的银行倾斜，充分发挥“资金池”的引导与保障作用。
+另外，对于董秘新规将带来的影响，各方普遍给予肯定。
 
-此次政策坚持鼓励新增投放、支持首贷户导向，引导金融资源“投早投小”，实施差异化补偿：对成立时间未超过2年或首贷户的企业，按不良净损失80%补偿、单户上限300万元；对成立超2年非首贷户的企业，按70%补偿、单户上限200万元。
+有法律界人士在接受证券时报记者采访时认为，新规禁止董秘兼任关键经营与财务职务，能有效防止角色混淆与利益干扰，使其更专注于保障信息披露的真实准确完整、监督公司治理架构与程序的合规性，从而守住上市公司治理的关键防线。
 
-同步推动金融机构建立尽职免责机制，适度提高科技企业不良贷款容忍度，引导资金更多投向初创期、成长期的科技企业，助力科技企业稳步发展。
+董秘新规落地在即 企业开始“抢人”纳才 “熟悉资本市场运作规则，了解证券法、公司法等相关法律法规”“有上市公司董事会秘书工作经验者优先”，一家已转型“游戏+云服务”的A股上市公司近期在招聘董秘的任职条件中提到。
 
-资金拨付严格遵循“银行申请、联合审核、财政拨付”程序流程，由财政、金融等部门组成业务审核小组，开展材料核验、损失核算与专项审计，确保资金合规使用。
+另一家生物技术行业A股上市企业近期也在招揽董秘人才，在其提出的招聘任职条件中，该企业要求应聘者需具备“8年以上工作经验，其中至少3年上市公司董秘或相关高管经验”，在教育背景方面，要求“本科及以上学历，金融、法律、财务、经济、管理等相关专业”。
 
-本次下达的3400万元专项补偿资金惠及22家科技型企业，符合条件的6家银行机构均获得补偿，资金拨付时效控制在30个工作日内，推动政策红利快速落地，加快发挥财政资金纾困解难作用。
+上述案例，是近期A股上市公司密集招揽董秘人才的一个缩影。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 12:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 12:49 - [伊朗球员道歉 说着说着哭了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 12:36 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 12:43 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 12:51 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 12:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 12:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 12:32 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 12:26 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:46 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:38 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:25 - [从过去探寻未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:25 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:43 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:46 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:48 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:47 - [EMCOR高管团队将出席三场投资者会议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:28 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:35 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:31 - [美国特使抵达格陵兰岛首府努克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:31 - [来华留学生博物馆里“看世界”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:44 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/20109290102.shtml)
-- 2026-06-29 12:37 - [海清白玉兰奖运](https://www.blog.kurohicncr.top/Article/details/81434364988.shtml)
-- 2026-06-29 12:36 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/5131401700.shtml)
-- 2026-06-29 12:29 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/121767357968.shtml)
-- 2026-06-29 12:45 - [晋城暴雨车辆被淹冰箱在水中漂](https://www.blog.kurohicncr.top/Article/details/301663.shtml)
-- 2026-06-29 12:46 - [细节之中抓作风](http://www.blog.minike.top/Article/details/1257345.shtml)
-- 2026-06-29 12:26 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/175513117.shtml)
-- 2026-06-29 12:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/6602783074.shtml)
-- 2026-06-29 12:23 - [医药股集体爆发](https://www.share.minike.top/Article/details/7534906332.shtml)
-- 2026-06-29 12:21 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/409290130.shtml)
-- 2026-06-29 12:25 - [三只羊线下课已下架](http://www.share.kurohicncr.top/Article/details/620163329.shtml)
-- 2026-06-29 12:29 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/932707990199.shtml)
-- 2026-06-29 12:45 - [三只羊线下课已下架](https://www.share.minike.top/Article/details/77391409025.shtml)
-- 2026-06-29 12:29 - [啊啊啊](http://www.share.minike.top/Article/details/473497.shtml)
-- 2026-06-29 12:29 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.share.minike.top/Article/details/3774518783.shtml)
+- 2026-06-29 12:39 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.share.kurohicncr.top/Article/details/19438451894.shtml)
+- 2026-06-29 12:46 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](http://www.share.minike.top/Article/details/929624.shtml)
+- 2026-06-29 12:41 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.share.minike.top/Article/details/844797243393.shtml)
+- 2026-06-29 12:29 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](http://www.blog.minike.top/Article/details/5874779412.shtml)
+- 2026-06-29 12:51 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.minike.top/Article/details/18428308.shtml)
+- 2026-06-29 12:35 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.share.kurohicncr.top/Article/details/12752709359.shtml)
+- 2026-06-29 12:29 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](http://www.share.kurohicncr.top/Article/details/943255676461.shtml)
+- 2026-06-29 12:39 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.blog.kurohicncr.top/Article/details/303149446403.shtml)
+- 2026-06-29 12:31 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.blog.minike.top/Article/details/75838613125.shtml)
+- 2026-06-29 12:32 - [中俄林业教育科技产业创新联盟成立](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.share.minike.top/Article/details/701849.shtml)
+- 2026-06-29 12:49 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.blog.minike.top/Article/details/83838.shtml)

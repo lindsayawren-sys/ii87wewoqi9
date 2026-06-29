@@ -1,59 +1,48 @@
-# 300965，筹划重大资产重组！明起停牌
+# 中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！恒宇信通（300965）最新公告。 4月26日晚间，恒宇信通发布公告称，公司正筹划通过发行股份及支付现金方式购买北京神导科技股份有限公司（以下简称“神导科技”或“标的公司”）100%股权，预计构成重大资产重组。因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相
+记者今天从公安部获悉，近日，中国、美国、阿联酋三国警方首次开展国际执法合作，联合打击迪拜地区的电信网络诈骗犯罪，成功捣毁诈骗窝点9个，抓获犯罪嫌疑人276名。经查，相关诈骗团伙通过社交平台与受害人建立“恋爱”关系、骗取感情信任，后诱导受害人投资所谓高回报加密货币项目致使受害人被骗。公安部有关负责人表示，此次联合打击行动是中国警方开展国际执法合作的重要成果，中国警方将同更多国家深
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+记者今天从公安部获悉，近日，中国、美国、阿联酋三国警方首次开展国际执法合作，联合打击迪拜地区的电信网络诈骗犯罪，成功捣毁诈骗窝点9个，抓获犯罪嫌疑人276名。
 
-恒宇信通（300965）最新公告。
+经查，相关诈骗团伙通过社交平台与受害人建立“恋爱”关系、骗取感情信任，后诱导受害人投资所谓高回报加密货币项目致使受害人被骗。
 
-4月26日晚间，恒宇信通发布公告称，公司正筹划通过发行股份及支付现金方式购买北京神导科技股份有限公司（以下简称“神导科技”或“标的公司”）100%股权，预计构成重大资产重组。
+公安部有关负责人表示，此次联合打击行动是中国警方开展国际执法合作的重要成果，中国警方将同更多国家深化务实合作，开展联合打击行动，坚决清剿电诈窝点，全力缉捕涉电诈犯罪嫌疑人，切实维护各国人民合法权益。
 
-因有关事项尚存不确定性，为了维护投资者利益，避免对公司证券交易造成重大影响，根据深圳证券交易所的相关规定，经公司申请，公司证券（证券品种：A股股票，证券简称：恒宇信通，证券代码：300965）自2026年4月27日（星期一）开市起开始停牌，预计停牌时间不超过10个交易日。
-
-根据公告，神导科技成立于2004年，注册资本3806.25万元，公司经营范围包括技术服务、技术开发、技术咨询、技术交流、技术转让、技术推广；软件开发；计算机系统服务；数据处理服务；计算机及办公设备维修；电子产品销售；机械设备销售；通讯设备销售；计算机软硬件及辅助设备零售；货物进出口；技术进出口；进出口代理；导航终端制造；导航、测绘、气象及海洋专用仪器制造等。
-
-公开资料显示，恒宇信通致力于信息可视化产业的感知、融合与显示方向，构建了图形图像处理及显示、综合视景及可视化导航、任务规划及模拟训练、高可靠性专用电子模块四大产品体系，广泛用于机载、舰载、车载等专业领域。
-
-2025年，恒宇信通实现营业收入2.01亿元，同比增长11.38%；实现归母净利润3606.65万元，同比增长34.87%；实现扣非后净利润2085.79万元，同比增长40.54%。
-
-综合自：公司公告 责任编辑：杨红卜
+(央视新闻客户端 总台央视记者 陈昱)
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 12:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 12:37 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 12:50 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 12:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 12:49 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 12:28 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 12:21 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 12:31 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:40 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 12:38 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 12:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 12:39 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:26 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:44 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:37 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:37 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:38 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:33 - [从过去探寻未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:47 - [花旗：铝价即将迎来50年来最大一波上涨行情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:40 - [金价回落 后市怎么走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:45 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [日本媒体：板仓滉已回归日本队合练](http://www.blog.minike.top/Article/details/7771358.shtml)
-- 2026-06-29 12:39 - [F1奥地利大奖赛正赛集锦](http://www.share.kurohicncr.top/Article/details/136309694721.shtml)
-- 2026-06-29 12:29 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/00932.shtml)
-- 2026-06-29 12:37 - [刘仲华院士愿当贺永辉导师](https://www.blog.minike.top/Article/details/5677636.shtml)
-- 2026-06-29 12:28 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/214464778505.shtml)
-- 2026-06-29 12:21 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/531685733086.shtml)
-- 2026-06-29 12:27 - [天津打雷](https://www.blog.kurohicncr.top/Article/details/633795572396.shtml)
-- 2026-06-29 12:37 - [6月我国降水为何偏多](https://www.blog.kurohicncr.top/Article/details/27508329.shtml)
-- 2026-06-29 12:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/6238982645.shtml)
-- 2026-06-29 12:23 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/58342893.shtml)
-- 2026-06-29 12:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/7152324316.shtml)
-- 2026-06-29 12:49 - [某高校学生被辅导员等人扭送至公安](http://www.share.kurohicncr.top/Article/details/751565.shtml)
-- 2026-06-29 12:26 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/082166156.shtml)
-- 2026-06-29 12:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/04088357.shtml)
-- 2026-06-29 12:30 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/586154722.shtml)
+- 2026-06-29 12:28 - [30年期美债收益率重返5% 见顶还是新开始？](http://www.blog.minike.top/Article/details/59625420.shtml)
+- 2026-06-29 12:51 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.share.minike.top/Article/details/68735991.shtml)
+- 2026-06-29 12:35 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.share.kurohicncr.top/Article/details/513491080.shtml)
+- 2026-06-29 12:46 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](http://www.share.minike.top/Article/details/5959501.shtml)
+- 2026-06-29 12:37 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.share.kurohicncr.top/Article/details/411096057.shtml)
+- 2026-06-29 12:27 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](http://www.blog.minike.top/Article/details/47425251.shtml)
+- 2026-06-29 12:35 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](http://www.share.minike.top/Article/details/3690279.shtml)
+- 2026-06-29 12:44 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](http://www.blog.minike.top/Article/details/3338797700.shtml)
+- 2026-06-29 12:36 - [外资企业投资中国提质升级 转向“融入发展”](http://www.share.minike.top/Article/details/041370901622.shtml)
+- 2026-06-29 12:46 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](http://www.share.minike.top/Article/details/818264765.shtml)
+- 2026-06-29 12:42 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](http://www.blog.kurohicncr.top/Article/details/235210596.shtml)
+- 2026-06-29 12:25 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.share.kurohicncr.top/Article/details/867994000929.shtml)
+- 2026-06-29 12:43 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.blog.kurohicncr.top/Article/details/388250.shtml)

@@ -1,57 +1,58 @@
-# 港股通创新药再度下探，520880跌逾1%失守60日线，场内频现溢价！机构：关注创新药底部布局机会
+# 走进博物馆对话古老文明 北京启动2026年国际博物馆日活动
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-4月27日，港股通创新药再度调整，100%创新药研发标的——港股通创新药ETF华宝（520880）跌逾1%失守60日线，场内频现溢价，显示买盘活跃。此前2个交易日，合计逾3900万元资金连续进场。 权重龙头普跌为主要拖累，前十成份股中仅康方生物逆市涨超3%，信达生物、翰森制药、中国生物制药等多股跌逾2%，三生制药、映恩生物-B跌超4%。 消息面，22日，药物临床试验登记与信息公
+中新网北京5月17日电(记者 徐婧)2026年北京国际博物馆日活动17日在首都博物馆启幕，活动紧扣“博物馆：联结世界的桥梁”这一年度主题，集重磅展览、品牌发布、文化交流于一体，持续推进北京全国文化中心与博物馆之城建设。 本次活动由北京市文物局主办、首都博物馆承办。第二届北京博物馆季、2026北京文博创意设计大赛、互鉴·国际文博讲堂、北京文博——百家博物馆系列短视频等文博品牌同步
 
 ## 正文
 
-4月27日，港股通创新药再度调整，100%创新药研发标的——港股通创新药ETF华宝（520880）跌逾1%失守60日线，场内频现溢价，显示买盘活跃。
+中新网北京5月17日电(记者 徐婧)2026年北京国际博物馆日活动17日在首都博物馆启幕，活动紧扣“博物馆：联结世界的桥梁”这一年度主题，集重磅展览、品牌发布、文化交流于一体，持续推进北京全国文化中心与博物馆之城建设。
 
-此前2个交易日，合计逾3900万元资金连续进场。
+本次活动由北京市文物局主办、首都博物馆承办。
 
-权重龙头普跌为主要拖累，前十成份股中仅康方生物逆市涨超3%，信达生物、翰森制药、中国生物制药等多股跌逾2%，三生制药、映恩生物-B跌超4%。
+第二届北京博物馆季、2026北京文博创意设计大赛、互鉴·国际文博讲堂、北京文博——百家博物馆系列短视频等文博品牌同步亮相，形成覆盖展览、文创、国际交流、公众传播的文博品牌矩阵。
 
-消息面，22日，药物临床试验登记与信息公示平台公示，康方生物正式启动全球首创ILT2/ILT4/CSF1R三特异性抗体AK150的I期临床研究，用于晚期恶性实体瘤治疗。
+第二届北京博物馆季延续“主题月”模式，携手北京各区、各博物馆，推出五月文创月、六月展览月、七月研学月、八月科技月四大板块，同步上线文博护照、专题H5，以文化惠民为初心，以科技文博赋能，串联起文商旅体展多元资源，让展览可看、文创可赏、研学可参与、科技可体验。
 
-港股通创新药近期震荡走势，中泰证券分析指出，ASCO 年会摘要标题如期读出，国内康方、信达、科伦博泰、百利天恒等创新药领域龙头管线数据读出得到”汇报入选“的阶段性验证，前期市场炒作逻辑初步兑现，致使创新药/创新产业链板块资本市场表现相对承压。
+作为首都文博年度标志性品牌赛事，本届北京文博创意设计大赛围绕六大主流创作方向广泛征集作品。
 
-* 该机构进一步表示，建议关注创新药底部布局机会：AACR 盛会落幕，ASCO 续接重启数据披露窗口，中国学者主导并入选的研究摘要已达95 项（再创新高），国产创新药出海从 follow 到引领的逻辑再增强。
+赛事覆盖面广、包容性强，同时配套推出博物馆文创开放日，文创进校园、进园区等特色活动，兼顾社会效益与经济效益，持续激发文创创新活力。
 
-技术面：港股生物科技、港股制药等核心指数均调整较为充分并形成支撑；在 AI 等科技赛道调整背景下，创新药或成为成长股内的“避险”方向。
+由北京市文物局携手中国传媒大学联合打造的“互鉴·国际文博讲堂”，是“跨越文化的桥梁”系列国际交流项目的核心品牌，也是中外文博对话、青年人才培养、文化遗产传播的重要平台。
 
-* 国产创新药获益于政策呵护、BD爆发、龙头盈利、AI赋能等多重利好共振，中长期投资逻辑坚挺。
+本年度讲堂分两期推进，上半年聚焦博物馆领域，下半年围绕“中英意三墙对话”开展。
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 12:46 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 12:31 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 12:36 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 12:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 12:42 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 12:25 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 12:46 - [三只羊线下课已下架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 12:27 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 12:40 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 12:44 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 12:35 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:36 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:24 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:46 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:36 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:31 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:45 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:33 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:36 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:25 - [2026广东省定向公开赛（广州·增城站）举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:29 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:45 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [国乒全主力参加美国大满贯](http://www.blog.minike.top/Article/details/7970332.shtml)
-- 2026-06-29 12:51 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/95569.shtml)
-- 2026-06-29 12:22 - [中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/419616.shtml)
-- 2026-06-29 12:33 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/464621.shtml)
-- 2026-06-29 12:47 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.share.kurohicncr.top/Article/details/3751278095.shtml)
-- 2026-06-29 12:33 - [张一山说杨紫早该拿奖了](https://www.blog.kurohicncr.top/Article/details/0066564945.shtml)
-- 2026-06-29 12:28 - [房屋抵押权与租赁权如何协调](https://www.share.minike.top/Article/details/65388.shtml)
-- 2026-06-29 12:42 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/308924.shtml)
-- 2026-06-29 12:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/7665547.shtml)
-- 2026-06-29 12:35 - [美人鱼](http://www.share.kurohicncr.top/Article/details/600948.shtml)
-- 2026-06-29 12:37 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/229084.shtml)
-- 2026-06-29 12:46 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/34404.shtml)
-- 2026-06-29 12:31 - [张杰下沉市场](http://www.share.kurohicncr.top/Article/details/2219907.shtml)
-- 2026-06-29 12:34 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.kurohicncr.top/Article/details/866356.shtml)
-- 2026-06-29 12:28 - [白鹿呵呵挽手比心](https://www.blog.minike.top/Article/details/22471778.shtml)
+- 2026-06-29 12:31 - [北京稻香村涉事门店回应“反向抹零”](http://www.share.kurohicncr.top/Article/details/0168203156.shtml)
+- 2026-06-29 12:38 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](http://www.blog.minike.top/Article/details/875765323.shtml)
+- 2026-06-29 12:40 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.blog.kurohicncr.top/Article/details/782203668.shtml)
+- 2026-06-29 12:51 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.share.kurohicncr.top/Article/details/48649.shtml)
+- 2026-06-29 12:32 - [Anthropic将向监管机构通报网络风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [OneStream发布“前瞻财务”蓝图，助CFO领航企业AI战略](http://www.share.minike.top/Article/details/918654052.shtml)
+- 2026-06-29 12:34 - [A股“股王”激战！近1个月来频繁易主](http://www.blog.kurohicncr.top/Article/details/901686660.shtml)
+- 2026-06-29 12:25 - [四大证券报头版头条内容精华摘要_2026年5月18日_财经新闻](http://www.share.kurohicncr.top/Article/details/3471632.shtml)
+- 2026-06-29 12:43 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](http://www.share.kurohicncr.top/Article/details/20003.shtml)
+- 2026-06-29 12:32 - [探访“人工智能+教育”：你的AI科研“搭子”靠谱吗](http://www.blog.minike.top/Article/details/5394329.shtml)
+- 2026-06-29 12:33 - [中俄博览会展风采 河北南皮五金“智造”闯海外](http://www.share.kurohicncr.top/Article/details/839623596.shtml)
+- 2026-06-29 12:36 - [BOSS直聘-W于5月14日斥资249.65万美元回购34.66万股](http://www.share.minike.top/Article/details/10839.shtml)
+- 2026-06-29 12:50 - [探访龙虎山大上清宫遗址博物馆：千年道教祖庭的地下瑰宝](http://www.blog.kurohicncr.top/Article/details/45798484337.shtml)
+- 2026-06-29 12:29 - [十四届全国政协常委、农业和农村委员会副主任王晓东被查](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [上海涉外婚姻登记量显著增长](http://www.blog.minike.top/Article/details/3297583268.shtml)

@@ -1,59 +1,59 @@
-# 沈阳东北亚云端草原正式开园 打造城市文旅新地标
+# 韩正出席2026年全球贸易投资促进峰会开幕式并致辞
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 14:44 来源：中国新闻网 4月25日，沈阳东北亚云端草原正式开园迎客。云端草原以“高山草甸+森林生态+萌趣体验”为核心，串联沈阳四季文旅脉络，为市民游客奉上春日踏青、亲子休闲、生态康养的全新目的地，助力沈阳打造“历史与现代交融、自然与都市共生”的文旅名片。 东北亚云端草原坐落于沈阳国家森林公园石人峰下，海拔441.3米，总面积达115万平方
+新华社北京5月18日电 5月18日，国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。 韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。 韩正提出4点建议，一是共同营造开放合
 
 ## 正文
 
-发布时间：2026年04月25日 14:44 来源：中国新闻网 4月25日，沈阳东北亚云端草原正式开园迎客。
+新华社北京5月18日电 5月18日，国家副主席韩正在北京出席2026年全球贸易投资促进峰会开幕式并致辞。
 
-云端草原以“高山草甸+森林生态+萌趣体验”为核心，串联沈阳四季文旅脉络，为市民游客奉上春日踏青、亲子休闲、生态康养的全新目的地，助力沈阳打造“历史与现代交融、自然与都市共生”的文旅名片。
+韩正表示，当前国际形势变乱交织，全球经贸秩序遭受严重冲击。
 
-东北亚云端草原坐落于沈阳国家森林公园石人峰下，海拔441.3米，总面积达115万平方米，是沈阳海拔最高、面积最大的高山草原，森林覆盖率高达96%，负氧离子含量约5.87万/cm³，堪称城市“天然氧吧”。
+习近平主席指出，面对风险和挑战，任何国家都不可能独善其身，坚持团结合作、开放包容才是人间正道。
 
-作为沈阳文旅融合的标杆项目，云端草原深度融入沈阳文旅品牌体系，兼具自然野趣与潮流体验，精准契合全年龄段游玩需求。
+我们要坚定信念、携手前行，有效把握新机遇、应对新挑战，实现互利共赢基础上的共同发展。
 
-园区规划云上牧场、高山草原、动感草海、魔法森林、亲水乐园、开心王国六大功能板块，20余项游乐设施全面焕新。
+韩正提出4点建议，一是共同营造开放合作的国际经济环境，坚定维护多边主义和开放合作，持续推动全球贸易投资自由化便利化。
 
-520米超长滑草场带来风驰电掣的追风体验，草原骑马项目尽显自由豪迈，霍比特城堡、牛仔小镇、魔法森林构建沉浸式童话秘境，随手一拍皆是网红大片。
+二是共同塑造创新发展新优势，充分发挥新技术的驱动和赋能作用，让科技创新成果更好造福各国人民。
 
-开园期间，“羊村童趣嘉年华”同步启幕，原创舞台剧、主题快闪、萌宠互动轮番上演，羊驼、鸵鸟、杜泊羊等萌宠近距离投喂，治愈感拉满。
+三是共同提升产业链供应链韧性，加强产业协同、技术交流和标准对接。
 
-5月1日，万平宠物公园将焕新开放，以“人宠同乐”为理念，打造沈阳宠物友好新地标。
+四是共同推动全球经济治理体系改革，积极落实全球治理倡议，坚持共商共建共享，坚定维护以世贸组织为核心、以规则为基础的多边贸易体制。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 12:32 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 12:35 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:44 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 12:30 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 12:23 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 12:24 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 12:42 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 12:33 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 12:39 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 12:45 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 12:43 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 12:24 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 12:26 - [中俄共绘教育合作新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:50 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:45 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:49 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:37 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:42 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:34 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:38 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:37 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:34 - [十大机构论市：双创冲高回落 科技行情结束了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:30 - [文脉华章|我们为什么需要博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:52 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:47 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [美媒：空警-3000服役即成全球最强](http://www.share.minike.top/Article/details/001346879.shtml)
-- 2026-06-29 12:36 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/815213.shtml)
-- 2026-06-29 12:33 - [赵今麦客串电影版开端](http://www.blog.minike.top/Article/details/4199352.shtml)
-- 2026-06-29 12:30 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/5065950.shtml)
-- 2026-06-29 12:25 - [金牌调解](https://www.share.minike.top/Article/details/12940086.shtml)
-- 2026-06-29 12:50 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/7575361.shtml)
-- 2026-06-29 12:42 - [多家银行收紧个人贵金属业务](https://www.share.kurohicncr.top/Article/details/4124000.shtml)
-- 2026-06-29 12:23 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/5215677.shtml)
-- 2026-06-29 12:38 - [这一刀 会很帅](https://www.share.minike.top/Article/details/7626480135.shtml)
-- 2026-06-29 12:26 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/8934882448.shtml)
-- 2026-06-29 12:50 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/8883650.shtml)
-- 2026-06-29 12:34 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/546491.shtml)
-- 2026-06-29 12:33 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/153297083600.shtml)
-- 2026-06-29 12:28 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/84854708.shtml)
-- 2026-06-29 12:25 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/24396625.shtml)
+- 2026-06-29 12:28 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](http://www.blog.kurohicncr.top/Article/details/46208135105.shtml)
+- 2026-06-29 12:29 - [近镜头｜中美元首会晤速览](http://www.blog.kurohicncr.top/Article/details/7441784.shtml)
+- 2026-06-29 12:52 - [我们为什么需要博物馆？](http://www.blog.kurohicncr.top/Article/details/7893342.shtml)
+- 2026-06-29 12:48 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](http://www.blog.kurohicncr.top/Article/details/765907677501.shtml)
+- 2026-06-29 12:29 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](http://www.blog.minike.top/Article/details/20977.shtml)
+- 2026-06-29 12:43 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](http://www.share.minike.top/Article/details/9284351.shtml)
+- 2026-06-29 12:44 - [高阶产能落地美国 阿特斯加速转型“北美制造”](http://www.share.kurohicncr.top/Article/details/000736184214.shtml)
+- 2026-06-29 12:30 - [墨西哥中部发生枪击事件 造成至少10人死亡](http://www.share.minike.top/Article/details/52720894.shtml)
+- 2026-06-29 12:35 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](http://www.share.kurohicncr.top/Article/details/419046356758.shtml)
+- 2026-06-29 12:35 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](http://www.blog.minike.top/Article/details/01053014986.shtml)
+- 2026-06-29 12:41 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.share.kurohicncr.top/Article/details/68895421562.shtml)
+- 2026-06-29 12:51 - [让2026年成为中美关系继往开来的历史性、标志性年份](http://www.share.minike.top/Article/details/491639331652.shtml)
+- 2026-06-29 12:26 - [川投新能源公司总经理刘亮被遣返回国](http://www.share.kurohicncr.top/Article/details/137166782.shtml)
+- 2026-06-29 12:50 - [美伊谈判，又有新消息](http://www.share.kurohicncr.top/Article/details/29230662092.shtml)
+- 2026-06-29 12:49 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](http://www.share.kurohicncr.top/Article/details/6891655.shtml)

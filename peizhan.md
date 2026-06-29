@@ -1,60 +1,56 @@
-# 新疆中医药产业高质量发展大会在和田召开
+# 第25届“汉语桥”世界大学生中文比赛德国区决赛举行
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐4月27日电 (胡嘉琛 陈雪)新疆中医药产业高质量发展大会27日在和田举行。会议旨在健全新疆中药材全产业链体系，强化科技创新、人才支撑和质量监管，深化区域协同与开放合作，加快推动中医药产业提质增效、转型升级。 会议发布新疆道地药材目录和特色药材目录(第一批)；发布新疆中药材产地趁鲜切制加工品种目录并介绍新疆中药材种植区划概况。 会议举行战略合作签约仪式，协议围绕药
+发布时间：2026年05月17日 18:17 来源：中国新闻网 当地时间5月16日，第25届“汉语桥”世界大学生中文比赛德国区决赛在德国南部城市纽伦堡举行。 当日，共有来自德国各地的12名选手参赛。比赛设置中文演讲、文化常识问答及才艺表演环节。各选手普遍结合自身经历讲述对“汉语桥”主题“天下一家”的理解，并展示了唱歌、跳舞、书法、乐器演奏等才艺。 最终，汉堡孔子学院推荐的选手黎
 
 ## 正文
 
-中新网乌鲁木齐4月27日电 (胡嘉琛 陈雪)新疆中医药产业高质量发展大会27日在和田举行。
+发布时间：2026年05月17日 18:17 来源：中国新闻网 当地时间5月16日，第25届“汉语桥”世界大学生中文比赛德国区决赛在德国南部城市纽伦堡举行。
 
-会议旨在健全新疆中药材全产业链体系，强化科技创新、人才支撑和质量监管，深化区域协同与开放合作，加快推动中医药产业提质增效、转型升级。
+当日，共有来自德国各地的12名选手参赛。
 
-会议发布新疆道地药材目录和特色药材目录(第一批)；发布新疆中药材产地趁鲜切制加工品种目录并介绍新疆中药材种植区划概况。
+比赛设置中文演讲、文化常识问答及才艺表演环节。
 
-会议举行战略合作签约仪式，协议围绕药材基地建设、技术研发、成果转化、人才培养等深化合作，助力中医药产业链“强链补链延链”。
+各选手普遍结合自身经历讲述对“汉语桥”主题“天下一家”的理解，并展示了唱歌、跳舞、书法、乐器演奏等才艺。
 
-会议同步举行院士工作站、岐黄学者工作室揭牌仪式。
+最终，汉堡孔子学院推荐的选手黎维(Levi Benjamin Petersen)获得一等奖，将代表德国参加在中国举办的“汉语桥”总决赛。
 
-阿吉艾克拜尔·艾萨院士工作站，刘建勋、胡凯文岐黄学者工作室正式启用，为新疆中医药科技创新与高层次人才培养搭建高端平台。
+黎维学习中文已有四年半，目前就读于汉堡大学汉学系。
 
-此外，新疆中医医院和田医院揭牌成立，7个名医工作室同步落地。
+他赛后在接受记者采访时表示，学习中文让他开阔了视野。
 
-现场为名誉院长、名誉主任颁发聘书并举行拜师仪式，推动优质中医药医疗资源下沉基层，提升基层中医药服务能力。
+希望大学毕业后，能够有机会继续到中国留学，并为促进德国与中国之间友谊贡献力量。
 
 ## 相关推荐
 
-- 2026-06-29 12:32 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 12:28 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 12:38 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 12:35 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 12:35 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 12:35 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 12:45 - [老虎瘦成纸片还吃草 园方回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 12:22 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 12:44 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 12:44 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 12:29 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 12:24 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 12:36 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 12:24 - [平台支付需留神 莫让“付钱”变“借钱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:29 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:41 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:49 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:33 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:40 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:25 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:41 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:31 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:51 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.minike.top/Article/details/01889.shtml)
-- 2026-06-29 12:44 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/403440089245.shtml)
-- 2026-06-29 12:25 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/73531624.shtml)
-- 2026-06-29 12:24 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/11707503.shtml)
-- 2026-06-29 12:27 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/4137847.shtml)
-- 2026-06-29 12:49 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/068010.shtml)
-- 2026-06-29 12:45 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/460222878.shtml)
-- 2026-06-29 12:27 - [詹姆斯下赛季会在哪里](https://www.blog.minike.top/Article/details/36378.shtml)
-- 2026-06-29 12:43 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/92872919615.shtml)
-- 2026-06-29 12:42 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/8858231.shtml)
-- 2026-06-29 12:40 - [曾沛慈夺冠后人气](https://www.share.minike.top/Article/details/189715049.shtml)
-- 2026-06-29 12:22 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/41682118.shtml)
-- 2026-06-29 12:39 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/0446970708.shtml)
-- 2026-06-29 12:50 - [四川宜宾地震](http://www.blog.minike.top/Article/details/91388980.shtml)
-- 2026-06-29 12:35 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/8141997238.shtml)
+- 2026-06-29 12:50 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](http://www.blog.minike.top/Article/details/943513934996.shtml)
+- 2026-06-29 12:51 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](http://www.blog.kurohicncr.top/Article/details/973422.shtml)
+- 2026-06-29 12:45 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](http://www.share.kurohicncr.top/Article/details/63101.shtml)
+- 2026-06-29 12:43 - [中信证券：调整何解？重建杠铃结构](http://www.blog.kurohicncr.top/Article/details/623740.shtml)
+- 2026-06-29 12:44 - [A股，重磅新规！千家公司面临调整](http://www.blog.minike.top/Article/details/171238015.shtml)
+- 2026-06-29 12:38 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.share.kurohicncr.top/Article/details/0929303.shtml)
+- 2026-06-29 12:46 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.share.minike.top/Article/details/911878684.shtml)
+- 2026-06-29 12:26 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.blog.kurohicncr.top/Article/details/558224862.shtml)
+- 2026-06-29 12:49 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.blog.kurohicncr.top/Article/details/777528.shtml)
+- 2026-06-29 12:35 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.share.minike.top/Article/details/606287444.shtml)
+- 2026-06-29 12:51 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.blog.minike.top/Article/details/6256375375.shtml)
+- 2026-06-29 12:25 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/666039975.shtml)
+- 2026-06-29 12:48 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lisacumin64-arch)

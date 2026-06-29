@@ -1,60 +1,49 @@
-# “有意义就是好好活！” 这部老剧，太好哭了
+# 外交部发言人就美国总统特朗普涉台表态答记者问
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电(记者 上官云)“有意义就是好好活，好好活就是做有意义的事，做很多很多有意义的事。”士兵许三多的这句经典台词，曾戳中无数人的内心。 时光回溯到2006年。彼时，没有铺天盖地的宣传，电视剧《士兵突击》悄然播出了。它没有大场面、没有流量明星、也没有爱情，一度被调侃为“三无剧”。 但就是这样一部剧，在之后的光阴里赢得了无数观众的青睐，相关剧情解读至今层出不穷。有
+新华社北京5月18日电(记者冯歆然、董雪)就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
 
 ## 正文
 
-中新网北京4月25日电(记者 上官云)“有意义就是好好活，好好活就是做有意义的事，做很多很多有意义的事。
+新华社北京5月18日电(记者冯歆然、董雪)就美国总统特朗普涉台表态，外交部发言人郭嘉昆18日在例行记者会上答问时表示，我们注意到特朗普总统的表态。
 
-”士兵许三多的这句经典台词，曾戳中无数人的内心。
+台湾是中国领土不可分割的一部分，从来不是一个国家，今后也绝无可能。
 
-时光回溯到2006年。
-
-彼时，没有铺天盖地的宣传，电视剧《士兵突击》悄然播出了。
-
-它没有大场面、没有流量明星、也没有爱情，一度被调侃为“三无剧”。
-
-但就是这样一部剧，在之后的光阴里赢得了无数观众的青睐，相关剧情解读至今层出不穷。
-
-有人重温《士兵突击》，“哭得稀里哗啦”；有人夸它镜头语言好，感叹“老剧真耐看”。
-
-二十年弹指一挥间。
+“台独”与台海和平水火不容，“倚外谋独”是死路一条，两岸统一才是光明大道，民进党当局应该认清大势，面对现实，悬崖勒马。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 12:29 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:35 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 12:50 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 12:34 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 12:42 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 12:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 12:29 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 12:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:46 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 12:49 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 12:31 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 12:38 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 12:29 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 12:43 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:47 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:49 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:30 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:25 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:41 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:47 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:27 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:48 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:45 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:27 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:30 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:37 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:27 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/1485406929.shtml)
-- 2026-06-29 12:36 - [斗破苍穹](http://www.blog.minike.top/Article/details/73245505346.shtml)
-- 2026-06-29 12:46 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/1806766.shtml)
-- 2026-06-29 12:25 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/12978273145.shtml)
-- 2026-06-29 12:33 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/09782552312.shtml)
-- 2026-06-29 12:27 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/05338534.shtml)
-- 2026-06-29 12:38 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.minike.top/Article/details/55614377276.shtml)
-- 2026-06-29 12:30 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/484026628806.shtml)
-- 2026-06-29 12:37 - [女子拍邻居家中裸照发业主群](http://www.share.minike.top/Article/details/046850864213.shtml)
-- 2026-06-29 12:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/616728683.shtml)
-- 2026-06-29 12:30 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/1689440901.shtml)
-- 2026-06-29 12:51 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/348405000.shtml)
-- 2026-06-29 12:40 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/95821460236.shtml)
-- 2026-06-29 12:43 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/007955255849.shtml)
-- 2026-06-29 12:45 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/1283118145.shtml)
+- 2026-06-29 12:26 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.blog.minike.top/Article/details/715737.shtml)
+- 2026-06-29 12:27 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/552528520.shtml)
+- 2026-06-29 12:47 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.kurohicncr.top/Article/details/77726016.shtml)
+- 2026-06-29 12:27 - [从过去探寻未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.blog.minike.top/Article/details/35719964548.shtml)
+- 2026-06-29 12:30 - [金价回落 后市怎么走？](http://www.share.minike.top/Article/details/9770541257.shtml)
+- 2026-06-29 12:50 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.blog.kurohicncr.top/Article/details/89512.shtml)
+- 2026-06-29 12:40 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.blog.minike.top/Article/details/709874235.shtml)
+- 2026-06-29 12:39 - [EMCOR高管团队将出席三场投资者会议](http://www.share.minike.top/Article/details/7406896287.shtml)
+- 2026-06-29 12:31 - [习言道｜三个维度观察中美元首北京会晤](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.blog.kurohicncr.top/Article/details/83654019.shtml)

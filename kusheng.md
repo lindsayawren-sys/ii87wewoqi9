@@ -1,58 +1,60 @@
-# 探索月球南极、火星、木星 中国航天未来这么干
+# 福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-国家航天局昨天(24日)发布了我国深空探测的未来规划，其中，今年即将实施的嫦娥七号任务进展顺利。据了解，目前嫦娥七号已经进场，计划下半年发射，将去往月球南极开展水冰探索及环境勘察。 今年嫦娥七号将赴月球南极“找水” 探月与航天工程中心主任 关锋：从科学上来讲，现在还没有任何探测器进入月球的南极，月球上到底有没有水？这是一个科学方面的问题。 第二个问题是嫦娥七号要到月球南极，这里
+中新网漳州5月16日电 (蒋乔煌)15日，福建漳州市档案馆联合漳州市台湾同胞联谊会共同举办“弘扬两岸爱国抗战精神 守护家国一体共同记忆——‘迁台记忆’档案资料征集动员会暨台湾义勇队家属座谈会”。活动旨在以档案为纽带深挖漳台历史渊源，赓续两岸爱国抗战文脉，持续拓宽档案征集渠道，打造具有辨识度、影响力的漳州“迁台记忆”档案工作品牌。 当天的座谈气氛温馨而热烈。台湾义勇队及抗日志士家
 
 ## 正文
 
-国家航天局昨天(24日)发布了我国深空探测的未来规划，其中，今年即将实施的嫦娥七号任务进展顺利。
+中新网漳州5月16日电 (蒋乔煌)15日，福建漳州市档案馆联合漳州市台湾同胞联谊会共同举办“弘扬两岸爱国抗战精神 守护家国一体共同记忆——‘迁台记忆’档案资料征集动员会暨台湾义勇队家属座谈会”。
 
-据了解，目前嫦娥七号已经进场，计划下半年发射，将去往月球南极开展水冰探索及环境勘察。
+活动旨在以档案为纽带深挖漳台历史渊源，赓续两岸爱国抗战文脉，持续拓宽档案征集渠道，打造具有辨识度、影响力的漳州“迁台记忆”档案工作品牌。
 
-今年嫦娥七号将赴月球南极“找水” 探月与航天工程中心主任 关锋：从科学上来讲，现在还没有任何探测器进入月球的南极，月球上到底有没有水？
+当天的座谈气氛温馨而热烈。
 
-这是一个科学方面的问题。
+台湾义勇队及抗日志士家属代表深情追忆先辈投身抗日、守望家国的峥嵘事迹，表达传承先辈精神、守护共同历史记忆、维系漳台血脉亲情的真挚心愿。
 
-第二个问题是嫦娥七号要到月球南极，这里从来没有人类的探测器涉足过，这次任务主要是对月球南极环境进行详勘。
+各县区台联负责人纷纷表态，将充分发挥台联桥梁纽带优势，广泛联络发动广大台胞台属，助力“迁台记忆”档案征集工作走深走实。
 
-月球南极的太阳高度角比较低，可能温度都是极低的，对探测器、对人类深空探测都是一个新的挑战。
+两岸同根同源，文脉薪火相传。
 
-天问二号已接近目标小行星 去年5月29日，天问二号成功发射，开启小行星2016HO3探测与采样返回之旅，如今快一年的时间，天问二号目前是个什么样的状态？
+今年以来，众多台湾义勇队、台湾少年团后代家属心系家国、情牵文脉，踊跃无偿捐赠家族珍藏史料。
 
-专家表示，天问二号在轨飞行目前一切正常，已接近目标小行星。
+在漳州市台联积极协助对接下，台湾义勇队队员王正西女儿王阳红；台湾少年团成员蔡东南女儿蔡丽丽及陈金泽儿子陈仲凯、许静飞孙子陈鸣等家属代表，先后将珍藏的往来书信、照片、视频、研究资料等珍贵台湾义勇队和台湾少年团档案资料100余件无偿捐赠给漳州市档案馆。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 12:35 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 12:50 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 12:27 - [神23乘组太空出差满月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 12:40 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 12:36 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 12:42 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 12:31 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 12:29 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 12:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 12:39 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 12:27 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 12:43 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:36 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:26 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:39 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:50 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:34 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:27 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:32 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:34 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:43 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:52 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:47 - [让2026年成为中美关系继往开来的历史性、标志性年份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:24 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:39 - [美伊谈判，又有新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:26 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/611946559860.shtml)
-- 2026-06-29 12:49 - [男子在家一丝不挂 邻居拍照发业主群](http://www.share.kurohicncr.top/Article/details/7305395.shtml)
-- 2026-06-29 12:23 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/33381569.shtml)
-- 2026-06-29 12:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/483912409.shtml)
-- 2026-06-29 12:42 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/158501.shtml)
-- 2026-06-29 12:35 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/0481500054.shtml)
-- 2026-06-29 12:43 - [乌拉圭出局之路](http://www.share.kurohicncr.top/Article/details/038409349046.shtml)
-- 2026-06-29 12:38 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/00977821330.shtml)
-- 2026-06-29 12:26 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/772382.shtml)
-- 2026-06-29 12:28 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/469546724802.shtml)
-- 2026-06-29 12:38 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/49588310786.shtml)
-- 2026-06-29 12:47 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/59659.shtml)
-- 2026-06-29 12:35 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/7836292283.shtml)
-- 2026-06-29 12:44 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/0827451.shtml)
-- 2026-06-29 12:41 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/98809.shtml)
+- 2026-06-29 12:45 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.kurohicncr.top/Article/details/35088365.shtml)
+- 2026-06-29 12:49 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.share.kurohicncr.top/Article/details/65106.shtml)
+- 2026-06-29 12:43 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.blog.kurohicncr.top/Article/details/929255.shtml)
+- 2026-06-29 12:50 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.share.kurohicncr.top/Article/details/034086357.shtml)
+- 2026-06-29 12:44 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.blog.minike.top/Article/details/11670100.shtml)
+- 2026-06-29 12:25 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.kurohicncr.top/Article/details/077694.shtml)
+- 2026-06-29 12:51 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.blog.minike.top/Article/details/0354231.shtml)
+- 2026-06-29 12:43 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.blog.kurohicncr.top/Article/details/470839119.shtml)
+- 2026-06-29 12:28 - [银行理财产品“飞单”，怎么防、谁来赔？](http://www.share.minike.top/Article/details/399071945296.shtml)
+- 2026-06-29 12:42 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](http://www.share.kurohicncr.top/Article/details/7096134.shtml)
+- 2026-06-29 12:31 - [北京稻香村涉事门店回应“反向抹零”](http://www.blog.kurohicncr.top/Article/details/7518955.shtml)
+- 2026-06-29 12:51 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.blog.minike.top/Article/details/535554788.shtml)
+- 2026-06-29 12:46 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.share.minike.top/Article/details/50857.shtml)
+- 2026-06-29 12:47 - [Anthropic将向监管机构通报网络风险](http://www.blog.kurohicncr.top/Article/details/390397927086.shtml)

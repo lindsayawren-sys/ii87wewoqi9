@@ -1,57 +1,57 @@
-# 瑞银：中国建筑国际维持“买入”评级 目标价下调至11.5港元
+# 国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-瑞银发布研报称，下调中国建筑国际（03311）目标价14.8%，从13.5港元降至11.5港元，维持“买入”评级。 基于该公司2025年业绩及2026年指引，将2026年/2027年的盈利预测分别下调25%/27%。 自2025年中以来，该公司股价已下跌超过20%。该行认为这充分反映受中国建筑兴业（00830）拖累而导致的2025年盈利未达预期（若不计入中国建筑兴业，核心业务增
+连日来，中美元首北京会晤引发国际社会高度关注。多国媒体和国际人士认为，这是一次历史性会晤，两国领导人同意构建“中美建设性战略稳定关系”，共同开启中美关系新阶段。双方加强沟通合作，妥善解决分歧，不仅有助于两国自身发展，也为维护世界和平、稳定、发展注入更多可预期性。巴基斯坦知识与公共政策中心主席、巴基斯坦南亚与国际研究中心主任马哈茂德·乌尔·哈桑·汗表示，习近平主席和特朗普总统的会
 
 ## 正文
 
-瑞银发布研报称，下调中国建筑国际（03311）目标价14.8%，从13.5港元降至11.5港元，维持“买入”评级。
+连日来，中美元首北京会晤引发国际社会高度关注。
 
-基于该公司2025年业绩及2026年指引，将2026年/2027年的盈利预测分别下调25%/27%。
+多国媒体和国际人士认为，这是一次历史性会晤，两国领导人同意构建“中美建设性战略稳定关系”，共同开启中美关系新阶段。
 
-自2025年中以来，该公司股价已下跌超过20%。
+双方加强沟通合作，妥善解决分歧，不仅有助于两国自身发展，也为维护世界和平、稳定、发展注入更多可预期性。
 
-该行认为这充分反映受中国建筑兴业（00830）拖累而导致的2025年盈利未达预期（若不计入中国建筑兴业，核心业务增长依然强劲）。
+巴基斯坦知识与公共政策中心主席、巴基斯坦南亚与国际研究中心主任马哈茂德·乌尔·哈桑·汗表示，习近平主席和特朗普总统的会晤具有里程碑意义，开启了中美双边关系的新篇章。
 
-虽然该行预计2026年上半年盈利压力将对股价造成影响，但随着香港投资的进展以及低基数效应，2026年下半年预计将会好转。
+双方将寻求更多共同利益，促进相互理解，推动各自更好发展。
 
-展望2027年，该行预期随着中国建筑兴业亏损收窄和香港各项措施取得进一步进展，公司盈利将加速。
+塞尔维亚南通社刊文援引美国问题专家弗拉基米尔·马林科维奇的观点称，中美元首就全球安全、宏观经济战略及双边政治关系等议题展开对话，不仅为两国关系开启新篇章，也将为处于动荡的世界经济注入信心。
 
-该行表示，该公司2026年第一季收入和经营利润均同比下降10%，低于该行预期，但与公司最新的2026年业绩指引一致。
+文章分析称，保持高层对话是中美管控分歧、防止经贸冲突升级的有效手段。
 
-该行认为下降的主要原因是2025年上半年基数较高。
+在当前全球多重危机交织的背景下，中美两国寻求利益交汇点、避免危机进一步加剧，不仅符合两国利益，也是国际社会的普遍诉求。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 12:26 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 12:50 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 12:23 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 12:26 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 12:36 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 12:39 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 12:42 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 12:45 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 12:32 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 12:32 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 12:44 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:42 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:35 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:29 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:37 - [中信证券：调整何解？重建杠铃结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:53 - [A股，重磅新规！千家公司面临调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:41 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:25 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:26 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:39 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:34 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/95546759447.shtml)
-- 2026-06-29 12:28 - [中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/03167049.shtml)
-- 2026-06-29 12:26 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/827203.shtml)
-- 2026-06-29 12:31 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/6121908.shtml)
-- 2026-06-29 12:37 - [向佑说向佐是一生依靠](https://www.blog.kurohicncr.top/Article/details/85775027.shtml)
-- 2026-06-29 12:36 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://www.blog.kurohicncr.top/Article/details/46389323.shtml)
-- 2026-06-29 12:40 - [香港航天员黎家盈带招牌笑容工作](http://www.blog.kurohicncr.top/Article/details/749459.shtml)
-- 2026-06-29 12:38 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/781497668564.shtml)
-- 2026-06-29 12:27 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/602737401.shtml)
-- 2026-06-29 12:47 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.minike.top/Article/details/6915643.shtml)
-- 2026-06-29 12:34 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/810068505584.shtml)
-- 2026-06-29 12:25 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/107050208.shtml)
-- 2026-06-29 12:44 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/134424.shtml)
-- 2026-06-29 12:51 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/3654368608.shtml)
-- 2026-06-29 12:47 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.kurohicncr.top/Article/details/2469090891.shtml)
+- 2026-06-29 12:27 - [美伊谈判，又有新消息](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](http://www.blog.minike.top/Article/details/0231011.shtml)
+- 2026-06-29 12:28 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](http://www.share.minike.top/Article/details/4455031.shtml)
+- 2026-06-29 12:49 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](http://www.blog.kurohicncr.top/Article/details/6324851.shtml)
+- 2026-06-29 12:46 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](http://www.blog.kurohicncr.top/Article/details/0071741.shtml)
+- 2026-06-29 12:52 - [2026广东省定向公开赛（广州·增城站）举行](http://www.share.minike.top/Article/details/564093.shtml)
+- 2026-06-29 12:25 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [30年期美债收益率重返5% 见顶还是新开始？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.blog.kurohicncr.top/Article/details/484984.shtml)
+- 2026-06-29 12:52 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.share.minike.top/Article/details/45035.shtml)
+- 2026-06-29 12:53 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](http://www.share.minike.top/Article/details/061100.shtml)
+- 2026-06-29 12:50 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](http://www.blog.kurohicncr.top/Article/details/2625457813.shtml)

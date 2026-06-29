@@ -1,57 +1,57 @@
-# 中国多地专家携手制定《标准》聚焦阿尔法核素医学应用
+# 广西柳州市柳南区发生5.2级地震 周边多个城市有震感
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。 作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模
+中新网柳州5月18日电 (陈梅 林馨)据广西地震台网正式测定，北京时间2026年05月18日00时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8公里。 震中位于柳南区太阳村镇，距柳南城区约13公里、柳州市城区约16公里。柳州本地震感强烈，相邻的南宁、河池、来宾、桂林等城市亦有明显震感。 此次地震前，柳南区已连续发生三次有感地震。 5
 
 ## 正文
 
-中新网上海4月27日电 (记者 陈静)同济大学核医学研究所所长余飞教授27日披露，中国核药领域首个医用阿尔法核素的团体标准——《阿尔法核素医学专业术语团体标准》(以下简称《标准》)正式发布。
+中新网柳州5月18日电 (陈梅 林馨)据广西地震台网正式测定，北京时间2026年05月18日00时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8公里。
 
-作为国内首个聚焦阿尔法核素医学应用的基础性标准，《标准》的发布填补了该领域术语标准空白，也为后续技术规范、剂量学评价及临床应用标准的建立提供了标准语义基础，体现了中国医用阿尔法核素的发展模式由“单点技术突破”向“基础规范建设”延伸。
+震中位于柳南区太阳村镇，距柳南城区约13公里、柳州市城区约16公里。
 
-该《标准》由余飞教授团队和中国科学院杭州医学研究所黄钢教授团队共同发起，联合国内众多科研院所和临床机构的权威专家历时15个月编纂、讨论、修订完成。
+柳州本地震感强烈，相邻的南宁、河池、来宾、桂林等城市亦有明显震感。
 
-作为《标准》的主要制定者，余飞教授指出，阿尔法核素药物具备“更强能量、更短射程、更耐乏氧、更易防护”四大临床应用独特优势，让核素治疗肿瘤成为“未来蓝海”。
+此次地震前，柳南区已连续发生三次有感地震。
 
-目前，全球医学界对医用阿尔法核素的应用研究还处在起步阶段，术语使用不统一、概念界定不明晰，导致多元异构的基础研究与应用场景表述呈现交叉错配现象，这仍是需要解决的问题。
+5月17日7时46分，柳南区洛满镇发生2.5级地震，震源深度10公里，初估震中烈度约3度。
 
-这种“各说各话”的语义现象，不仅影响科学研究结果的可比性，更增加了未来临床转化与规范管理的难度。
+5月17日17时07分，柳南区(北纬24.37度，东经109.27度)再发生3.2级地震，震源深度10千米。
 
-据悉，围绕医用阿尔法核素的标准化工作，已有国际组织将其纳入行动计划，比如国际计量局(BIPM)推动的AlphaMet项目，尝试围绕阿尔法核素计量与应用规范开展系统研究，助力推动阿尔法核素药物从实验室走向临床、惠及患者，这标志着医用阿尔法核素开始进入“标准驱动”的新发展阶段。
+5月17日22时54分在广西柳州市柳南区(北纬24.42度，东经109.28度)发生3.0级地震，震源深度10千米。
 
-《标准》围绕阿尔法核素医学应用的关键科学问题与应用场景，系统梳理并规范了涉及阿尔法核素特性、放射性核素药物、辐射生物效应、微剂量学等多个技术维度的核心术语，并针对长期存在的“概念有交叉、定义不统一、使用不规范”等问题，进行了标准界定与聚类整合。
+截至目前，当地暂无人员伤亡及财产损失报告，地震灾害情况正在进一步核查统计中。
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 12:27 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-29 12:23 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 12:30 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 12:31 - [神23乘组太空出差满月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 12:49 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 12:27 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 12:50 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 12:35 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 12:32 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 12:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 12:36 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:28 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:45 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:42 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:44 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:38 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:46 - [河南省举办高校残疾大学生就业双选会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:44 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:38 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:26 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:33 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/0785930935.shtml)
-- 2026-06-29 12:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/20767916.shtml)
-- 2026-06-29 12:36 - [大罗力挺内马尔](http://www.share.kurohicncr.top/Article/details/74373.shtml)
-- 2026-06-29 12:34 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/3497172.shtml)
-- 2026-06-29 12:36 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.kurohicncr.top/Article/details/9405841908.shtml)
-- 2026-06-29 12:35 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/7883337611.shtml)
-- 2026-06-29 12:45 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/599548139118.shtml)
-- 2026-06-29 12:38 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/937850.shtml)
-- 2026-06-29 12:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/855980706331.shtml)
-- 2026-06-29 12:21 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/6398888708.shtml)
-- 2026-06-29 12:27 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/2429779460.shtml)
-- 2026-06-29 12:37 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/6207870367.shtml)
-- 2026-06-29 12:32 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/748756.shtml)
-- 2026-06-29 12:44 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/72597.shtml)
-- 2026-06-29 12:31 - [英国高温已致多人死亡](https://www.share.kurohicncr.top/Article/details/2263453776.shtml)
+- 2026-06-29 12:44 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.minike.top/Article/details/286671233.shtml)
+- 2026-06-29 12:44 - [外交部发言人就美国总统特朗普涉台表态答记者问](http://www.share.kurohicncr.top/Article/details/2182906899.shtml)
+- 2026-06-29 12:38 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](http://www.blog.minike.top/Article/details/3337535303.shtml)
+- 2026-06-29 12:39 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](http://www.blog.kurohicncr.top/Article/details/6845704.shtml)
+- 2026-06-29 12:47 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](http://www.blog.minike.top/Article/details/750177.shtml)
+- 2026-06-29 12:42 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](http://www.share.kurohicncr.top/Article/details/64776.shtml)
+- 2026-06-29 12:29 - [2025年全国博物馆接待观众15.6亿人次](http://www.share.minike.top/Article/details/315373640766.shtml)
+- 2026-06-29 12:48 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.share.kurohicncr.top/Article/details/863551.shtml)
+- 2026-06-29 12:24 - [去年全国核发绿证超过29亿个](http://www.blog.minike.top/Article/details/665050236328.shtml)
+- 2026-06-29 12:32 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](http://www.blog.minike.top/Article/details/416422.shtml)
+- 2026-06-29 12:24 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](http://www.share.minike.top/Article/details/28457.shtml)
+- 2026-06-29 12:28 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](http://www.share.minike.top/Article/details/370125272065.shtml)
+- 2026-06-29 12:35 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](http://www.share.kurohicncr.top/Article/details/305244.shtml)
+- 2026-06-29 12:44 - [2026“粤超”联赛继续 广州赛场氛围浓](http://www.blog.minike.top/Article/details/33954006.shtml)

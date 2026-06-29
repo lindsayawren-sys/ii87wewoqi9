@@ -1,56 +1,59 @@
-# 企业国有资产法迎来首次修订 明确建立国有股权董事制度
+# 长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 (记者 黄钰钦 李京泽)企业国有资产法修订草案27日提请十四届全国人大常委会首次审议。草案明确建立国有股权董事制度，保障国有股权董事依法独立行使职权，规定国有股权董事应当将履职情况和结果及时报告委派或者提名机构。现行企业国有资产法自2009年5月1日施行，规定了中国企业国有资产管理监督的基础制度。草案修改71条、新增32条，共九章109条，对现行法作了全
+来源：环球老虎财经app 长鑫科技更新了招股书，其上半年有望最多实现570亿元归母净利润的数据令市场高度“兴奋”。毫无疑问的是，当下A股正在刮起一股“长鑫科技热”，而这也使得芯片大佬朱一明成为大赢家。 5月17日，据上交所官网，长鑫科技已完成财务资料以及招股书更新，审核状态恢复为“已受理”。 事实上，从2025年7月开启上市辅导以来，市场对于长鑫科技IPO始终高度关注。然而即便
 
 ## 正文
 
-中新社北京4月27日电 (记者 黄钰钦 李京泽)企业国有资产法修订草案27日提请十四届全国人大常委会首次审议。
+来源：环球老虎财经app 长鑫科技更新了招股书，其上半年有望最多实现570亿元归母净利润的数据令市场高度“兴奋”。
 
-草案明确建立国有股权董事制度，保障国有股权董事依法独立行使职权，规定国有股权董事应当将履职情况和结果及时报告委派或者提名机构。
+毫无疑问的是，当下A股正在刮起一股“长鑫科技热”，而这也使得芯片大佬朱一明成为大赢家。
 
-现行企业国有资产法自2009年5月1日施行，规定了中国企业国有资产管理监督的基础制度。
+5月17日，据上交所官网，长鑫科技已完成财务资料以及招股书更新，审核状态恢复为“已受理”。
 
-草案修改71条、新增32条，共九章109条，对现行法作了全面修改。
+事实上，从2025年7月开启上市辅导以来，市场对于长鑫科技IPO始终高度关注。
 
-草案以专节规定国家出资企业的公司治理，在衔接公司法共性规定的基础上，明确鼓励国有独资公司、国有资本控股公司调整优化股权结构，形成股权结构多元、股东行为规范、内部约束有效、运行高效灵活的经营机制，对股东会、董事会履职作出专门规定。
+然而即便如此，公司在最新一期招股书中交付的“炸裂”业绩还是令人大吃一惊。
 
-针对国有企业采购领域腐败多发问题，草案规定，国有独资公司、国有资本控股公司采购货物、服务和工程应当坚持公平竞争、合规透明、降本增效、绿色发展原则，建立健全采购和供应链管理制度，加强对采购活动的全流程管理，保障采购活动规范有序，提升采购质量和效益。
+据悉，在2026年1至3月，长鑫科技实现营收508亿元，同比增长719.13%，归母净利润同比增长1688.3%至247.62亿元。
 
-针对国家预算内投资项目形成的增量国有资本不及时划转登记、缺乏有效跟踪监督等问题，草案明确，国家出资企业承接经营性政府投资项目，应当加强经营风险防控，按照国家有关规定，及时确认增加的权益，进行产权变动登记。
+据长鑫科技预测，2026年1到6月其有望实现营收1100亿元至1200亿元，归母净利润500亿元至570亿元，同比增速将达到惊人的2244.03%至2544.19%。
 
-为加强对违规经营投资的管理，草案赋予履行出资人职责的机构开展违规经营投资责任追究的权利，明确履行出资人职责的机构在核查违规经营投资有关线索、事实、损失情况时，可以商请监察机关、公安机关、金融监管部门等有关单位予以协助。
+根据粗略估算，长鑫科技在最近四个季度所实现的归母净利润之和最多可达612亿元左右，对标海外三星电子、SK海力士、美光科技三者市盈率最高值34倍，公司市值或有望超两万亿，这对于间接持有长鑫科技股权的朱一明而言称得上是“财富盛宴”。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 12:35 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 12:43 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 12:28 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 12:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 12:37 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 12:46 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 12:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 12:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 12:27 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 12:50 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:44 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:29 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:27 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:42 - [民生人寿总资产缩水160亿，船大难掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:28 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:39 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:47 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:45 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:27 - [北京稻香村涉事门店回应“反向抹零”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:39 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:49 - [高盛：央行要“加码”买黄金了，金价年底看5400](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:25 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/202043631.shtml)
-- 2026-06-29 12:29 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/462372698.shtml)
-- 2026-06-29 12:25 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/9549172.shtml)
-- 2026-06-29 12:50 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/363071810647.shtml)
-- 2026-06-29 12:31 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/90912730.shtml)
-- 2026-06-29 12:38 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/661088.shtml)
-- 2026-06-29 12:40 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/2725161060.shtml)
-- 2026-06-29 12:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/20692296718.shtml)
-- 2026-06-29 12:21 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/82009469.shtml)
-- 2026-06-29 12:25 - [去美国加油？部分加拿大球迷陷入纠结](http://www.share.minike.top/Article/details/98845922.shtml)
-- 2026-06-29 12:40 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/992307.shtml)
-- 2026-06-29 12:35 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/7294625621.shtml)
-- 2026-06-29 12:43 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/110487.shtml)
-- 2026-06-29 12:41 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/759751890.shtml)
-- 2026-06-29 12:35 - [曾沛慈夺冠后人气](http://www.share.kurohicncr.top/Article/details/262125.shtml)
+- 2026-06-29 12:54 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.share.kurohicncr.top/Article/details/49906.shtml)
+- 2026-06-29 12:31 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.share.kurohicncr.top/Article/details/18298067.shtml)
+- 2026-06-29 12:41 - [酒价内参5月18日价格发布：古井贡古20上涨6元/瓶](http://www.share.minike.top/Article/details/001634081.shtml)
+- 2026-06-29 12:41 - [安徽休宁：初夏育秧忙](http://www.share.minike.top/Article/details/084148.shtml)
+- 2026-06-29 12:32 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.blog.minike.top/Article/details/895421.shtml)
+- 2026-06-29 12:43 - [默沙东ADC癌症新药再下一城，子宫内膜癌III期研究大获成功](http://www.share.kurohicncr.top/Article/details/825151917.shtml)
+- 2026-06-29 12:43 - [百度高管解读Q1财报：将继续坚定投入文心大模型](http://www.share.minike.top/Article/details/88384.shtml)
+- 2026-06-29 12:25 - [陈克明鸡蛋挂面被指玩文字游戏，鸡蛋含量极低，客服回应：是鸡蛋风味面](http://www.share.minike.top/Article/details/0375502.shtml)
+- 2026-06-29 12:32 - [雅各布·弗兰克尔：各国应着力提升经济与金融体系韧性](http://www.blog.kurohicncr.top/Article/details/5482932.shtml)
+- 2026-06-29 12:53 - [i茅台调整每日开售时间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [“红色昌都·红色文旅名家讲坛”网络直播活动在西藏昌都举行](http://www.blog.kurohicncr.top/Article/details/2487702.shtml)
+- 2026-06-29 12:50 - [尼泊尔两名登山家刷新珠峰登顶纪录](http://www.blog.kurohicncr.top/Article/details/27974076.shtml)
+- 2026-06-29 12:28 - [黑龙江：入境客流增加激活文旅消费 带动边境经济](http://www.share.minike.top/Article/details/112850.shtml)
+- 2026-06-29 12:36 - [“福建好人”谢惠容30年公益路：以小平台汇聚巾帼大能量](http://www.share.kurohicncr.top/Article/details/375590762.shtml)

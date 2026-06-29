@@ -1,60 +1,56 @@
-# 在常州，看“小IP”撬动“大时代”
+# 防病控“三高”别错过这些果蔬
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-【开局之年看中国·遇见不一样的江苏】在常州，看“小IP”撬动“大时代” 2026年的春夏之交，江苏再次因“苏超”而沸腾。赛场上，球员们点燃着城市的激情；赛场边，一块块广告牌成为“苏超”的注脚。去年此时，一家外来夫妻店，缘于对第二故乡常州的朴素热爱而赞助球队，将一块“街边烧烤”的朴素广告牌，立在了一众知名品牌之间。 这就是常州，既有“无中生有”、历时二十五年长成的“恐龙”，也有定
+防病控“三高”别错过这些果蔬！研究发现：摄入这些果蔬占比越高，患重大慢病的风险越低 高血压、高血糖、高血脂 还有肠胃不舒服 几乎是家家户户都会遇到的健康问题很多人虽然很注意饮食 但指标依旧居高不下 其实调理慢性病不用太复杂 答案就在我们每天吃的果蔬里 科学研究证实 果蔬里的那些看不见的营养 是调理慢性病的“天然好帮手” 比如苹果、梨、白菜、茄子、蓝莓、菠菜等果蔬 它们富含的活性
 
 ## 正文
 
-【开局之年看中国·遇见不一样的江苏】在常州，看“小IP”撬动“大时代” 2026年的春夏之交，江苏再次因“苏超”而沸腾。
+防病控“三高”别错过这些果蔬！
 
-赛场上，球员们点燃着城市的激情；赛场边，一块块广告牌成为“苏超”的注脚。
+研究发现：摄入这些果蔬占比越高，患重大慢病的风险越低 高血压、高血糖、高血脂 还有肠胃不舒服 几乎是家家户户都会遇到的健康问题很多人虽然很注意饮食 但指标依旧居高不下 其实调理慢性病不用太复杂 答案就在我们每天吃的果蔬里 科学研究证实 果蔬里的那些看不见的营养 是调理慢性病的“天然好帮手” 比如苹果、梨、白菜、茄子、蓝莓、菠菜等果蔬 它们富含的活性成分 有助于抗炎、降压、控糖、保护血管 如何通过吃果蔬 针对性调理4种高发慢病 一起来看～ 01 高血压：别只知道控盐 这2种营养素是“控压王牌” 说到高血压饮食，大家第一反应都是“少吃盐”。
 
-去年此时，一家外来夫妻店，缘于对第二故乡常州的朴素热爱而赞助球队，将一块“街边烧烤”的朴素广告牌，立在了一众知名品牌之间。
+这完全正确，但仅仅控盐还不够。
 
-这就是常州，既有“无中生有”、历时二十五年长成的“恐龙”，也有定义产业高度的“智造”，更有无数市井烟火中破土而出的“微光”。
+我们不仅要减少钠的摄入，还要增加钠的排出，更要维护血管和整个内环境的健康，这就离不开果蔬中的2种关键营养素。
 
-从“无”到“有”：“恐龙”与一座城的相互成就 二十多年前，常州争取到中国地质博物馆分馆项目，在一片“无恐龙化石资源”的质疑声中，决心“无中生有”。
+钾：帮身体排出多余钠的 “排盐能手” 核心作用： 促进体内多余钠的排出，同时对抗钠引起的血管收缩和血压升高。
 
-以一座中华恐龙馆为起点，恐龙园集团用“创意+科技”的魔法，让远古巨兽“活”了起来。
+推荐摄入量： 健康成年人每日2000～3000毫克(特别提醒：肾功能不全者需在医生指导下限制钾的摄入)。
 
-从运用VR、MR、AI技术打造沉浸式体验，到构建“形象-内容-体验-衍生”的完整IP产业链；从一部部动漫作品、一场场光影大秀，到恐龙主题融入地铁、单车、公交等城市的每个角落，“恐龙”从一个文化概念，成长为渗透城市肌理的文化符号。
+每日补钾黄金方案： 100克全谷杂豆+100克薯类(红薯、紫薯等)+500克蔬菜+250克水果+1袋牛奶，可稳定达到2000毫克以上的钾摄入量，同时补充钙等其他重要矿物质。
 
-这不仅是一个主题乐园的成功，更是一场“IP驱动城市发展”的深刻实践。
+推荐食物： 除了大家熟知的香蕉，苋菜、羽衣甘蓝、牛油果等都是优质的高钾食物。
 
 ## 相关推荐
 
-- 2026-06-29 12:41 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 12:49 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 12:33 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 12:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 12:37 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 12:34 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 12:40 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 12:24 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:35 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 12:26 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 12:46 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 12:31 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 12:44 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 12:36 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:47 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:34 - [中俄共绘教育合作新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:30 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:44 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:28 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:37 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:42 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:51 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:36 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/59395679.shtml)
-- 2026-06-29 12:35 - [异世界一点都不好玩！](http://www.share.kurohicncr.top/Article/details/5401220.shtml)
-- 2026-06-29 12:31 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/8454787075.shtml)
-- 2026-06-29 12:23 - [伊朗球员致歉](https://www.blog.kurohicncr.top/Article/details/87798.shtml)
-- 2026-06-29 12:28 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/017396347220.shtml)
-- 2026-06-29 12:49 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/3831587510.shtml)
-- 2026-06-29 12:38 - [小娘惹](https://www.blog.minike.top/Article/details/833470865379.shtml)
-- 2026-06-29 12:28 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/627081336212.shtml)
-- 2026-06-29 12:45 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/09220960380.shtml)
-- 2026-06-29 12:46 - [千与千寻](https://www.blog.minike.top/Article/details/92895.shtml)
-- 2026-06-29 12:47 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/64929336921.shtml)
-- 2026-06-29 12:35 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/834028392.shtml)
-- 2026-06-29 12:27 - [去美国加油？部分加拿大球迷陷入纠结](https://www.share.minike.top/Article/details/45209.shtml)
-- 2026-06-29 12:47 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.minike.top/Article/details/352453429302.shtml)
-- 2026-06-29 12:38 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/4785782.shtml)
+- 2026-06-29 12:51 - [来华留学生博物馆里“看世界”](http://www.blog.minike.top/Article/details/3938311.shtml)
+- 2026-06-29 12:28 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](http://www.share.minike.top/Article/details/393116911959.shtml)
+- 2026-06-29 12:39 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](http://www.share.kurohicncr.top/Article/details/407030194010.shtml)
+- 2026-06-29 12:36 - [近镜头｜中美元首会晤速览](http://www.blog.kurohicncr.top/Article/details/311998230.shtml)
+- 2026-06-29 12:43 - [我们为什么需要博物馆？](http://www.blog.kurohicncr.top/Article/details/44811041768.shtml)
+- 2026-06-29 12:38 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](http://www.blog.minike.top/Article/details/08607.shtml)
+- 2026-06-29 12:41 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](http://www.blog.kurohicncr.top/Article/details/4168011.shtml)
+- 2026-06-29 12:45 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](http://www.blog.kurohicncr.top/Article/details/776386.shtml)
+- 2026-06-29 12:48 - [高阶产能落地美国 阿特斯加速转型“北美制造”](http://www.share.kurohicncr.top/Article/details/286788.shtml)
+- 2026-06-29 12:46 - [墨西哥中部发生枪击事件 造成至少10人死亡](http://www.blog.minike.top/Article/details/26548.shtml)
+- 2026-06-29 12:44 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](http://www.share.minike.top/Article/details/53893.shtml)
+- 2026-06-29 12:35 - [全国近500名机车爱好者齐聚清远 共赴文体旅融合盛宴](http://www.share.kurohicncr.top/Article/details/5945919.shtml)
+- 2026-06-29 12:52 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.blog.kurohicncr.top/Article/details/0025486.shtml)
+- 2026-06-29 12:41 - [让2026年成为中美关系继往开来的历史性、标志性年份](http://www.share.kurohicncr.top/Article/details/79814059677.shtml)
+- 2026-06-29 12:33 - [川投新能源公司总经理刘亮被遣返回国](http://www.blog.kurohicncr.top/Article/details/496737.shtml)

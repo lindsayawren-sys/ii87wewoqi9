@@ -1,57 +1,45 @@
-# “小红书是非常烂的平台” 追觅俞浩为何突然炮轰？用户称“算法让我视野变窄”，平台疑似回应
+# 三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-文 | 《BUG》栏目 张奥 小红书昨日遭到“炮轰”。追觅科技创始人、CEO俞浩连发三条微博质疑该平台变成了舆论阵地，内容扩散被算法掌控。他还称：“不会把小红书的客诉当成参考，这是个价值观和盈利模式都非常有毒的平台！小红书是个非常烂的平台”。他在最后一则帖子评论区中指出：“小红书算法有意推荐作恶。” 俞浩为何会突然攻击小红书？知情人士透露，自2024年起，小红书就出现了上万条追
+5月18日，针对湖南、广西暴雨洪涝、地震等灾害影响，根据灾区救灾救助需要，国家防灾减灾救灾委员会办公室、应急管理部会同国家粮食和物资储备局向湖南调拨帐篷、折叠床、夏凉被、折叠桌凳、家庭应急包等中央救灾物资1.8万件，并在前期向广西调拨1万件中央救灾物资基础上，增加调拨折叠床、家庭照明灯、家庭应急包等中央救灾物资5000件，支持两省(自治区)妥善做好受灾群众安置救助和基本生活保障
 
 ## 正文
 
-文 | 《BUG》栏目 张奥 小红书昨日遭到“炮轰”。
+5月18日，针对湖南、广西暴雨洪涝、地震等灾害影响，根据灾区救灾救助需要，国家防灾减灾救灾委员会办公室、应急管理部会同国家粮食和物资储备局向湖南调拨帐篷、折叠床、夏凉被、折叠桌凳、家庭应急包等中央救灾物资1.8万件，并在前期向广西调拨1万件中央救灾物资基础上，增加调拨折叠床、家庭照明灯、家庭应急包等中央救灾物资5000件，支持两省(自治区)妥善做好受灾群众安置救助和基本生活保障。
 
-追觅科技创始人、CEO俞浩连发三条微博质疑该平台变成了舆论阵地，内容扩散被算法掌控。
-
-他还称：“不会把小红书的客诉当成参考，这是个价值观和盈利模式都非常有毒的平台！
-
-小红书是个非常烂的平台”。
-
-他在最后一则帖子评论区中指出：“小红书算法有意推荐作恶。
-
-” 俞浩为何会突然攻击小红书？
-
-知情人士透露，自2024年起，小红书就出现了上万条追觅的内容。
-
-此现象存在恶意造谣、水军拉踩等行为，且难以全部删除。
+(央视新闻客户端 总台央视记者 唐国荣)
 
 ## 相关推荐
 
-- 2026-06-29 12:39 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 12:44 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 12:22 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 12:42 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 12:23 - [国乒男单资格赛全员出局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 12:50 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:47 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 12:28 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 12:42 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 12:46 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 12:30 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 12:51 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:42 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:47 - [南京银行：董事王厚印辞任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:46 - [广西北海海上风电单桩基础设备出运越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:40 - [伊朗战争重创全球富庶强国之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:51 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:27 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:33 - [最高法、中国残联发布第二批残疾人诉讼服务和多元解纷典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:24 - [北京三里屯UR玻璃会看到裙底？最新回应：已经做处理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:32 - [李大霄：5月18日美债收益率破5%暗藏的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:37 - [中国空间站：神二十一乘组在轨近200天 状态良好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:31 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/70330712.shtml)
-- 2026-06-29 12:23 - [吴海燕兰西雅漫步复兴岛](http://www.share.kurohicncr.top/Article/details/4167768.shtml)
-- 2026-06-29 12:35 - [速度与激情9](http://www.share.minike.top/Article/details/570071.shtml)
-- 2026-06-29 12:45 - [线路错接女子替7户邻居交17年电费](http://www.share.minike.top/Article/details/83881.shtml)
-- 2026-06-29 12:24 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/70920407.shtml)
-- 2026-06-29 12:34 - [美人鱼](http://www.share.minike.top/Article/details/4331058.shtml)
-- 2026-06-29 12:45 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/4256616.shtml)
-- 2026-06-29 12:27 - [俄政府批准巩固俄语地位行动计划](https://www.blog.kurohicncr.top/Article/details/04837481.shtml)
-- 2026-06-29 12:50 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.kurohicncr.top/Article/details/643184322.shtml)
-- 2026-06-29 12:29 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/56082098901.shtml)
-- 2026-06-29 12:35 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/24483.shtml)
-- 2026-06-29 12:47 - [谢霆锋演唱会变大型呲水现场](http://www.share.minike.top/Article/details/44361321928.shtml)
-- 2026-06-29 12:46 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/712656.shtml)
-- 2026-06-29 12:29 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/4233158.shtml)
-- 2026-06-29 12:50 - [速度与激情9](http://www.share.minike.top/Article/details/646782.shtml)
+- 2026-06-29 12:25 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.blog.kurohicncr.top/Article/details/05994.shtml)
+- 2026-06-29 12:28 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.share.kurohicncr.top/Article/details/35752.shtml)
+- 2026-06-29 12:45 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.share.minike.top/Article/details/7665583026.shtml)
+- 2026-06-29 12:44 - [河南省举办高校残疾大学生就业双选会](http://www.blog.minike.top/Article/details/841554.shtml)
+- 2026-06-29 12:38 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.minike.top/Article/details/42340.shtml)
+- 2026-06-29 12:35 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](http://www.share.kurohicncr.top/Article/details/31998718877.shtml)
+- 2026-06-29 12:33 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](http://www.blog.kurohicncr.top/Article/details/60627257259.shtml)
+- 2026-06-29 12:47 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](http://www.share.kurohicncr.top/Article/details/62883638174.shtml)
+- 2026-06-29 12:33 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](http://www.blog.minike.top/Article/details/52200953657.shtml)
+- 2026-06-29 12:50 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](http://www.share.kurohicncr.top/Article/details/336205.shtml)
+- 2026-06-29 12:33 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [特斯拉在美国上调Model Y车型的售价](http://www.blog.minike.top/Article/details/1164256.shtml)
+- 2026-06-29 12:32 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](http://www.share.minike.top/Article/details/38804625.shtml)

@@ -1,54 +1,58 @@
-# 市场监管总局：专项行动期间查办商标侵权、假冒专利案件8.1万件
+# 十大机构论市：双创冲高回落 科技行情结束了吗？
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-记者从今天举行的国务院新闻办公室发布会上了解到，市场监管总局围绕重点产品、重点领域强化执法合力，开展为期两年的“守护知识产权”专项执法行动，突出“守护品牌”和“守护地理标志促进乡村振兴”两个重点领域，严厉打击商标、专利、地理标志侵权假冒违法行为。专项行动期间，共查办商标侵权、假冒专利案件8.1万件，涉案金额18.06亿元，移送司法机关案件2441件，重点领域假冒伪劣问题得到有力
+来源：东方财富研究中心 本周沪指下跌1.07%，深证成指下跌0.02%，创业板指上涨3.50%。下周A股将如何运行？我们汇总了各大机构的最新投资策略，供投资者参考。 浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧 本周双创指数继续强势引领市场，但在特朗普访华“利好兑现”后冲高回落。展望后市，考虑到近期美元和石油上涨，加之前期表现最强的韩国股市出现高位回调，在“全球AI基
 
 ## 正文
 
-记者从今天举行的国务院新闻办公室发布会上了解到，市场监管总局围绕重点产品、重点领域强化执法合力，开展为期两年的“守护知识产权”专项执法行动，突出“守护品牌”和“守护地理标志促进乡村振兴”两个重点领域，严厉打击商标、专利、地理标志侵权假冒违法行为。
+来源：东方财富研究中心 本周沪指下跌1.07%，深证成指下跌0.02%，创业板指上涨3.50%。
 
-专项行动期间，共查办商标侵权、假冒专利案件8.1万件，涉案金额18.06亿元，移送司法机关案件2441件，重点领域假冒伪劣问题得到有力遏制。
+下周A股将如何运行？
 
-为更加高效发现侵权违法线索、快速保护权利人知识产权，市场监管总局建立了“‘守护品牌’政企协作机制”，形成企业举报、部门调查、政企协同的快速保护机制。
+我们汇总了各大机构的最新投资策略，供投资者参考。
 
-首批政企协作企业涵盖了食品、服装、电器、日用品等重点行业，既有中资企业也有外资企业，知识产权平等保护、快速执法的机制更加高效。
+浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧 本周双创指数继续强势引领市场，但在特朗普访华“利好兑现”后冲高回落。
 
-(总台央视记者 李晶晶)
+展望后市，考虑到近期美元和石油上涨，加之前期表现最强的韩国股市出现高位回调，在“全球AI基建共振”情景下，预计短期或有震荡整理诉求。
+
+以目前“领头羊”创业板指而言，4月8日以来的上升趋势依旧完好，若20日均线在调整中不破，则短期调整过后仍有继续冲高可能，其走势大概率会“牵引”科创50和其他指数。
+
+拉长周期来看，在市场找到“牛4”低点后，主要指数只要不跌破“924行情”以来的上升趋势线，那么整个行情结构就是安全的。
+
+这意味着，当前仍处于“中线走势安全”的格局中，中线持仓仍可坚定信心。
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 12:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 12:48 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 12:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 12:31 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 12:40 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 12:36 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:46 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:26 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 12:42 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 12:45 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 12:22 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 12:37 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 12:40 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:47 - [中信证券：调整何解？重建杠铃结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:36 - [A股，重磅新规！千家公司面临调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:29 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:53 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:50 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:27 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:41 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:50 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:45 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:45 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:37 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/134860223733.shtml)
-- 2026-06-29 12:33 - [虞书欣灿如繁星明天定档](http://www.share.minike.top/Article/details/3372632.shtml)
-- 2026-06-29 12:49 - [刘仲华院士愿当贺永辉导师](https://www.share.kurohicncr.top/Article/details/0619631986.shtml)
-- 2026-06-29 12:37 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/3053214.shtml)
-- 2026-06-29 12:45 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/31823.shtml)
-- 2026-06-29 12:31 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/6596301.shtml)
-- 2026-06-29 12:43 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/52130583.shtml)
-- 2026-06-29 12:45 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/4507189.shtml)
-- 2026-06-29 12:46 - [某高校学生被辅导员等人扭送至公安](https://www.blog.kurohicncr.top/Article/details/69465550.shtml)
-- 2026-06-29 12:45 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/3688972.shtml)
-- 2026-06-29 12:32 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/89698.shtml)
-- 2026-06-29 12:34 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/49717.shtml)
-- 2026-06-29 12:43 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/81161.shtml)
-- 2026-06-29 12:49 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/77001564.shtml)
-- 2026-06-29 12:38 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/402210224765.shtml)
+- 2026-06-29 12:45 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](http://www.share.minike.top/Article/details/24194263032.shtml)
+- 2026-06-29 12:47 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](http://www.blog.minike.top/Article/details/71596.shtml)
+- 2026-06-29 12:35 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](http://www.blog.minike.top/Article/details/58229580.shtml)
+- 2026-06-29 12:52 - [2026广东省定向公开赛（广州·增城站）举行](http://www.share.minike.top/Article/details/04664.shtml)
+- 2026-06-29 12:54 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](http://www.blog.kurohicncr.top/Article/details/85233692418.shtml)
+- 2026-06-29 12:29 - [30年期美债收益率重返5% 见顶还是新开始？](http://www.share.kurohicncr.top/Article/details/1280072313.shtml)
+- 2026-06-29 12:41 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.share.kurohicncr.top/Article/details/603234.shtml)
+- 2026-06-29 12:31 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](http://www.share.kurohicncr.top/Article/details/1080079.shtml)
+- 2026-06-29 12:25 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.blog.minike.top/Article/details/049542809.shtml)
+- 2026-06-29 12:42 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](http://www.share.kurohicncr.top/Article/details/3524900072.shtml)
+- 2026-06-29 12:52 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.blog.kurohicncr.top/Article/details/606091196.shtml)
+- 2026-06-29 12:41 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:33 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](https://github.com/lisacumin64-arch)

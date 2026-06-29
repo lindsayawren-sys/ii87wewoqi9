@@ -1,57 +1,47 @@
-# 中俄界江黑龙江呼玛段“文开江” 比往年早5天
+# 中国空间站：神二十一乘组在轨近200天 状态良好
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网大兴安岭4月26日电(王婷 孙晓寒 张娜)近期气温持续回升，25日，中俄界江黑龙江呼玛段开江，比往年早5天。 为保障黑龙江呼玛段平稳开江，有效防范凌汛发生，大兴安岭呼玛县在4月1日至4月2日期间，对易发生冰塞重点江段开展4800米防凌汛爆破作业，为江面平稳开江奠定坚实基础。当前，呼玛段冰层逐步消融，江面流冰有序流动。 据呼玛县水文勘测队队长高志军介绍，“受气温影响，今年呼
+发布时间：2026年05月18日 13:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网大兴安岭4月26日电(王婷 孙晓寒 张娜)近期气温持续回升，25日，中俄界江黑龙江呼玛段开江，比往年早5天。
-
-为保障黑龙江呼玛段平稳开江，有效防范凌汛发生，大兴安岭呼玛县在4月1日至4月2日期间，对易发生冰塞重点江段开展4800米防凌汛爆破作业，为江面平稳开江奠定坚实基础。
-
-当前，呼玛段冰层逐步消融，江面流冰有序流动。
-
-据呼玛县水文勘测队队长高志军介绍，“受气温影响，今年呼玛段开江日期是4月25号，比往年提前5天，开江方式为‘文开江’，流冰期间，我们水务部门增设了4处观测哨，24小时监测冰情、水情，防止凌汛发生。
-
-” 呼玛县界江跑冰排景观气势壮观，素有南有钱塘观潮，北有呼玛开江的说法，每年都会吸引大量游人前来观赏开江美景。
-
-呼玛县边境管理大队副大队长高晓磊表示，“我们采取车巡、步巡、无人机巡查相结合模式，紧盯各江段沿江观景平台、江畔公园等关键点位，布设警示标识，劝离涉险靠近江岸人员，排查沿线安全隐患，不间断开展安全提醒，筑牢边境沿江安全防线。
-
-”(完)
+发布时间：2026年05月18日 13:43 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 12:41 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 12:50 - [2岁幼童高铁突发惊厥呼吸骤停](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 12:33 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 12:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 12:29 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 12:43 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 12:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 12:50 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 12:38 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 12:44 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 12:35 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 12:38 - [刘宇宁现偶我就不要了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 12:48 - [深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:36 - [盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:37 - [廊坊银行股权变更获批 厦门国际银行持股比例达6.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:48 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:53 - [中央气象台今早继续发布暴雨黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:47 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:48 - [中外记者打卡合肥创新科技](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:52 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:32 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:28 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:44 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:38 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:52 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:34 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:40 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/471373.shtml)
-- 2026-06-29 12:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/830959226.shtml)
-- 2026-06-29 12:34 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/149849640.shtml)
-- 2026-06-29 12:37 - [本周做什么都顺的星座](https://www.blog.minike.top/Article/details/88943644004.shtml)
-- 2026-06-29 12:38 - [三轮车被自家狗“推”进池塘](https://www.share.minike.top/Article/details/323931.shtml)
-- 2026-06-29 12:48 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/51878.shtml)
-- 2026-06-29 12:40 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/951741907601.shtml)
-- 2026-06-29 12:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/85099.shtml)
-- 2026-06-29 12:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/574086041.shtml)
-- 2026-06-29 12:29 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/208488748828.shtml)
-- 2026-06-29 12:27 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/514428628227.shtml)
-- 2026-06-29 12:43 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/754000.shtml)
-- 2026-06-29 12:30 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.share.kurohicncr.top/Article/details/890096164.shtml)
-- 2026-06-29 12:28 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/01621074.shtml)
-- 2026-06-29 12:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4838212.shtml)
+- 2026-06-29 12:33 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.blog.minike.top/Article/details/942235.shtml)
+- 2026-06-29 12:48 - [西藏居然有三家公募基金](http://www.share.minike.top/Article/details/43683569.shtml)
+- 2026-06-29 12:36 - [M4Markets:金价剧震下蓄力新方向](http://www.blog.minike.top/Article/details/50352271.shtml)
+- 2026-06-29 12:32 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](http://www.share.minike.top/Article/details/713006423.shtml)
+- 2026-06-29 12:28 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](http://www.share.kurohicncr.top/Article/details/39182968498.shtml)
+- 2026-06-29 12:24 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.share.kurohicncr.top/Article/details/217515391.shtml)
+- 2026-06-29 12:46 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.blog.kurohicncr.top/Article/details/156934153.shtml)
+- 2026-06-29 12:34 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](http://www.blog.minike.top/Article/details/287203.shtml)
+- 2026-06-29 12:39 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](http://www.blog.kurohicncr.top/Article/details/2993501037.shtml)
+- 2026-06-29 12:53 - [缅甸发生5.2级地震 震源深度10千米](http://www.blog.minike.top/Article/details/4799053002.shtml)
+- 2026-06-29 12:47 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](http://www.blog.minike.top/Article/details/1919352281.shtml)

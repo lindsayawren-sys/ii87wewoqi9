@@ -1,57 +1,52 @@
-# “教会AI，你走人” 美三大科技巨头一个月裁员4.6万人，员工们都经历了什么？
+# 古巴国家主席说美对古军事威胁已构成国际犯罪
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-文 | 《硅谷观察》郑峻 这个月，美国三大科技巨头裁减了总计4.67万个工作岗位，都是因为AI。 一个普通的工作日，周二，数以万计的甲骨文员工早上打开工作邮件，看到了发件人为‘Oracle Leadership’的一封信。邮件发自清晨六点，只有五行，核心只有一句话：“经过审慎考量，公司决定取消您的职位，今天是您最后一个工作日。” 没有HR的事先通知，没有直属上司的提前谈话，没有
+新华社哈瓦那5月18日电(记者蒋彪 吴昊)古巴国家主席迪亚斯-卡内尔18日说，美国对古巴的军事侵略威胁已构成国际犯罪，一旦付诸实施，将引发一场后果难以估量的灾难，并将严重破坏地区和平与稳定。 迪亚斯-卡内尔在社交媒体发文说，古巴对美国并不构成威胁，也没有针对任何国家的侵略计划或意图。美国政府尤其是其国防和国家安全机构对此非常清楚。 迪亚斯-卡内尔还说，古巴拥有完全且正当的权利自
 
 ## 正文
 
-文 | 《硅谷观察》郑峻 这个月，美国三大科技巨头裁减了总计4.67万个工作岗位，都是因为AI。
+新华社哈瓦那5月18日电(记者蒋彪 吴昊)古巴国家主席迪亚斯-卡内尔18日说，美国对古巴的军事侵略威胁已构成国际犯罪，一旦付诸实施，将引发一场后果难以估量的灾难，并将严重破坏地区和平与稳定。
 
-一个普通的工作日，周二，数以万计的甲骨文员工早上打开工作邮件，看到了发件人为‘Oracle Leadership’的一封信。
+迪亚斯-卡内尔在社交媒体发文说，古巴对美国并不构成威胁，也没有针对任何国家的侵略计划或意图。
 
-邮件发自清晨六点，只有五行，核心只有一句话：“经过审慎考量，公司决定取消您的职位，今天是您最后一个工作日。
+美国政府尤其是其国防和国家安全机构对此非常清楚。
 
-” 没有HR的事先通知，没有直属上司的提前谈话，没有任何预兆。
+迪亚斯-卡内尔还说，古巴拥有完全且正当的权利自卫，以抵御任何军事攻击。
 
-这数万人就失去了工作。
+美方近期加大对古巴制裁，并多次威胁对古巴动武，包括声称将在美军结束对伊朗战事返回之际“接管古巴”。
 
-在看到邮件的同时，他们的权限已注销，再也无法登录公司系统，他们的门禁也失效了，再也无法进入办公室。
-
-就在那个早晨，甲骨文完成了其48年历史上规模最大的一次裁员：涉及人数估计在2万至3万之间，约占全球16.2万员工的18%。
-
-Reddit的甲骨文论坛和职场匿名论坛Blind很快被震惊与愤怒的帖子淹没——有人整个团队在一小时内全灭，有人工作了十几年，连一次面对面的告别都没有。
+古巴方面回应，美方军事侵略威胁升至“危险且前所未有的程度”，但古巴不会屈服，将坚决捍卫国家主权和独立。
 
 ## 相关推荐
 
-- 2026-06-29 12:33 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 12:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 12:49 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 12:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 12:35 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 12:36 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 12:21 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 12:47 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 12:45 - [国乒男单资格赛全员出局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 12:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 12:22 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 12:29 - [中外记者打卡合肥创新科技](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:37 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:32 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:33 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:44 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:42 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:38 - [渣打集团任命科斯特洛为首席财务官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:30 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:46 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:48 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/70248303560.shtml)
-- 2026-06-29 12:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/13401.shtml)
-- 2026-06-29 12:42 - [请回答王牌2019](https://www.share.minike.top/Article/details/973670170.shtml)
-- 2026-06-29 12:40 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.kurohicncr.top/Article/details/89746502014.shtml)
-- 2026-06-29 12:36 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/25525.shtml)
-- 2026-06-29 12:49 - [曝韩国球员目睹出局时正吃饭](http://www.share.kurohicncr.top/Article/details/5331083368.shtml)
-- 2026-06-29 12:27 - [詹姆斯下赛季会在哪里](https://www.blog.kurohicncr.top/Article/details/014605710929.shtml)
-- 2026-06-29 12:40 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/49096493246.shtml)
-- 2026-06-29 12:22 - [青春环游记第三季](https://www.share.minike.top/Article/details/43022472144.shtml)
-- 2026-06-29 12:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/87788.shtml)
-- 2026-06-29 12:50 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/47530484.shtml)
-- 2026-06-29 12:23 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/661382.shtml)
-- 2026-06-29 12:45 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/2227143.shtml)
-- 2026-06-29 12:31 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/6316916.shtml)
-- 2026-06-29 12:27 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/0947656380.shtml)
+- 2026-06-29 12:26 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.share.minike.top/Article/details/1829786.shtml)
+- 2026-06-29 12:46 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.share.kurohicncr.top/Article/details/32787.shtml)
+- 2026-06-29 12:36 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.share.kurohicncr.top/Article/details/9408299.shtml)
+- 2026-06-29 12:42 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](http://www.share.kurohicncr.top/Article/details/173906365640.shtml)
+- 2026-06-29 12:26 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](http://www.blog.kurohicncr.top/Article/details/85866734.shtml)
+- 2026-06-29 12:32 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](http://www.share.kurohicncr.top/Article/details/14760797067.shtml)
+- 2026-06-29 12:37 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [娄山观|谁说山地不能刚？贵州农业硬核登场](http://www.blog.kurohicncr.top/Article/details/9350910.shtml)
+- 2026-06-29 12:29 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](http://www.share.kurohicncr.top/Article/details/258554226135.shtml)
+- 2026-06-29 12:41 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](http://www.blog.kurohicncr.top/Article/details/346343727057.shtml)
+- 2026-06-29 12:25 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.blog.minike.top/Article/details/81750405430.shtml)
+- 2026-06-29 12:39 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.share.minike.top/Article/details/53905935484.shtml)
+- 2026-06-29 12:36 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](http://www.share.kurohicncr.top/Article/details/244384625422.shtml)

@@ -1,56 +1,50 @@
-# 关注“体验经济”丨看风景到入剧情 大运河“体验经济”升温
+# 广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。 这是一个开在博物馆里的“密室
+中新网柳州5月18日电 (陈梅)5月18日，广西柳州市抗震救灾指挥部介绍，截至当日11时10分，救援人员在该市柳南区太阳村镇太阳村社区受灾现场，成功搜救出最后一名被困人员。 经现场医护人员检查判定，该被困人员生命体征平稳，随即被送往医院接受进一步观察治疗。 中国地震台网正式测定：5月18日0时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源
 
 ## 正文
 
-新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。
+中新网柳州5月18日电 (陈梅)5月18日，广西柳州市抗震救灾指挥部介绍，截至当日11时10分，救援人员在该市柳南区太阳村镇太阳村社区受灾现场，成功搜救出最后一名被困人员。
 
-不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。
+经现场医护人员检查判定，该被困人员生命体征平稳，随即被送往医院接受进一步观察治疗。
 
-这是一个开在博物馆里的“密室逃脱”，孩子们需要根据墙上视频资料选择大运河正确路线，判断适合出行的船只，根据风向决定船帆朝向，用铅块在卷宗上拓印文字、清理淤泥、操作澳闸让船只通行等，每道关卡都藏着运河历史知识。
+中国地震台网正式测定：5月18日0时21分在广西柳州市柳南区(北纬24.38度，东经109.26度)发生5.2级地震，震源深度8千米。
 
-“孩子玩了一个多小时，居然能跟我大致讲清古代漕运怎么运作。
-
-”陪儿子“闯关”成功的徐州游客陈初感叹道，通过边玩边学，不知不觉就让孩子记住了很多知识点。
-
-当剧情成为注意力的锚点，用参与激发情感连接，文化不再是被灌输的知识，而是被亲身经历的记忆。
-
-改编自茅盾文学奖作品的电视剧《北上》的热播，让运河文化体验从博物馆的展厅“流淌”到更广阔的运河两岸。
-
-荧幕里，运河边的船来船往、青石板上的童年记忆、老茶馆里的家长里短，勾勒出一幅充满烟火气的水乡生活画卷。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 12:49 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 12:22 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 12:24 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 12:50 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 12:30 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 12:35 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 12:49 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 12:46 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 12:27 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 12:40 - [M4Markets:金价剧震下蓄力新方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:34 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:30 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:46 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:37 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:37 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:42 - [法国“戴高乐”号航母抵达阿拉伯海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:28 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:48 - [香港与韩国多机构相互签署备忘录 共推氢能生态系统发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:27 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:52 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:34 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/717522068515.shtml)
-- 2026-06-29 12:27 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/841501629327.shtml)
-- 2026-06-29 12:43 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/24147698.shtml)
-- 2026-06-29 12:50 - [未来5年 充电供热供暖将有大变化](http://www.blog.minike.top/Article/details/363990487.shtml)
-- 2026-06-29 12:39 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/364865074.shtml)
-- 2026-06-29 12:37 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/098879948.shtml)
-- 2026-06-29 12:30 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/043565664.shtml)
-- 2026-06-29 12:26 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.minike.top/Article/details/661926345.shtml)
-- 2026-06-29 12:25 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/716511.shtml)
-- 2026-06-29 12:23 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/1451888.shtml)
-- 2026-06-29 12:50 - [双高胎](http://www.blog.kurohicncr.top/Article/details/4758050182.shtml)
-- 2026-06-29 12:35 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/23453447.shtml)
-- 2026-06-29 12:23 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/65094327.shtml)
-- 2026-06-29 12:42 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/14843379.shtml)
-- 2026-06-29 12:23 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/348456547128.shtml)
+- 2026-06-29 12:41 - [公众科学日：水下仿生机器鱼展演栩栩如生](http://www.share.minike.top/Article/details/2762117.shtml)
+- 2026-06-29 12:33 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.share.minike.top/Article/details/93740.shtml)
+- 2026-06-29 12:33 - [吉利汽车因认股权获行使而发行13.28万股](http://www.share.minike.top/Article/details/11690793014.shtml)
+- 2026-06-29 12:52 - [中东部有大范围强降水 黄海海域有大雾](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](http://www.blog.minike.top/Article/details/2686959481.shtml)
+- 2026-06-29 12:31 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [中俄共绘教育合作新图景](http://www.share.minike.top/Article/details/718967052.shtml)
+- 2026-06-29 12:48 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](http://www.share.kurohicncr.top/Article/details/031833118779.shtml)
+- 2026-06-29 12:27 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](http://www.share.minike.top/Article/details/93121984.shtml)
+- 2026-06-29 12:35 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](http://www.blog.kurohicncr.top/Article/details/2531804442.shtml)
+- 2026-06-29 12:31 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](http://www.blog.kurohicncr.top/Article/details/515553623.shtml)
+- 2026-06-29 12:49 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.share.kurohicncr.top/Article/details/414045475756.shtml)
+- 2026-06-29 12:24 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lisacumin64-arch)

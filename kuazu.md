@@ -1,61 +1,60 @@
-# 近五千跑者穿行长城山河 北京怀柔长城100跑山赛雁栖湖畔举办
+# 小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电 2026凯乐石北京怀柔长城100跑山赛25日在雁栖湖畔鸣枪起跑，4900名跑者开启了一场跨越历史与自然的山野征程。作为北京今年首场百公里跑山赛事，本次比赛以“从北京怀柔跑向山河万里”为主题，吸引众多越野跑爱好者踏上长城、深入燕山，在奔跑中感受北京的自然与人文交融之美。 山河为卷，奔跑中遇见古今北京 本次赛事设置100公里、50公里、35公里及13公里“百
+摩根大通发布研报称，将阿里巴巴-W（09988）2027及2028财年经调整每股盈利预测分别上调4%及3%，以反映云端利润率前景改善。该行将阿里H股目标价由195港元上调至200港元，阿里（BABA.US）美股目标价则由200美元上调至205美元，均维持“增持”评级。 小摩对阿里巴巴未来12个月结构性增长信心升级。阿里披露3月底止末财季云端外部收入增长加速至40%，模型即服务（
 
 ## 正文
 
-中新网北京4月25日电 2026凯乐石北京怀柔长城100跑山赛25日在雁栖湖畔鸣枪起跑，4900名跑者开启了一场跨越历史与自然的山野征程。
+摩根大通发布研报称，将阿里巴巴-W（09988）2027及2028财年经调整每股盈利预测分别上调4%及3%，以反映云端利润率前景改善。
 
-作为北京今年首场百公里跑山赛事，本次比赛以“从北京怀柔跑向山河万里”为主题，吸引众多越野跑爱好者踏上长城、深入燕山，在奔跑中感受北京的自然与人文交融之美。
+该行将阿里H股目标价由195港元上调至200港元，阿里（BABA.US）美股目标价则由200美元上调至205美元，均维持“增持”评级。
 
-山河为卷，奔跑中遇见古今北京 本次赛事设置100公里、50公里、35公里及13公里“百里少年”四个组别，兼顾专业竞技与大众参与。
+小摩对阿里巴巴未来12个月结构性增长信心升级。
 
-跑者从雁栖湖畔出发，穿越林间、山脊与溪谷，将雁栖晨光、红螺芦影、慕田峪长城、摩崖石刻等怀柔经典景观尽收眼底。
+阿里披露3月底止末财季云端外部收入增长加速至40%，模型即服务（MaaS）的年度运行率（ARR）从超过80亿元人民币，有望在年底达到300亿元人民币。
 
-其中，在100公里组别的极限挑战中，参赛者直面慕田峪长城的险峻赛段，在累计长度超过4.6公里的爬升中展开一场身体与意志的考验。
+此外，云端业务EBITA利润率指引将在未来一至两个季度从9%提升至双位数，确立阿里云作为中国最大的AI及云端特许经营商地位，但市场现时仍以经典电商公司对阿里定价，意味阿里云业务价值尚未被充份定价。
 
-“站在长城上奔跑，是一种无法用语言形容的体验。
+该行指出，按分类加总估值法（SOTP）计算，阿里云的隐含价值远超目前合并股权中的定价。
 
-”来自100公里组的参赛选手孙先生表示，赛道设计巧妙地将自然风光与历史遗迹串联起来，尤其是在慕田峪段，远眺现代北京的天际线与古老长城交相辉映，那一刻深刻感受到这场赛事的精神内核。
+尽管市场仍存在路径风险，如客户管理收入（CMR）受抵减收入计划影响在四个季度内将面临约7个百分点的拖累，且资本回报信号尚未明确，但云端利润率的改善为短期主要催化剂。
 
-赛事总监杨龙介绍，赛道设计历经一年多的勘测规划，力求在保证赛事专业性的同时，让跑者能够沉浸式感受怀柔的山水长城文化。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 12:42 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 12:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 12:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 12:27 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:46 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 12:35 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 12:43 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 12:51 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 12:27 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 12:32 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:25 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 12:30 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 12:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 12:45 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 12:25 - [司法部、中国残联发布残疾人法律援助典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:45 - [在新疆兵团，葫芦雕刻何以“破圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:44 - [河北一高校博物馆独具特色 吸引民众观展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:49 - [香港赛马会2026年广州市“飞人杯”田径接力赛收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:28 - [古巴国家主席说美对古军事威胁已构成国际犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:47 - [深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:41 - [盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:45 - [廊坊银行股权变更获批 厦门国际银行持股比例达6.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:24 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:34 - [中央气象台今早继续发布暴雨黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:43 - [李强在北京调研时强调 推动人工智能与先进制造业深度融合 加快培育塑造经济发展新动能新优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:24 - [中外记者打卡合肥创新科技](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:39 - [广西扶绥：趣味体验为乡村文旅聚人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:36 - [AI伪造图骗“仅退款”事件频发 如何让有图依然有真相？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/1034242.shtml)
-- 2026-06-29 12:44 - [沙丘](https://www.share.kurohicncr.top/Article/details/1369913.shtml)
-- 2026-06-29 12:37 - [普京称俄处于命运攸关之际](http://www.share.kurohicncr.top/Article/details/679264633.shtml)
-- 2026-06-29 12:44 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/5642028766.shtml)
-- 2026-06-29 12:32 - [刘宇宁现偶我就不要了](https://www.share.kurohicncr.top/Article/details/95120545563.shtml)
-- 2026-06-29 12:28 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/71832168596.shtml)
-- 2026-06-29 12:50 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/2117764.shtml)
-- 2026-06-29 12:51 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/006721766363.shtml)
-- 2026-06-29 12:29 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/45649856.shtml)
-- 2026-06-29 12:49 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/62167.shtml)
-- 2026-06-29 12:46 - [吴海燕兰西雅漫步复兴岛](http://www.share.kurohicncr.top/Article/details/210213.shtml)
-- 2026-06-29 12:26 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/29465.shtml)
-- 2026-06-29 12:39 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/721299919.shtml)
-- 2026-06-29 12:27 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/722328774051.shtml)
-- 2026-06-29 12:24 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/3813212.shtml)
+- 2026-06-29 12:25 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](http://www.blog.minike.top/Article/details/359893177752.shtml)
+- 2026-06-29 12:29 - [特斯拉在美国上调Model Y车型的售价](http://www.blog.kurohicncr.top/Article/details/22026.shtml)
+- 2026-06-29 12:49 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](http://www.blog.minike.top/Article/details/81859979184.shtml)
+- 2026-06-29 12:47 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](http://www.share.kurohicncr.top/Article/details/86721.shtml)
+- 2026-06-29 12:50 - [原油：油价震荡上涨 美伊和平谈判再现波折](http://www.blog.minike.top/Article/details/64493841.shtml)
+- 2026-06-29 12:39 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.share.minike.top/Article/details/75739994.shtml)
+- 2026-06-29 12:52 - [西藏居然有三家公募基金](http://www.share.kurohicncr.top/Article/details/255610634422.shtml)
+- 2026-06-29 12:32 - [M4Markets:金价剧震下蓄力新方向](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [5月11日—5月17日国家铁路运输货物8198.9万吨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](http://www.blog.minike.top/Article/details/455545800205.shtml)
+- 2026-06-29 12:48 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.blog.minike.top/Article/details/4597555840.shtml)
+- 2026-06-29 12:32 - [地平线机器人斥资约5422万港元购回870万股，全部作为库存股份](http://www.blog.kurohicncr.top/Article/details/57816591.shtml)
+- 2026-06-29 12:36 - [法国“戴高乐”号航母抵达阿拉伯海](http://www.blog.minike.top/Article/details/957449659020.shtml)
+- 2026-06-29 12:42 - [苏炳添谈青少年田径训练：我们不是做不到 只是方式有待进步](http://www.blog.minike.top/Article/details/5478352581.shtml)

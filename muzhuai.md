@@ -1,53 +1,61 @@
-# 河北：从“一人来雄安”变为“全家来雄安”
+# 阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月27日 18:04 来源：中国新闻网 4月27日，河北省委副书记、省长王正谱在“开局起步‘十五五’”河北专场新闻发布会上表示，河北省将牢牢把握雄安新区功能定位，举全省之力建设新时代创新高地和推动高质量发展样板。 王正谱说，打造北京非首都功能疏解集中承载地，将围绕承接疏解、服务疏解、配套疏解、支撑疏解谋划做好工作，稳妥推进首批、第二批疏解项目建设，有序推
+此次收购价较 LiveRamp 上周五收盘价溢价 30% 内容速览 法国阳狮集团达成协议，以 25.5 亿美元收购美国数据平台 LiveRamp 控股公司，借此扩充自身人工智能业务版图。 阳狮集团宣布，已敲定收购美国数据平台 LiveRamp 控股公司的交易，交易金额达 25.5 亿美元，此举意在助力这家法国广告巨头拓展人工智能相关业务。 阳狮集团董事长兼首席执行官亚瑟・萨敦在
 
 ## 正文
 
-发布时间：2026年04月27日 18:04 来源：中国新闻网 4月27日，河北省委副书记、省长王正谱在“开局起步‘十五五’”河北专场新闻发布会上表示，河北省将牢牢把握雄安新区功能定位，举全省之力建设新时代创新高地和推动高质量发展样板。
+此次收购价较 LiveRamp 上周五收盘价溢价 30% 内容速览 法国阳狮集团达成协议，以 25.5 亿美元收购美国数据平台 LiveRamp 控股公司，借此扩充自身人工智能业务版图。
 
-王正谱说，打造北京非首都功能疏解集中承载地，将围绕承接疏解、服务疏解、配套疏解、支撑疏解谋划做好工作，稳妥推进首批、第二批疏解项目建设，有序推进第三批疏解项目落地，形成压茬推进的良好态势。
+阳狮集团宣布，已敲定收购美国数据平台 LiveRamp 控股公司的交易，交易金额达 25.5 亿美元，此举意在助力这家法国广告巨头拓展人工智能相关业务。
 
-进一步优化完善雄安新区的疏解政策，深化拓展京雄“同城化”事项，确保疏解对象的创业条件、居住条件、福利待遇不低于留在北京时的水平，从“一人来雄安”变为“全家来雄安”，以雄安为家、在新区扎根。
+阳狮集团董事长兼首席执行官亚瑟・萨敦在采访中表示，总部位于旧金山的 LiveRamp 能够为阳狮注入全新技术，助力客户搭建智能 AI 代理程序，为集团开辟全新业务市场。
 
-(赵安源 陈林 赵丹媚 制作 徐妙巧） 责任编辑：【周驰】
+当下各大大型广告集团均面临投资者施压，要求其证明自身能在人工智能主导的营销赛道持续站稳脚跟，阳狮也顺势推动业务重心向人工智能领域倾斜。
+
+这笔交易是阳狮自 2019 年斥资 44 亿美元从联合数据系统公司收购数据企业伊普西龙之后，规模最大的一笔收购，也打破了其此后数年只收购中小型企业的投资策略。
+
+两家企业周日联合公告称，阳狮将以每股 38.50 美元的现金价格收购 LiveRamp 股份，该价格较收购消息发布前最后一个交易日 —— 上周五的收盘价溢价 30%。
+
+LiveRamp 账面持有 3.79 亿美元净现金，本次交易对应的企业估值为 21.7 亿美元。
+
+周一欧洲早盘交易时段，阳狮集团股价最高上涨 5.8%；美股盘前交易中，LiveRamp 股价大涨 27%。
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 12:46 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 12:32 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 12:35 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 12:27 - [BW2026游览指南](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 12:38 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 12:22 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 12:49 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 12:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 12:26 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 12:37 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 12:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 12:45 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 12:50 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 12:51 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 12:35 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:53 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:52 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:28 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:49 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:49 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:32 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:26 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:50 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:26 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:32 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:38 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:39 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:46 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:40 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/3028015184.shtml)
-- 2026-06-29 12:51 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/5936367.shtml)
-- 2026-06-29 12:40 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/648109736212.shtml)
-- 2026-06-29 12:28 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/72593199.shtml)
-- 2026-06-29 12:45 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/4479501.shtml)
-- 2026-06-29 12:51 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/63662147369.shtml)
-- 2026-06-29 12:30 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/1146342474.shtml)
-- 2026-06-29 12:27 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/1122443622.shtml)
-- 2026-06-29 12:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/604463717706.shtml)
-- 2026-06-29 12:23 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/382360.shtml)
-- 2026-06-29 12:26 - [委内瑞拉强震致中国公民8遇难1失联](http://www.share.minike.top/Article/details/858213.shtml)
-- 2026-06-29 12:47 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/2097796.shtml)
-- 2026-06-29 12:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/138982857530.shtml)
-- 2026-06-29 12:30 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.minike.top/Article/details/499981221764.shtml)
-- 2026-06-29 12:46 - [向佑说向佐是一生依靠](https://www.share.kurohicncr.top/Article/details/30759184114.shtml)
+- 2026-06-29 12:33 - [A股，重磅新规！千家公司面临调整](http://www.share.minike.top/Article/details/432561.shtml)
+- 2026-06-29 12:30 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.blog.kurohicncr.top/Article/details/18996140502.shtml)
+- 2026-06-29 12:34 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.share.kurohicncr.top/Article/details/1155069.shtml)
+- 2026-06-29 12:24 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](http://www.share.minike.top/Article/details/789544009.shtml)
+- 2026-06-29 12:39 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.share.minike.top/Article/details/5395756558.shtml)
+- 2026-06-29 12:34 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.share.minike.top/Article/details/202871986478.shtml)
+- 2026-06-29 12:34 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](http://www.blog.minike.top/Article/details/209790.shtml)
+- 2026-06-29 12:50 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.blog.minike.top/Article/details/194751.shtml)
+- 2026-06-29 12:26 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.minike.top/Article/details/697450581.shtml)
+- 2026-06-29 12:48 - [从过去探寻未来](http://www.blog.kurohicncr.top/Article/details/89427.shtml)
+- 2026-06-29 12:41 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.share.minike.top/Article/details/020495331355.shtml)
+- 2026-06-29 12:38 - [金价回落 后市怎么走？](http://www.share.kurohicncr.top/Article/details/19756844665.shtml)
+- 2026-06-29 12:30 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.share.minike.top/Article/details/3846281086.shtml)
+- 2026-06-29 12:36 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.share.kurohicncr.top/Article/details/3376827.shtml)

@@ -1,49 +1,53 @@
-# 氦气供应紧张威胁芯片产业
+# 美国长债收益率创2023年以来新高 受通胀疑虑影响
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-霍尔木兹海峡周边的动荡以及卡塔尔液化天然气产量削减已导致氦气供应趋紧，这可能给台积电等代工厂带来成本上升和延误风险。责任编辑：张俊 SF065
+美国国债期限最长债券的收益率升至近三年来的最高水准，投资人对通胀加速的疑虑引发全球债务抛售。 美国总统唐纳德·特朗普对伊朗新的施压以达成一项协议、结束持续数周的战争，受此影响，油价延续涨势，30年期美国国债收益率上升3个基点至5.15%。除2023年10月一段短暂的上涨外，长债收益率自2007年以来未曾升至这种水准。 日本30年期国债收益率急升20个基点，这是该国债自1999年
 
 ## 正文
 
-霍尔木兹海峡周边的动荡以及卡塔尔液化天然气产量削减已导致氦气供应趋紧，这可能给台积电等代工厂带来成本上升和延误风险。
+美国国债期限最长债券的收益率升至近三年来的最高水准，投资人对通胀加速的疑虑引发全球债务抛售。
 
-责任编辑：张俊 SF065
+美国总统唐纳德·特朗普对伊朗新的施压以达成一项协议、结束持续数周的战争，受此影响，油价延续涨势，30年期美国国债收益率上升3个基点至5.15%。
+
+除2023年10月一段短暂的上涨外，长债收益率自2007年以来未曾升至这种水准。
+
+日本30年期国债收益率急升20个基点，这是该国债自1999年推出以来的最高。
+
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 12:48 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 12:22 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 12:47 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:33 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 12:40 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 12:26 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 12:48 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 12:45 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 12:27 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 12:37 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 12:46 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 12:40 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 12:33 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 12:30 - [小学生叠纸青蛙跳2.52米 创世界纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 12:28 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:43 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:42 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:26 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:38 - [2025年全国博物馆接待观众15.6亿人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:52 - [2026年中国公路自行车联赛（北京·昌平）落幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:25 - [去年全国核发绿证超过29亿个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:26 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:34 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:52 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:38 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:48 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:26 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:34 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/47619107.shtml)
-- 2026-06-29 12:26 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/4880213863.shtml)
-- 2026-06-29 12:29 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/529783471.shtml)
-- 2026-06-29 12:35 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/571851.shtml)
-- 2026-06-29 12:46 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/0441698703.shtml)
-- 2026-06-29 12:33 - [青春环游记第三季](http://www.blog.minike.top/Article/details/651944836733.shtml)
-- 2026-06-29 12:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/46707.shtml)
-- 2026-06-29 12:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/987582.shtml)
-- 2026-06-29 12:41 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/86244215561.shtml)
-- 2026-06-29 12:33 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/7096684.shtml)
-- 2026-06-29 12:26 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.kurohicncr.top/Article/details/02587.shtml)
-- 2026-06-29 12:31 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/39935069812.shtml)
-- 2026-06-29 12:27 - [马杜罗社交媒体账号再发文](http://www.share.kurohicncr.top/Article/details/004570.shtml)
-- 2026-06-29 12:37 - [《贺子珍》](https://www.share.minike.top/Article/details/42737002.shtml)
-- 2026-06-29 12:35 - [赵今麦客串电影版开端](https://www.blog.minike.top/Article/details/349882370.shtml)
+- 2026-06-29 12:34 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [中信证券：调整何解？重建杠铃结构](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:24 - [A股，重磅新规！千家公司面临调整](http://www.blog.minike.top/Article/details/556542311.shtml)
+- 2026-06-29 12:24 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](http://www.blog.kurohicncr.top/Article/details/07986550125.shtml)
+- 2026-06-29 12:45 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](http://www.blog.minike.top/Article/details/75438861.shtml)
+- 2026-06-29 12:39 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](http://www.share.kurohicncr.top/Article/details/433103747373.shtml)
+- 2026-06-29 12:34 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](http://www.share.minike.top/Article/details/1511699.shtml)
+- 2026-06-29 12:39 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/0706592.shtml)
+- 2026-06-29 12:53 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.kurohicncr.top/Article/details/50790020.shtml)
+- 2026-06-29 12:27 - [从过去探寻未来](http://www.share.minike.top/Article/details/82276554984.shtml)
+- 2026-06-29 12:25 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.blog.minike.top/Article/details/88252999.shtml)
+- 2026-06-29 12:36 - [金价回落 后市怎么走？](https://github.com/lisacumin64-arch)

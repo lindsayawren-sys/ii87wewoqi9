@@ -1,55 +1,56 @@
-# 第34届白玉兰戏剧奖揭晓 伊莎贝拉·于佩尔等十人获主角奖
+# 2026年谷歌开发者大会召开在即 AI端侧有望迎短期关注(附概念股)
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月25日 14:54 来源：中国新闻网 4月24日晚，第34届上海白玉兰戏剧表演艺术奖(以下简称“白玉兰戏剧奖”)颁奖晚会在上海文化广场举行，伊莎贝拉·于佩尔(Isabelle Huppert)、刘守正、江珊、李嘉宜、张亚鸽、张梓溪、郝帅、侯红琴、焦媛、谢莉莉获本届白玉兰戏剧奖主角奖。 法国国宝级演员伊莎贝拉·于佩尔凭借法语话剧《樱桃园》摘得“白玉兰”。
+智通财经APP获悉，2026谷歌I/O开发者大会将于5月19日至20日在美国加州举行，大会聚焦人工智能与移动生态，核心内容包括Gemini3模型的展示、AI与Android17的深度整合，以及智能AI眼镜的发布。这一行业风向标事件，预计将为AI端侧带来显著的短期关注与长期发展预期。 业内普遍判断，本届I/O大概率不会出现Gemini 4.0级别的跨越式迭代，3.2/3.5小幅更
 
 ## 正文
 
-发布时间：2026年04月25日 14:54 来源：中国新闻网 4月24日晚，第34届上海白玉兰戏剧表演艺术奖(以下简称“白玉兰戏剧奖”)颁奖晚会在上海文化广场举行，伊莎贝拉·于佩尔(Isabelle Huppert)、刘守正、江珊、李嘉宜、张亚鸽、张梓溪、郝帅、侯红琴、焦媛、谢莉莉获本届白玉兰戏剧奖主角奖。
+智通财经APP获悉，2026谷歌I/O开发者大会将于5月19日至20日在美国加州举行，大会聚焦人工智能与移动生态，核心内容包括Gemini3模型的展示、AI与Android17的深度整合，以及智能AI眼镜的发布。
 
-法国国宝级演员伊莎贝拉·于佩尔凭借法语话剧《樱桃园》摘得“白玉兰”。
+这一行业风向标事件，预计将为AI端侧带来显著的短期关注与长期发展预期。
 
-她在剧中塑造了一个立体复杂的柳鲍芙，赋予角色现代疏离感，以松弛自然又极具张力的独特表演质感，为经典剧目注入了新的活力。
+业内普遍判断，本届I/O大概率不会出现Gemini 4.0级别的跨越式迭代，3.2/3.5小幅更新的可能性更高。
 
-值得一提的是，本届白玉兰戏剧奖将特殊贡献奖授予上海昆剧团“昆大班”的王芝泉、方洋、计镇华、张洵澎、张铭荣、岳美缇、梁谷音、蔡正仁。
+本次Gemini系更新，预计以务实优化为主，走平稳迭代路线。
 
-72年前的春天，一群12岁左右的少年走进华东戏曲研究院昆曲演员训练班，成为新中国培养的第一批昆曲人才——“昆大班”。
+大概率会小幅拉长上下文处理能力，更好适配长文本、长视频解析。
 
-记者王笈 徐银 康玉湛上海报道 责任编辑：【叶攀】
+同时重点提速、降功耗，强化端侧轻量化表现，让更多中低端安卓机型也能流畅运行本地AI功能，减少云端依赖，兼顾响应速度与隐私安全。
+
+整体看，更像体验完善，而非底层重构。
+
+AI与Android17的深度整合方面：首先是安卓与Gemini的深度绑定。
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 12:34 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:44 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 12:50 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 12:44 - [乌拉圭出局之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 12:39 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 12:38 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 12:47 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 12:44 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 12:33 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 12:42 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 12:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 12:36 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 12:49 - [2026年好用的基金实时估值工具有哪些？推荐一下这款靠谱的APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:41 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:41 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:48 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:48 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:51 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:42 - [日本央行前行长白川方明：人口结构与经济增长相辅相成，AI可助力应对老龄化挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:44 - [特朗普撤销对美国国税局的100亿美元诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:43 - [国泰海通证券：腾讯控股维持“增持”评级 目标价613港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:48 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:29 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/84176.shtml)
-- 2026-06-29 12:34 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/79580745578.shtml)
-- 2026-06-29 12:36 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/724765.shtml)
-- 2026-06-29 12:36 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/303761275.shtml)
-- 2026-06-29 12:39 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.kurohicncr.top/Article/details/705885671699.shtml)
-- 2026-06-29 12:33 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/059154027.shtml)
-- 2026-06-29 12:36 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/993386682295.shtml)
-- 2026-06-29 12:32 - [恋与深空底线不该被娱乐化](http://www.blog.minike.top/Article/details/072098.shtml)
-- 2026-06-29 12:36 - [天道](https://www.blog.minike.top/Article/details/87604.shtml)
-- 2026-06-29 12:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/778450619519.shtml)
-- 2026-06-29 12:25 - [天津打雷](http://www.share.kurohicncr.top/Article/details/782461653.shtml)
-- 2026-06-29 12:47 - [小娘惹](https://www.share.minike.top/Article/details/29274518.shtml)
-- 2026-06-29 12:29 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/092424170535.shtml)
-- 2026-06-29 12:38 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/40579488.shtml)
-- 2026-06-29 12:46 - [三都主：淘汰赛我会支持日本](http://www.share.kurohicncr.top/Article/details/44081.shtml)
+- 2026-06-29 12:40 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](http://www.blog.kurohicncr.top/Article/details/180118.shtml)
+- 2026-06-29 12:31 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](http://www.share.minike.top/Article/details/719888761006.shtml)
+- 2026-06-29 12:39 - [债券市场异动预示利率或将大幅走高](http://www.share.kurohicncr.top/Article/details/736347933356.shtml)
+- 2026-06-29 12:24 - [微视频｜在文化遗存前 总书记驻足凝视](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [我国成功发射千帆星座第9批组网卫星](http://www.blog.kurohicncr.top/Article/details/88625430.shtml)
+- 2026-06-29 12:52 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.share.minike.top/Article/details/059306132183.shtml)
+- 2026-06-29 12:38 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.share.minike.top/Article/details/999920.shtml)
+- 2026-06-29 12:47 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.share.minike.top/Article/details/435864992799.shtml)
+- 2026-06-29 12:40 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.blog.minike.top/Article/details/166777318.shtml)
+- 2026-06-29 12:52 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](http://www.share.kurohicncr.top/Article/details/211163821.shtml)
+- 2026-06-29 12:40 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.blog.kurohicncr.top/Article/details/093802583136.shtml)
+- 2026-06-29 12:39 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [河南省举办高校残疾大学生就业双选会](http://www.share.kurohicncr.top/Article/details/817694333323.shtml)
+- 2026-06-29 12:35 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.kurohicncr.top/Article/details/909695859011.shtml)

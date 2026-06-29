@@ -1,61 +1,60 @@
-# 焦点访谈｜从乡村书院到菜市书屋 全民阅读绘就文化新图景
+# 广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-央视网消息(焦点访谈)：4月20日，全国首个“全民阅读活动周”与第五届全民阅读大会同步启幕。“人民群众多读书，我们的民族精神就会厚重起来、深邃起来。”党的十八大以来，习近平总书记高度重视全民阅读，作出了一系列重要指示批示，为全民阅读提供的公共服务越来越完善。2025年的统计显示，全国共有公共图书馆3253个，人均图书拥有量7.71册，这些公共图书馆全都免费向公众开放。4月25日
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。 在对话环节中，有观点提出，新能源智能网联汽越来越像快消品，消费者换车周期从过去的“十年八年”缩短至五年、三年甚至更短，似乎对安全和质量的坚守有所松动。 对此，广汽集团党委书记、董事长冯兴亚回应表示，品质始终是汽车产业的底线，也是自主品牌的“节操”。他指出，虽然首
 
 ## 正文
 
-央视网消息(焦点访谈)：4月20日，全国首个“全民阅读活动周”与第五届全民阅读大会同步启幕。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-“人民群众多读书，我们的民族精神就会厚重起来、深邃起来。
+在对话环节中，有观点提出，新能源智能网联汽越来越像快消品，消费者换车周期从过去的“十年八年”缩短至五年、三年甚至更短，似乎对安全和质量的坚守有所松动。
 
-”党的十八大以来，习近平总书记高度重视全民阅读，作出了一系列重要指示批示，为全民阅读提供的公共服务越来越完善。
+对此，广汽集团党委书记、董事长冯兴亚回应表示，品质始终是汽车产业的底线，也是自主品牌的“节操”。
 
-2025年的统计显示，全国共有公共图书馆3253个，人均图书拥有量7.71册，这些公共图书馆全都免费向公众开放。
+他指出，虽然首任车主换车周期变短，但淘汰下来的车辆并不会报废，而是会进入二手车市场，由下一任车主继续使用八年到十年。
 
-4月25日，我们首先来到江西，向您介绍一位热爱阅读、创办书院服务乡亲的基层阅读推广人。
+“对下一任车主来说，在未来八年到十年的使用过程中，这辆车的品质问题，对其用车体验和价值会产生直接影响。
 
-袁宇是江西省万载县里泉村村民，其另一个身份是万载县文宇阁书院院长。
+” 冯兴亚强调，品质直接决定了二手车的残值。
 
-他喜欢收集书，更喜欢读书，他与书的不解之缘是从小就结下的。
+“如果一辆车品质好，它在二手车处理时的价值就高。
 
-江西省基层阅读推广人、江西省万载县文宇阁书院院长袁宇：“小时候印象特别深，我10岁生日那天，家里一位亲戚送了一套《西游记》小人书给我，当时特别开心，比吃了蛋糕还更开心。
+这就像把钱存到银行一样，你买的时候可能贵了一点点，比如一万块钱，但等到两年后、三年后、五年后卖车时，这一万块钱甚至更多的价值就能收回来。
 
 ## 相关推荐
 
-- 2026-06-29 12:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 12:37 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 12:23 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 12:25 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 12:47 - [某高校学生被辅导员等人扭送至公安](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 12:44 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:24 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 12:23 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 12:28 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 12:39 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 12:36 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 12:25 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 12:51 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 12:35 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 12:41 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 12:53 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:43 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:49 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:49 - [中信证券：调整何解？重建杠铃结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:39 - [A股，重磅新规！千家公司面临调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:43 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:34 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:38 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:25 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:24 - [金正恩要求加强守卫南部边境的一线部队 “把边界筑成坚不可摧的要塞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:43 - [伊朗将公布霍尔木兹海峡通行管理“新机制” “新机制”新在哪儿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:30 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:52 - [意大利北部发生汽车冲撞行人事件 8人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:49 - [《给阿嬷的情书》里的20封信，感动收藏！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/66222710.shtml)
-- 2026-06-29 12:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/935240.shtml)
-- 2026-06-29 12:22 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/4580820204.shtml)
-- 2026-06-29 12:40 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/504254.shtml)
-- 2026-06-29 12:33 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/64795289.shtml)
-- 2026-06-29 12:30 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/437963175481.shtml)
-- 2026-06-29 12:34 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/798108479057.shtml)
-- 2026-06-29 12:34 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/1630814672.shtml)
-- 2026-06-29 12:27 - [宜宾5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/389395.shtml)
-- 2026-06-29 12:51 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/5217350666.shtml)
-- 2026-06-29 12:39 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/440970.shtml)
-- 2026-06-29 12:24 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/52058783926.shtml)
-- 2026-06-29 12:27 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/55419.shtml)
-- 2026-06-29 12:32 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/5654460021.shtml)
-- 2026-06-29 12:43 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/012018796866.shtml)
+- 2026-06-29 12:40 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](http://www.share.minike.top/Article/details/47292168.shtml)
+- 2026-06-29 12:45 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:34 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](http://www.blog.kurohicncr.top/Article/details/88841311.shtml)
+- 2026-06-29 12:53 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](http://www.blog.kurohicncr.top/Article/details/387280.shtml)
+- 2026-06-29 12:35 - [2026广东省定向公开赛（广州·增城站）举行](http://www.share.minike.top/Article/details/9557659510.shtml)
+- 2026-06-29 12:41 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](http://www.share.kurohicncr.top/Article/details/44440578.shtml)
+- 2026-06-29 12:46 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](http://www.blog.minike.top/Article/details/642242.shtml)
+- 2026-06-29 12:34 - [30年期美债收益率重返5% 见顶还是新开始？](http://www.share.kurohicncr.top/Article/details/81621.shtml)
+- 2026-06-29 12:48 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.share.minike.top/Article/details/81512.shtml)
+- 2026-06-29 12:51 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](http://www.share.kurohicncr.top/Article/details/28267303.shtml)
+- 2026-06-29 12:29 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](http://www.blog.minike.top/Article/details/717495443.shtml)
+- 2026-06-29 12:39 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](http://www.blog.kurohicncr.top/Article/details/5740078178.shtml)

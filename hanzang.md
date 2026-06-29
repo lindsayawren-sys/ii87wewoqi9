@@ -1,57 +1,46 @@
-# 邦达亚洲:美元回落油价攀升 美元加元小幅收跌
+# 国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-4月27日，受中东地区原油产量下降的影响，高盛已将第四季度布伦特原油价格预期上调至每桶90美元，将美国西德克萨斯中质原油（WTI）价格预测上调至每桶83美元。 以Daan Struyven为首的高盛分析师团队在4月26日的一份研报中指出：“由于油价面临净上行风险、成品油价格异常高企、油品短缺风险以及此次冲击的规模史无前例，经济面临的风险比我们仅基于原油基准情形所预测的要更大。”
+中新网5月18日电 据应急管理部官方微博消息，5月18日，国家防总办公室、应急管理部继续组织联合会商，会同中国气象局、水利部、自然资源部研判雨情汛情发展态势，部署进一步压紧压实防汛责任，加强涉水路段和漫水桥安全度汛管理，全力做好中小河流洪水、山洪地质灾害、中小水库度汛、城市内涝等防范应对工作，提前果断组织人员转移避险，切实保障人民群众生命财产安全。 国家防总5月18日11时针对
 
 ## 正文
 
-4月27日，受中东地区原油产量下降的影响，高盛已将第四季度布伦特原油价格预期上调至每桶90美元，将美国西德克萨斯中质原油（WTI）价格预测上调至每桶83美元。
+中新网5月18日电 据应急管理部官方微博消息，5月18日，国家防总办公室、应急管理部继续组织联合会商，会同中国气象局、水利部、自然资源部研判雨情汛情发展态势，部署进一步压紧压实防汛责任，加强涉水路段和漫水桥安全度汛管理，全力做好中小河流洪水、山洪地质灾害、中小水库度汛、城市内涝等防范应对工作，提前果断组织人员转移避险，切实保障人民群众生命财产安全。
 
-以Daan Struyven为首的高盛分析师团队在4月26日的一份研报中指出：“由于油价面临净上行风险、成品油价格异常高企、油品短缺风险以及此次冲击的规模史无前例，经济面临的风险比我们仅基于原油基准情形所预测的要更大。
+国家防总5月18日11时针对湖南、广西启动防汛四级应急响应，继续维持针对湖北、重庆、贵州的防汛四级应急响应。
 
-” 目前的预测假设霍尔木兹海峡的出口将在6月底恢复正常，且海湾地区的产量复苏将更为缓慢。
-
-高盛估计，中东地区1450万桶/日的原油产量损失，正推动全球石油库存在4月份以创纪录的1100万至1200万桶/日的速度被消耗。
-
-另外，日本央行预计将在本周会议上维持利率在0.75%不变，但市场不排除政策措辞偏鹰的可能性。
-
-当前日本面临能源价格上涨带来的通胀压力，同时中东局势不确定性加剧，使政策制定者在经济增长与通胀之间保持谨慎平衡。
-
-与此同时，日本方面对日元持续贬值表现出高度关注。
-
-日本财务大臣公开表示，对由投机推动的日元走弱保持“高度紧迫感”，市场对潜在干预的预期明显升温。
+国家防总办公室、国家防灾减灾救灾委员会办公室18日加派2个工作组分赴湖北、湖南协助指导防汛救灾工作，前期派出的工作组继续在广西一线协助指导河池环江县车辆坠河人员搜救工作。
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 12:49 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 12:28 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 12:38 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 12:47 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 12:22 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 12:32 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 12:40 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 12:45 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:21 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 12:47 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 12:39 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:53 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:49 - [雅加达发现3例汉坦病毒病例 另有6例疑似病例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:28 - [清华五道口金融学院焦捷：中国稳步推进全球金融治理优化升级 全力推进金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:25 - [外资企业投资中国提质升级 转向“融入发展”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:41 - [长鑫科技半年赚超500亿，芯片大佬朱一明成大赢家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:46 - [中国汽车专利公开量全球领先 新能源领域年均增长率17.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:52 - [长鑫科技半年500亿，是怎么赚出来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:34 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:27 - [中俄林业教育科技产业创新联盟成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/789886.shtml)
-- 2026-06-29 12:28 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/4826619.shtml)
-- 2026-06-29 12:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/004310058922.shtml)
-- 2026-06-29 12:35 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/984326189092.shtml)
-- 2026-06-29 12:27 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/1969638035.shtml)
-- 2026-06-29 12:42 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://www.blog.minike.top/Article/details/123400.shtml)
-- 2026-06-29 12:38 - [大罗力挺内马尔](http://www.blog.kurohicncr.top/Article/details/98739017.shtml)
-- 2026-06-29 12:30 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/20964645871.shtml)
-- 2026-06-29 12:40 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/27552301.shtml)
-- 2026-06-29 12:31 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/9411705.shtml)
-- 2026-06-29 12:26 - [一见倾心](https://www.blog.minike.top/Article/details/944882974657.shtml)
-- 2026-06-29 12:30 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/1556453591.shtml)
-- 2026-06-29 12:47 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/4502363.shtml)
-- 2026-06-29 12:40 - [日本媒体：板仓滉已回归日本队合练](https://www.share.minike.top/Article/details/25141296.shtml)
-- 2026-06-29 12:24 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/742348706.shtml)
+- 2026-06-29 12:42 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.blog.kurohicncr.top/Article/details/420977.shtml)
+- 2026-06-29 12:37 - [军工板块三连跌，中国船舶重挫6%！华宝基金军工ETF（512810）下探半年线，场内频现溢价！](http://www.share.kurohicncr.top/Article/details/575071.shtml)
+- 2026-06-29 12:52 - [从史前器物到族群记忆：台湾少数民族同胞探寻两岸共同源流](http://www.blog.kurohicncr.top/Article/details/3480144050.shtml)
+- 2026-06-29 12:38 - [消息称G6上市近两年后 小鹏X9也已获准在澳大利亚销售](http://www.blog.minike.top/Article/details/80358962231.shtml)
+- 2026-06-29 12:32 - [大雾黄色预警：河北浙江等地部分地区有大雾](http://www.share.kurohicncr.top/Article/details/71470119.shtml)
+- 2026-06-29 12:36 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](http://www.blog.kurohicncr.top/Article/details/46056.shtml)
+- 2026-06-29 12:25 - [从骨笛到古琴：8000年中国音乐史在呼和浩特“开声”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [司法部、中国残联联合发布残疾人法律援助典型案例](http://www.blog.minike.top/Article/details/77684370009.shtml)
+- 2026-06-29 12:38 - [业绩炸裂！存储芯片龙头净利预增2244%](http://www.blog.minike.top/Article/details/517644.shtml)
+- 2026-06-29 12:52 - [德银天下于5月15日斥资570.94万港元回购150万股](http://www.blog.minike.top/Article/details/24416735753.shtml)
+- 2026-06-29 12:39 - [国家统计局：国际原油价格波动对国内消费价格影响有限、可控](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [中企承建的阿斯塔纳轻轨投入运营](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [中蒙将举行“草原伙伴-2026”陆军联训](http://www.blog.kurohicncr.top/Article/details/38905160.shtml)
+- 2026-06-29 12:39 - [四川华蓥公布瀑布秋千事故初步调查结果：员工临场处置不当、释放开关提前松开](http://www.blog.kurohicncr.top/Article/details/678400001.shtml)
+- 2026-06-29 12:33 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](http://www.blog.kurohicncr.top/Article/details/859260413446.shtml)

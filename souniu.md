@@ -1,59 +1,57 @@
-# 国内首套殷墟考古启蒙绘本在河南安阳发布
+# 酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网安阳4月25日电 (记者 李超庆)国内首套面向青少年的殷墟考古启蒙绘本——“跟着考古队长探秘殷墟”系列绘本24日在河南安阳正式发布。 “跟着考古队长探秘殷墟”系列绘本由中国社会科学院考古研究所安阳工作站站长何毓灵担任主编。创作团队中既有田野考古一线的年轻队员，也有考古学博士、教授；绘画者则来自“75后”至“00后”的新锐力量。 殷墟距今已有3300多年，是中国历史上第一个
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。市场延续强势上攻，终端交投情绪升温，茅
 
 ## 正文
 
-中新网安阳4月25日电 (记者 李超庆)国内首套面向青少年的殷墟考古启蒙绘本——“跟着考古队长探秘殷墟”系列绘本24日在河南安阳正式发布。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。
 
-“跟着考古队长探秘殷墟”系列绘本由中国社会科学院考古研究所安阳工作站站长何毓灵担任主编。
+如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。
 
-创作团队中既有田野考古一线的年轻队员，也有考古学博士、教授；绘画者则来自“75后”至“00后”的新锐力量。
+市场延续强势上攻，终端交投情绪升温，茅台系及其他酱香品种的表现尤为突出。
 
-殷墟距今已有3300多年，是中国历史上第一个有文献可考、并被考古发掘所证实的商代晚期都城遗址。
+今日白酒市场11大单品九涨两跌，赢家占据绝对优势。
 
-作为中华文明探源的重要坐标，殷墟所承载的商文明，长期以来多以专业考古报告的形式呈现。
+上涨方面，精品茅台的涨幅居前，大幅上涨21元/瓶至2425元，创下近一月最大增幅，价格再创近一个月新高，i茅台16日提价效应持续向终端传导；国窖1573与古井贡古20均上涨6元/瓶，前者创近一月最高价格纪录；习酒君品、青花郎及青花汾20均上涨5元/瓶，其中青花郎亦创下近一月最高价纪录；飞天茅台上涨3元/瓶，固守在1740元上方；五粮液普五八代与五粮液1618均小幅上涨1元/瓶。
 
-“考古报告因专业术语艰涩、发行量不大，就像老中医开的药方，很难被普通人看懂。
+下跌方面，洋河梦之蓝M6+与水晶剑南春均下跌3元/瓶，前者终结此前的六连阳，连续上涨累积了一定卖盘压力，但今日价格仍处于月内次高位。
 
-”何毓灵在接受记者采访时表示，如何让殷墟文物与商文明从学术语言走向公众表达，让文化遗产真正“活起来”，是创作团队推出这套绘本的初衷。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-目前，该系列绘本已出版《和商王并肩的女战神》《大邑商博物馆奇幻夜》《大邑商“第一萌宠”诞生记》《子商上学记》《商王的宴请：吃在大邑商》等五种。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 12:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 12:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 12:28 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 12:36 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 12:22 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 12:22 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:42 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 12:23 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 12:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 12:44 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 12:44 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 12:40 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 12:39 - [两岸城市摄影展台北开幕 逾百幅作品呈现风土人情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:53 - [南京银行：董事王厚印辞任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:33 - [广西北海海上风电单桩基础设备出运越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:42 - [伊朗战争重创全球富庶强国之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:52 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:33 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:52 - [最高法、中国残联发布第二批残疾人诉讼服务和多元解纷典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:35 - [北京三里屯UR玻璃会看到裙底？最新回应：已经做处理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:44 - [李大霄：5月18日美债收益率破5%暗藏的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:51 - [中国空间站：神二十一乘组在轨近200天 状态良好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:27 - [Boskalis投资新建高容量电缆铺设船，瞄准海上风电与互联市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/386883610104.shtml)
-- 2026-06-29 12:27 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.kurohicncr.top/Article/details/8801218350.shtml)
-- 2026-06-29 12:34 - [岭南电影为何迎来“南方热”](http://www.share.minike.top/Article/details/259402.shtml)
-- 2026-06-29 12:24 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/041518151812.shtml)
-- 2026-06-29 12:46 - [男子偶遇婴儿被锁车内大哭挣扎](https://www.share.minike.top/Article/details/08936103.shtml)
-- 2026-06-29 12:30 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/418686331322.shtml)
-- 2026-06-29 12:32 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/28807.shtml)
-- 2026-06-29 12:23 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/1177922.shtml)
-- 2026-06-29 12:35 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/114693937.shtml)
-- 2026-06-29 12:27 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/94156616.shtml)
-- 2026-06-29 12:43 - [马斯克也站到了光里](https://www.share.minike.top/Article/details/706349564.shtml)
-- 2026-06-29 12:44 - [女子拍邻居家中裸照发业主群](http://www.blog.kurohicncr.top/Article/details/95207960452.shtml)
-- 2026-06-29 12:33 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/043779303549.shtml)
-- 2026-06-29 12:27 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/658143267557.shtml)
-- 2026-06-29 12:32 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/692454752524.shtml)
+- 2026-06-29 12:53 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.blog.kurohicncr.top/Article/details/82971.shtml)
+- 2026-06-29 12:29 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.share.kurohicncr.top/Article/details/372826562165.shtml)
+- 2026-06-29 12:35 - [河南省举办高校残疾大学生就业双选会](http://www.blog.kurohicncr.top/Article/details/12990.shtml)
+- 2026-06-29 12:45 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](http://www.share.minike.top/Article/details/321329.shtml)
+- 2026-06-29 12:26 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](http://www.share.kurohicncr.top/Article/details/4999646326.shtml)
+- 2026-06-29 12:40 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](http://www.blog.kurohicncr.top/Article/details/2664377.shtml)
+- 2026-06-29 12:46 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](http://www.blog.kurohicncr.top/Article/details/6785384139.shtml)
+- 2026-06-29 12:45 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:31 - [特斯拉在美国上调Model Y车型的售价](http://www.blog.kurohicncr.top/Article/details/98167481.shtml)
+- 2026-06-29 12:51 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](http://www.blog.minike.top/Article/details/48806362950.shtml)

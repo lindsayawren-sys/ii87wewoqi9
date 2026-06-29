@@ -1,58 +1,42 @@
-# 壹视界·知行记｜逐梦苍穹不止步
+# 两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-今年4月24日，我们将迎来第十一个“中国航天日”，恰逢中国航天事业创建70周年。 56年前，中国自主研制的第一颗人造地球卫星“东方红一号”成功发射，中国成为世界上第五个自行研制和发射人造卫星的国家，也由此迈出了探索浩瀚太空的第一步。 “探索浩瀚宇宙，发展航天事业，建设航天强国，是我们不懈追求的航天梦。”新时代以来，习近平总书记高度重视航天强国建设，引领我国航天事业不断创造新的历
+责任编辑：杨红卜
 
 ## 正文
 
-今年4月24日，我们将迎来第十一个“中国航天日”，恰逢中国航天事业创建70周年。
-
-56年前，中国自主研制的第一颗人造地球卫星“东方红一号”成功发射，中国成为世界上第五个自行研制和发射人造卫星的国家，也由此迈出了探索浩瀚太空的第一步。
-
-“探索浩瀚宇宙，发展航天事业，建设航天强国，是我们不懈追求的航天梦。
-
-”新时代以来，习近平总书记高度重视航天强国建设，引领我国航天事业不断创造新的历史。
-
-“北斗”组网、“嫦娥”揽月、“天宫”遨游、“祝融”探火、“羲和”逐日……中国航天在浩瀚苍穹中不断书写飞天传奇，更淬炼出一脉相承、生生不息的航天精神。
-
-星辰大海，探索不止。
-
-“十五五”新程上，中国人探索太空的脚步必将更加自信从容。
+责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 12:29 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 12:27 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 12:44 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 12:35 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 12:34 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 12:47 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 12:45 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 12:48 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 12:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:41 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 12:37 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 12:24 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 12:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 12:34 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:44 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:27 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:32 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:28 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:38 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:47 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:29 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:34 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:27 - [波兰总理图斯克强调跨大西洋团结 称波美同盟关系不因驻军计划变动受损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/15698.shtml)
-- 2026-06-29 12:24 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/74545104855.shtml)
-- 2026-06-29 12:28 - [T1对战KC](http://www.share.minike.top/Article/details/23435715.shtml)
-- 2026-06-29 12:32 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/973172.shtml)
-- 2026-06-29 12:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/2717313434.shtml)
-- 2026-06-29 12:44 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/58338569606.shtml)
-- 2026-06-29 12:27 - [伊朗球员致歉](http://www.share.minike.top/Article/details/82738974.shtml)
-- 2026-06-29 12:35 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/865755368625.shtml)
-- 2026-06-29 12:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/025208.shtml)
-- 2026-06-29 12:48 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/31909608.shtml)
-- 2026-06-29 12:47 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/2071360319.shtml)
-- 2026-06-29 12:43 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/301905.shtml)
-- 2026-06-29 12:44 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/47027.shtml)
-- 2026-06-29 12:30 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/091925.shtml)
-- 2026-06-29 12:22 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.kurohicncr.top/Article/details/4355680559.shtml)
+- 2026-06-29 12:38 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.share.kurohicncr.top/Article/details/954070402.shtml)
+- 2026-06-29 12:25 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.minike.top/Article/details/095435272430.shtml)
+- 2026-06-29 12:51 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.blog.minike.top/Article/details/1383007244.shtml)
+- 2026-06-29 12:31 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.share.minike.top/Article/details/52555615059.shtml)
+- 2026-06-29 12:46 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.share.minike.top/Article/details/3418126262.shtml)
+- 2026-06-29 12:26 - [中俄百余青年在“冰城”哈尔滨共话合作未来](http://www.share.minike.top/Article/details/3667043915.shtml)
+- 2026-06-29 12:40 - [民生人寿总资产缩水160亿，船大难掉头](http://www.blog.minike.top/Article/details/68800144.shtml)
+- 2026-06-29 12:50 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.share.kurohicncr.top/Article/details/4017403197.shtml)
+- 2026-06-29 12:42 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](http://www.blog.minike.top/Article/details/645627135311.shtml)
+- 2026-06-29 12:49 - [北京稻香村涉事门店回应“反向抹零”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [曼彻斯特市市长伯纳姆表态称无意提议重返欧盟](http://www.blog.kurohicncr.top/Article/details/8472465.shtml)
+- 2026-06-29 12:53 - [高盛：央行要“加码”买黄金了，金价年底看5400](http://www.blog.minike.top/Article/details/74910.shtml)
+- 2026-06-29 12:54 - [2026年国际博物馆日中国主会场活动在呼和浩特举行](http://www.share.minike.top/Article/details/1142097.shtml)

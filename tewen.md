@@ -1,60 +1,53 @@
-# “胡琴之夜”音乐会在国家大剧院上演
+# 川投新能源公司总经理刘亮被遣返回国
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网北京4月26日电 4月25日，第三届国乐之春闭幕式“胡琴之夜”音乐会在国家大剧院音乐厅上演。 本场音乐会以“民族一家亲 万象共和鸣”为主题，由中央音乐学院与中央民族乐团联合主办，中央音乐学院民乐系、教育部中华优秀传统文化(中国民族音乐)传承基地、中央音乐学院民族室内乐团共同承办，中国民族管弦乐学会胡琴专业委员会协办。二胡演奏家、中央音乐学院院长、中国民族管弦乐学会胡琴专业
+近日，在中央反腐败协调小组国际追逃追赃工作办公室统筹协调和公安部等部门协助下，经四川省监察机关、公安机关与有关国家执法机关密切合作，外逃职务犯罪嫌疑人刘亮在境外落网并被遣返回国。 刘亮，男，1979年1月出生，川投新能源公司总经理，涉嫌严重职务违法犯罪，于2026年4月外逃，同月四川省资阳市监察机关对其立案调查。办案机关积极开展国际执法合作，于近日将其缉捕归案。 中央追逃办负责
 
 ## 正文
 
-中新网北京4月26日电 4月25日，第三届国乐之春闭幕式“胡琴之夜”音乐会在国家大剧院音乐厅上演。
+近日，在中央反腐败协调小组国际追逃追赃工作办公室统筹协调和公安部等部门协助下，经四川省监察机关、公安机关与有关国家执法机关密切合作，外逃职务犯罪嫌疑人刘亮在境外落网并被遣返回国。
 
-本场音乐会以“民族一家亲 万象共和鸣”为主题，由中央音乐学院与中央民族乐团联合主办，中央音乐学院民乐系、教育部中华优秀传统文化(中国民族音乐)传承基地、中央音乐学院民族室内乐团共同承办，中国民族管弦乐学会胡琴专业委员会协办。
+刘亮，男，1979年1月出生，川投新能源公司总经理，涉嫌严重职务违法犯罪，于2026年4月外逃，同月四川省资阳市监察机关对其立案调查。
 
-二胡演奏家、中央音乐学院院长、中国民族管弦乐学会胡琴专业委员会会长于红梅，携手唐峰、齐·宝力高、朱昌耀、邓建栋、姜克美等胡琴名家，与指挥家刘沙、中央民族乐团、中央音乐学院民族室内乐团联袂登台。
+办案机关积极开展国际执法合作，于近日将其缉捕归案。
 
-在胡琴名曲联奏《民族一家亲》的旋律中，本场音乐会拉开帷幕，独奏、齐奏、联奏次第展开。
+中央追逃办负责人表示，刘亮归案是落实二十届中央纪委五次全会精神、开展“天网2026”行动的重要成果。
 
-整场演出以胡琴艺术发展为脉络，融贯古今经典与当代力作，既有《二泉映月》的苍凉悲诉、《红军哥哥回来了》的红色记忆，也有《蒙山沂水情》里织就的家国眷恋、《云裳诉》的清雅婉约与深沉情思，还有《长城随想曲》以恢弘气魄勾勒的民族脊梁。
+我们将深化反腐败执法司法合作，保持追逃追赃强大攻势，加大对重点人员的追缉力度，以天罗地网断其后路、绝其幻想。
 
-作为第三届“国乐之春”的压轴演出，本场“胡琴之夜”音乐会近60位演奏家同台献艺，从名家领衔到少年新秀，老中青少四代演奏家以弦音相承、薪火相继，充分展现了胡琴的艺术魅力及深厚底蕴。
-
-“国乐之春”是国家大剧院重点打造的品牌艺术节之一，自2022年创办以来，已成为民族音乐展示与交流的重要平台。
-
-(完)
+（总台央视记者 宋琎） 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 12:35 - [房屋抵押权与租赁权如何协调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 12:26 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 12:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 12:30 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 12:24 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 12:23 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 12:26 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 12:34 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 12:27 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 12:47 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 12:42 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 12:31 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 12:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 12:38 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 12:24 - [2026广东省定向公开赛（广州·增城站）举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:29 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:46 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:44 - [30年期美债收益率重返5% 见顶还是新开始？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:29 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:46 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:27 - [打破感官壁垒 视障人士在浙江省博物馆“看见”历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:27 - [西南证券：首次覆盖劲方医药建议积极关注 产品进度全球领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:35 - [寄希望于外脑？中华保险集团社招副总，两大子公司“齐头并退”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:54 - [（滇藏公路50年）小新Talkshow：在西藏察隅神秘村落 全副家当挂身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:25 - [防控汉坦、埃博拉等公共卫生风险 香港特区政府接连发布健康提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [海清白玉兰奖运](https://www.share.minike.top/Article/details/36671791028.shtml)
-- 2026-06-29 12:35 - [谢霆锋演唱会变大型呲水现场](https://www.share.minike.top/Article/details/610489.shtml)
-- 2026-06-29 12:47 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/73159.shtml)
-- 2026-06-29 12:38 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/2750993.shtml)
-- 2026-06-29 12:47 - [扬名立万](https://www.blog.minike.top/Article/details/469560302976.shtml)
-- 2026-06-29 12:51 - [海清白玉兰奖运](https://www.blog.kurohicncr.top/Article/details/972149.shtml)
-- 2026-06-29 12:42 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/040255938.shtml)
-- 2026-06-29 12:21 - [天津打雷](http://www.blog.minike.top/Article/details/86584.shtml)
-- 2026-06-29 12:40 - [岭南电影为何迎来“南方热”](http://www.share.kurohicncr.top/Article/details/50041408.shtml)
-- 2026-06-29 12:44 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/86047814144.shtml)
-- 2026-06-29 12:50 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/3807921950.shtml)
-- 2026-06-29 12:41 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/9703079.shtml)
-- 2026-06-29 12:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/9740252641.shtml)
-- 2026-06-29 12:31 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.blog.minike.top/Article/details/990585779036.shtml)
-- 2026-06-29 12:50 - [扬名立万](http://www.share.kurohicncr.top/Article/details/51213216512.shtml)
+- 2026-06-29 12:38 - [探访“人工智能+教育”：你的AI科研“搭子”靠谱吗](http://www.blog.minike.top/Article/details/305317.shtml)
+- 2026-06-29 12:26 - [中俄博览会展风采 河北南皮五金“智造”闯海外](http://www.share.minike.top/Article/details/4967196150.shtml)
+- 2026-06-29 12:53 - [BOSS直聘-W于5月14日斥资249.65万美元回购34.66万股](http://www.blog.kurohicncr.top/Article/details/31058557.shtml)
+- 2026-06-29 12:32 - [探访龙虎山大上清宫遗址博物馆：千年道教祖庭的地下瑰宝](http://www.share.kurohicncr.top/Article/details/75596144.shtml)
+- 2026-06-29 12:53 - [十四届全国政协常委、农业和农村委员会副主任王晓东被查](http://www.share.kurohicncr.top/Article/details/007745814361.shtml)
+- 2026-06-29 12:31 - [上海涉外婚姻登记量显著增长](http://www.share.kurohicncr.top/Article/details/0291194003.shtml)
+- 2026-06-29 12:41 - [国家应急通信融合接入平台启动全国应用](http://www.blog.kurohicncr.top/Article/details/65740.shtml)
+- 2026-06-29 12:40 - [长城基金汪立：流动性冲击或为短期扰动](http://www.blog.kurohicncr.top/Article/details/0657840.shtml)
+- 2026-06-29 12:24 - [蓝鸿春再谈《给阿嬷的情书》创作信条：从心而发打动自己](http://www.blog.kurohicncr.top/Article/details/64347945986.shtml)
+- 2026-06-29 12:33 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.share.minike.top/Article/details/10746918892.shtml)
+- 2026-06-29 12:30 - [军工板块三连跌，中国船舶重挫6%！华宝基金军工ETF（512810）下探半年线，场内频现溢价！](http://www.blog.minike.top/Article/details/617239.shtml)
+- 2026-06-29 12:42 - [从史前器物到族群记忆：台湾少数民族同胞探寻两岸共同源流](http://www.share.kurohicncr.top/Article/details/133465.shtml)
+- 2026-06-29 12:31 - [消息称G6上市近两年后 小鹏X9也已获准在澳大利亚销售](http://www.share.kurohicncr.top/Article/details/8457524248.shtml)
+- 2026-06-29 12:34 - [大雾黄色预警：河北浙江等地部分地区有大雾](http://www.share.minike.top/Article/details/82464465902.shtml)
+- 2026-06-29 12:25 - [特朗普力挺之人赢下共和党初选，击败曾投票弹劾他的参议员](http://www.share.kurohicncr.top/Article/details/094043714803.shtml)

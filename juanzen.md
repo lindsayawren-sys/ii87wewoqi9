@@ -1,60 +1,50 @@
-# 东西问｜“中国表姐”朱溪瑞：把“喝热水”变成全球热梗
+# 从过去探寻未来
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网西安4月25日电 题：“中国表姐”朱溪瑞：把“喝热水”变成全球热梗 作者 杨英琦 党田野 23岁的华裔博主朱溪瑞(英文名Sherry)只是开玩笑说，“从明天开始，你要变成中国人了。”然后，几十万海外网友真的开始穿拖鞋、喝热水、预订飞往中国的机票。 一条普通的视频，没有精致的运镜，没有优美的配乐，只有一种“Z世代”特有的幽默。这条发布于2025年底的视频，播放量迅速破百万。
+2017年11月8日，美国总统特朗普首次访华，国家主席习近平在故宫向他介绍了中国悠久的历史文化：“文化没有断过流、始终传承下来的只有中国。”9年后，习近平主席在天坛再一次向特朗普总统阐释中华文明。当前，百年变局加速演进，国际形势变乱交织，但是不变的是中国文明的定力、和平的底色和合作的诚意。(人民日报客户端)
 
 ## 正文
 
-中新网西安4月25日电 题：“中国表姐”朱溪瑞：把“喝热水”变成全球热梗 作者 杨英琦 党田野 23岁的华裔博主朱溪瑞(英文名Sherry)只是开玩笑说，“从明天开始，你要变成中国人了。
+2017年11月8日，美国总统特朗普首次访华，国家主席习近平在故宫向他介绍了中国悠久的历史文化：“文化没有断过流、始终传承下来的只有中国。
 
-”然后，几十万海外网友真的开始穿拖鞋、喝热水、预订飞往中国的机票。
+”9年后，习近平主席在天坛再一次向特朗普总统阐释中华文明。
 
-一条普通的视频，没有精致的运镜，没有优美的配乐，只有一种“Z世代”特有的幽默。
+当前，百年变局加速演进，国际形势变乱交织，但是不变的是中国文明的定力、和平的底色和合作的诚意。
 
-这条发布于2025年底的视频，播放量迅速破百万。
-
-随后三个月，她的粉丝暴涨74万。
-
-“Becoming Chinese”，成了海外社交平台上最滚烫的话题标签。
-
-在西安大唐芙蓉园的汉服店见到朱溪瑞时，现实中的她和视频中那个“下达通知”的博主判若两人。
-
-她正对着一排排汉服犹豫不决，动作慢得像是在挑选心爱的饰品，和视频里那个火力全开的女孩像是两个人。
+(人民日报客户端)
 
 ## 相关推荐
 
-- 2026-06-29 12:29 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 12:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 12:26 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 12:50 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 12:38 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 12:42 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 12:44 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:32 - [农业谣言岂能如此“变态”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 12:32 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 12:50 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 12:46 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 12:49 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 12:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 12:39 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 12:41 - [电影《在伊犁》项目在乌鲁木齐启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:49 - [美国特使抵达格陵兰岛首府努克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:44 - [来华留学生博物馆里“看世界”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:25 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:44 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:42 - [近镜头｜中美元首会晤速览](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:43 - [我们为什么需要博物馆？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:50 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:52 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:30 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:33 - [高阶产能落地美国 阿特斯加速转型“北美制造”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:51 - [墨西哥中部发生枪击事件 造成至少10人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:28 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/58432.shtml)
-- 2026-06-29 12:29 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/643377393797.shtml)
-- 2026-06-29 12:49 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/739761.shtml)
-- 2026-06-29 12:32 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/47497129.shtml)
-- 2026-06-29 12:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/000398557518.shtml)
-- 2026-06-29 12:39 - [扬名立万](https://www.share.kurohicncr.top/Article/details/614018508542.shtml)
-- 2026-06-29 12:49 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/6707429760.shtml)
-- 2026-06-29 12:40 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/019319.shtml)
-- 2026-06-29 12:36 - [陈露发声引舆论反转](https://www.blog.kurohicncr.top/Article/details/35613990957.shtml)
-- 2026-06-29 12:22 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/1642436.shtml)
-- 2026-06-29 12:35 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.minike.top/Article/details/88831961192.shtml)
-- 2026-06-29 12:30 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/0988279956.shtml)
-- 2026-06-29 12:50 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.kurohicncr.top/Article/details/8461464.shtml)
-- 2026-06-29 12:35 - [为什么欧洲人不装空调](https://www.blog.kurohicncr.top/Article/details/64953387.shtml)
-- 2026-06-29 12:24 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/479662.shtml)
+- 2026-06-29 12:37 - [长鑫科技半年500亿，是怎么赚出来的？](http://www.blog.minike.top/Article/details/171114380.shtml)
+- 2026-06-29 12:52 - [奥运冠军代言，知名品牌被曝一双出厂价几百元的童鞋，经过运作后标价近2000元！代工厂称“订单反而在增加”](http://www.share.kurohicncr.top/Article/details/595934.shtml)
+- 2026-06-29 12:36 - [中俄林业教育科技产业创新联盟成立](http://www.share.minike.top/Article/details/8220037086.shtml)
+- 2026-06-29 12:51 - [最高涨价30%？半导体调价函挂错A股公司，天微电子澄清乌龙](http://www.blog.kurohicncr.top/Article/details/3096387273.shtml)
+- 2026-06-29 12:42 - [中国第42次南极考察队“雪龙2”号凯旋](http://www.share.kurohicncr.top/Article/details/871689.shtml)
+- 2026-06-29 12:53 - [业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元](http://www.blog.kurohicncr.top/Article/details/8089590.shtml)
+- 2026-06-29 12:29 - [2026孟子故里（邹城）母亲文化节在山东邹城开幕](http://www.share.minike.top/Article/details/011784627.shtml)
+- 2026-06-29 12:29 - [美的集团于5月15日斥资约1亿元回购121.05万股A股](http://www.blog.kurohicncr.top/Article/details/67286035.shtml)
+- 2026-06-29 12:29 - [中俄百余青年在“冰城”哈尔滨共话合作未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:40 - [民生人寿总资产缩水160亿，船大难掉头](http://www.share.minike.top/Article/details/998498498.shtml)
+- 2026-06-29 12:48 - [光大期货0518热点追踪：中东局势升温，原油价格再次上冲](http://www.share.minike.top/Article/details/29977.shtml)
+- 2026-06-29 12:53 - [伊媒：伊朗格什姆岛发现无人机后启动防空系统](http://www.share.kurohicncr.top/Article/details/72095593.shtml)
+- 2026-06-29 12:38 - [银行理财产品“飞单”，怎么防、谁来赔？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [4月黑猫投诉企业红黑榜：微店商家收款后跑路，消费者维权困难](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [北京稻香村涉事门店回应“反向抹零”](http://www.share.kurohicncr.top/Article/details/4244280657.shtml)

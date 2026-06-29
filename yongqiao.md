@@ -1,58 +1,60 @@
-# 美股芯片股冰火两重天，英特尔涨近5%创新高，ARM重挫10%，美国能源飙涨超60%
+# 香港成立首个全端具身智能实验室 以AI赋能产业升级
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨张嘉钰 编辑丨曾静娇 4月27日，美股三大指数集体走低，截至22：00，道指跌0.03%，纳指跌0.32%，标普500指数跌0.02%。 大型科技股跌多涨少，特斯拉跌近3%，亚马逊、苹果跌超1%，上涨方面，英伟达涨0.21%，谷歌涨0.19%。 美股芯片股走势分化，半导体板块整体表现疲软，费城半导体指
+中新网香港5月18日电 香港中文大学InnoHK香港物流机械人研究中心(HKCLR)18日宣布成立“香港具身智能实验室”。作为香港首个全端具身智能实验室，该实验室已与24家业界伙伴、投资机构及创科企业合作，以加快科研成果转化及产业应用。 据介绍，该实验室围绕人工智能与机器人技术深度融合，旨在推动具身智能从底层核心技术、算法研发，到场景落地与产业化应用的全链条创新。其研究内容涵盖
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网香港5月18日电 香港中文大学InnoHK香港物流机械人研究中心(HKCLR)18日宣布成立“香港具身智能实验室”。
 
-记者丨张嘉钰 编辑丨曾静娇 4月27日，美股三大指数集体走低，截至22：00，道指跌0.03%，纳指跌0.32%，标普500指数跌0.02%。
+作为香港首个全端具身智能实验室，该实验室已与24家业界伙伴、投资机构及创科企业合作，以加快科研成果转化及产业应用。
 
-大型科技股跌多涨少，特斯拉跌近3%，亚马逊、苹果跌超1%，上涨方面，英伟达涨0.21%，谷歌涨0.19%。
+据介绍，该实验室围绕人工智能与机器人技术深度融合，旨在推动具身智能从底层核心技术、算法研发，到场景落地与产业化应用的全链条创新。
 
-美股芯片股走势分化，半导体板块整体表现疲软，费城半导体指数走低，现跌0.9%。
+其研究内容涵盖关节模组与机器人硬件、算法，以及人形机器人、灵巧手、四足机器人、机械臂等。
 
-板块内多数个股下行，ARM跌超10%，迈威尔科技跌超5%，AMD跌超3%。
+香港特别行政区创新科技署助理署长(创新平台)陈楚颖在成立仪式上表示，通过与学术界、业界合作，聚焦实际应用，香港具身智能实验室将成为推动合作、促进创新与技术转移的重要平台，能够加速研究成果落地应用，并带来实际成效。
 
-芯片龙头高通一度涨超8%，随后涨幅直线跳水，截至发稿涨0.85%。
+香港具身智能实验室联合总监李钟毓表示，具身智能是人工智能与物理世界深度融合的重要载体和前沿研究方向。
 
-据财联社消息，公司正与OpenAI 合作研发智能手机处理器。
+实验室将聚焦核心技术研发及真实场景验证，积极与海内外科研机构、产业界及投资界深化合作，推动技术创新、成果转化及产业化发展。
 
-英特尔逆势走强股价涨4.43%，报86.2美元/股，再创历史新高，总市值报4291亿美元。
+成立仪式现场亦展出多项具身智能机器人研究成果，包括香港首个智能移动双臂机器人平台、毫米级轻量化力控机械臂等。
 
 ## 相关推荐
 
-- 2026-06-29 12:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 12:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 12:42 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 12:40 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 12:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 12:32 - [人民日报：伊朗队昂着头告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 12:27 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 12:35 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 12:38 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 12:40 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 12:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 12:26 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 12:49 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:44 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:40 - [2026“粤超”联赛继续 广州赛场氛围浓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:36 - [三大运营商即将免月租？官方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:46 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:48 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:26 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:35 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:31 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:47 - [伊朗计划在两年内完成南帕尔斯气田重建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:51 - [吉利汽车因认股权获行使而发行13.28万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:35 - [中东部有大范围强降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:43 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:29 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:25 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.minike.top/Article/details/416930800598.shtml)
-- 2026-06-29 12:44 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/66016538.shtml)
-- 2026-06-29 12:45 - [日本媒体：板仓滉已回归日本队合练](https://www.share.minike.top/Article/details/367739034.shtml)
-- 2026-06-29 12:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/1428610.shtml)
-- 2026-06-29 12:37 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/82072646078.shtml)
-- 2026-06-29 12:23 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/45636.shtml)
-- 2026-06-29 12:27 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/37131.shtml)
-- 2026-06-29 12:42 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/87532395.shtml)
-- 2026-06-29 12:25 - [中国战机大片上新](http://www.blog.minike.top/Article/details/290887431.shtml)
-- 2026-06-29 12:46 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.minike.top/Article/details/90175.shtml)
-- 2026-06-29 12:34 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/1224997514.shtml)
-- 2026-06-29 12:38 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/619061124.shtml)
-- 2026-06-29 12:40 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/148999.shtml)
-- 2026-06-29 12:28 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.minike.top/Article/details/98991.shtml)
-- 2026-06-29 12:32 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/902061084.shtml)
+- 2026-06-29 12:48 - [关注黎以冲突 黎卫生部：以色列袭击已致2988人丧生](http://www.blog.kurohicncr.top/Article/details/573854.shtml)
+- 2026-06-29 12:48 - [意大利北部发生汽车冲撞行人事件 8人受伤](http://www.blog.kurohicncr.top/Article/details/560766133987.shtml)
+- 2026-06-29 12:45 - [《给阿嬷的情书》里的20封信，感动收藏！](http://www.blog.minike.top/Article/details/9766092.shtml)
+- 2026-06-29 12:25 - [从过去探寻未来](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [花旗：铝价即将迎来50年来最大一波上涨行情](http://www.share.minike.top/Article/details/73060027812.shtml)
+- 2026-06-29 12:36 - [金价回落 后市怎么走？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.share.kurohicncr.top/Article/details/182876792.shtml)
+- 2026-06-29 12:38 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.blog.kurohicncr.top/Article/details/863571445390.shtml)
+- 2026-06-29 12:44 - [EMCOR高管团队将出席三场投资者会议](http://www.blog.kurohicncr.top/Article/details/34259.shtml)
+- 2026-06-29 12:50 - [习言道｜三个维度观察中美元首北京会晤](http://www.blog.kurohicncr.top/Article/details/00667787.shtml)
+- 2026-06-29 12:40 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.share.minike.top/Article/details/77706.shtml)
+- 2026-06-29 12:26 - [美国特使抵达格陵兰岛首府努克](http://www.share.minike.top/Article/details/3316824241.shtml)
+- 2026-06-29 12:43 - [来华留学生博物馆里“看世界”](http://www.share.minike.top/Article/details/20089636190.shtml)
+- 2026-06-29 12:52 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](http://www.share.minike.top/Article/details/49091419.shtml)
+- 2026-06-29 12:50 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](https://github.com/lisacumin64-arch)

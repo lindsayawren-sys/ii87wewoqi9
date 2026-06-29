@@ -1,60 +1,59 @@
-# 杨某某每天90元扮演流浪女 “深山救助”视频摆拍细节公开
+# （寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-今年3月底，多条“云南深山救助流浪女”的短视频在网络热传，博主发布的所谓“救助场景”牵动人心，很多网友看完要捐钱捐物，还有的甚至要和博主一起前往救助。然而很快就有网友发现了这些“暖心”视频的破绽，一场虚假摆拍的骗局由此浮出水面。 视频拍摄者自称在丽江深山偶遇“流浪女子”，完整记录发现与救助全过程。 画面里，“流浪女”头发杂乱、衣衫褴褛，蜷缩在木屋角落浑身发抖、眼神躲闪；拍摄者俯
+中新社呼和浩特5月18日电 题：50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音 中新社记者 张玮 5月18日是“国际博物馆日”，今年的主题是“博物馆：联结世界的桥梁”。中国各地推出丰富多彩的文博活动，帮助民众感知人类历史，触摸文明脉络。 在2026年国际博物馆日中国主会场活动举行地呼和浩特市，“寻根大窑·博物知行——博物馆季系列活动”“博物馆之夜——沉浸式主题展演”等
 
 ## 正文
 
-今年3月底，多条“云南深山救助流浪女”的短视频在网络热传，博主发布的所谓“救助场景”牵动人心，很多网友看完要捐钱捐物，还有的甚至要和博主一起前往救助。
+中新社呼和浩特5月18日电 题：50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音 中新社记者 张玮 5月18日是“国际博物馆日”，今年的主题是“博物馆：联结世界的桥梁”。
 
-然而很快就有网友发现了这些“暖心”视频的破绽，一场虚假摆拍的骗局由此浮出水面。
+中国各地推出丰富多彩的文博活动，帮助民众感知人类历史，触摸文明脉络。
 
-视频拍摄者自称在丽江深山偶遇“流浪女子”，完整记录发现与救助全过程。
+在2026年国际博物馆日中国主会场活动举行地呼和浩特市，“寻根大窑·博物知行——博物馆季系列活动”“博物馆之夜——沉浸式主题展演”等轮番登场；陕西以“回溯历史记忆 点亮文明星河”为主题展现三秦文脉，福建推出超350场主题展览、社教互动、文创体验、公益服务、研学实践等活动；“世界客都”广东梅州则以侨批为纽带，串联起客家文化、红色文化与侨乡文化…… 举办“寻根大窑·博物知行”活动的大窑遗址公园，位于新城区保合少镇大窑村。
 
-画面里，“流浪女”头发杂乱、衣衫褴褛，蜷缩在木屋角落浑身发抖、眼神躲闪；拍摄者俯身关切询问伤情来历，承诺更换被褥、提供食物，言语间满是“善意”。
+呼和浩特市文物考古研究所所长张红星介绍，大窑遗址是一处古人类长期连续利用逾50万年的大型石器制造场遗址，不仅实证中国百万年的人类历史，而且说明中国北方草原地带也是人类起源地之一。
 
-这些视频精准击中网友的同情心，迅速引发大量关注，同时也引起了丽江警方的注意。
+1973年，考古学家汪宇平在大窑南山内的二道沟畔偶然踢到一块棱角分明的石块，这成为打开远古之门的钥匙。
 
-民警核查发现，3天内拍摄者通过2个账号共发布了10余条相关视频，总播放量近8万次。
+汪宇平之孙、内蒙古博物院文博研究馆员汪英华介绍，经测定，大窑遗址的年代在距今约50万年至1万年之间，与中国的周口店北京人遗址、西侯度遗址以及坦桑尼亚的奥杜威峡谷遗址等同属全球重要的旧石器时代古人类遗址，在人类起源与早期文明演进研究中具有关键地位。
 
-云南省丽江市公安局古城分局网安大队大队长 和晓明：视频传播开以后，我们网民的爱心被彻底点燃，从担忧转到怎么去救助、救治，甚至是部分网友就提出要捐钱，只要你有地址、住址，网民表示马上会寄过来。
+呼和浩特博物院院长白云峰表示，长期以来，学术界认为内蒙古地区人类出现的时间相对较晚，大窑遗址的发现证明了在周口店“北京人”同一时期，北方阴山以南地区已有古人类活动。
 
-还有些网民提出来，要马上赶过来，跟所谓的博主一同去救助这个“流浪女子”。
+汪英华告诉记者，“大窑村南山坡是阴山山脉中段大青山向南延伸的支脉。
 
 ## 相关推荐
 
-- 2026-06-29 12:26 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 12:25 - [某高校学生被辅导员等人扭送至公安](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 12:31 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 12:40 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 12:29 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 12:24 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 12:49 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 12:24 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-29 12:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 12:41 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 12:22 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:46 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 12:46 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:22 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 12:50 - [文脉华章|我们为什么需要博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:33 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:49 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:40 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:50 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:37 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:51 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:32 - [中信证券：调整何解？重建杠铃结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:53 - [A股，重磅新规！千家公司面临调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:29 - [从“落选御瓷”到潮流IP 千年瓷都创新叙事促传统文化出海](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:27 - [油价狂飙通胀难控，特朗普表态：战争结束前无法看清利率走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:36 - [“人工智能赋能教育创新与产教融合发展论坛”在北京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:29 - [零跑一季度净亏损3.9亿元，海外销量占比超三成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/90212253356.shtml)
-- 2026-06-29 12:30 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/5543291.shtml)
-- 2026-06-29 12:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/3145880971.shtml)
-- 2026-06-29 12:33 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/206770.shtml)
-- 2026-06-29 12:39 - [欧洲热死人不是开玩笑](http://www.share.kurohicncr.top/Article/details/7093544364.shtml)
-- 2026-06-29 12:27 - [起风了](http://www.share.minike.top/Article/details/0232580.shtml)
-- 2026-06-29 12:33 - [香港航天员黎家盈带招牌笑容工作](https://www.share.kurohicncr.top/Article/details/525600118511.shtml)
-- 2026-06-29 12:28 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/24357.shtml)
-- 2026-06-29 12:24 - [詹姆斯下赛季会在哪里](https://www.blog.kurohicncr.top/Article/details/496783961365.shtml)
-- 2026-06-29 12:49 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/3993639.shtml)
-- 2026-06-29 12:43 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/812690572.shtml)
-- 2026-06-29 12:22 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/702558.shtml)
-- 2026-06-29 12:30 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/4617856728.shtml)
-- 2026-06-29 12:34 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/08360060956.shtml)
-- 2026-06-29 12:39 - [天道](http://www.share.kurohicncr.top/Article/details/43318.shtml)
+- 2026-06-29 12:33 - [5月19日收盘：美股涨跌不一，标普500指数与纳指连续第二个交易日收跌](http://www.blog.minike.top/Article/details/285276827.shtml)
+- 2026-06-29 12:34 - [让2026年成为中美关系继往开来的历史性、标志性年份](http://www.share.minike.top/Article/details/8303176445.shtml)
+- 2026-06-29 12:50 - [川投新能源公司总经理刘亮被遣返回国](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [美伊谈判，又有新消息](http://www.share.minike.top/Article/details/55570839416.shtml)
+- 2026-06-29 12:29 - [应金融稳定理事会主席要求，Anthropic将就Mythos的探测结果向理事会说明](http://www.blog.kurohicncr.top/Article/details/01498166.shtml)
+- 2026-06-29 12:31 - [金建希涉嫌“卖官鬻爵”案被求刑7年半](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:35 - [嘉陵江重庆段发生一起划桨板人员落水事件已致1人遇难](http://www.share.minike.top/Article/details/502704080424.shtml)
+- 2026-06-29 12:25 - [王晓红：真人短剧精品化推动行业迈向价值红利新阶段](http://www.blog.minike.top/Article/details/16872730225.shtml)
+- 2026-06-29 12:38 - [布朗大学研究：伊朗战争以来 美国人新增燃油账单超过400亿美元！](http://www.blog.kurohicncr.top/Article/details/498054823.shtml)
+- 2026-06-29 12:50 - [2026广东省定向公开赛（广州·增城站）举行](http://www.share.kurohicncr.top/Article/details/5581080.shtml)
+- 2026-06-29 12:45 - [聚焦低价“内卷式”竞争等不规范行为 监管通报信托业最新问题](http://www.blog.kurohicncr.top/Article/details/75349.shtml)
+- 2026-06-29 12:49 - [国家防总针对湖南广西启动防汛四级应急响应 加派工作组赴一线指导](http://www.blog.kurohicncr.top/Article/details/564590921075.shtml)
+- 2026-06-29 12:48 - [30年期美债收益率重返5% 见顶还是新开始？](http://www.blog.kurohicncr.top/Article/details/07059417391.shtml)
+- 2026-06-29 12:41 - [韩国总理：预估三星罢工将造成100万亿韩元经济损失](http://www.blog.kurohicncr.top/Article/details/4410871.shtml)
+- 2026-06-29 12:30 - [美联储鹰派预期与美元走强打压市场情绪，白银跌至75美元附近连续三日下滑](https://github.com/lisacumin64-arch)

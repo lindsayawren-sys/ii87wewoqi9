@@ -1,60 +1,57 @@
-# ATFX汇市前瞻:超级央行周 美联储携四大央行利率决议
+# Eco Atlantic与JHI交易获法院批准，福克兰群岛海上扩张进入冲刺阶段
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 美联储FOMC公布利率决议 4月27日，本周四凌晨两点，美联储FOMC将公布四月末的利率决议结果，主流预期认为美联储将维持3.5%到3.75%的联邦基金利率区间不变。 ▲ATFX图 这将是现任美联储主席鲍威尔能够决策的最后一个美联储决议，5月15日之后美联储将迎来新的主席，也就是特朗普提名的凯文沃什。 凯文沃什极有可能按照特朗普的意愿采取超宽松货币政
+Eco（Atlantic）Oil & Gas周一宣布，其收购JHI Associates的交易已获得安大略高等法院的最终批准令。此前在5月12日的股东会议上，该交易获得了100%投票股东的一致支持。 剩余条件与审批预期 公司表示，交易完成的剩余条件包括福克兰群岛政府、多伦多证券交易所创业板和AIM的批准，以及确认PL001许可证的五年延期及Navitas Petroleum的运
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 美联储FOMC公布利率决议 4月27日，本周四凌晨两点，美联储FOMC将公布四月末的利率决议结果，主流预期认为美联储将维持3.5%到3.75%的联邦基金利率区间不变。
+Eco（Atlantic）Oil & Gas周一宣布，其收购JHI Associates的交易已获得安大略高等法院的最终批准令。
 
-▲ATFX图 这将是现任美联储主席鲍威尔能够决策的最后一个美联储决议，5月15日之后美联储将迎来新的主席，也就是特朗普提名的凯文沃什。
+此前在5月12日的股东会议上，该交易获得了100%投票股东的一致支持。
 
-凯文沃什极有可能按照特朗普的意愿采取超宽松货币政策，这也就意味着，四月末的美联储决议可能是降息之前的最后一次决议。
+剩余条件与审批预期 公司表示，交易完成的剩余条件包括福克兰群岛政府、多伦多证券交易所创业板和AIM的批准，以及确认PL001许可证的五年延期及Navitas Petroleum的运营权。
 
-当前美国通胀高企，市场认为美联储应该提高利率，鲍威尔坚持不加息的话，周四结果公布之后，美元指数极有可能遭受明显的利空冲击。
+交易完成后的资产布局 交易完成后，Eco将获得由Navitas Petroleum运营的福克兰群岛海上PL001许可证35%的参与权益，以及圭亚那海上Canje区块的潜在敞口。
 
-美国3月核心PCE物价指数 周四20点30分，美国将公布一系列经济数据，其中最受关注的是3月份PCE物价指数。
+公司预计将向JHI股东发行最多9630万股新普通股，其中约45%的股份设有18个月的锁定期。
 
-由于三月份美国和伊朗之间的战争导致国际油价持续上涨，所以市场预期美国的PC物价指数会出现较大幅度的升高。
+管理层表态 Eco总裁兼首席执行官Gil Holzman表示，JHI收购已进入最后阶段，政府批准预计即将获得，团队正努力在获批后尽快完成交割。
 
-▲ATFX图 美国3月PCE物价指数同比前值为2.8%，预期值为3.5%，预期增加0.7个百分点。
+公司正与Navitas密切合作，计划对福克兰群岛海上PL001许可证进行勘探，确保技术无缝交接。
 
-3.5%的通胀水平，已经远远超出2%的美联储调控目标。
+同时，JHI和Eco仍在与圭亚那政府就Canje区块的潜在延期或重新发放进行沟通。
 
 ## 相关推荐
 
-- 2026-06-29 12:23 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 12:32 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 12:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 12:36 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 12:36 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 12:48 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 12:34 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 12:21 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:23 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 12:49 - [普京：俄罗斯将坚定捍卫自身根本利益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 12:36 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 12:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:45 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 12:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 12:34 - [享道出行倪立诚：未来一到两年将是Robotaxi规模化发展的起点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:46 - [澳大利亚联邦银行聘任玛丽-安妮-威廉姆斯担任首席人工智能科学家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:51 - [2026中德企业乒乓球邀请赛在慕尼黑举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:24 - [北汽张国富：越野门槛降低不是稀释而是加强，“尝鲜”的人越多专业优势越明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:50 - [诺泰生物索赔递交立案，曾因财务造假被处罚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:29 - [2026年好用的基金实时估值工具有哪些？推荐一下这款靠谱的APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:28 - [三部门调拨中央救灾物资支持湖南、广西做好救灾救助工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:38 - [酒价内参5月18日价格发布：水晶剑南春下跌3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:49 - [海内外百余名施氏宗亲厦门共祭施琅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:46 - [全球债市“熊火”终于烧向股市！一文读懂：最危险的博弈开始了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:38 - [美的集团于5月18日斥资1亿元回购121万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:30 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/7592324669.shtml)
-- 2026-06-29 12:48 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/043769743.shtml)
-- 2026-06-29 12:51 - [金牌调解](http://www.blog.minike.top/Article/details/0254096.shtml)
-- 2026-06-29 12:23 - [毒液2](https://www.share.minike.top/Article/details/466081.shtml)
-- 2026-06-29 12:43 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/4061788187.shtml)
-- 2026-06-29 12:31 - [韩国政府将对世界杯出局追责](https://www.share.minike.top/Article/details/532376277338.shtml)
-- 2026-06-29 12:47 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/03958.shtml)
-- 2026-06-29 12:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/1773346.shtml)
-- 2026-06-29 12:22 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/108891062.shtml)
-- 2026-06-29 12:32 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/000010469883.shtml)
-- 2026-06-29 12:32 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/8546850647.shtml)
-- 2026-06-29 12:24 - [三只羊线下课已下架](http://www.blog.minike.top/Article/details/109909738.shtml)
-- 2026-06-29 12:33 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/48755.shtml)
-- 2026-06-29 12:41 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/877182880763.shtml)
-- 2026-06-29 12:24 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/950945575477.shtml)
+- 2026-06-29 12:34 - [伊玛尔地产坚定看好叙利亚经济 退出大马士革第八门合资结构](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [“看见计划”公益项目在川启动 搭建中外儿童艺术交流平台](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元](http://www.blog.minike.top/Article/details/69478094.shtml)
+- 2026-06-29 12:36 - [渣打集团任命科斯特洛为首席财务官](http://www.blog.minike.top/Article/details/800416451.shtml)
+- 2026-06-29 12:44 - [湖南省文化馆数字文旅体验空间开馆](http://www.share.minike.top/Article/details/17030964.shtml)
+- 2026-06-29 12:45 - [广西柳州市柳南区发生5.2级地震 周边多个城市有震感](http://www.blog.minike.top/Article/details/547319328433.shtml)
+- 2026-06-29 12:51 - [国金证券：2026年的“金三银四”是中国楼市开始止跌的转折点](http://www.share.minike.top/Article/details/473638.shtml)
+- 2026-06-29 12:27 - [债券市场异动预示利率或将大幅走高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [微视频｜在文化遗存前 总书记驻足凝视](http://www.share.kurohicncr.top/Article/details/59885763275.shtml)
+- 2026-06-29 12:43 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:38 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:29 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.blog.minike.top/Article/details/4439566330.shtml)
+- 2026-06-29 12:47 - [4月中国商品零售增速放缓 服务零售增长加快](http://www.blog.minike.top/Article/details/663867.shtml)
+- 2026-06-29 12:32 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](http://www.share.kurohicncr.top/Article/details/897650.shtml)
+- 2026-06-29 12:37 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](http://www.blog.minike.top/Article/details/963588000.shtml)

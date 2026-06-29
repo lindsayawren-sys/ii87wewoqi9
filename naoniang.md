@@ -1,58 +1,59 @@
-# 上海家化发布2026年一季报：Q1毛利率同比提升2.4个百分点 实现了量质齐升的良性发展
+# Klarna牵手EZContacts，为视力保健提供灵活支付方案
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月27日晚间，上海家化（600315.SH）发布2026年第一季度业绩报告。报告显示，公司第一季度营业收入17.95亿元，同比增长5.4%；归母净利润2.22亿元，同比增长2.3%；扣非净利润2.66亿元，同比增长38.2%。国内业务线上渠道同比增长47.0%，占国内业务比例同比提升9.7个百分点，其中美
+合作概况与支付选项 瑞典数字银行及灵活支付服务提供商Klarna宣布与在线零售商EZContacts达成合作，为美国消费者购买太阳镜、隐形眼镜和处方眼镜提供多元化的支付方案。通过此次合作，EZContacts的客户在结账时可选择全额付款、30天内免息付款、四期免息分期付款或长期融资方案。 战略意义与双方表态 Klarna首席商务官David Sykes表示，与EZContact
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+合作概况与支付选项 瑞典数字银行及灵活支付服务提供商Klarna宣布与在线零售商EZContacts达成合作，为美国消费者购买太阳镜、隐形眼镜和处方眼镜提供多元化的支付方案。
 
-4月27日晚间，上海家化（600315.SH）发布2026年第一季度业绩报告。
+通过此次合作，EZContacts的客户在结账时可选择全额付款、30天内免息付款、四期免息分期付款或长期融资方案。
 
-报告显示，公司第一季度营业收入17.95亿元，同比增长5.4%；归母净利润2.22亿元，同比增长2.3%；扣非净利润2.66亿元，同比增长38.2%。
+战略意义与双方表态 Klarna首席商务官David Sykes表示，与EZContacts的合作体现了Klarna致力于拓展细分零售领域的决心。
 
-国内业务线上渠道同比增长47.0%，占国内业务比例同比提升9.7个百分点，其中美妆线上渠道同比增长62.5%，个护业务线上渠道同比增长37.9%。
+视力保健属于计划性消费，消费者更倾向于通过结构化支付方式管理开支，而非依赖传统信贷。
 
-期末，应收账款同比下降16.6%，现金流3.78亿元，整体经营质量稳步向好。
+EZContacts增长负责人Rafael Sarim Oezdemir指出，此次合作与公司以客户为中心的理念高度契合，能为客户提供诚实、透明的结账选项，无任何隐藏费用。
 
-此外，公司一季度毛利率同比提升2.4个百分点，实现了量质齐升的良性发展。
+公司背景与市场反响 Klarna是全球领先的AI驱动支付网络和购物助手，拥有超过1.18亿活跃用户，每日处理交易量达340万笔，已在纽约证券交易所上市。
 
-2026年第一季度，上海家化继续深入“聚焦核心品牌、聚焦品牌建设、聚焦线上、聚焦效率”的经营战略，在2025年扭亏为盈基础上持续深化战略落地、夯实增长底盘，实现开局稳健增长。
+EZContacts成立于2005年，服务超过500万客户，库存涵盖300多个品牌的5万多款产品。
 
-核心品牌推新不断，深耕品牌内核建设 2026年第一季度，便携式六神驱蚊蛋、玉泽干敏修护霜、佰草集大白泥面膜三大亿元单品齐头并进，延续良好增长态势，均实现高速增长，进一步夯实市场地位。
+合作宣布后，Klarna股价当日上涨约2.87%至15.60美元，该支付选项已向所有美国境内EZContacts用户开放。
 
 ## 相关推荐
 
-- 2026-06-29 12:24 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 12:23 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 12:31 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 12:44 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 12:41 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 12:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 12:47 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 12:44 - [曝韩国球员目睹出局时正吃饭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:26 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:29 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 12:45 - [凯恩何时能拿到国际大赛冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 12:46 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 12:27 - [防病控“三高”别错过这些果蔬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:32 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:48 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:43 - [公众科学日：水下仿生机器鱼展演栩栩如生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:30 - [伊朗计划在两年内完成南帕尔斯气田重建](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:46 - [吉利汽车因认股权获行使而发行13.28万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:42 - [中东部有大范围强降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:30 - [关注巴以局势：内塔尼亚胡称以色列已控制加沙六成区域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:52 - [4月黑猫投诉游戏交易平台红黑榜：交易猫买号被找回洗号平台推诿拒赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:35 - [中俄共绘教育合作新图景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:49 - [纽约证券交易所迎来234岁诞辰，预热美国250周年庆典](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:51 - [十大机构看后市：第二阶段上涨行情不怕等，科技成长行情未结束，创业板上行空间依旧存在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:29 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/49704.shtml)
-- 2026-06-29 12:33 - [复盘葡萄牙逼平哥伦比亚](https://www.blog.kurohicncr.top/Article/details/26420.shtml)
-- 2026-06-29 12:36 - [三轮车被自家狗“推”进池塘](https://www.share.kurohicncr.top/Article/details/246801.shtml)
-- 2026-06-29 12:49 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/7430639.shtml)
-- 2026-06-29 12:43 - [美人鱼](https://www.blog.minike.top/Article/details/44452.shtml)
-- 2026-06-29 12:49 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/88394.shtml)
-- 2026-06-29 12:48 - [薛之谦演唱会](https://www.share.minike.top/Article/details/766278.shtml)
-- 2026-06-29 12:33 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.kurohicncr.top/Article/details/010302.shtml)
-- 2026-06-29 12:50 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/4633214.shtml)
-- 2026-06-29 12:26 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/603314821.shtml)
-- 2026-06-29 12:45 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/1449571.shtml)
-- 2026-06-29 12:32 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/968082710264.shtml)
-- 2026-06-29 12:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/53767731.shtml)
-- 2026-06-29 12:25 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/609750226885.shtml)
-- 2026-06-29 12:48 - [陈露发声引舆论反转](http://www.share.kurohicncr.top/Article/details/551497763090.shtml)
+- 2026-06-29 12:32 - [金价回落 后市怎么走？](http://www.share.minike.top/Article/details/777283148599.shtml)
+- 2026-06-29 12:41 - [两市成交额本月首次不足3万亿元，存储板块逆市上扬｜华宝基金3A日报（2026.5.18）](http://www.blog.minike.top/Article/details/0544199970.shtml)
+- 2026-06-29 12:45 - [福建漳州举办“迁台记忆”档案资料征集动员会暨台湾义勇队家属座谈会](http://www.share.minike.top/Article/details/8628659.shtml)
+- 2026-06-29 12:38 - [EMCOR高管团队将出席三场投资者会议](http://www.blog.minike.top/Article/details/9498754918.shtml)
+- 2026-06-29 12:54 - [习言道｜三个维度观察中美元首北京会晤](http://www.blog.minike.top/Article/details/65052755033.shtml)
+- 2026-06-29 12:25 - [电影《在伊犁》项目在乌鲁木齐启动](http://www.blog.kurohicncr.top/Article/details/155328515049.shtml)
+- 2026-06-29 12:32 - [美国特使抵达格陵兰岛首府努克](http://www.blog.minike.top/Article/details/183997.shtml)
+- 2026-06-29 12:44 - [来华留学生博物馆里“看世界”](http://www.blog.kurohicncr.top/Article/details/46879402681.shtml)
+- 2026-06-29 12:31 - [“豆包说你那里卖野猪”，网友称手机号被标记为养殖场电话遭频繁骚扰，多方回应](http://www.blog.minike.top/Article/details/269975694.shtml)
+- 2026-06-29 12:48 - [白银为何比黄金跌得更惨？机构揭开背后“元凶”](http://www.share.kurohicncr.top/Article/details/94421000805.shtml)
+- 2026-06-29 12:33 - [近镜头｜中美元首会晤速览](http://www.blog.minike.top/Article/details/661522102667.shtml)
+- 2026-06-29 12:33 - [我们为什么需要博物馆？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [走进博物馆对话古老文明 北京启动2026年国际博物馆日活动](http://www.share.kurohicncr.top/Article/details/65300653.shtml)
+- 2026-06-29 12:43 - [海外华文媒体走进江西南昌 感受“红色、古色”魅力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:36 - [中国考古博物馆举办中国-罗马尼亚联合考古项目专题讲座](http://www.share.kurohicncr.top/Article/details/372274416165.shtml)

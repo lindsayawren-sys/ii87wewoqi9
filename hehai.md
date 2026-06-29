@@ -1,49 +1,58 @@
-# 中天期货:商品指数板块分化小反弹 原油短线反弹
+# 满城派送栀子花 武汉邀长江中游城市群共赴花香之约
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-热点品种分析 一、商品指数 二、股指 中国上证综指4月27日（周一）收盘上涨6.44点，涨幅0.16%，报4086.34点； 中国深证成指4月27日（周一）收盘上涨55.45点，涨幅0.37%，报14995.75点； 中国沪深300指4月27日（周一）收盘上涨1.58点，涨幅0.03%，报4770.95点； 中国创业板指4月27日（周一）收盘下跌19.00点，跌幅0.52%，报
+中新网武汉5月16日电 (王梦媛)“闻到栀子花香，就知道武汉的夏天来了。”16日中午，市民吴女士在武汉江汉关广场手捧领到的栀子花说道。当天，武汉“送你10万朵栀子花”活动正式启动，拉开2026长江中游城市群文旅消费季的序幕。 活动主会场——武汉江汉关广场人流如织。在“栀到了”长江中游城市群好物市集上，非遗手作、地方美食、文创产品等近30个摊位依次排开，吸引市民游客驻足体验。 据
 
 ## 正文
 
-热点品种分析 一、商品指数 二、股指 中国上证综指4月27日（周一）收盘上涨6.44点，涨幅0.16%，报4086.34点； 中国深证成指4月27日（周一）收盘上涨55.45点，涨幅0.37%，报14995.75点； 中国沪深300指4月27日（周一）收盘上涨1.58点，涨幅0.03%，报4770.95点； 中国创业板指4月27日（周一）收盘下跌19.00点，跌幅0.52%，报3648.79点； 中国科创50 4月27日（周一）收盘上涨54.70点，涨幅3.76%，报1508.38点。
+中新网武汉5月16日电 (王梦媛)“闻到栀子花香，就知道武汉的夏天来了。
 
-三、原油2606 四、白银2606 五、碳酸锂 2609 六、螺纹 2610 七、焦煤2609 八、 PTA 2609 九、棉花2609 十、白糖 2609 十一、橡胶 2609 十二、PVC 2609 十三、棕榈2609 十四、纯碱2609 十五、玻璃2609 十六、豆粕2609 十七、生猪2609 十八、红枣2609 责任编辑：陈平
+”16日中午，市民吴女士在武汉江汉关广场手捧领到的栀子花说道。
+
+当天，武汉“送你10万朵栀子花”活动正式启动，拉开2026长江中游城市群文旅消费季的序幕。
+
+活动主会场——武汉江汉关广场人流如织。
+
+在“栀到了”长江中游城市群好物市集上，非遗手作、地方美食、文创产品等近30个摊位依次排开，吸引市民游客驻足体验。
+
+据介绍，武汉已连续四年在初夏街头派送栀子花。
+
+作为2026长江中游城市群文旅消费季的核心板块，今年“送你10万朵栀子花”活动首次联动长沙、南昌、岳阳等15座城市，开展交换周末游、长江中游城市群好物市集、小龙虾争霸赛等系列活动，逐步形成跨城“栀子花消费链”。
+
+当天，市民游客通过回答长江文化相关题目，赢取栀子花主题文创扇子、贴纸等小礼品。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 12:32 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 12:26 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 12:29 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 12:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 12:34 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 12:32 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 12:28 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 12:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 12:24 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 12:39 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 12:35 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 12:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 12:22 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 12:25 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 12:29 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:40 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:45 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:38 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:51 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:50 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:43 - [特斯拉在美国上调Model Y车型的售价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:44 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:28 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:48 - [原油：油价震荡上涨 美伊和平谈判再现波折](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:38 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:27 - [西藏居然有三家公募基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:33 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/45360316671.shtml)
-- 2026-06-29 12:29 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/40045005559.shtml)
-- 2026-06-29 12:34 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/262191414282.shtml)
-- 2026-06-29 12:49 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/232703765.shtml)
-- 2026-06-29 12:29 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/30801360609.shtml)
-- 2026-06-29 12:28 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/54819666072.shtml)
-- 2026-06-29 12:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/9888854656.shtml)
-- 2026-06-29 12:27 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/67416.shtml)
-- 2026-06-29 12:36 - [金刚川](https://www.share.kurohicncr.top/Article/details/59861614.shtml)
-- 2026-06-29 12:27 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/54935727.shtml)
-- 2026-06-29 12:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/099095790.shtml)
-- 2026-06-29 12:43 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/01112496.shtml)
-- 2026-06-29 12:39 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/82350.shtml)
-- 2026-06-29 12:46 - [岭南电影为何迎来“南方热”](http://www.share.kurohicncr.top/Article/details/75245134868.shtml)
-- 2026-06-29 12:50 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/1803484741.shtml)
+- 2026-06-29 12:30 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.share.minike.top/Article/details/00351.shtml)
+- 2026-06-29 12:24 - [去年全国核发绿证超过29亿个](http://www.blog.kurohicncr.top/Article/details/4391967867.shtml)
+- 2026-06-29 12:35 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](http://www.blog.minike.top/Article/details/234986352.shtml)
+- 2026-06-29 12:24 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](http://www.share.minike.top/Article/details/88509719.shtml)
+- 2026-06-29 12:43 - [24小时最大降雨量达474.3毫米 湖北鹤峰紧急转移486人](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [海南“十五五”出招引科技人才：建平台、优服务、拓合作](http://www.share.minike.top/Article/details/55488.shtml)
+- 2026-06-29 12:48 - [2026“粤超”联赛继续 广州赛场氛围浓](http://www.share.kurohicncr.top/Article/details/24939763844.shtml)
+- 2026-06-29 12:33 - [三大运营商即将免月租？官方回应](http://www.share.kurohicncr.top/Article/details/862499690972.shtml)
+- 2026-06-29 12:36 - [DoubleLine冈拉克：当前情况下美联储“根本不可能”降息](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [防病控“三高”别错过这些果蔬](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:41 - [“AI内存芯片繁荣正在埋下崩盘种子”！这次危险藏在需求端](http://www.blog.minike.top/Article/details/535144033822.shtml)
+- 2026-06-29 12:29 - [韩正出席2026年全球贸易投资促进峰会开幕式并致辞](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:37 - [公众科学日：水下仿生机器鱼展演栩栩如生](http://www.blog.minike.top/Article/details/986720.shtml)
+- 2026-06-29 12:45 - [伊朗计划在两年内完成南帕尔斯气田重建](http://www.share.minike.top/Article/details/13564.shtml)
+- 2026-06-29 12:34 - [吉利汽车因认股权获行使而发行13.28万股](http://www.blog.kurohicncr.top/Article/details/14470.shtml)

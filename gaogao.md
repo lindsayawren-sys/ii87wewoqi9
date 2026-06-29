@@ -1,60 +1,61 @@
-# 作家小昌获首届广西青年文学奖
+# 酒价内参5月18日价格发布：习酒君品上涨5元/瓶
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-中新网南宁4月27日电 (俞靖)以“在文学的田野上播种”为主题的第一届广西青年文学奖颁奖典礼27日在广西南宁举办，作家小昌以长篇小说《海雾弥漫》获奖。 广西出版传媒集团党委委员、副总经理、总编辑卢培钊在致辞中表示，文学创作与文学出版，是内容生产传播密不可分的整体。近年来，广西出版传媒集团通过扶持文学作品出版，举办文学奖项赛事，振兴漓江出版品牌等举措，培育文学创作出版新生态，现已
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。市场延续强势上攻，终端交投情绪升温，茅
 
 ## 正文
 
-中新网南宁4月27日电 (俞靖)以“在文学的田野上播种”为主题的第一届广西青年文学奖颁奖典礼27日在广西南宁举办，作家小昌以长篇小说《海雾弥漫》获奖。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月18日整体大幅上行。
 
-广西出版传媒集团党委委员、副总经理、总编辑卢培钊在致辞中表示，文学创作与文学出版，是内容生产传播密不可分的整体。
+如果主要单品各取一瓶整体打包售卖，今日总售价为10030元，较昨日强劲上涨47元，创下“酒价内参”3月21日升级为当前11款酒品以来的最高纪录，同时总价首次站上万元整数关口。
 
-近年来，广西出版传媒集团通过扶持文学作品出版，举办文学奖项赛事，振兴漓江出版品牌等举措，培育文学创作出版新生态，现已构建起涵盖严肃文学、网络文学、儿童文学的全方位奖项矩阵，前述广西青年文学奖便是其中重要一环。
+市场延续强势上攻，终端交投情绪升温，茅台系及其他酱香品种的表现尤为突出。
 
-此次颁奖典礼邀请著名作家、茅盾文学奖获得者苏童，《人民文学》杂志社主编、茅盾文学奖获得者徐则臣，广西文联主席、广西作协主席、茅盾文学奖获得者东西出席，为获奖者颁奖，进一步激励文学青年。
+今日白酒市场11大单品九涨两跌，赢家占据绝对优势。
 
-本届广西青年文学奖自2025年3月启动以来，得到青年作家广泛参与，收到一批反映时代精神，体现艺术创新的原创长篇作品，涌现出一批有温度、有地域特色的佳作。
+上涨方面，精品茅台的涨幅居前，大幅上涨21元/瓶至2425元，创下近一月最大增幅，价格再创近一个月新高，i茅台16日提价效应持续向终端传导；国窖1573与古井贡古20均上涨6元/瓶，前者创近一月最高价格纪录；习酒君品、青花郎及青花汾20均上涨5元/瓶，其中青花郎亦创下近一月最高价纪录；飞天茅台上涨3元/瓶，固守在1740元上方；五粮液普五八代与五粮液1618均小幅上涨1元/瓶。
 
-经严格评审，本届青年文学奖最终评选出10部入围终评作品。
+下跌方面，洋河梦之蓝M6+与水晶剑南春均下跌3元/瓶，前者终结此前的六连阳，连续上涨累积了一定卖盘压力，但今日价格仍处于月内次高位。
 
-其中，作家小昌凭借作品的深刻内涵与精湛笔法，以长篇小说《海雾弥漫》获第一届广西青年文学奖。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-他在获奖发言时表示，其从老家山东到广西北海生活已有21年，这段经历影响其创作，未来希望与更多青年作家共同成长。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台(3月31日上调至1539元/瓶)，1月9日开售2299元/瓶的精品茅台(5月16日上调至2359元/瓶)，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 12:33 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 12:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 12:49 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 12:42 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 12:31 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 12:46 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 12:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 12:41 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 12:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 12:28 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 12:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 12:42 - [盘前：纳指期货跌0.09% 市场关注油价与债券市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:46 - [缅甸发生5.2级地震 震源深度10千米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:50 - [娄山观|谁说山地不能刚？贵州农业硬核登场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:27 - [第25届“汉语桥”世界大学生中文比赛德国区决赛举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:40 - [“Happy Birthday. l love you.”妈妈空降学校外带着蛋糕和烟花给当天生日的男孩送来祝福 网友：这大概就是16岁最好的礼物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:47 - [湖北荆州遭遇特大暴雨 中心城区实施“五停”措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:34 - [美国长债收益率创2023年以来新高 受通胀疑虑影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:37 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:44 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:29 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:53 - [平台支付需留神 莫让“付钱”变“借钱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:48 - [外交部发言人就美国总统特朗普涉台表态答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:52 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:24 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:39 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:42 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/0096630021.shtml)
-- 2026-06-29 12:45 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/32934.shtml)
-- 2026-06-29 12:47 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/752587750.shtml)
-- 2026-06-29 12:40 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.blog.minike.top/Article/details/26205996025.shtml)
-- 2026-06-29 12:44 - [跑步机上“爬坡”减肥公式爆火](http://www.blog.minike.top/Article/details/85973.shtml)
-- 2026-06-29 12:37 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/15854.shtml)
-- 2026-06-29 12:25 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/529719.shtml)
-- 2026-06-29 12:51 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/32678.shtml)
-- 2026-06-29 12:39 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/020465.shtml)
-- 2026-06-29 12:45 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/73630.shtml)
-- 2026-06-29 12:34 - [游戏数据竟被用于军事目的](http://www.blog.kurohicncr.top/Article/details/334611296434.shtml)
-- 2026-06-29 12:47 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/44616.shtml)
-- 2026-06-29 12:37 - [毕业寄几百斤快递回家女生发声](https://www.share.minike.top/Article/details/9684107.shtml)
-- 2026-06-29 12:38 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/541435.shtml)
-- 2026-06-29 12:42 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/566302.shtml)
+- 2026-06-29 12:44 - [（寻味中华｜文博）50万年前的“石器工坊”：内蒙古大窑遗址“敲”响文明回音](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:39 - [5月18日“农产品批发价格200指数”比上周五下降0.45个点](http://www.share.minike.top/Article/details/3819561991.shtml)
+- 2026-06-29 12:48 - [电科数字（600850）收到处罚事先告知书，股民索赔将提交立案](http://www.blog.kurohicncr.top/Article/details/552848845991.shtml)
+- 2026-06-29 12:32 - [国际社会积极评价中美元首会晤——“中美两国选择合作而不是冲突，全世界都将受益”](http://www.share.minike.top/Article/details/307012016.shtml)
+- 2026-06-29 12:51 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.share.kurohicncr.top/Article/details/423142.shtml)
+- 2026-06-29 12:29 - [First Eagle主动型ETF平台推出不到18个月，资产规模突破30亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [十大机构论市：双创冲高回落 科技行情结束了吗？](http://www.blog.kurohicncr.top/Article/details/495641.shtml)
+- 2026-06-29 12:53 - [文脉华章|我们为什么需要博物馆](http://www.blog.minike.top/Article/details/78442394.shtml)
+- 2026-06-29 12:39 - [北仑河广西东兴城区河段超警戒水位1.05米](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [《以笔为枪》首发 作者寄语青年传承抗战文艺的精神火炬](http://www.share.minike.top/Article/details/8639962715.shtml)
+- 2026-06-29 12:38 - [张雪机车820RR亮相香港 82岁车迷点赞“中国制造100分”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [诺奖得主斯宾塞：中国AI发展民众受惠、世界得益](http://www.share.minike.top/Article/details/65001200780.shtml)
+- 2026-06-29 12:40 - [中美阿三国警方首次开展联合打击电信网络诈骗犯罪行动](http://www.share.minike.top/Article/details/20469.shtml)
+- 2026-06-29 12:25 - [衢州发展战略转型受挫，终止购买先导电科95.4559%股份](http://www.share.minike.top/Article/details/82252423215.shtml)
+- 2026-06-29 12:27 - [中信证券：调整何解？重建杠铃结构](http://www.share.minike.top/Article/details/14414362208.shtml)

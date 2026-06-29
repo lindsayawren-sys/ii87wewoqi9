@@ -1,51 +1,59 @@
-# 北京银行：2025年末不良贷款率1.29%，较年初下降0.02个百分点
+# 翼菲科技明日港股上市：发行价30.5港元 募资6.7亿港元
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，北京银行发布2025年年度报告。截至报告期末，公司不良贷款率1.29%，较年初下降0.02个百分点，拨备覆盖率200.21%。 责任编辑：王馨茹
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷递 雷递网 雷建平 5月17日 浙江翼菲智能科技股份有限公司（简称：“翼菲科技”，股票代码：“06871”）将于明日在港交所上市。 翼菲科技发行价为30.5港元，发行2460万股，募资总额为7.5亿港元；扣非发行应付上市费用7740万港元，募资净额为6.73亿港元。 翼菲科技此次上市无基石投资者加持
 
 ## 正文
 
-4月27日金融一线消息，北京银行发布2025年年度报告。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-截至报告期末，公司不良贷款率1.29%，较年初下降0.02个百分点，拨备覆盖率200.21%。
+来源：雷递 雷递网 雷建平 5月17日 浙江翼菲智能科技股份有限公司（简称：“翼菲科技”，股票代码：“06871”）将于明日在港交所上市。
 
-责任编辑：王馨茹
+翼菲科技发行价为30.5港元，发行2460万股，募资总额为7.5亿港元；扣非发行应付上市费用7740万港元，募资净额为6.73亿港元。
+
+翼菲科技此次上市无基石投资者加持。
+
+据介绍，翼菲科技是一家工业机器人企业，专注于工业机器人的设计、研发、制造及商业化，并提供机器人综合解决方案，深耕轻工业应用场景。
+
+招股书显示，翼菲科技2023年、2024年、2025年营收分别为2亿元、2.68亿元、3.87亿元；毛利分别为3687万元、7102万元、9620万元；毛利率分别为18.3%、26.5%、24.8%。
+
+翼菲科技2023年、2024年、2025年年内亏损分别为1.1亿、7150万、1.53亿元；期内利润率分别为-55%、-26.7%、-39.5%。
+
+IPO后，张赛直接持股为10.05%，绍兴梓遒持股为7.88%，紹興宇章持股为2.45%，紹興知秋持股为2.17%，一共持股为22.55%。
 
 ## 相关推荐
 
-- 2026-06-29 12:31 - [伊朗队球员哭诉：这届世界杯是场灾难](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 12:44 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 12:49 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 12:40 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 12:45 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 12:30 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 12:27 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 12:37 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 12:36 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 12:48 - [刘烨赶紧蹭个热度宣传四渡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 12:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 12:33 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 12:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 12:22 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 12:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 12:31 - [第79届戛纳电影节“中国之夜”暨首届金海岸荣誉盛典举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:32 - [我国成功发射千帆星座第9批组网卫星](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:49 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:25 - [4月中国商品零售增速放缓 服务零售增长加快](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:52 - [满城派送栀子花 武汉邀长江中游城市群共赴花香之约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:28 - [沈阳抗美援朝烈士陵园开展“5·18国际博物馆日”主题活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:33 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:27 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:40 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:31 - [河南省举办高校残疾大学生就业双选会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:45 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:45 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:50 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/673236.shtml)
-- 2026-06-29 12:42 - [中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/7418853906.shtml)
-- 2026-06-29 12:44 - [世界杯用球成部分门将噩梦](http://www.blog.minike.top/Article/details/84496615.shtml)
-- 2026-06-29 12:30 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/26833600829.shtml)
-- 2026-06-29 12:34 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/86760.shtml)
-- 2026-06-29 12:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/7393193.shtml)
-- 2026-06-29 12:43 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/69417.shtml)
-- 2026-06-29 12:31 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/57599831855.shtml)
-- 2026-06-29 12:32 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/167450739596.shtml)
-- 2026-06-29 12:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/12473367.shtml)
-- 2026-06-29 12:37 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/148261372.shtml)
-- 2026-06-29 12:40 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/7527809782.shtml)
-- 2026-06-29 12:48 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/9928637.shtml)
-- 2026-06-29 12:49 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/65749.shtml)
-- 2026-06-29 12:46 - [扫黑风暴](https://www.share.minike.top/Article/details/012746634852.shtml)
+- 2026-06-29 12:41 - [从白玉耳杯到五盔坟壁画：一场跨越千年的文物对话](http://www.share.minike.top/Article/details/64686.shtml)
+- 2026-06-29 12:39 - [阳狮集团斥资25.5亿美元收购LiveRamp，加码人工智能布局](http://www.share.kurohicncr.top/Article/details/36192.shtml)
+- 2026-06-29 12:45 - [2026年“水立方杯”中文歌曲大赛泰国宋卡赛区举行决赛](http://www.share.minike.top/Article/details/05301972733.shtml)
+- 2026-06-29 12:32 - [平台支付需留神 莫让“付钱”变“借钱”](http://www.share.minike.top/Article/details/540283508.shtml)
+- 2026-06-29 12:49 - [外交部发言人就美国总统特朗普涉台表态答记者问](http://www.share.kurohicncr.top/Article/details/649098.shtml)
+- 2026-06-29 12:32 - [电动化转型踩刹车，斯巴鲁推迟自研纯电车型上市](http://www.share.kurohicncr.top/Article/details/55012759.shtml)
+- 2026-06-29 12:40 - [一骑绝尘 校运会上男生百米跑速度突破10.53秒 看懵现场同学](http://www.blog.kurohicncr.top/Article/details/110620425013.shtml)
+- 2026-06-29 12:41 - [年内涨超263%！ST京蓝因信披问题遭深交所通报批评：靶材业务披露不准确，市场传闻没及时核实](http://www.share.minike.top/Article/details/544958992262.shtml)
+- 2026-06-29 12:40 - [香港成立首个全端具身智能实验室 以AI赋能产业升级](http://www.blog.minike.top/Article/details/16942681.shtml)
+- 2026-06-29 12:27 - [离境退税2.0版来了：万元以下实行抽检制，7月1日起实施](http://www.share.minike.top/Article/details/152257.shtml)
+- 2026-06-29 12:35 - [2025年全国博物馆接待观众15.6亿人次](http://www.blog.minike.top/Article/details/602179.shtml)
+- 2026-06-29 12:38 - [2026年中国公路自行车联赛（北京·昌平）落幕](http://www.share.minike.top/Article/details/31731948.shtml)
+- 2026-06-29 12:53 - [去年全国核发绿证超过29亿个](http://www.share.minike.top/Article/details/172564037381.shtml)
+- 2026-06-29 12:47 - [Klarna牵手EZContacts，为视力保健提供灵活支付方案](http://www.share.kurohicncr.top/Article/details/7965471.shtml)
+- 2026-06-29 12:48 - [海湾无人机袭击引发供应担忧，油价突破每桶110美元](http://www.share.kurohicncr.top/Article/details/64856.shtml)

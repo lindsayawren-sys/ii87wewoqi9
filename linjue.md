@@ -1,57 +1,59 @@
-# 三书六礼 婚前准备那些事儿
+# 海内外百余名施氏宗亲厦门共祭施琅
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-“五一”假期将至，婚嫁喜事迎来高峰。自古婚嫁讲究“三书六礼”(“三书”即：聘书、礼书和迎书，“六礼”为：纳采、问名、纳吉、纳征、请期、亲迎)，这套流程在宋代趋于完备，既注重礼制又融入民间习俗，每一步都郑重其事。弱冠 笄礼“使上头” 结婚前的必要条件 在宋朝的清明节，女孩子年满十五岁，大都会在这一天束发插簪，以示成年，称之为“上头”。因此十四岁时就要开始蓄发，为束发插笄做准备。花
+中新网厦门5月17日电 (吴冠标 苏簪海)17日，来自海峡两岸及菲律宾、印度尼西亚、新加坡、马来西亚等地的百余名施氏宗亲齐聚厦门，在将军祠举行共祭施琅将军活动。 当天，第七届厦门将军祠文化交流座谈会、世界施氏青年座谈会暨《沿妈祖信仰寻施琅足迹》纪录片发布会同步举行。 台盟福建省委会专职副主委许勇铁在座谈会上致辞表示，从台南福德爷庙到澎湖施公祠，从湄洲妈祖祖庙到厦门净莲寺，施琅的
 
 ## 正文
 
-“五一”假期将至，婚嫁喜事迎来高峰。
+中新网厦门5月17日电 (吴冠标 苏簪海)17日，来自海峡两岸及菲律宾、印度尼西亚、新加坡、马来西亚等地的百余名施氏宗亲齐聚厦门，在将军祠举行共祭施琅将军活动。
 
-自古婚嫁讲究“三书六礼”(“三书”即：聘书、礼书和迎书，“六礼”为：纳采、问名、纳吉、纳征、请期、亲迎)，这套流程在宋代趋于完备，既注重礼制又融入民间习俗，每一步都郑重其事。
+当天，第七届厦门将军祠文化交流座谈会、世界施氏青年座谈会暨《沿妈祖信仰寻施琅足迹》纪录片发布会同步举行。
 
-弱冠 笄礼“使上头” 结婚前的必要条件 在宋朝的清明节，女孩子年满十五岁，大都会在这一天束发插簪，以示成年，称之为“上头”。
+台盟福建省委会专职副主委许勇铁在座谈会上致辞表示，从台南福德爷庙到澎湖施公祠，从湄洲妈祖祖庙到厦门净莲寺，施琅的神像被两岸多地宫庙供奉。
 
-因此十四岁时就要开始蓄发，为束发插笄做准备。
+这些遍布海峡两岸的宫庙与香火，是连接两岸同胞心灵的坚韧纽带。
 
-花蕊夫人《宫词》有“年初十五最风流，新赐云鬟使上头”之句。
+世界临濮施氏宗亲总会第十七届理事长施荣源认为，施琅将军最大的贡献就是平定台湾并上奏《恭陈台湾弃留疏》，促使康熙帝下决心将台湾纳入清朝版图，设置“台湾府”实施有序统治，让台湾从此进入有序发展阶段。
 
-笄，就是古代盘头发或别住帽子用的簪子，笄礼之前头发就不能披头散发了，一定要盘起头。
+厦门市姓氏源流研究会施氏委员会会长施性勤指出，施琅平台后继续担任福建水师提督，坐镇厦门13年，建设福建水师提督衙署兼辖台澎军务，奏设厦门海关促进对外贸易，扩建厦门城巩固海防，捐资修建南普陀寺、万石岩寺等，使厦门社会经济、文化得到长足的进步。
 
-“上头”还指男子束发加冠，冠礼最早可追溯到周代，男子在结发加冠之后才可以娶妻。
+施性勤表示，厦门市姓氏源流研究会施氏委员会今后将持续以施琅文化为抓手，发挥宗亲文化力量，举办更多的交流活动，密切海内外施氏宗亲情谊，助力两岸文化交流。
 
-宋朝建立初期，由于国家尚处于草创阶段未能施行，这一传统便一直拖延到政和年间才重新恢复并完善仪制。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 12:28 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 12:35 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 12:23 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 12:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 12:32 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 12:37 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 12:38 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 12:36 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 12:41 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 12:24 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 12:25 - [南京银行：董事王厚印辞任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:28 - [广西北海海上风电单桩基础设备出运越南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:50 - [伊朗战争重创全球富庶强国之一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:48 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:30 - [5月美国建筑商信心回升，但购房负担能力挑战持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:31 - [最高法、中国残联发布第二批残疾人诉讼服务和多元解纷典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:29 - [北京三里屯UR玻璃会看到裙底？最新回应：已经做处理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:27 - [李大霄：5月18日美债收益率破5%暗藏的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:29 - [中国空间站：神二十一乘组在轨近200天 状态良好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:30 - [Boskalis投资新建高容量电缆铺设船，瞄准海上风电与互联市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:25 - [司法部、中国残联发布残疾人法律援助典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:33 - [在新疆兵团，葫芦雕刻何以“破圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:51 - [河北一高校博物馆独具特色 吸引民众观展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:23 - [起风了](https://www.blog.minike.top/Article/details/59504290.shtml)
-- 2026-06-29 12:28 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/55720636.shtml)
-- 2026-06-29 12:36 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/465497450.shtml)
-- 2026-06-29 12:45 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/4463048365.shtml)
-- 2026-06-29 12:30 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/02394976227.shtml)
-- 2026-06-29 12:24 - [天津打雷](http://www.share.kurohicncr.top/Article/details/707036353865.shtml)
-- 2026-06-29 12:28 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/973089046.shtml)
-- 2026-06-29 12:24 - [神23乘组太空出差满月](http://www.share.kurohicncr.top/Article/details/7995962771.shtml)
-- 2026-06-29 12:26 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/1568657380.shtml)
-- 2026-06-29 12:51 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/483828699812.shtml)
-- 2026-06-29 12:22 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/97693076.shtml)
-- 2026-06-29 12:32 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/7827263623.shtml)
-- 2026-06-29 12:34 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/3616811.shtml)
-- 2026-06-29 12:44 - [刘宇宁现偶我就不要了](https://www.blog.minike.top/Article/details/034494834487.shtml)
-- 2026-06-29 12:27 - [哈尔滨“全城追菠萝蜜”](http://www.blog.kurohicncr.top/Article/details/172003.shtml)
+- 2026-06-29 12:32 - [零下40度修轻轨 中亚首条“中国标准”轻轨如何建成？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [山东滨州邹平市：凝统战之力 聚铝业之链 赋能产业集群高质量发展](http://www.share.kurohicncr.top/Article/details/5417502.shtml)
+- 2026-06-29 12:50 - [（文化中国行）中国热播剧带火古戏台 戏曲大省山西戏韵悠长](http://www.blog.minike.top/Article/details/863709520014.shtml)
+- 2026-06-29 12:38 - [河南省举办高校残疾大学生就业双选会](http://www.blog.kurohicncr.top/Article/details/5028329614.shtml)
+- 2026-06-29 12:43 - [高培勇：改革在宏观经济治理当中的地位和作用显著增强](http://www.blog.minike.top/Article/details/993934.shtml)
+- 2026-06-29 12:30 - [“晋高句骊归义侯”金印正式入藏集安市博物馆](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:30 - [韩国企业联合发布国际招标，计划采购最高7万吨饲用玉米](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](http://www.share.minike.top/Article/details/112845594798.shtml)
+- 2026-06-29 12:51 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](http://www.share.minike.top/Article/details/355418364.shtml)
+- 2026-06-29 12:33 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:27 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](http://www.blog.minike.top/Article/details/0585069.shtml)
+- 2026-06-29 12:48 - [特斯拉在美国上调Model Y车型的售价](http://www.share.kurohicncr.top/Article/details/3974131.shtml)
+- 2026-06-29 12:48 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](http://www.blog.kurohicncr.top/Article/details/29469.shtml)
+- 2026-06-29 12:52 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](http://www.share.minike.top/Article/details/025547998382.shtml)
+- 2026-06-29 12:54 - [原油：油价震荡上涨 美伊和平谈判再现波折](http://www.blog.kurohicncr.top/Article/details/1401374.shtml)

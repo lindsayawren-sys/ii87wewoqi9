@@ -1,55 +1,55 @@
-# 探访深圳大学“超级大脑” 助力学科排名全球前列
+# 南京银行：董事王厚印辞任
 
-> 更新时间：2026-06-29 12:51:34 UTC+8
+> 更新时间：2026-06-29 12:54:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 18:46 来源：中国新闻网 近日，深圳大学人工智能学院迎来成立一周年。一年间，学院在学科建设、科研创新等方面交出亮眼“成绩单”：学科排名跃居全球前列，斥资超亿元打造的智算中心全面投用等。记者近日实地探访智算中心，了解这座高校里的“超级大脑”。 深圳大学人工智能学院在短期内，在国际上学科影响力迅速攀升，成绩引发关注。2026年CSRanking
+5月18日金融一线消息，南京银行公告称，公司董事会收到本公司董事王厚印先生的辞职报告。王厚印先生因工作原因辞去本公司董事、董事会战略与ESG委员会委员职务。本公司董事会接受其辞呈，该辞任自辞职报告送达本公司董事会时生效。王厚印先生的离任不会导致本公司董事会成员低于法定人数。王厚印先生已按照本公司相关管理规定做好工作交接。 责任编辑：李琳琳
 
 ## 正文
 
-发布时间：2026年04月26日 18:46 来源：中国新闻网 近日，深圳大学人工智能学院迎来成立一周年。
+5月18日金融一线消息，南京银行公告称，公司董事会收到本公司董事王厚印先生的辞职报告。
 
-一年间，学院在学科建设、科研创新等方面交出亮眼“成绩单”：学科排名跃居全球前列，斥资超亿元打造的智算中心全面投用等。
+王厚印先生因工作原因辞去本公司董事、董事会战略与ESG委员会委员职务。
 
-记者近日实地探访智算中心，了解这座高校里的“超级大脑”。
+本公司董事会接受其辞呈，该辞任自辞职报告送达本公司董事会时生效。
 
-深圳大学人工智能学院在短期内，在国际上学科影响力迅速攀升，成绩引发关注。
+王厚印先生的离任不会导致本公司董事会成员低于法定人数。
 
-2026年CSRankings人工智能领域排名中，深圳大学位列全球第8位；2025年USNews人工智能学科排名位居全球第49位。
+王厚印先生已按照本公司相关管理规定做好工作交接。
 
-(记者 王庆然 深圳报道） 责任编辑：【周驰】
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 12:25 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 12:30 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 12:46 - [女子拍邻居家中裸照发业主群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 12:32 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 12:21 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 12:27 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 12:41 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 12:38 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 12:38 - [未来5年 充电供热供暖将有大变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 12:27 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 12:22 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 12:30 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 12:42 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 12:47 - [李大霄：5月18日美债收益率破5%暗藏的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:48 - [中国空间站：神二十一乘组在轨近200天 状态良好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:34 - [Boskalis投资新建高容量电缆铺设船，瞄准海上风电与互联市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:29 - [司法部、中国残联发布残疾人法律援助典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:50 - [在新疆兵团，葫芦雕刻何以“破圈”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:39 - [河北一高校博物馆独具特色 吸引民众观展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:52 - [香港赛马会2026年广州市“飞人杯”田径接力赛收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:37 - [古巴国家主席说美对古军事威胁已构成国际犯罪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:30 - [深夜，大幅拉升！美伊，突发大消息！伊朗重磅发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:29 - [盈利大幅改善支撑，Alerus Financial 29年股息增长纪录有望延续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:52 - [廊坊银行股权变更获批 厦门国际银行持股比例达6.4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:47 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:52 - [中央气象台今早继续发布暴雨黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:35 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/4090053398.shtml)
-- 2026-06-29 12:41 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/586172951.shtml)
-- 2026-06-29 12:42 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/2633521.shtml)
-- 2026-06-29 12:42 - [男子在家一丝不挂 邻居拍照发业主群](http://www.blog.minike.top/Article/details/2134964.shtml)
-- 2026-06-29 12:48 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/062345002663.shtml)
-- 2026-06-29 12:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/703826.shtml)
-- 2026-06-29 12:24 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/79736257.shtml)
-- 2026-06-29 12:29 - [四川宜宾地震](http://www.share.minike.top/Article/details/87939400162.shtml)
-- 2026-06-29 12:41 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/50057507249.shtml)
-- 2026-06-29 12:43 - [陈露发声引舆论反转](https://www.blog.minike.top/Article/details/08012.shtml)
-- 2026-06-29 12:37 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/360179266.shtml)
-- 2026-06-29 12:31 - [F1奥地利大奖赛正赛集锦](http://www.blog.minike.top/Article/details/525875.shtml)
-- 2026-06-29 12:30 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/865173066.shtml)
-- 2026-06-29 12:51 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/430419.shtml)
-- 2026-06-29 12:24 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/489071.shtml)
+- 2026-06-29 12:26 - [“神计妙算”公众科学日：科普开讲“一讲就懂的人工智能”系列讲座](http://www.blog.minike.top/Article/details/81069029.shtml)
+- 2026-06-29 12:44 - [一家国际潜水组织成员抵达马尔代夫 将搜寻失踪意大利潜水者](http://www.blog.minike.top/Article/details/02217401904.shtml)
+- 2026-06-29 12:53 - [5月19日外盘头条：特朗普称推迟原定周二对伊朗攻击 马斯克起诉OpenAI案败诉 苹果据悉拟6月展示新操作系统](http://www.blog.minike.top/Article/details/5841828008.shtml)
+- 2026-06-29 12:51 - [广西柳州市地震区域搜救出最后1名被困人员 生命体征平稳](http://www.blog.kurohicncr.top/Article/details/77376594.shtml)
+- 2026-06-29 12:46 - [特斯拉在美国上调Model Y车型的售价](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:25 - [以刀刻雅韵 非遗紫砂雕刻展在沪开幕](http://www.share.minike.top/Article/details/338534.shtml)
+- 2026-06-29 12:30 - [第79届世界卫生大会中国代表团：中国深化卫生领域创新合作 贡献中国经验助力全球卫生治理](http://www.share.kurohicncr.top/Article/details/540015655.shtml)
+- 2026-06-29 12:45 - [原油：油价震荡上涨 美伊和平谈判再现波折](http://www.blog.kurohicncr.top/Article/details/35626659111.shtml)
+- 2026-06-29 12:34 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.share.kurohicncr.top/Article/details/6692927.shtml)
+- 2026-06-29 12:37 - [西藏居然有三家公募基金](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:28 - [M4Markets:金价剧震下蓄力新方向](http://www.share.kurohicncr.top/Article/details/87660359454.shtml)
+- 2026-06-29 12:35 - [5月11日—5月17日国家铁路运输货物8198.9万吨](http://www.blog.minike.top/Article/details/04542641.shtml)
+- 2026-06-29 12:27 - [酒价内参5月18日价格发布：习酒君品上涨5元/瓶](http://www.blog.minike.top/Article/details/41804.shtml)
+- 2026-06-29 12:41 - [Meta本周开启大规模裁员 暴露出扎克伯格麾下企业残酷的AI行业现实](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [直播海报：国新办就2026年4月份国民经济运行情况举行新闻发布会](http://www.blog.minike.top/Article/details/638470389625.shtml)
