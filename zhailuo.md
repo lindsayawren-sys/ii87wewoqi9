@@ -1,59 +1,59 @@
-# 日本一家炼油商采购墨西哥石油 避开霍尔木兹海峡混乱局面
+# QFII持股市值50强出炉！QFII一季度大手笔增持这些股
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-随着伊朗战事和霍尔木兹海峡几乎关闭导致供应中断，一家日本炼油商采购了墨西哥原油，为自2023年以来首次。 据航运报告，未来几天船只Eagle Kuantan和Eagle Kangar计划共装载100万桶Isthmus原油，买方是日本企业Cosmo能源控股株式会社。这批石油由墨西哥石油公司（Pemex）的贸易部门PMI供应，正从位于大西洋沿岸的Pajaritos码头装船。 日本9
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 随着A股一季报披露落幕，QFII最新持股路径全面曝光。证券时报·数据宝发布《一季度QFII持股市值50强》，一文纵览外资布局脉络。 QFII重仓银行、电子板块 据证券时报·数据宝统计，截至2026年一季度末，QFII合计持有上市公司1518家，持股总市值约为1946.65亿元。
 
 ## 正文
 
-随着伊朗战事和霍尔木兹海峡几乎关闭导致供应中断，一家日本炼油商采购了墨西哥原油，为自2023年以来首次。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-据航运报告，未来几天船只Eagle Kuantan和Eagle Kangar计划共装载100万桶Isthmus原油，买方是日本企业Cosmo能源控股株式会社。
+张坤、葛兰等最新布局出炉 随着A股一季报披露落幕，QFII最新持股路径全面曝光。
 
-这批石油由墨西哥石油公司（Pemex）的贸易部门PMI供应，正从位于大西洋沿岸的Pajaritos码头装船。
+证券时报·数据宝发布《一季度QFII持股市值50强》，一文纵览外资布局脉络。
 
-日本90%以上的原油供应来自中东，主要来自沙特阿拉伯、阿联酋、科威特和卡塔尔，这些国家都受到了霍尔木兹海峡近乎关闭的影响。
+QFII重仓银行、电子板块 据证券时报·数据宝统计，截至2026年一季度末，QFII合计持有上市公司1518家，持股总市值约为1946.65亿元。
 
-总部东京的Cosmo表示，已经能够从别处确保供应，例如墨西哥和美国，以确保三个炼油厂未来三个月的需求。
+分行业看，QFII持股主要集中在银行、电子板块，持股市值分别为474.01亿元、335.88亿元；通信、机械设备、有色金属等板块紧随其后，持股市值均在100亿元以上。
 
-今年4月日本首相高市早苗与墨西哥总统克劳迪娅·辛鲍姆讨论了中东冲突期间Pemex向日本供应石油的可能性。
+石油石化、钢铁、美容护理、非银金融、综合和煤炭板块的QFII持股市值不足10亿元。
 
-责任编辑：于健 SF069
+煤炭板块最低，仅为1.26亿元。
+
+值得一提的是，虽然持仓市值居首，但QFII持有的银行股仅有3只，分别为宁波银行、上海银行和西安银行，持股市值依次为402.48亿元、42.24亿元、29.29亿元。
 
 ## 相关推荐
 
-- 2026-06-29 20:17 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 20:20 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 20:31 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 20:35 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 20:22 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 20:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 20:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 20:09 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 20:29 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 20:32 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 20:18 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 20:23 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 20:24 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 20:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 20:22 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 20:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 20:29 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 20:17 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 20:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 20:31 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 20:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 20:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 20:37 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 20:13 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 20:17 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 20:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 20:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 20:40 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/625826521.shtml)
-- 2026-06-29 20:30 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/18664886644.shtml)
-- 2026-06-29 20:06 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/846688727369.shtml)
-- 2026-06-29 20:13 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/503817.shtml)
-- 2026-06-29 20:23 - [扫黑风暴](http://www.share.minike.top/Article/details/67510.shtml)
-- 2026-06-29 20:07 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/228142892055.shtml)
-- 2026-06-29 20:14 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/575953.shtml)
-- 2026-06-29 20:11 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/108453.shtml)
-- 2026-06-29 20:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/9221754.shtml)
-- 2026-06-29 20:28 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/76971532331.shtml)
-- 2026-06-29 20:09 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/439884.shtml)
-- 2026-06-29 20:08 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/7612698.shtml)
-- 2026-06-29 20:18 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/04230513372.shtml)
-- 2026-06-29 20:10 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/47980.shtml)
-- 2026-06-29 20:11 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/07428275853.shtml)
+- 2026-06-29 20:36 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/335393031951.shtml)
+- 2026-06-29 20:35 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/628841.shtml)
+- 2026-06-29 20:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/1003409088.shtml)
+- 2026-06-29 20:13 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/473035.shtml)
+- 2026-06-29 20:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/971616.shtml)
+- 2026-06-29 20:19 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/03497.shtml)
+- 2026-06-29 20:28 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/08917.shtml)
+- 2026-06-29 20:29 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/748206588919.shtml)
+- 2026-06-29 20:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/475452.shtml)
+- 2026-06-29 20:30 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/5560082.shtml)
+- 2026-06-29 20:29 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/72803.shtml)
+- 2026-06-29 20:19 - [天道](http://www.blog.kurohicncr.top/Article/details/940493.shtml)
+- 2026-06-29 20:40 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/710824969868.shtml)
+- 2026-06-29 20:29 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/6854960468.shtml)
+- 2026-06-29 20:14 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/452463.shtml)

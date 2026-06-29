@@ -1,51 +1,55 @@
-# 商务部：中方愿同美方一道不断拉长合作清单
+# 直击“五一”假期首日：站票直达北京 只为看场升旗
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月14日电(记者谢希瑶、黄韬铭)商务部新闻发言人何咏前在14日举行的例行新闻发布会上表示，当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性交流。下一步，中方愿同美方一道
+发布时间：2026年05月01日 16:03 来源：中国新闻网 2026年“五一”假期今日正式开启。5月1日凌晨，中新社记者实地探访了北京天安门广场，虽然天还没亮，但是广场上已经站满了来自全国各地的游客。 假期首日，游客们为何天不亮就来到天安门广场开始排队？凌晨的天安门广场是一番怎样的景象？快来跟着小新的镜头一起直击现场。(记者 谢龙飞 实习生 林倬安） 责任编辑：【李季】
 
 ## 正文
 
-新华社北京5月14日电(记者谢希瑶、黄韬铭)商务部新闻发言人何咏前在14日举行的例行新闻发布会上表示，当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。
+发布时间：2026年05月01日 16:03 来源：中国新闻网 2026年“五一”假期今日正式开启。
 
-双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性交流。
+5月1日凌晨，中新社记者实地探访了北京天安门广场，虽然天还没亮，但是广场上已经站满了来自全国各地的游客。
 
-下一步，中方愿同美方一道，本着平等、尊重、互惠的原则，不断拉长合作清单，压缩问题清单，推动中美经贸关系健康、稳定、可持续发展。
+假期首日，游客们为何天不亮就来到天安门广场开始排队？
+
+凌晨的天安门广场是一番怎样的景象？
+
+快来跟着小新的镜头一起直击现场。
+
+(记者 谢龙飞 实习生 林倬安） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:13 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 20:20 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 20:32 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 20:24 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 20:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 20:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 20:20 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 20:17 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 20:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 20:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 20:15 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 20:18 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 20:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 20:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 20:29 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 20:16 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 20:25 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 20:31 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 20:34 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 20:32 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 20:12 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 20:30 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 20:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 20:26 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 20:15 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 20:35 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 20:17 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 20:16 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/7082399.shtml)
-- 2026-06-29 20:08 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/619908264.shtml)
-- 2026-06-29 20:10 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/82293392669.shtml)
-- 2026-06-29 20:31 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/565631.shtml)
-- 2026-06-29 20:07 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/9181906311.shtml)
-- 2026-06-29 20:32 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/5635513081.shtml)
-- 2026-06-29 20:18 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/3917778004.shtml)
-- 2026-06-29 20:11 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/4986442336.shtml)
-- 2026-06-29 20:16 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/08952680.shtml)
-- 2026-06-29 20:09 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/68694937131.shtml)
-- 2026-06-29 20:17 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/0736265.shtml)
-- 2026-06-29 20:19 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/792190.shtml)
-- 2026-06-29 20:24 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/22411988.shtml)
-- 2026-06-29 20:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/435362.shtml)
-- 2026-06-29 20:08 - [一生一世](https://www.share.minike.top/Article/details/619804.shtml)
+- 2026-06-29 20:13 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/4111316879.shtml)
+- 2026-06-29 20:17 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/14736.shtml)
+- 2026-06-29 20:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/83644.shtml)
+- 2026-06-29 20:22 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/73665603535.shtml)
+- 2026-06-29 20:22 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/4530059.shtml)
+- 2026-06-29 20:12 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/474610785124.shtml)
+- 2026-06-29 20:36 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/75523.shtml)
+- 2026-06-29 20:24 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/68620.shtml)
+- 2026-06-29 20:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/76611386.shtml)
+- 2026-06-29 20:25 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/638239.shtml)
+- 2026-06-29 20:36 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/829748921309.shtml)
+- 2026-06-29 20:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/16702830.shtml)
+- 2026-06-29 20:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/271612282.shtml)
+- 2026-06-29 20:30 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/8749483486.shtml)
+- 2026-06-29 20:26 - [周生如故](https://www.share.minike.top/Article/details/26152.shtml)

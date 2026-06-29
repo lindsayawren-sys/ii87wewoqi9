@@ -1,58 +1,54 @@
-# 央行与证监会拟录用人数均降逾三成 券商从业人员“考公潮”降温了吗
+# 拉萨消防救援机动支队开展“五一”防火专项行动
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-证券时报记者 苏可 一年一度的“考公潮”向来广受社会关注。 5月11日，证监会公示2026年度拟录用公务员名单，也吸引了业界眼球。不过，据证券时报记者统计，来自券商的从业人员数量较2025年大幅减少36%，央行拟录用的券商人员数量也同样下滑超过30%。数据下滑的背后，是券商从业者“考公热”退潮，还是竞争加剧导致入围更难，尚难定论。 从拟录用者的画像来看，年轻化特征依旧突出。大多
+中新网拉萨5月3日电(夏明勇 郑龙 次仁桑珠)“五一”假期期间，拉萨市消防救援机动支队提前部署，统筹各基层大队及驻防点指战员，深入重点林区、景区等开展防火专项行动，全力保障民众生命财产与高原森林资源安全。 行动中，拉萨市消防救援机动支队坚持“预防为主”，采取“定点+流动”模式，通过发放宣传品、宣讲法规案例等形式，提升驻地民众防火意识。在各驻防点，指战员因地制宜开展特色防控：山南
 
 ## 正文
 
-证券时报记者 苏可 一年一度的“考公潮”向来广受社会关注。
+中新网拉萨5月3日电(夏明勇 郑龙 次仁桑珠)“五一”假期期间，拉萨市消防救援机动支队提前部署，统筹各基层大队及驻防点指战员，深入重点林区、景区等开展防火专项行动，全力保障民众生命财产与高原森林资源安全。
 
-5月11日，证监会公示2026年度拟录用公务员名单，也吸引了业界眼球。
+行动中，拉萨市消防救援机动支队坚持“预防为主”，采取“定点+流动”模式，通过发放宣传品、宣讲法规案例等形式，提升驻地民众防火意识。
 
-不过，据证券时报记者统计，来自券商的从业人员数量较2025年大幅减少36%，央行拟录用的券商人员数量也同样下滑超过30%。
+在各驻防点，指战员因地制宜开展特色防控：山南市洛扎县驻防点组织业务骨干对乡镇护林员进行装备操作培训与实战演练，提升地方扑火力量应急能力；日喀则吉隆镇驻防点利用无人机等设备，深入重点林区勘察植被、水源、道路等情况，更新火险数据；那曲市嘉黎县尼屋乡驻防点则携带专业装备开展携装巡护，清理林下可燃物，开设防火隔离带，从源头降低火灾风险。
 
-数据下滑的背后，是券商从业者“考公热”退潮，还是竞争加剧导致入围更难，尚难定论。
+巡护途中，指战员面向村民、游客开展“面对面”宣教，提醒杜绝野外违规用火，推动形成群防群治格局。
 
-从拟录用者的画像来看，年轻化特征依旧突出。
+下一步，拉萨市消防救援机动支队将持续紧盯关键环节，常态化推进防灭火工作，全力守护雪域高原生态安全。
 
-大多券商从业人员入行不足5年，反映部分年轻人对职业稳定性的诉求正在上升。
-
-券商从业者拟被录用人数减少 去年，券商从业人员曾掀起“考公热”，因此今年5月11日证监会公示的2026年度拟录用公务员情况，也持续受到业内关注。
-
-数据显示，今年证监会拟录用名单共有281人，较上一年度的287人有所减少。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 20:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 20:14 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 20:35 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 20:18 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 20:28 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 20:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 20:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 20:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 20:19 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 20:34 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 20:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 20:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 20:24 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 20:12 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 20:17 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 20:21 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 20:23 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 20:35 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 20:29 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 20:13 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 20:40 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 20:37 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 20:18 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/9048232474.shtml)
-- 2026-06-29 20:06 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/7041128.shtml)
-- 2026-06-29 20:26 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/2582081057.shtml)
-- 2026-06-29 20:29 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/190067.shtml)
-- 2026-06-29 20:24 - [急先锋](https://www.blog.minike.top/Article/details/43614867.shtml)
-- 2026-06-29 20:06 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/64722889.shtml)
-- 2026-06-29 20:24 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/525689431210.shtml)
-- 2026-06-29 20:28 - [黄金也扛不住了](http://www.share.minike.top/Article/details/40962695.shtml)
-- 2026-06-29 20:16 - [AG 宫斗](http://www.blog.minike.top/Article/details/61147.shtml)
-- 2026-06-29 20:09 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/662389226.shtml)
-- 2026-06-29 20:26 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/96829.shtml)
-- 2026-06-29 20:20 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/89318994.shtml)
-- 2026-06-29 20:21 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/556036.shtml)
-- 2026-06-29 20:18 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/03067564049.shtml)
-- 2026-06-29 20:06 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/538822.shtml)
+- 2026-06-29 20:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/6002741789.shtml)
+- 2026-06-29 20:39 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/91161628.shtml)
+- 2026-06-29 20:37 - [女生学医适合选什么专业](http://www.blog.minike.top/Article/details/7225206.shtml)
+- 2026-06-29 20:28 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/8434912695.shtml)
+- 2026-06-29 20:15 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/21841603621.shtml)
+- 2026-06-29 20:37 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/06453420.shtml)
+- 2026-06-29 20:18 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/174037.shtml)
+- 2026-06-29 20:28 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/98090209618.shtml)
+- 2026-06-29 20:24 - [毒液2](http://www.share.kurohicncr.top/Article/details/86829462235.shtml)
+- 2026-06-29 20:36 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/507787.shtml)
+- 2026-06-29 20:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/90501025.shtml)
+- 2026-06-29 20:32 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/13744637.shtml)
+- 2026-06-29 20:28 - [金刚川](http://www.blog.kurohicncr.top/Article/details/64228043310.shtml)
+- 2026-06-29 20:13 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/75153556128.shtml)
+- 2026-06-29 20:33 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/82417866.shtml)

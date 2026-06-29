@@ -1,57 +1,55 @@
-# 速腾聚创早盘涨近6% 大摩看好公司强劲市场表现
+# 奥运冠军袁心玥与香港学生交流互动：盼同学领会排球精神
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-速腾聚创（02498）早盘涨超5%，截至发稿，股价上涨5.87%，现报33.56港元，成交额2.32亿港元。 大摩研报指出，速腾聚创再度入选“全球人形机器人产业链百强”，并同时被收录于“中国人形机器人价值链”图谱，成为全球激光雷达领域唯一一家同时跻身两大产业图谱的中国科技企业。大摩认为，强悍的市场表现，是速腾聚创被持续看好的根本原因。2025年，速腾聚创机器人激光雷达销量达到3
+发布时间：2026年05月02日 20:52 来源：中国新闻网 5月2日是2026世界女排联赛香港站赛事宣传日，奥运冠军、前中国女排队长袁心玥在香港奥海城出席活动，她与在场师生进行交流互动，并为球迷送上亲笔签名。袁心玥在记者招待会上分享了来港参赛的心得体会，希望借助更多排球交流活动让更多学生领会团结协作的排球精神。 2026世界女排联赛香港站赛事由中国香港排球总会主办、中国人寿
 
 ## 正文
 
-速腾聚创（02498）早盘涨超5%，截至发稿，股价上涨5.87%，现报33.56港元，成交额2.32亿港元。
+发布时间：2026年05月02日 20:52 来源：中国新闻网 5月2日是2026世界女排联赛香港站赛事宣传日，奥运冠军、前中国女排队长袁心玥在香港奥海城出席活动，她与在场师生进行交流互动，并为球迷送上亲笔签名。
 
-大摩研报指出，速腾聚创再度入选“全球人形机器人产业链百强”，并同时被收录于“中国人形机器人价值链”图谱，成为全球激光雷达领域唯一一家同时跻身两大产业图谱的中国科技企业。
+袁心玥在记者招待会上分享了来港参赛的心得体会，希望借助更多排球交流活动让更多学生领会团结协作的排球精神。
 
-大摩认为，强悍的市场表现，是速腾聚创被持续看好的根本原因。
+2026世界女排联赛香港站赛事由中国香港排球总会主办、中国人寿保险(海外)股份有限公司冠名赞助，将于7月8日至12日在香港启德体艺馆举行。
 
-2025年，速腾聚创机器人激光雷达销量达到30.3万台，同比激增1141.8%，一举登顶全球机器人领域3D激光雷达出货量榜首。
+本站赛事共有6支队伍参赛，包括2025年在香港站全胜、力争三连霸的意大利队，主场出击的中国队，联同多米尼加队、加拿大队、比利时队、乌克兰队，合共上演12场激战，为球迷带来别样排球体验。
 
-技术的深度与广度，是速腾聚创入选的另一个关键。
-
-自2025年初确立“AI+机器人”战略以来，速腾聚创已成功构建从核心硬件到算法的AI机器人全栈技术闭环，实现“车载+机器人”双轮驱动的业务转型。
-
-2026年CES展会期间，搭载速腾聚创具身智能解决方案的全球首台即时配送机器人惊艳亮相，在夜间复杂场景中自主流畅完成从拆箱到乘电梯的近20个精细步骤，展现出从感知到决策执行的完整技术实力，受到海内外市场高度聚焦。
-
-责任编辑：卢昱君
+(记者 陈子彦） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 20:10 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 20:14 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 20:24 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 20:21 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 20:13 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 20:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 20:29 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 20:13 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 20:18 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 20:27 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 20:38 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 20:13 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 20:41 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 20:20 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 20:14 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 20:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 20:12 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 20:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 20:23 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 20:21 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 20:21 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 20:37 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 20:36 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 20:25 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 20:23 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [沙丘](http://www.blog.kurohicncr.top/Article/details/569776673.shtml)
-- 2026-06-29 20:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/523922955.shtml)
-- 2026-06-29 20:29 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/5973173.shtml)
-- 2026-06-29 20:16 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/0332649915.shtml)
-- 2026-06-29 20:11 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/62746905094.shtml)
-- 2026-06-29 20:10 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/606892171126.shtml)
-- 2026-06-29 20:22 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/8000008.shtml)
-- 2026-06-29 20:09 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/368859441140.shtml)
-- 2026-06-29 20:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/96639.shtml)
-- 2026-06-29 20:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/555331542.shtml)
-- 2026-06-29 20:12 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/100957314.shtml)
-- 2026-06-29 20:11 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/958681486.shtml)
-- 2026-06-29 20:22 - [速度与激情9](http://www.share.minike.top/Article/details/808634638392.shtml)
-- 2026-06-29 20:20 - [沉睡花园](http://www.blog.minike.top/Article/details/18179189730.shtml)
-- 2026-06-29 20:30 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/9311669078.shtml)
+- 2026-06-29 20:22 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/05327608337.shtml)
+- 2026-06-29 20:20 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.minike.top/Article/details/203732.shtml)
+- 2026-06-29 20:27 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/640672946.shtml)
+- 2026-06-29 20:15 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/58933769.shtml)
+- 2026-06-29 20:36 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/18199438873.shtml)
+- 2026-06-29 20:40 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/28944792806.shtml)
+- 2026-06-29 20:36 - [宜宾地震已转移安置225人](http://www.share.minike.top/Article/details/60366.shtml)
+- 2026-06-29 20:34 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/7999421.shtml)
+- 2026-06-29 20:15 - [流金岁月](https://www.share.minike.top/Article/details/80795814.shtml)
+- 2026-06-29 20:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/70211867.shtml)
+- 2026-06-29 20:41 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/58763836.shtml)
+- 2026-06-29 20:31 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/005810.shtml)
+- 2026-06-29 20:37 - [主力抛售电子和通信板块](http://www.blog.kurohicncr.top/Article/details/9062954.shtml)
+- 2026-06-29 20:36 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/68194402912.shtml)
+- 2026-06-29 20:33 - [东方风云榜直播](http://www.share.minike.top/Article/details/8552554.shtml)

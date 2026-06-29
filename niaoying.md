@@ -1,56 +1,56 @@
-# 刷新上市高点后，首度回调！逢跌布局时刻？寒武纪创新高后跌超3%，科创人工智能ETF飘绿
+# 事关黄金！央行、海关总署联合发文
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-昨天（5月13日）重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内价格涨近3%，刷新2026年1月的高点，创历史新高，今日（5月14日）该ETF继续刷新上市高点后，随市盘整回调，场内价格现跌0.66%，资金或迎逢跌布局机会。 成份股方面，澜起科技逆市涨逾5%，恒玄科技、威胜信息飘红。另一方面，寒武纪创新高后跌超3%，星环科技-U领跌6%，中科星图、云天励飞-U
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】央行、海关总署决定进一步优化黄金及黄金制品进出口准许证“非一批一证”管理 中国基金报记者 张舟 黄金进出口迎来政策优化新规！ 央行、海关总署决定进一步优化 黄金及黄金制品进出口准许证“非一批一证”管理 4月30日，中国人民银行、海关总署联合对外发布公告称，决定进一步优化黄金及黄金制
 
 ## 正文
 
-昨天（5月13日）重点布局国产AI产业链的科创人工智能ETF华宝（589520）场内价格涨近3%，刷新2026年1月的高点，创历史新高，今日（5月14日）该ETF继续刷新上市高点后，随市盘整回调，场内价格现跌0.66%，资金或迎逢跌布局机会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-成份股方面，澜起科技逆市涨逾5%，恒玄科技、威胜信息飘红。
+来源：中国基金报 【导读】央行、海关总署决定进一步优化黄金及黄金制品进出口准许证“非一批一证”管理 中国基金报记者 张舟 黄金进出口迎来政策优化新规！
 
-另一方面，寒武纪创新高后跌超3%，星环科技-U领跌6%，中科星图、云天励飞-U跌逾4%，跌幅居前，拖累指数表现。
+央行、海关总署决定进一步优化 黄金及黄金制品进出口准许证“非一批一证”管理 4月30日，中国人民银行、海关总署联合对外发布公告称，决定进一步优化黄金及黄金制品进出口准许证“非一批一证”管理，持续简政放权，促进贸易便利化，优化营商环境。
 
-业绩层面，寒武纪一季度营收28.85亿元，同比大增159.56%，归母净利润10.13亿元，同比飙升185.04%，双双创下历史最优纪录。
+新规自2026年6月1日起正式施行。
 
-寒武纪3月成功“摘U”，标志着AI企业从技术投入期，迈入商业回报期。
+核心内容如下： 1． 黄金及黄金制品进出口业务频繁的法人可以按《黄金及黄金制品进出口管理办法》的条件和审批流程，申请《中国人民银行黄金及黄金制品进出口准许证》“非一批一证”（以下简称《准许证》“非一批一证”）。
 
-受益于AI算力驱动，国产AI产业链或迎业绩拐点。
+2． 实行《准许证》“非一批一证”管理的海关为北京、上海、广州、南京、青岛、深圳、天津、成都、武汉、西安、厦门、宁波、三亚、重庆、南宁15个海关。
 
-一季报显示，科创人工智能ETF华宝（589520）30只成份股中，20股实现盈利，占比近七成，17股实现归母净利同比两位数增长，5股同比增速超100%。
+其他海关仍按照现行规定办理。
 
-总体来看，国产算力芯片企业迎来业绩兑现关键期。
+3． 《准许证》“非一批一证”自签发之日起9个月内有效，逾期自行失效。
 
 ## 相关推荐
 
-- 2026-06-29 20:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 20:25 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 20:16 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 20:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 20:34 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 20:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 20:09 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 20:09 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 20:22 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 20:18 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 20:35 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 20:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 20:18 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 20:38 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 20:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 20:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 20:30 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 20:28 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 20:29 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 20:16 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/36854249118.shtml)
-- 2026-06-29 20:06 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/1104202.shtml)
-- 2026-06-29 20:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/844617690.shtml)
-- 2026-06-29 20:09 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/727423517070.shtml)
-- 2026-06-29 20:18 - [千与千寻](http://www.blog.minike.top/Article/details/2133518309.shtml)
-- 2026-06-29 20:32 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/46645.shtml)
-- 2026-06-29 20:18 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/50520196.shtml)
-- 2026-06-29 20:16 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/9037922.shtml)
-- 2026-06-29 20:06 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/1447317791.shtml)
-- 2026-06-29 20:29 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/218055.shtml)
-- 2026-06-29 20:10 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/65534.shtml)
-- 2026-06-29 20:16 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/657229.shtml)
-- 2026-06-29 20:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/181399.shtml)
-- 2026-06-29 20:22 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/276704.shtml)
-- 2026-06-29 20:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/3206109.shtml)
+- 2026-06-29 20:18 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/31677846853.shtml)
+- 2026-06-29 20:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/4356864602.shtml)
+- 2026-06-29 20:25 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/1150917.shtml)
+- 2026-06-29 20:13 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/8832103325.shtml)
+- 2026-06-29 20:37 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/396693501.shtml)
+- 2026-06-29 20:17 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/15917.shtml)
+- 2026-06-29 20:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/32060105210.shtml)
+- 2026-06-29 20:15 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/0635701.shtml)
+- 2026-06-29 20:28 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/55958.shtml)
+- 2026-06-29 20:38 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/2046878.shtml)
+- 2026-06-29 20:33 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/898696567088.shtml)
+- 2026-06-29 20:36 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/86970862480.shtml)
+- 2026-06-29 20:24 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/747623502011.shtml)
+- 2026-06-29 20:26 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/835081597100.shtml)
+- 2026-06-29 20:40 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/80215.shtml)

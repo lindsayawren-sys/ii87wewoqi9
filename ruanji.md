@@ -1,58 +1,61 @@
-# 中国（广西）—东盟“人工智能+应急管理”科技创新大赛启幕
+# 40万尾大麻哈鱼苗投放中俄界江黑龙江
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-本报讯 (广西云-广西日报记者莫迪)5月13日，作为广西AI赋能千行百业超级联赛的重要组成部分，2026年中国(广西)—东盟“人工智能+应急管理”科技创新大赛正式启幕。 记者当日从自治区应急管理厅联合钦州市政府、自治区地震局、自治区科技厅举办的广西“人工智能+应急管理”工作新闻发布会上获悉，本次大赛亮点纷呈。 赛道设置“有方向、有靶点”。赛事采用“赛道方向+赛题榜单”的模式，设
+中新网佳木斯5月1日电(姜辉 赵鹏 梁晨)为养护中俄边境水域渔业资源，增强全民生态保护意识，推动农文旅深度融合发展，1日，黑龙江省同江市开展2025年至2026年度中俄边境水域大麻哈鱼增殖放流活动，40万尾大麻哈鱼苗投放到黑龙江中。 活动现场，赫哲族渔民首先举行了传统祈福仪式。随后，在工作人员引导下，游客们拿着袋子，小心翼翼地将一尾尾大麻哈鱼苗倒入黑龙江。数以万计的鱼苗摆尾游向
 
 ## 正文
 
-本报讯 (广西云-广西日报记者莫迪)5月13日，作为广西AI赋能千行百业超级联赛的重要组成部分，2026年中国(广西)—东盟“人工智能+应急管理”科技创新大赛正式启幕。
+中新网佳木斯5月1日电(姜辉 赵鹏 梁晨)为养护中俄边境水域渔业资源，增强全民生态保护意识，推动农文旅深度融合发展，1日，黑龙江省同江市开展2025年至2026年度中俄边境水域大麻哈鱼增殖放流活动，40万尾大麻哈鱼苗投放到黑龙江中。
 
-记者当日从自治区应急管理厅联合钦州市政府、自治区地震局、自治区科技厅举办的广西“人工智能+应急管理”工作新闻发布会上获悉，本次大赛亮点纷呈。
+活动现场，赫哲族渔民首先举行了传统祈福仪式。
 
-赛道设置“有方向、有靶点”。
+随后，在工作人员引导下，游客们拿着袋子，小心翼翼地将一尾尾大麻哈鱼苗倒入黑龙江。
 
-赛事采用“赛道方向+赛题榜单”的模式，设置“防震减灾专项”“生产安全事故防范”“防灾减灾与应急救援”“智能装备与安全产品”“高校与东盟特色”五大赛道，覆盖应急管理各领域、各环节。
+数以万计的鱼苗摆尾游向深水区，渐渐消失在清澈的江水中。
 
-选取当前需求最迫切的应用场景作为“小赛题”，参赛者既可以围绕赛道自由选题，也可以针对具体赛题直接作答；既可以是完整的系统解决方案，也可以是针对小场景的精准作答。
+据了解，同江市已实现从亲鱼采卵到苗种培育的全链条自主控制。
 
-这种设计，旨在准确找到能真正落地、解决实战问题的技术和产品。
+2025年秋季，在黑龙江采购亲鱼，完成人工采卵、授精，50万粒优质受精卵入槽孵化。
 
-成果转化“有通道、有平台”。
+2026年3月中旬，鱼苗全面进入强化培育阶段，体长已达3厘米左右，工作人员每天定时定量投喂6次，全程监测水温、溶氧等指标，确保鱼苗健壮生长。
 
-本次大赛四家主办单位将共同推动赛事优秀成果转化落地，支持赛事优质成果申报“智果”科技计划项目；支持赛事优秀团队申报广西人工智能开放创新平台，符合条件的予以优先支持；支持成熟项目依托中国—马来西亚钦州产业园推动成果产业化。
+今年放流的40万尾大麻哈鱼苗全部为同江本地培育，体格健壮，更适应黑龙江水域自然环境。
 
 ## 相关推荐
 
-- 2026-06-29 20:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 20:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 20:31 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 20:20 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 20:29 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 20:21 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 20:28 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 20:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 20:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 20:11 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 20:09 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 20:19 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 20:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 20:29 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 20:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 20:14 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 20:29 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 20:35 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 20:21 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 20:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 20:14 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 20:33 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 20:41 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 20:17 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 20:37 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 20:39 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 20:28 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:32 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/922449.shtml)
-- 2026-06-29 20:17 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/39266953.shtml)
-- 2026-06-29 20:15 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/938328763669.shtml)
-- 2026-06-29 20:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/5833808806.shtml)
-- 2026-06-29 20:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/031769723886.shtml)
-- 2026-06-29 20:25 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/23830324375.shtml)
-- 2026-06-29 20:09 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/518293311.shtml)
-- 2026-06-29 20:21 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/5962885.shtml)
-- 2026-06-29 20:17 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/71122458601.shtml)
-- 2026-06-29 20:26 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/77733.shtml)
-- 2026-06-29 20:21 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/3922542.shtml)
-- 2026-06-29 20:14 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/9702132801.shtml)
-- 2026-06-29 20:33 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/165727.shtml)
-- 2026-06-29 20:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/633701549730.shtml)
-- 2026-06-29 20:20 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/11585.shtml)
+- 2026-06-29 20:21 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/0278137.shtml)
+- 2026-06-29 20:29 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/101333669782.shtml)
+- 2026-06-29 20:13 - [极限挑战第一季](http://www.share.minike.top/Article/details/00742686246.shtml)
+- 2026-06-29 20:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/02930.shtml)
+- 2026-06-29 20:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/754533128.shtml)
+- 2026-06-29 20:28 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/27790426812.shtml)
+- 2026-06-29 20:21 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/6269455.shtml)
+- 2026-06-29 20:14 - [温网](https://www.share.minike.top/Article/details/896398402532.shtml)
+- 2026-06-29 20:14 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/6696269.shtml)
+- 2026-06-29 20:17 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/180395230489.shtml)
+- 2026-06-29 20:35 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/190552151124.shtml)
+- 2026-06-29 20:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/6717268597.shtml)
+- 2026-06-29 20:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/64335372.shtml)
+- 2026-06-29 20:13 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/78524294.shtml)
+- 2026-06-29 20:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/612343813401.shtml)

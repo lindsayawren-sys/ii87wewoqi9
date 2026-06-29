@@ -1,57 +1,57 @@
-# 英国石油收购乌兹别克斯坦油气区块40%股权
+# 探访古城泉州老铺：百年石花膏 甜味传五代
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-英国石油周三宣布，已收购乌兹别克斯坦乌斯秋尔特地区六块油气勘探区块产量分成协议40%的参与权益，此举标志着公司重新聚焦传统能源业务。 2021年，在时任首席执行官伯纳德・卢尼推动绿色转型战略期间，英国石油退出了该区域的勘探业务。彼时卢尼曾承诺，到2030年将油气产量削减40%。但如今，公司正重新回归化石能源业务。 英国石油阿塞拜疆、格鲁吉亚及土耳其区域总裁乔・克里斯托福利周三表
+中新网泉州5月3日电 (记者 孙虹)“五一”假期，世界遗产城市福建泉州的红砖古厝间游人如织，天后宫旁的秉正堂门前排起长龙。一碗清透爽滑的石花膏，成为海内外游客打卡泉州的“味觉标配”。店内柜台上摆放着各式各样的水果和豆类，后方阿姨们娴熟操作，为来来往往的顾客呈上一碗碗冰凉爽口的美味甜品。 石花膏的主要原料“石花菜”(也称“石花草”)，是生长在台湾海峡中潮或低潮带礁石上的一种食用海
 
 ## 正文
 
-英国石油周三宣布，已收购乌兹别克斯坦乌斯秋尔特地区六块油气勘探区块产量分成协议40%的参与权益，此举标志着公司重新聚焦传统能源业务。
+中新网泉州5月3日电 (记者 孙虹)“五一”假期，世界遗产城市福建泉州的红砖古厝间游人如织，天后宫旁的秉正堂门前排起长龙。
 
-2021年，在时任首席执行官伯纳德・卢尼推动绿色转型战略期间，英国石油退出了该区域的勘探业务。
+一碗清透爽滑的石花膏，成为海内外游客打卡泉州的“味觉标配”。
 
-彼时卢尼曾承诺，到2030年将油气产量削减40%。
+店内柜台上摆放着各式各样的水果和豆类，后方阿姨们娴熟操作，为来来往往的顾客呈上一碗碗冰凉爽口的美味甜品。
 
-但如今，公司正重新回归化石能源业务。
+石花膏的主要原料“石花菜”(也称“石花草”)，是生长在台湾海峡中潮或低潮带礁石上的一种食用海藻。
 
-英国石油阿塞拜疆、格鲁吉亚及土耳其区域总裁乔・克里斯托福利周三表示：“我们认为乌兹别克斯坦具备巨大的资源潜力，并将此次合作视为助力该国油气资源勘探与开发的契机。
+早在明代以前，沿海的闽南人就熟练掌握了熬制、凝冻、食用“石花菜”的方法，后来逐渐衍化形成闽南传统消暑甜品。
 
-” 英国石油从现有合作伙伴阿塞拜疆国家石油公司与乌兹别克国家石油天然气公司手中合计收购40%权益；交易完成后，后两者各持有30%股份。
+今年3月，泉州石花膏制作技艺入选第八批福建省级非物质文化遗产代表性项目名录。
 
-阿塞拜疆国家石油公司仍担任这六大区块的作业方，涵盖博伊泰拉克制、捷连库杜克、比尔库里、哈罗伊、卡拉卡尔帕克、库尔博伊区块。
+“石花膏需纯手工制作，先以大锅熬制洗净的石花草，后用纱布过滤，冷却后自然凝固成胶状，透亮清澈。
 
-英国石油早在2018年就已与阿塞拜疆国家石油公司、乌兹别克国家石油天然气公司签署过勘探合作协议。
+”作为秉正石花膏的第五代传人，丁端旭与父亲丁秉正携手，一“守”一“创”，让闽南古早味稳稳接上时代潮流。
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 20:20 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 20:11 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 20:25 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 20:16 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 20:18 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 20:31 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 20:24 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 20:13 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 20:25 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 20:27 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 20:37 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:14 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 20:30 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 20:28 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 20:31 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 20:29 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 20:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 20:35 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 20:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 20:36 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 20:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/969775459239.shtml)
-- 2026-06-29 20:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/245421170095.shtml)
-- 2026-06-29 20:31 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/8361025110.shtml)
-- 2026-06-29 20:08 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/16282688751.shtml)
-- 2026-06-29 20:11 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/05509.shtml)
-- 2026-06-29 20:26 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/2370503686.shtml)
-- 2026-06-29 20:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/166842.shtml)
-- 2026-06-29 20:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/087083109.shtml)
-- 2026-06-29 20:35 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/403110.shtml)
-- 2026-06-29 20:30 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/5566444366.shtml)
-- 2026-06-29 20:32 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/07251.shtml)
-- 2026-06-29 20:15 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/59428775177.shtml)
-- 2026-06-29 20:21 - [东宫女主是不是顶级恋爱脑](https://www.blog.minike.top/Article/details/03606503.shtml)
-- 2026-06-29 20:13 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/642991221.shtml)
-- 2026-06-29 20:07 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/814607499.shtml)
+- 2026-06-29 20:20 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/97737735.shtml)
+- 2026-06-29 20:34 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/9669719.shtml)
+- 2026-06-29 20:33 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/199320202.shtml)
+- 2026-06-29 20:16 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/58907302559.shtml)
+- 2026-06-29 20:37 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/1707534683.shtml)
+- 2026-06-29 20:36 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/461256108.shtml)
+- 2026-06-29 20:37 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/34842513.shtml)
+- 2026-06-29 20:23 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/980368.shtml)
+- 2026-06-29 20:18 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/4666544169.shtml)
+- 2026-06-29 20:29 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/222652.shtml)
+- 2026-06-29 20:30 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/33067192.shtml)
+- 2026-06-29 20:31 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/064739868.shtml)
+- 2026-06-29 20:35 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/7473567.shtml)
+- 2026-06-29 20:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/36407734845.shtml)
+- 2026-06-29 20:27 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/1158272.shtml)

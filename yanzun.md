@@ -1,52 +1,56 @@
-# 商务部：中方愿同美方一道不断拉长合作清单
+# 成都“第二水源”李家岩水库正式下闸蓄水
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新社北京5月14日电 (记者 尹倩芸)针对中美经贸磋商相关问询，中国商务部新闻发言人何咏前14日在例行新闻发布会上表示，中方愿同美方一道不断拉长合作清单。 当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。 何咏前称，双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一
+中新网成都4月30日电 (尧欣雨)30日，成都“第二水源”李家岩水库正式下闸蓄水。据悉，下闸蓄水是水利工程建设历程中最关键、最重要的里程碑节点之一。作为国家172项节水供水重大水利项目之一，李家岩水库的正式蓄水将打破成都长期以来的单一水源供水格局，构建起“双水源保障网”，极大增强超大城市供水系统的抗风险能力和韧性，全面提升城市水资源保障能力。 据了解，李家岩水库工程为Ⅱ等大(2
 
 ## 正文
 
-中新社北京5月14日电 (记者 尹倩芸)针对中美经贸磋商相关问询，中国商务部新闻发言人何咏前14日在例行新闻发布会上表示，中方愿同美方一道不断拉长合作清单。
+中新网成都4月30日电 (尧欣雨)30日，成都“第二水源”李家岩水库正式下闸蓄水。
 
-当地时间5月13日，中美经贸中方牵头人、国务院副总理何立峰与美方牵头人、美国财政部长贝森特在韩国举行经贸磋商。
+据悉，下闸蓄水是水利工程建设历程中最关键、最重要的里程碑节点之一。
 
-何咏前称，双方以两国元首重要共识为指引，秉持相互尊重、和平共处、合作共赢的原则，就解决彼此关注的经贸问题和进一步拓展务实合作进行了坦诚、深入、建设性交流。
+作为国家172项节水供水重大水利项目之一，李家岩水库的正式蓄水将打破成都长期以来的单一水源供水格局，构建起“双水源保障网”，极大增强超大城市供水系统的抗风险能力和韧性，全面提升城市水资源保障能力。
 
-下一步，中方愿同美方一道，本着平等、尊重、互惠的原则，不断拉长合作清单，压缩问题清单，推动中美经贸关系健康、稳定、可持续发展。
+据了解，李家岩水库工程为Ⅱ等大(2)型工程，概算总投资48.09亿元，坝址坐落于成都市怀远镇青峰岭大桥上游约1.3公里处，主要由混凝土面板堆石坝、溢洪道、导流泄洪放空洞、城乡供水隧洞、坝后电站、城乡供水电站等组成。
 
-(完)
+其中，大坝为混凝土面板堆石坝，坝体填筑量达404万立方米，最大坝高123米，坝顶长373米，总库容1.73亿立方米，正常蓄水位763米，兴利库容1.16亿立方米，应急备用库容0.42亿立方米；电站装机总容量18.4兆瓦，多年平均发电量6419万千瓦时，约等于3.2万户家庭一年的用电量。
+
+李家岩水库工程建成后，将通过50公里配套输水管道，实现向成都市中心城区多年平均供水1.41亿立方米，可满足约153万成都人一年的生活用水需求。
+
+同时，可提供4209万立方米应急库容，保障中心城区30天、人均综合生活需水70%的应急供水需求。
+
+值得一提的是，成都环境集团李家岩公司打造了四川省在建水利工程首个贯穿施工、运维全生命周期的数字孪生水库工程系统。
 
 ## 相关推荐
 
-- 2026-06-29 20:20 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 20:28 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 20:12 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 20:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 20:35 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 20:31 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 20:31 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 20:32 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 20:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 20:22 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 20:23 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 20:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 20:22 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 20:15 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 20:41 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 20:28 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 20:19 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 20:29 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 20:39 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 20:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 20:36 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 20:31 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/83426194.shtml)
-- 2026-06-29 20:32 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/55044.shtml)
-- 2026-06-29 20:15 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/5900671797.shtml)
-- 2026-06-29 20:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/55304.shtml)
-- 2026-06-29 20:23 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/53424372262.shtml)
-- 2026-06-29 20:20 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/520462.shtml)
-- 2026-06-29 20:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/60624574.shtml)
-- 2026-06-29 20:16 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/87227.shtml)
-- 2026-06-29 20:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/84095892356.shtml)
-- 2026-06-29 20:22 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/00040713.shtml)
-- 2026-06-29 20:27 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/45808815304.shtml)
-- 2026-06-29 20:32 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/429525.shtml)
-- 2026-06-29 20:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/99508068.shtml)
-- 2026-06-29 20:34 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/404021.shtml)
-- 2026-06-29 20:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/696649533171.shtml)
+- 2026-06-29 20:39 - [新官上任三把火](http://www.blog.minike.top/Article/details/61312919022.shtml)
+- 2026-06-29 20:14 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/678185348.shtml)
+- 2026-06-29 20:33 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/716202.shtml)
+- 2026-06-29 20:37 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/07919606381.shtml)
+- 2026-06-29 20:31 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/01362098377.shtml)
+- 2026-06-29 20:33 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/945028905.shtml)
+- 2026-06-29 20:28 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/37913097.shtml)
+- 2026-06-29 20:12 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/9829352.shtml)
+- 2026-06-29 20:16 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/89207035.shtml)
+- 2026-06-29 20:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/733921.shtml)
+- 2026-06-29 20:39 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/25852459.shtml)
+- 2026-06-29 20:13 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/06319381609.shtml)
+- 2026-06-29 20:14 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/87193316449.shtml)
+- 2026-06-29 20:38 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/276527397685.shtml)
+- 2026-06-29 20:35 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/04675555.shtml)

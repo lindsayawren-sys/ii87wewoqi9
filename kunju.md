@@ -1,55 +1,57 @@
-# 数智化中文学习综合服务平台“爱中文”学习社区正式发布
+# 2026年南海伏季休渔执法行动全面启动
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月13日电 在12日举行的2026世界数字教育大会闭幕式上，由教育部中外语言交流合作中心(简称“语合中心”)打造的数智化中文学习综合服务平台“爱中文(iChinese)”学习社区正式发布。 据悉，作为面向全球中文学习者、教师及教育机构的数智化中文学习综合服务平台，“爱中文”学习社区以人工智能(AI)为核心驱动，依托国际中文教育知识图谱、专业语料库打造核心知识引擎，整
+中新网北京5月1日电(阮煜琳 匡雷 蔡望 邓榕烜)记者1日从中国海警局南海分局获悉，4月30日，中国海警局南海分局组织广东、广西、海南三省(区)海警和渔业执法机构位广东珠海举行2026年南海伏季休渔执法行动启动仪式，正式拉开南海伏季休渔执法监管工作序幕。 启动仪式现场，海警舰艇、渔业执法船整齐列阵，执法人员精神抖擞、整装待发，营造出“初始即严、依法护渔”的高压管控态势。仪式上，
 
 ## 正文
 
-中新网杭州5月13日电 在12日举行的2026世界数字教育大会闭幕式上，由教育部中外语言交流合作中心(简称“语合中心”)打造的数智化中文学习综合服务平台“爱中文(iChinese)”学习社区正式发布。
+中新网北京5月1日电(阮煜琳 匡雷 蔡望 邓榕烜)记者1日从中国海警局南海分局获悉，4月30日，中国海警局南海分局组织广东、广西、海南三省(区)海警和渔业执法机构位广东珠海举行2026年南海伏季休渔执法行动启动仪式，正式拉开南海伏季休渔执法监管工作序幕。
 
-据悉，作为面向全球中文学习者、教师及教育机构的数智化中文学习综合服务平台，“爱中文”学习社区以人工智能(AI)为核心驱动，依托国际中文教育知识图谱、专业语料库打造核心知识引擎，整合汇聚超1.5万种优质课程资源，搭配多元AI教学工具，实现教学效能升级，同时全程记录学习轨迹，实现学习过程可查询、可追溯。
+启动仪式现场，海警舰艇、渔业执法船整齐列阵，执法人员精神抖擞、整装待发，营造出“初始即严、依法护渔”的高压管控态势。
 
-“爱中文”学习社区设置三大核心板块：“智汇空间”支持自然语言交互与实时问答，根据用户学习需求智能推送个性化学习资源，助力实现“一人一策”精准导学；“学习交流”支持实时发帖互动、热门话题推送、热点资讯速递，打造全天候陪伴式学习体验；“资源广场”整合海量优质课程资源，汇聚国内外超100家高校、企业及中文教育机构入驻，共享全球优质中文教育资源。
+仪式上，海警南海分局相关负责人作动员部署，明确今年休渔执法重点任务、重要海域和协作要点，强调海洋伏季休渔是促进渔业可持续发展的关键举措，对助力生态文明建设和美丽中国建设的重要意义，要求各有关单位以最坚决的态度、最严格的措施、最扎实的作风，全力保障南海伏季休渔顺利实施。
 
-记者从语合中心获悉，该平台深度推动智能技术与国际中文教育全要素融合、全过程贯通、全场景覆盖，为全球中文学习者提供全天候、陪伴式学习服务；同时助力各国教育机构、一线教师与行业开发者协同创新，打通优质资源互通渠道、汇聚全球教育智慧，共同打造开放包容、互利共享、互联互通的“永不落幕的全球中文学习社区”。
+启动仪式后，海警舰艇和渔业执法船鸣笛起航，奔赴辖区重点海域、渔港码头开展巡查管控。
+
+据悉，2026年南海伏季休渔期为5月1日12时至8月16日12时，休渔海域为北纬12度以北的南海海域，休渔作业类型为除钓具外的所有作业类型，以及为捕捞渔船配套服务的捕捞辅助船。
+
+新修订的《渔业法》也于5月1日起正式施行，与伏季休渔同步实施、刚性叠加，意味着伏季休渔执法将进入最严监管、法定管控、全链追责新阶段。
+
+休渔期间，各职能部门将持续深化协作，健全信息共享、勤务联动、行刑衔接等工作机制，紧盯涉渔违法犯罪多发区域，采取“海上巡查+港口检查+夜间突击”相结合方式，开展全覆盖、无死角执法检查，坚决做到发现一起、查处一起，全力守护海洋渔业资源休养生息，推动绿色、健康、可持续发展，切实筑牢南海海洋生态安全屏障。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 20:30 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 20:23 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 20:11 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 20:08 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 20:28 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 20:23 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 20:09 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 20:33 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 20:34 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 20:30 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 20:25 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 20:24 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 20:30 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 20:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 20:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 20:13 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 20:15 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 20:26 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 20:13 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 20:17 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 20:23 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 20:18 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 20:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 20:20 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 20:19 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/276553.shtml)
-- 2026-06-29 20:35 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/16326.shtml)
-- 2026-06-29 20:34 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/70102861972.shtml)
-- 2026-06-29 20:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/81829073611.shtml)
-- 2026-06-29 20:24 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/4999819796.shtml)
-- 2026-06-29 20:15 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/22706.shtml)
-- 2026-06-29 20:34 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/063393737223.shtml)
-- 2026-06-29 20:29 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/0744640.shtml)
-- 2026-06-29 20:16 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/77108415.shtml)
-- 2026-06-29 20:08 - [周生如故](https://www.share.kurohicncr.top/Article/details/738569.shtml)
-- 2026-06-29 20:18 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/40320557.shtml)
-- 2026-06-29 20:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/024845.shtml)
-- 2026-06-29 20:23 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.kurohicncr.top/Article/details/4294925669.shtml)
-- 2026-06-29 20:12 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/68749.shtml)
-- 2026-06-29 20:34 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/47212644888.shtml)
+- 2026-06-29 20:35 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/96145873.shtml)
+- 2026-06-29 20:36 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/7455059.shtml)
+- 2026-06-29 20:16 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/40557790863.shtml)
+- 2026-06-29 20:17 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/819740877109.shtml)
+- 2026-06-29 20:41 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/55252701.shtml)
+- 2026-06-29 20:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/09721.shtml)
+- 2026-06-29 20:21 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/38332008403.shtml)
+- 2026-06-29 20:14 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/47855561.shtml)
+- 2026-06-29 20:15 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/25803.shtml)
+- 2026-06-29 20:22 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/90711.shtml)
+- 2026-06-29 20:31 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/727716585525.shtml)
+- 2026-06-29 20:30 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/36071.shtml)
+- 2026-06-29 20:14 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/312408.shtml)
+- 2026-06-29 20:29 - [这一刀 会很帅](https://www.share.minike.top/Article/details/761521152827.shtml)
+- 2026-06-29 20:30 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/115319.shtml)

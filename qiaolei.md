@@ -1,58 +1,52 @@
-# 纽约汇市：英国政治风险打压英镑 美元在通胀数据后走高
+# 财政部：一季度国有企业营业总收入同比下降0.4%
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-英镑下跌，在G-10货币中跌幅居前，此前英国工党在上周地方选举中遭遇重大失利，越来越多党内政客呼吁党首基尔·斯塔默下台。与此同时，在汽油和食品价格上涨推动美国4月通胀加速后，美元走强，过去四个交易日中第三次上涨。 英镑/美元跌0.5%至1.3538，在发达经济体货币中跌幅居前。 欧元/英镑上涨0.1%至0.8671，五个交易日中第四次上涨。 英国国债下跌，30年期英债收益率升至
+人民财讯4月30日电，财政部发布2026年1—3月全国国有及国有控股企业经济运行情况。1—3月，全国国有及国有控股企业（以下称国有企业）营业总收入同比下降0.4%，利润总额同比下降5.1%。3月末，国有企业资产负债率65.5%，同比上升0.5个百分点。责任编辑：刘万里 SF014
 
 ## 正文
 
-英镑下跌，在G-10货币中跌幅居前，此前英国工党在上周地方选举中遭遇重大失利，越来越多党内政客呼吁党首基尔·斯塔默下台。
+人民财讯4月30日电，财政部发布2026年1—3月全国国有及国有控股企业经济运行情况。
 
-与此同时，在汽油和食品价格上涨推动美国4月通胀加速后，美元走强，过去四个交易日中第三次上涨。
+1—3月，全国国有及国有控股企业（以下称国有企业）营业总收入同比下降0.4%，利润总额同比下降5.1%。
 
-英镑/美元跌0.5%至1.3538，在发达经济体货币中跌幅居前。
+3月末，国有企业资产负债率65.5%，同比上升0.5个百分点。
 
-欧元/英镑上涨0.1%至0.8671，五个交易日中第四次上涨。
-
-英国国债下跌，30年期英债收益率升至1998年来最高。
-
-尽管英镑走弱受到亚洲时段美元普遍走强的推动，但随着英国政治风险成为市场关注焦点，英镑跌势扩大。
-
-期权市场定价显示，受斯塔默未来去向不确定影响，交易员对英镑的看空程度升至五周高位。
-
-美国4月核心CPI高于预期，推动美国国债收益率与美元同步走高。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 20:30 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 20:15 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 20:27 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 20:07 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:22 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 20:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 20:12 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 20:27 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 20:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 20:09 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:18 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 20:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 20:37 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 20:41 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 20:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 20:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 20:18 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 20:25 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 20:16 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 20:37 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 20:33 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 20:21 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 20:32 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 20:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 20:27 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/102733.shtml)
-- 2026-06-29 20:27 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/389500.shtml)
-- 2026-06-29 20:18 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/68963917.shtml)
-- 2026-06-29 20:16 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.kurohicncr.top/Article/details/224893.shtml)
-- 2026-06-29 20:14 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/79922436.shtml)
-- 2026-06-29 20:33 - [毒液2](http://www.blog.kurohicncr.top/Article/details/711277.shtml)
-- 2026-06-29 20:13 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/3538778150.shtml)
-- 2026-06-29 20:23 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/3226401391.shtml)
-- 2026-06-29 20:12 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/109081271765.shtml)
-- 2026-06-29 20:31 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/44340378.shtml)
-- 2026-06-29 20:21 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/96419.shtml)
-- 2026-06-29 20:15 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/759251026452.shtml)
-- 2026-06-29 20:11 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/491896312.shtml)
-- 2026-06-29 20:12 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/3910255.shtml)
-- 2026-06-29 20:07 - [TOP Prada](http://www.share.minike.top/Article/details/994018.shtml)
+- 2026-06-29 20:31 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/1552061.shtml)
+- 2026-06-29 20:38 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/79171168.shtml)
+- 2026-06-29 20:29 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/82583952.shtml)
+- 2026-06-29 20:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/273428849.shtml)
+- 2026-06-29 20:25 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/96265.shtml)
+- 2026-06-29 20:21 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/079455902746.shtml)
+- 2026-06-29 20:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/6755089.shtml)
+- 2026-06-29 20:19 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/08321378073.shtml)
+- 2026-06-29 20:24 - [女心理师](https://www.share.kurohicncr.top/Article/details/2343111.shtml)
+- 2026-06-29 20:31 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/76857369.shtml)
+- 2026-06-29 20:31 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/1892580723.shtml)
+- 2026-06-29 20:25 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/324421600.shtml)
+- 2026-06-29 20:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/2766674072.shtml)
+- 2026-06-29 20:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/511714826635.shtml)
+- 2026-06-29 20:32 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/47207.shtml)

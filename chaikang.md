@@ -1,59 +1,57 @@
-# 纽约汇市：PPI数据提振美元三连涨 大宗商品货币表现亮眼
+# 阿贝尔：我们无意依附任何人
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-美元兑多数十国集团（G-10）货币走强，连续第三个交易日上涨，因美国整体和核心生产者价格指数（PPI）均超预期；大宗商品货币表现优异，澳元和挪威克朗日内均上涨，尽管油价下跌。 美元指数上涨约0.1%，连续第三天上涨。 美国4月生产者价格通胀加速至2022年以来最快步伐，因战争推高能源价格，并传导至运输成本。 根据交易员和DTCC的数据，即期和期权交易量约为近期平均水平的60%-
+专题：巴菲特2026年股东大会重磅来袭 2026 年 5 月 2 日，伯克希尔・哈撒韦首席执行官格雷格・阿贝尔在内布拉斯加州奥马哈举行的伯克希尔年度股东大会上发言。 阿贝尔在问答环节开场，回应了AI 深度伪造的巴菲特提出的问题：投资者为何应长期持有伯克希尔股票。 阿贝尔在作答时重点提及公司3970 亿美元巨额现金储备的雄厚实力，称这笔资金赋予了公司充分的自主运作空间。 阿贝尔对
 
 ## 正文
 
-美元兑多数十国集团（G-10）货币走强，连续第三个交易日上涨，因美国整体和核心生产者价格指数（PPI）均超预期；大宗商品货币表现优异，澳元和挪威克朗日内均上涨，尽管油价下跌。
+专题：巴菲特2026年股东大会重磅来袭 2026 年 5 月 2 日，伯克希尔・哈撒韦首席执行官格雷格・阿贝尔在内布拉斯加州奥马哈举行的伯克希尔年度股东大会上发言。
 
-美元指数上涨约0.1%，连续第三天上涨。
+阿贝尔在问答环节开场，回应了AI 深度伪造的巴菲特提出的问题：投资者为何应长期持有伯克希尔股票。
 
-美国4月生产者价格通胀加速至2022年以来最快步伐，因战争推高能源价格，并传导至运输成本。
+阿贝尔在作答时重点提及公司3970 亿美元巨额现金储备的雄厚实力，称这笔资金赋予了公司充分的自主运作空间。
 
-根据交易员和DTCC的数据，即期和期权交易量约为近期平均水平的60%-70%。
+阿贝尔对 “来自奥马哈的沃伦” 虚拟影像表示： “我们手握充足现金与美国国债，这有着多重意义。
 
-国际能源署表示，随着伊朗战争导致的中东供应中断加剧，全球石油库存正以创纪录的速度下降，且未来数月将继续下降。
+我们无意依附、受制于人。
 
-“CPI未来存在上行风险，”Bank of Nassau 1982首席经济学家Win Thin表示。
-
-“幅度多大取决于PPI向CPI传导的程度，但风险显然存在，”他补充称。
-
-“更令人担忧的是，今天早上的PPI报告显示，最痛苦的冲击尚未完全显现，”Stifel首席经济学家Lindsey Piegza在接受采访时表示。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 20:16 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 20:20 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 20:25 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 20:34 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 20:07 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 20:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 20:23 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 20:08 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 20:13 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 20:07 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 20:30 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 20:23 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 20:33 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 20:23 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 20:23 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 20:26 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 20:35 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 20:34 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 20:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 20:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 20:39 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 20:36 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 20:40 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 20:13 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:40 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 20:24 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 20:37 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [斗破苍穹](https://www.share.minike.top/Article/details/8375936.shtml)
-- 2026-06-29 20:09 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/394111640.shtml)
-- 2026-06-29 20:08 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/435495459.shtml)
-- 2026-06-29 20:10 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/5925028.shtml)
-- 2026-06-29 20:09 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/64180.shtml)
-- 2026-06-29 20:08 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/01478060712.shtml)
-- 2026-06-29 20:08 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/78684225.shtml)
-- 2026-06-29 20:06 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/2748061.shtml)
-- 2026-06-29 20:35 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/18006831495.shtml)
-- 2026-06-29 20:19 - [毒液2](https://www.share.minike.top/Article/details/551853.shtml)
-- 2026-06-29 20:11 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/86701242011.shtml)
-- 2026-06-29 20:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/58886994363.shtml)
-- 2026-06-29 20:15 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/377956921.shtml)
-- 2026-06-29 20:24 - [存储三巨头被告了](https://www.share.minike.top/Article/details/8491339.shtml)
-- 2026-06-29 20:29 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/42144376714.shtml)
+- 2026-06-29 20:24 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/186851186890.shtml)
+- 2026-06-29 20:41 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/183461706.shtml)
+- 2026-06-29 20:26 - [第一炉香](http://www.share.minike.top/Article/details/39481.shtml)
+- 2026-06-29 20:16 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/6442369575.shtml)
+- 2026-06-29 20:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/88403969.shtml)
+- 2026-06-29 20:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/75068160.shtml)
+- 2026-06-29 20:33 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/45319134751.shtml)
+- 2026-06-29 20:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/321555058460.shtml)
+- 2026-06-29 20:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/946577055.shtml)
+- 2026-06-29 20:31 - [恋与深空致歉](http://www.share.minike.top/Article/details/36372.shtml)
+- 2026-06-29 20:28 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/26933451565.shtml)
+- 2026-06-29 20:21 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/47012.shtml)
+- 2026-06-29 20:15 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/590416667598.shtml)
+- 2026-06-29 20:18 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/179601.shtml)
+- 2026-06-29 20:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/243122590.shtml)

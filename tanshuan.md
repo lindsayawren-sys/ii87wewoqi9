@@ -1,61 +1,61 @@
-# 国际能源署（IEA）警告：石油库存创纪录暴跌，油价或将进一步飙升
+# 江淮汽车拟投资华为旗下引望
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-国际能源署周三警告称：全球石油库存正以创纪录速度消耗，伊朗局势冲突带来的供应扰动仍在持续，进一步放大油价冲高风险。 4月原油及成品油库存日均减少近400万桶，这一规模超过英国与德国石油消费量总和，各国用以抵御供应冲击的缓冲库存面临枯竭风险。 国际能源署在备受关注的月度报告中表示：“石油进口国遭遇中东供应前所未有的中断，全球正以史上最快速度动用石油库存。” “供应扰动持续、缓冲库
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！江淮汽车拟投资引望智能技术有限公司，后者主要股东是华为（持股80%）。 继赛力斯、阿维塔之后，华为旗下引望智能技术有限公司（以下简称“引望”）或再添车企股东。 4月30日晚间，江淮汽车（600418）公告称，公司拟投资引望，交易对方为华为，具体投资额、交易方式、交易价格等条款需以双方签订的最终交易文件为准。
 
 ## 正文
 
-国际能源署周三警告称：全球石油库存正以创纪录速度消耗，伊朗局势冲突带来的供应扰动仍在持续，进一步放大油价冲高风险。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-4月原油及成品油库存日均减少近400万桶，这一规模超过英国与德国石油消费量总和，各国用以抵御供应冲击的缓冲库存面临枯竭风险。
+江淮汽车拟投资引望智能技术有限公司，后者主要股东是华为（持股80%）。
 
-国际能源署在备受关注的月度报告中表示：“石油进口国遭遇中东供应前所未有的中断，全球正以史上最快速度动用石油库存。
+继赛力斯、阿维塔之后，华为旗下引望智能技术有限公司（以下简称“引望”）或再添车企股东。
 
-” “供应扰动持续、缓冲库存快速萎缩，预示后续或将迎来油价暴涨。
+4月30日晚间，江淮汽车（600418）公告称，公司拟投资引望，交易对方为华为，具体投资额、交易方式、交易价格等条款需以双方签订的最终交易文件为准。
 
-” 国际能源署此番预警，进一步加剧市场担忧：未来数月部分油品库存或将跌至临界低位，各方将为日益紧缺的供给展开竞价。
+交易完成后，引望将成为江淮汽车的参股公司，不会纳入其合并报表范围。
 
-IEA表示，自冲突爆发以来，全球石油库存已锐减近2.5亿桶；若剔除滞留在海湾地区无法外运的原油，库存降幅会更为陡峭。
+公开资料显示，引望成立于2024年1月，系华为旗下从事智能汽车解决方案业务的核心载体，主要提供智能驾驶、智能座舱、智能车控、智能车云、智能车载光等产品和解决方案。
 
-IEA称，发达经济体等石油需求回落，一定程度上对冲了海湾地区的供应损失。
+2025年，赛力斯、阿维塔作为华为智驾合作伙伴，分别斥资115亿元入股引望，成为后者首批车企股东。
 
-欧洲今年石油消费量将出现下滑，降幅规模为2022年俄乌冲突以来最大；IEA预测欧洲日均消费量将减少14万桶，约为去年消费量的1%。
+截至目前，引望的股东结构为华为持股80%、赛力斯持股10%、阿维塔持股10%。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 20:21 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 20:18 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 20:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 20:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 20:14 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 20:27 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 20:31 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 20:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 20:12 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 20:21 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 20:09 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 20:28 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 20:25 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 20:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 20:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 20:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-29 20:13 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 20:40 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 20:28 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 20:21 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 20:18 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 20:17 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 20:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 20:34 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 20:21 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 20:38 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 20:25 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 20:17 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 20:30 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:21 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/29131150071.shtml)
-- 2026-06-29 20:23 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/937044130.shtml)
-- 2026-06-29 20:20 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/2532540.shtml)
-- 2026-06-29 20:06 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/47458017.shtml)
-- 2026-06-29 20:23 - [爱很美味](https://www.share.kurohicncr.top/Article/details/57309.shtml)
-- 2026-06-29 20:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/9275611.shtml)
-- 2026-06-29 20:06 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/3814630180.shtml)
-- 2026-06-29 20:18 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.kurohicncr.top/Article/details/489302.shtml)
-- 2026-06-29 20:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/341131961.shtml)
-- 2026-06-29 20:30 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/177040337568.shtml)
-- 2026-06-29 20:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/4697845333.shtml)
-- 2026-06-29 20:19 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/898829934.shtml)
-- 2026-06-29 20:30 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/8993138.shtml)
-- 2026-06-29 20:16 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/6258340326.shtml)
-- 2026-06-29 20:11 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/6486088.shtml)
+- 2026-06-29 20:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/11187.shtml)
+- 2026-06-29 20:35 - [啊啊啊](http://www.share.minike.top/Article/details/9497239.shtml)
+- 2026-06-29 20:16 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/636327.shtml)
+- 2026-06-29 20:40 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/70041449.shtml)
+- 2026-06-29 20:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/108356.shtml)
+- 2026-06-29 20:15 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/0085005.shtml)
+- 2026-06-29 20:40 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/581843.shtml)
+- 2026-06-29 20:22 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/97693721.shtml)
+- 2026-06-29 20:37 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/131655614.shtml)
+- 2026-06-29 20:12 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/97918.shtml)
+- 2026-06-29 20:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/8631050244.shtml)
+- 2026-06-29 20:17 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/539661460374.shtml)
+- 2026-06-29 20:15 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/350271276296.shtml)
+- 2026-06-29 20:12 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/0072553108.shtml)
+- 2026-06-29 20:22 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/79894238.shtml)

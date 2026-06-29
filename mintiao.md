@@ -1,45 +1,56 @@
-# 李大霄：创新高之下的三警报
+# 【小新的Vlog】蓝莓的“蓝海”：从洋种子到“中国芯”
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+发布时间：2026年05月03日 16:54 来源：中国新闻网 这个春天，蓝莓价格持续走低，昔日按克称重、动辄上百元一斤的水果，如今在云南各大市场价格最低至每公斤20元至30元。 价格走低的背后，总体来看是中国蓝莓产业规模的急剧扩张。目前主流生产使用的蓝莓主栽品种“L25”“优瑞卡”等均引进自国外。国外机构培育的蓝莓优良品种均已申请国际专利，在中国也申请了植物新品种保护，知识产
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月03日 16:54 来源：中国新闻网 这个春天，蓝莓价格持续走低，昔日按克称重、动辄上百元一斤的水果，如今在云南各大市场价格最低至每公斤20元至30元。
 
-责任编辑：石秀珍 SF183
+价格走低的背后，总体来看是中国蓝莓产业规模的急剧扩张。
+
+目前主流生产使用的蓝莓主栽品种“L25”“优瑞卡”等均引进自国外。
+
+国外机构培育的蓝莓优良品种均已申请国际专利，在中国也申请了植物新品种保护，知识产权限制极易成为中国蓝莓产业的“卡脖子”问题。
+
+为此，我们来到云南石林，找到了从事蓝莓育种十余年的李亚东教授。
+
+一粒小小的蓝莓，从漂洋过海的“洋种子”，到如今在中国土地上孕育出属于自己的“中国芯”，是中国农业迈向高质量发展、掌握产业核心竞争力的生动缩影。
+
+记者 杜潇潇 刘冉阳 韩帅南 昆明报道 责任编辑：【王凯】
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 20:17 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 20:18 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 20:16 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 20:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 20:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 20:27 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 20:15 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 20:30 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 20:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 20:11 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 20:31 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 20:23 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 20:23 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 20:36 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 20:41 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 20:26 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 20:35 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 20:35 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 20:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 20:16 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 20:30 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 20:28 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:19 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/3997335525.shtml)
-- 2026-06-29 20:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/03452914.shtml)
-- 2026-06-29 20:15 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/89739661693.shtml)
-- 2026-06-29 20:23 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/8685159024.shtml)
-- 2026-06-29 20:16 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/352160.shtml)
-- 2026-06-29 20:23 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/894603.shtml)
-- 2026-06-29 20:21 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/291171.shtml)
-- 2026-06-29 20:16 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/709275.shtml)
-- 2026-06-29 20:12 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/6014312.shtml)
-- 2026-06-29 20:25 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/42629.shtml)
-- 2026-06-29 20:24 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/56121004.shtml)
-- 2026-06-29 20:35 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/658039.shtml)
-- 2026-06-29 20:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/508308378320.shtml)
-- 2026-06-29 20:27 - [东宫女主是不是顶级恋爱脑](http://www.blog.kurohicncr.top/Article/details/5895665.shtml)
-- 2026-06-29 20:22 - [起风了](https://www.blog.kurohicncr.top/Article/details/65091237.shtml)
+- 2026-06-29 20:37 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/0893816.shtml)
+- 2026-06-29 20:39 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/12657.shtml)
+- 2026-06-29 20:37 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/519877.shtml)
+- 2026-06-29 20:26 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/606103.shtml)
+- 2026-06-29 20:18 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/75069139.shtml)
+- 2026-06-29 20:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/91527807933.shtml)
+- 2026-06-29 20:18 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/823008472.shtml)
+- 2026-06-29 20:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/8538473.shtml)
+- 2026-06-29 20:23 - [扫黑风暴](http://www.share.minike.top/Article/details/98590.shtml)
+- 2026-06-29 20:38 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/83354327.shtml)
+- 2026-06-29 20:25 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/49631327241.shtml)
+- 2026-06-29 20:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/04275528.shtml)
+- 2026-06-29 20:40 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/18376982293.shtml)
+- 2026-06-29 20:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/858749228186.shtml)
+- 2026-06-29 20:33 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/870460250.shtml)

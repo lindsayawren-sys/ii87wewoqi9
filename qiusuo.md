@@ -1,58 +1,59 @@
-# 国际能源署警告供应短缺，油价上涨
+# “零关税”打开中非合作新空间
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-在国际能源署表示石油市场料将处于短缺状态直到今年最后一个季度之后，原油期货重拾涨势。 布伦特原油上涨0.1%，至每桶107.93美元，而西得州中质油期货上涨0.4%，至每桶98.91美元。 国际能源署目前预计，今年全球石油需求将每天萎缩42万桶，而此前预期为每天下降8万桶。欧佩克将其需求增长预期从先前的每天138万桶下调至每天117万桶。 “石油正在与时间赛跑，”FxPro的A
+发布时间：2026年05月02日 16:24 来源：中国新闻网 自5月1日起，中国对所有非洲建交国实施零关税，同时继续推动商签共同发展经济伙伴关系协定。 此前，已有33个最不发达国家通过特惠税率安排，享受输华产品零关税。本次政策，将零关税范围扩大至包括南非在内的20个国家。至此，中国成为全球首个对所有非洲建交国、以及所有建交的最不发达国家实施单方面、全面零关税的主要经济体。 业
 
 ## 正文
 
-在国际能源署表示石油市场料将处于短缺状态直到今年最后一个季度之后，原油期货重拾涨势。
+发布时间：2026年05月02日 16:24 来源：中国新闻网 自5月1日起，中国对所有非洲建交国实施零关税，同时继续推动商签共同发展经济伙伴关系协定。
 
-布伦特原油上涨0.1%，至每桶107.93美元，而西得州中质油期货上涨0.4%，至每桶98.91美元。
+此前，已有33个最不发达国家通过特惠税率安排，享受输华产品零关税。
 
-国际能源署目前预计，今年全球石油需求将每天萎缩42万桶，而此前预期为每天下降8万桶。
+本次政策，将零关税范围扩大至包括南非在内的20个国家。
 
-欧佩克将其需求增长预期从先前的每天138万桶下调至每天117万桶。
+至此，中国成为全球首个对所有非洲建交国、以及所有建交的最不发达国家实施单方面、全面零关税的主要经济体。
 
-“石油正在与时间赛跑，”FxPro的Alex Kuptsikevich表示。
+业内人士认为，这一举措将为中非经贸合作注入新动能，也为非洲产业升级和出口多元化提供重要机遇。
 
-“霍尔木兹海峡被封锁的时间越长，从长远来看，布伦特原油和西得州中质油价格上涨的可能性就越大。
+分析人士认为，零关税政策不仅降低了非洲产品进入中国市场的成本，也将推动非洲国家加快工业化进程，提升产业链附加值。
 
-“责任编辑：李桐
+在全球贸易格局加速调整背景下，中国对非洲实施全面零关税，被视为扩大开放的重要举措之一。
+
+数据显示，中国已连续17年保持非洲最大贸易伙伴国地位。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 20:31 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 20:18 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 20:16 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 20:23 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 20:27 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 20:20 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 20:34 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 20:17 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 20:10 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 20:24 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 20:21 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 20:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 20:13 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 20:26 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 20:24 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 20:33 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 20:24 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 20:30 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 20:14 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 20:39 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 20:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 20:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 20:16 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 20:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 20:40 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 20:24 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:27 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/86249336715.shtml)
-- 2026-06-29 20:10 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/11405535755.shtml)
-- 2026-06-29 20:28 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/135196250825.shtml)
-- 2026-06-29 20:24 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/45306612.shtml)
-- 2026-06-29 20:32 - [送你一朵小红花](https://www.blog.minike.top/Article/details/55068237.shtml)
-- 2026-06-29 20:09 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/481112.shtml)
-- 2026-06-29 20:30 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/0354781600.shtml)
-- 2026-06-29 20:29 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/8381351210.shtml)
-- 2026-06-29 20:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/27045786019.shtml)
-- 2026-06-29 20:11 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/027183523.shtml)
-- 2026-06-29 20:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/952344.shtml)
-- 2026-06-29 20:13 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/8047765.shtml)
-- 2026-06-29 20:22 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/48873875.shtml)
-- 2026-06-29 20:27 - [第一炉香](https://www.share.kurohicncr.top/Article/details/36947343694.shtml)
-- 2026-06-29 20:19 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/4430596.shtml)
+- 2026-06-29 20:38 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/09948.shtml)
+- 2026-06-29 20:14 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/6756518.shtml)
+- 2026-06-29 20:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/79828596584.shtml)
+- 2026-06-29 20:33 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/196513400827.shtml)
+- 2026-06-29 20:28 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/55029895591.shtml)
+- 2026-06-29 20:29 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/883947.shtml)
+- 2026-06-29 20:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/575862.shtml)
+- 2026-06-29 20:36 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/167597395513.shtml)
+- 2026-06-29 20:12 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/36504171.shtml)
+- 2026-06-29 20:26 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/2105811946.shtml)
+- 2026-06-29 20:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/881139069.shtml)
+- 2026-06-29 20:27 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/06654.shtml)
+- 2026-06-29 20:28 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/2330809.shtml)
+- 2026-06-29 20:29 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/664928.shtml)
+- 2026-06-29 20:27 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/037220975501.shtml)

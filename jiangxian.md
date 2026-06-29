@@ -1,51 +1,60 @@
-# 5月13日增减持汇总：泉阳泉披露增持情况，展鹏科技等10股拟减持（表）
+# 国务院安委办、应急管理部视频调度重点地区和部分旅游景点安全防范工作
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，5月13日盘后，泉阳泉披露增持情况，包括展鹏科技、天智航、德福科技、泰嘉股份、铭利达、通源石油、北纬科技、信隆健康、汇嘉时代、三达膜在内的10家A股上市公司披露拟减持情况。 责任编辑：宋雅芳
+中新网5月3日电 据应急管理部官网消息，5月3日，按照国务院安委会副主任、应急管理部部长张成中的工作部署，国务院安委办、应急管理部视频调度山西、辽宁、福建、河南、云南、新疆等重点地区和部分旅游景点安全防范工作，进一步做好“五一”假期安全防范工作，督促明查暗访工作情况。会议要求，要高度关注道路交通安全风险。加大对重点路段巡查频次，严厉打击无资质运营、“三超一疲劳”、货车农用车载人
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网5月3日电 据应急管理部官网消息，5月3日，按照国务院安委会副主任、应急管理部部长张成中的工作部署，国务院安委办、应急管理部视频调度山西、辽宁、福建、河南、云南、新疆等重点地区和部分旅游景点安全防范工作，进一步做好“五一”假期安全防范工作，督促明查暗访工作情况。
 
-据统计，5月13日盘后，泉阳泉披露增持情况，包括展鹏科技、天智航、德福科技、泰嘉股份、铭利达、通源石油、北纬科技、信隆健康、汇嘉时代、三达膜在内的10家A股上市公司披露拟减持情况。
+会议要求，要高度关注道路交通安全风险。
 
-责任编辑：宋雅芳
+加大对重点路段巡查频次，严厉打击无资质运营、“三超一疲劳”、货车农用车载人等违法行为。
+
+要高度关注旅游景区安全风险。
+
+督促景区严格落实安全主体责任，深入排查景区车船、缆车索道、吊桥、玻璃栈道、飞天魔毯、大型游乐设施等高风险项目安全隐患，严防设施设备“带病运行”。
+
+加强客流监测引导和安全提示，及时采取引流、限流、疏散等避险措施。
+
+要高度关注人员密集场所安全风险。
+
+切实加强大型综合体、餐饮住宿、文博娱乐、养老院、足浴店、KTV等人员密集场所的安全检查，对发现的重大隐患及时公布，加强跟踪督办。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 20:31 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 20:23 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 20:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 20:25 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 20:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 20:13 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 20:24 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 20:33 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 20:21 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 20:06 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 20:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 20:33 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 20:26 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 20:31 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 20:31 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 20:40 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 20:21 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 20:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 20:37 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 20:13 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 20:16 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 20:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 20:25 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 20:31 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 20:32 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 20:15 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 20:32 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 20:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/34723140.shtml)
-- 2026-06-29 20:15 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/613202913.shtml)
-- 2026-06-29 20:30 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/3904073743.shtml)
-- 2026-06-29 20:25 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/01663150423.shtml)
-- 2026-06-29 20:14 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/31416651088.shtml)
-- 2026-06-29 20:15 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/85831406725.shtml)
-- 2026-06-29 20:31 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/391617433.shtml)
-- 2026-06-29 20:29 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/46751789538.shtml)
-- 2026-06-29 20:33 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/660134688568.shtml)
-- 2026-06-29 20:19 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/46680936.shtml)
-- 2026-06-29 20:06 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/90322.shtml)
-- 2026-06-29 20:07 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/01103751933.shtml)
-- 2026-06-29 20:26 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/73410915965.shtml)
-- 2026-06-29 20:14 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/387952883355.shtml)
-- 2026-06-29 20:06 - [千与千寻](https://www.share.minike.top/Article/details/3164467.shtml)
+- 2026-06-29 20:38 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/3400034.shtml)
+- 2026-06-29 20:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/385744.shtml)
+- 2026-06-29 20:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/2246090.shtml)
+- 2026-06-29 20:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/116142.shtml)
+- 2026-06-29 20:21 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/0261384739.shtml)
+- 2026-06-29 20:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/782351498.shtml)
+- 2026-06-29 20:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/735613.shtml)
+- 2026-06-29 20:36 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/111680.shtml)
+- 2026-06-29 20:16 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/4523383.shtml)
+- 2026-06-29 20:29 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/72839.shtml)
+- 2026-06-29 20:33 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/7256572879.shtml)
+- 2026-06-29 20:29 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/55620.shtml)
+- 2026-06-29 20:14 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/142524158187.shtml)
+- 2026-06-29 20:20 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/2238760668.shtml)
+- 2026-06-29 20:41 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/98976.shtml)

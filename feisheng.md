@@ -1,59 +1,59 @@
-# 国台办回应巴拉圭总统窜台：奉劝有关国家作出顺应历史大势的正确抉择
+# 华尔街延续涨势 纳指与标普500再创新高
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-5月13日，国务院台办举行例行新闻发布会。有记者问：近日台湾所谓“友邦”巴拉圭总统培尼亚窜访台湾。请问对此有何评论？ 发言人张晗表示，一个中国原则是国际关系基本准则和国际社会普遍共识。 全世界有183个国家在坚持一个中国原则基础上，同中国建立外交关系，奉劝有关国家作出顺应历史大势的正确抉择。民进党当局谋“独”挑衅逆历史潮流，彻底失败是早晚的事。 (总台央视记者 张雪松 赵超逸)
+华尔街股市周五延续反弹势头，标普500指数和纳斯达克指数双双触及历史新高。此前两大指数刚刚录得多年来最佳月度表现，市场情绪受伊朗向巴基斯坦调解人提交谈判新提案的消息提振。 截至午盘交易时段，标普500指数上涨46.01点，涨幅0.64%，报7255.02点；纳斯达克综合指数上涨264.41点，涨幅1.06%，报25156.73点；道琼斯工业平均指数上涨79.08点，涨幅0.16
 
 ## 正文
 
-5月13日，国务院台办举行例行新闻发布会。
+华尔街股市周五延续反弹势头，标普500指数和纳斯达克指数双双触及历史新高。
 
-有记者问：近日台湾所谓“友邦”巴拉圭总统培尼亚窜访台湾。
+此前两大指数刚刚录得多年来最佳月度表现，市场情绪受伊朗向巴基斯坦调解人提交谈判新提案的消息提振。
 
-请问对此有何评论？
+截至午盘交易时段，标普500指数上涨46.01点，涨幅0.64%，报7255.02点；纳斯达克综合指数上涨264.41点，涨幅1.06%，报25156.73点；道琼斯工业平均指数上涨79.08点，涨幅0.16%，报49731.22点。
 
-发言人张晗表示，一个中国原则是国际关系基本准则和国际社会普遍共识。
+信息科技板块领涨，涨幅达1.5%。
 
-全世界有183个国家在坚持一个中国原则基础上，同中国建立外交关系，奉劝有关国家作出顺应历史大势的正确抉择。
+苹果公司股价大涨近5%，该公司周四盘后公布的第二财季业绩全面超预期。
 
-民进党当局谋“独”挑衅逆历史潮流，彻底失败是早晚的事。
+财报显示，苹果营收达1111.8亿美元，同比增长17%，每股收益2.01美元，均高于市场预估。
 
-(总台央视记者 张雪松 赵超逸)
+iPhone 17需求极为强劲，推动iPhone营收达到569.9亿美元的历史新高。
+
+公司同时宣布了1000亿美元的股票回购计划。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 20:35 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 20:34 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 20:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 20:10 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 20:32 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 20:12 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 20:13 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 20:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 20:35 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 20:21 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 20:19 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 20:34 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 20:19 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 20:33 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 20:16 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 20:19 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 20:30 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 20:31 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 20:16 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 20:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 20:31 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 20:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 20:15 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 20:17 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 20:13 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 20:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 20:12 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:27 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/326863.shtml)
-- 2026-06-29 20:10 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/090996209646.shtml)
-- 2026-06-29 20:21 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/36152111.shtml)
-- 2026-06-29 20:27 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/722252251268.shtml)
-- 2026-06-29 20:15 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/70604.shtml)
-- 2026-06-29 20:26 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/049243566.shtml)
-- 2026-06-29 20:29 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/075753961967.shtml)
-- 2026-06-29 20:27 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/55369738221.shtml)
-- 2026-06-29 20:24 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/4972292034.shtml)
-- 2026-06-29 20:20 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/7535464.shtml)
-- 2026-06-29 20:19 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/813418983526.shtml)
-- 2026-06-29 20:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/22564599.shtml)
-- 2026-06-29 20:19 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/56739717.shtml)
-- 2026-06-29 20:30 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/58893519800.shtml)
-- 2026-06-29 20:06 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/0743348351.shtml)
+- 2026-06-29 20:17 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/8836902988.shtml)
+- 2026-06-29 20:39 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/69319.shtml)
+- 2026-06-29 20:14 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/6072812335.shtml)
+- 2026-06-29 20:16 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/10605107466.shtml)
+- 2026-06-29 20:31 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/078861907614.shtml)
+- 2026-06-29 20:13 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/8830470.shtml)
+- 2026-06-29 20:27 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/37575587.shtml)
+- 2026-06-29 20:25 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/46519383.shtml)
+- 2026-06-29 20:12 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/89877.shtml)
+- 2026-06-29 20:26 - [金刚川](https://www.blog.kurohicncr.top/Article/details/249707376433.shtml)
+- 2026-06-29 20:29 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/15691229.shtml)
+- 2026-06-29 20:30 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/952143159.shtml)
+- 2026-06-29 20:42 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/27880247.shtml)
+- 2026-06-29 20:35 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/2776256.shtml)
+- 2026-06-29 20:13 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/818766.shtml)

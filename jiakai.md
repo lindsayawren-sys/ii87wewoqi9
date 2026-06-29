@@ -1,51 +1,48 @@
-# 习近平：共同书写时代答卷
+# 中方在《开罗宣言》发表地埃及开罗米娜宫饭店建立纪念碑
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月14日电 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 习近平指出，当前百年变局加速演进，国际形势变乱交织，世界又走到新的十字路口，中美能不能跨越“修昔底德陷阱”，开创大国关系新范式？能不能携手应对全球性挑战，为世界注入更多稳定性？能不能着眼两国人民福祉和人类前途命运，共同开创两国关系的美好未来？这些是历史之问、世界之
+中新网5月3日电 据中国驻埃及大使馆微信公众号消息，《开罗宣言》为结束第二次世界大战做出重要贡献，是确认台湾作为中国不可分割领土的重要历史和法理依据，与之后重申《开罗宣言》规定的《波茨坦公告》等一系列具有法律效力的文件构成了二战后国际秩序的组成部分。为纪念《开罗宣言》在埃及米娜宫饭店达成，中方在米娜宫饭店建立纪念碑。当前立碑区域正在修缮，完工后将向公众开放。
 
 ## 正文
 
-新华社北京5月14日电 5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+中新网5月3日电 据中国驻埃及大使馆微信公众号消息，《开罗宣言》为结束第二次世界大战做出重要贡献，是确认台湾作为中国不可分割领土的重要历史和法理依据，与之后重申《开罗宣言》规定的《波茨坦公告》等一系列具有法律效力的文件构成了二战后国际秩序的组成部分。
 
-习近平指出，当前百年变局加速演进，国际形势变乱交织，世界又走到新的十字路口，中美能不能跨越“修昔底德陷阱”，开创大国关系新范式？
+为纪念《开罗宣言》在埃及米娜宫饭店达成，中方在米娜宫饭店建立纪念碑。
 
-能不能携手应对全球性挑战，为世界注入更多稳定性？
-
-能不能着眼两国人民福祉和人类前途命运，共同开创两国关系的美好未来？
-
-这些是历史之问、世界之问、人民之问，也是大国领导人需要共同书写的时代答卷。
+当前立碑区域正在修缮，完工后将向公众开放。
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 20:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 20:06 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 20:32 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 20:34 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 20:13 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 20:20 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 20:31 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 20:15 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 20:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 20:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 20:40 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 20:39 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 20:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 20:19 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 20:26 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
+- 2026-06-29 20:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 20:39 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 20:28 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 20:38 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 20:36 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 20:30 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 20:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/608186801.shtml)
-- 2026-06-29 20:08 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/238272752245.shtml)
-- 2026-06-29 20:07 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/889699.shtml)
-- 2026-06-29 20:10 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/93860.shtml)
-- 2026-06-29 20:24 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/1722104788.shtml)
-- 2026-06-29 20:07 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/13950.shtml)
-- 2026-06-29 20:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/726652321974.shtml)
-- 2026-06-29 20:30 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/545828801197.shtml)
-- 2026-06-29 20:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/04836519913.shtml)
-- 2026-06-29 20:28 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/64602.shtml)
-- 2026-06-29 20:19 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/17216795980.shtml)
-- 2026-06-29 20:31 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/77029637330.shtml)
-- 2026-06-29 20:11 - [青春环游记第三季](http://www.share.minike.top/Article/details/75671145.shtml)
-- 2026-06-29 20:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/8948308.shtml)
-- 2026-06-29 20:21 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/94877.shtml)
+- 2026-06-29 20:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/7340437937.shtml)
+- 2026-06-29 20:22 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/38255060.shtml)
+- 2026-06-29 20:28 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/872620089.shtml)
+- 2026-06-29 20:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/39596.shtml)
+- 2026-06-29 20:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/9048704739.shtml)
+- 2026-06-29 20:30 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/894653352.shtml)
+- 2026-06-29 20:28 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/7664114.shtml)
+- 2026-06-29 20:21 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/172744.shtml)
+- 2026-06-29 20:16 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/9048422.shtml)
+- 2026-06-29 20:25 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/40867834675.shtml)
+- 2026-06-29 20:33 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/65563.shtml)
+- 2026-06-29 20:39 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/638789769.shtml)
+- 2026-06-29 20:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/597846.shtml)
+- 2026-06-29 20:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/3242246365.shtml)
+- 2026-06-29 20:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/507624216141.shtml)

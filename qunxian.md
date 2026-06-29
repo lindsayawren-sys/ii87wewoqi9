@@ -1,46 +1,58 @@
-# 河南：小麦灌浆遇高温 多举措防范干热风
+# 从“估摸着浇”到“AI算着灌” 沙漠绿洲民勤“水逆”翻身
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 10:40 来源：央视新闻 责任编辑：【王祎】
+中新网兰州5月2日电 (马爱彬)“以前种地，浇水施肥、防病虫全凭经验估摸着来，现在AI实时监测、提前预警，咱们照着数据管田，心里踏实多了。”阳春三月，在甘肃省武威市民勤县苏武镇苏山村玉米高密栽培智慧灌溉示范基地，种植户魏治明边说边展示手机上的智能灌溉App。 民勤县农业技术推广中心高级农艺师詹军华近日接受采访介绍说，这片基地以物联网、人工智能与云端技术为支撑，配套布设微型气象站
 
 ## 正文
 
-发布时间：2026年05月13日 10:40 来源：央视新闻 责任编辑：【王祎】
+中新网兰州5月2日电 (马爱彬)“以前种地，浇水施肥、防病虫全凭经验估摸着来，现在AI实时监测、提前预警，咱们照着数据管田，心里踏实多了。
+
+”阳春三月，在甘肃省武威市民勤县苏武镇苏山村玉米高密栽培智慧灌溉示范基地，种植户魏治明边说边展示手机上的智能灌溉App。
+
+民勤县农业技术推广中心高级农艺师詹军华近日接受采访介绍说，这片基地以物联网、人工智能与云端技术为支撑，配套布设微型气象站、虫情测报设备、土壤监测传感器等智能设施。
+
+同时，整合卫星遥感、无人机巡检、地面采集及农耕实践经验等多维资源，搭建起天、空、地、人一体化数据监测体系，实现田间状况全域动态感知。
+
+“系统会结合土壤墒情、气象变化与作物生长需求，通过手机或电脑开展数字化、自动化田间管控。
+
+”詹军华说，按需精准灌溉、科学施肥，可以有效降低人力投入，持续提升水肥利用率，为旱区现代农业高质量发展注入数字动能。
+
+在民勤，不止连片大田换上智慧耕种新模式，AI赋能农业的生动实践，同样延伸至设施农业领域。
+
+在民勤县重兴镇上案村高效节水设施农业示范园的温室大棚内，满目青翠、生机盎然，各类果蔬长势喜人。
 
 ## 相关推荐
 
-- 2026-06-29 20:11 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 20:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 20:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 20:21 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 20:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 20:18 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 20:27 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 20:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 20:29 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 20:32 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 20:16 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 20:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 20:21 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 20:11 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 20:21 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 20:23 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 20:18 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 20:23 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 20:12 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 20:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 20:38 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 20:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 20:39 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 20:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 20:12 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 20:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:23 - [主力抛售电子和通信板块](https://www.blog.minike.top/Article/details/63068.shtml)
-- 2026-06-29 20:33 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/625415198.shtml)
-- 2026-06-29 20:09 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/443669.shtml)
-- 2026-06-29 20:09 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/5477703536.shtml)
-- 2026-06-29 20:16 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/08106.shtml)
-- 2026-06-29 20:31 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/5597647326.shtml)
-- 2026-06-29 20:06 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/639322.shtml)
-- 2026-06-29 20:30 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/5812557.shtml)
-- 2026-06-29 20:33 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/13662956.shtml)
-- 2026-06-29 20:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/903352975.shtml)
-- 2026-06-29 20:32 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/98879.shtml)
-- 2026-06-29 20:21 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/555827755.shtml)
-- 2026-06-29 20:20 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/500655.shtml)
-- 2026-06-29 20:12 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/739901.shtml)
-- 2026-06-29 20:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/946699.shtml)
+- 2026-06-29 20:37 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/650792351123.shtml)
+- 2026-06-29 20:30 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/03403.shtml)
+- 2026-06-29 20:34 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/638100657648.shtml)
+- 2026-06-29 20:33 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/71069322.shtml)
+- 2026-06-29 20:32 - [金刚川](http://www.blog.minike.top/Article/details/53038.shtml)
+- 2026-06-29 20:17 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/759349.shtml)
+- 2026-06-29 20:24 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/058757475.shtml)
+- 2026-06-29 20:31 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/0836391827.shtml)
+- 2026-06-29 20:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/0018210.shtml)
+- 2026-06-29 20:38 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/82474.shtml)
+- 2026-06-29 20:36 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/72985853256.shtml)
+- 2026-06-29 20:39 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/49081.shtml)
+- 2026-06-29 20:27 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/77978241.shtml)
+- 2026-06-29 20:16 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/721869881843.shtml)
+- 2026-06-29 20:38 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/1540922064.shtml)

@@ -1,56 +1,59 @@
-# 黄仁勋押注这家英国初创企业，布局人工智能 “下一个前沿领域”
+# 蓝衫集团董事总经理Gary Dvorchak：AI可以取代重复性工作，但上千万人在未来两三年将失去工作
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-核心要点 两家公司于周三联合宣布，英伟达将与英国初创公司Ineffable Intelligence合作研发全新人工智能系统。 不同于众多主流 AI 模型依托人类数据进行训练，Ineffable Intelligence 专注强化学习，即让 AI 模型从自身经验中自主学习。 英伟达创始人兼首席执行官黄仁勋表示：人工智能的下一个前沿是超级学习体 —— 能够从经验中持续自主学习的智
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 蓝衫集团董事总经理Gary Dvorchak在演讲中谈及本次股东大会的感受，表示有两点最为突出：“第一，今年感觉非常不同，因为巴菲特老先生不在上面做主讲嘉宾了。其实巴菲特先生每年讲的时候，不光讲到财务数据、进展，其实还会讲到人生智慧
 
 ## 正文
 
-核心要点 两家公司于周三联合宣布，英伟达将与英国初创公司Ineffable Intelligence合作研发全新人工智能系统。
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
 
-不同于众多主流 AI 模型依托人类数据进行训练，Ineffable Intelligence 专注强化学习，即让 AI 模型从自身经验中自主学习。
+蓝衫集团董事总经理Gary Dvorchak在演讲中谈及本次股东大会的感受，表示有两点最为突出：“第一，今年感觉非常不同，因为巴菲特老先生不在上面做主讲嘉宾了。
 
-英伟达创始人兼首席执行官黄仁勋表示：人工智能的下一个前沿是超级学习体 —— 能够从经验中持续自主学习的智能系统。
+其实巴菲特先生每年讲的时候，不光讲到财务数据、进展，其实还会讲到人生智慧、投资哲学，分享他的人生趣事，这种感觉是不一样的。
 
-英伟达官宣与一家人工智能初创企业达成合作；这家初创公司由谷歌深度思维（DeepMind）前顶尖科学家创办，成立仅数月。
+” 第二，他观察到伯克希尔·哈撒韦在AI投资上的保守态度：“今年关于AI这个问题问到的时候，他们主要强调的还是网络安全，怎么样来保护自己，怎么样保护这个公司。
 
-Ineffable Intelligence 致力于研发超级智能，由伦敦大学学院教授、前 DeepMind 强化学习团队负责人大卫・西尔弗于 2025 年末创立。
+从这个角度就可以看到，整个公司的整个文化和目前的观点，还是比较保守，针对AI方面的投资，还是处于一个保守的状态。
 
-公司周三表示，将与这家芯片巨头开展工程级深度合作，共同打造可通过试错自主学习的 AI 系统。
+” 对于AI的发展趋势，Gary Dvorchak认为今年AI的重要性愈发凸显：“我去年就讲到投资AI是核心词，今年就更加如此了，因为AI的迅速发展，尤其是AI的基础设施、应用等各方面，它的需求本身巨大。
 
-这家总部位于伦敦的企业今年 4 月完成创纪录的11 亿美元种子轮融资，由美国风投红杉资本与光速创投联合领投，英伟达、DST 全球资本、指数创投、谷歌以及英国主权人工智能基金均参与跟投。
+甚至华尔街整天谈的也都是以AI为中心，而且几乎现在每个dollar都投向AI这个方向。
 
-英伟达 CEO 黄仁勋表示：“人工智能的下一个前沿是超级学习体，也就是能够从经验中持续迭代学习的智能系统。
+” 在“资本向善”话题上，Gary Dvorchak表示，“AI可以把很多重复性的工作取代了，但同时，成百万、上千万的人在未来的两三年失去工作。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 20:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 20:24 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 20:09 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 20:06 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 20:12 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 20:21 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 20:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 20:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 20:17 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 20:18 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 20:33 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 20:14 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 20:21 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 20:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 20:22 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 20:21 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 20:21 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 20:29 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 20:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 20:30 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 20:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 20:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:15 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/7781707472.shtml)
-- 2026-06-29 20:17 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/845052027.shtml)
-- 2026-06-29 20:27 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/97924.shtml)
-- 2026-06-29 20:34 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/72685986.shtml)
-- 2026-06-29 20:34 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/51733502.shtml)
-- 2026-06-29 20:33 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/230874.shtml)
-- 2026-06-29 20:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/3238944.shtml)
-- 2026-06-29 20:16 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/208895207749.shtml)
-- 2026-06-29 20:13 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/416398276.shtml)
-- 2026-06-29 20:20 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/35790.shtml)
-- 2026-06-29 20:31 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/552556725.shtml)
-- 2026-06-29 20:13 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/800209761.shtml)
-- 2026-06-29 20:10 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/493490.shtml)
-- 2026-06-29 20:31 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/5651705615.shtml)
-- 2026-06-29 20:12 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/39420238.shtml)
+- 2026-06-29 20:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/44466.shtml)
+- 2026-06-29 20:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/862741.shtml)
+- 2026-06-29 20:36 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/499484.shtml)
+- 2026-06-29 20:30 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/4308392.shtml)
+- 2026-06-29 20:19 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/218461065.shtml)
+- 2026-06-29 20:29 - [流金岁月](https://www.blog.minike.top/Article/details/84473.shtml)
+- 2026-06-29 20:15 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/6362850465.shtml)
+- 2026-06-29 20:15 - [周杰伦演唱会含星量](http://www.blog.minike.top/Article/details/82940830731.shtml)
+- 2026-06-29 20:16 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/04525928.shtml)
+- 2026-06-29 20:34 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/3618882961.shtml)
+- 2026-06-29 20:15 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/913387.shtml)
+- 2026-06-29 20:38 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/948057672123.shtml)
+- 2026-06-29 20:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/7926201.shtml)
+- 2026-06-29 20:21 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/719955.shtml)
+- 2026-06-29 20:38 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/7703311.shtml)

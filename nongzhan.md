@@ -1,55 +1,61 @@
-# 英国科技企业Humanoid拟赴美上市,加速扩张工业机器人产能
+# 保工期，致敬奋斗者！“五一”假期劳动者坚守岗位用实干创未来
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-5月13日，英国科技企业Humanoid首席执行官阿尔捷姆·索科洛夫（Artem Sokolov）表示，随着工业机器人订单持续激增，该公司正加速扩大产能，并计划于2029年至2030年间在美国证券市场进行首次公开募股（IPO）。 索科洛夫指出，目前Humanoid已累计获得约3.4万份机器人预购订单。按生产规划，该批产品将在未来三年内完成交付，预计可为公司创造每年约24亿美元的
+央视网消息：这个“五一”假期，广西、贵州、湖北等地多个工业、农业项目工作者坚守岗位，保证项目顺利推进。 广西抽蓄电站群总投资651亿元，总规模1000万千瓦，由8座电站构成，分布在钦州、桂林、玉林等7个地市。这个假期，位于平陆运河经济带沿线的钦州抽水蓄能工程加快建设，1300多名工人同时推进上下水库、厂房等区域的50余项施工任务。 湖北嘉鱼县是我国最大的斑点叉尾鮰苗种繁育基地。
 
 ## 正文
 
-5月13日，英国科技企业Humanoid首席执行官阿尔捷姆·索科洛夫（Artem Sokolov）表示，随着工业机器人订单持续激增，该公司正加速扩大产能，并计划于2029年至2030年间在美国证券市场进行首次公开募股（IPO）。
+央视网消息：这个“五一”假期，广西、贵州、湖北等地多个工业、农业项目工作者坚守岗位，保证项目顺利推进。
 
-索科洛夫指出，目前Humanoid已累计获得约3.4万份机器人预购订单。
+广西抽蓄电站群总投资651亿元，总规模1000万千瓦，由8座电站构成，分布在钦州、桂林、玉林等7个地市。
 
-按生产规划，该批产品将在未来三年内完成交付，预计可为公司创造每年约24亿美元的经常性营业收入。
+这个假期，位于平陆运河经济带沿线的钦州抽水蓄能工程加快建设，1300多名工人同时推进上下水库、厂房等区域的50余项施工任务。
 
-鉴于当前业务的快速扩张态势，公司管理层在资本市场的布局上更倾向于美国。
+湖北嘉鱼县是我国最大的斑点叉尾鮰苗种繁育基地。
 
-不过，针对具体的估值预期及启动上市的先决条件，他并未透露更多细节。
+眼下，已经全面进入鱼苗孵化生产旺季，斑点叉尾鮰孵化期间池水温度必须稳定在22℃以上，温差一大，鱼卵就容易发育不良甚至停止发育。
 
-责任编辑：龙运翔
+假期期间，当地供电部门对育苗专线进行了全面改造，确保关键设备24小时不断电。
+
+这个假期，新建贵州黄桶至广西百色铁路毛栗冲隧道顺利贯通。
+
+项目施工团队假期不停工，运用超前地质预报探明地质情况，引入大量国产智能化设备，搭配全链条安全管控体系，精准定制处置方案，化解地质风险，保障施工安全。
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 20:30 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 20:11 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 20:22 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 20:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 20:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 20:26 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 20:11 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 20:17 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 20:21 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 20:35 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 20:35 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 20:16 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 20:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 20:17 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 20:41 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 20:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 20:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 20:30 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 20:25 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 20:19 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 20:29 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 20:18 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 20:24 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 20:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 20:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 20:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 20:12 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/504043846.shtml)
-- 2026-06-29 20:16 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/3171544699.shtml)
-- 2026-06-29 20:12 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/72736154.shtml)
-- 2026-06-29 20:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/152586935.shtml)
-- 2026-06-29 20:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/844775.shtml)
-- 2026-06-29 20:11 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/887476601.shtml)
-- 2026-06-29 20:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/71219073.shtml)
-- 2026-06-29 20:20 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/66796.shtml)
-- 2026-06-29 20:22 - [这一刀 会很帅](http://www.share.minike.top/Article/details/616752690443.shtml)
-- 2026-06-29 20:31 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/969408.shtml)
-- 2026-06-29 20:11 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/31123263402.shtml)
-- 2026-06-29 20:27 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/27900.shtml)
-- 2026-06-29 20:17 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/67546568.shtml)
-- 2026-06-29 20:34 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/2591139854.shtml)
-- 2026-06-29 20:25 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/3210213.shtml)
+- 2026-06-29 20:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/0466724.shtml)
+- 2026-06-29 20:14 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/7338387.shtml)
+- 2026-06-29 20:32 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/184193536.shtml)
+- 2026-06-29 20:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/633093.shtml)
+- 2026-06-29 20:34 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/171276875482.shtml)
+- 2026-06-29 20:26 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/8286237.shtml)
+- 2026-06-29 20:15 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/07369016554.shtml)
+- 2026-06-29 20:25 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/66510.shtml)
+- 2026-06-29 20:23 - [小娘惹](http://www.share.kurohicncr.top/Article/details/9234714.shtml)
+- 2026-06-29 20:14 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/2073350.shtml)
+- 2026-06-29 20:41 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/25565100.shtml)
+- 2026-06-29 20:30 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/3545367515.shtml)
+- 2026-06-29 20:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/156206951.shtml)
+- 2026-06-29 20:41 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/306719.shtml)
+- 2026-06-29 20:34 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/85798.shtml)

@@ -1,59 +1,60 @@
-# 谁在借网络平台给日本社会“投毒”？
+# 伦敦世乒赛中国女队轻取罗马尼亚迎来开门红
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-近日，一名日本学生在国际学校了解到南京大屠杀史实后，回家表达愧疚，不料引发父亲暴怒。这名父亲在社交平台发帖，怒称要“抵制国际教育”，并用右翼篡改的“史料”误导女儿。更加值得警惕的是，他的言论很快获得大量日本网民附和，一些人污蔑相关史实是“对小孩子洗脑”，还有人要求日本教育部门管控国际学校，阻止学生了解真实历史。如此荒诞的一幕，令人不禁发问：面对昭昭历史，日本网络平台上为何会形成
+中新社伦敦5月2日电 (记者 欧阳开宇)当地时间5月2日，2026年世界乒乓球团体锦标赛女子团体小组赛在伦敦温布利打响。卫冕冠军中国女乒迎来本届赛事首秀，并以大比分3比0完胜欧洲劲旅罗马尼亚队，顺利取得小组赛开门红。本场比赛，中国女乒派出孙颖莎、蒯曼、王艺迪的出战阵容，迎战罗马尼亚队迪亚科努、德拉戈曼、扎哈里亚组合。作为赛事头号种子，国乒女团整体实力占据明显优势，三位选手均直落
 
 ## 正文
 
-近日，一名日本学生在国际学校了解到南京大屠杀史实后，回家表达愧疚，不料引发父亲暴怒。
+中新社伦敦5月2日电 (记者 欧阳开宇)当地时间5月2日，2026年世界乒乓球团体锦标赛女子团体小组赛在伦敦温布利打响。
 
-这名父亲在社交平台发帖，怒称要“抵制国际教育”，并用右翼篡改的“史料”误导女儿。
+卫冕冠军中国女乒迎来本届赛事首秀，并以大比分3比0完胜欧洲劲旅罗马尼亚队，顺利取得小组赛开门红。
 
-更加值得警惕的是，他的言论很快获得大量日本网民附和，一些人污蔑相关史实是“对小孩子洗脑”，还有人要求日本教育部门管控国际学校，阻止学生了解真实历史。
+本场比赛，中国女乒派出孙颖莎、蒯曼、王艺迪的出战阵容，迎战罗马尼亚队迪亚科努、德拉戈曼、扎哈里亚组合。
 
-如此荒诞的一幕，令人不禁发问：面对昭昭历史，日本网络平台上为何会形成如此畸形的认知？
+作为赛事头号种子，国乒女团整体实力占据明显优势，三位选手均直落三局击败对手，全程未失一局，展现出稳定的竞技状态。
 
-这背后，离不开日本右翼黑手的长期“投毒”。
+首盘对决，世界排名第一的孙颖莎率先登场，对阵迪亚科努。
 
-据日本《朝日新闻》调查，日本众包平台CrowdWorks长期付费招募网民，刻意收集或利用AI生成“中国人不文明”“反日”“南京大屠杀是谎言”等抹黑内容，将歪曲历史、煽动对立的右翼舆论当作博取流量和收益的手段，形成了一条黑色产业链。
+比赛开局，孙颖莎一度陷入5比9落后的被动局面，随后迅速调整战术，加强落点控制与进攻节奏，成功实现逆转，以12比10拿下首局。
 
-借助网络平台，日本右翼以平台化、产业化的方式制造谣言、扩散极端言论，让一些本就受错误史观误导的日本网民，进一步丧失对战争的反思与批判能力。
+此后两局，孙颖莎完全掌控比赛走势，连下两城，大比分3比0轻取对手，为中国队拿下第一分。
 
-畸形历史认知和对华恶意舆论之所以在日本社会如此泛滥，离不开日本右翼政府真金白银的支持。
+第二盘比赛，年轻选手蒯曼迎战德拉戈曼。
 
 ## 相关推荐
 
-- 2026-06-29 20:22 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 20:32 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 20:14 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 20:10 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 20:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 20:15 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 20:10 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 20:20 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 20:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 20:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 20:35 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 20:12 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 20:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 20:41 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 20:40 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 20:14 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 20:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 20:23 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 20:40 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 20:18 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 20:26 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 20:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 20:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 20:37 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 20:20 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 20:26 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 20:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:31 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/072416684867.shtml)
-- 2026-06-29 20:35 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/207541331381.shtml)
-- 2026-06-29 20:09 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/1746327.shtml)
-- 2026-06-29 20:35 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/546218295490.shtml)
-- 2026-06-29 20:10 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/889155726487.shtml)
-- 2026-06-29 20:32 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/12034.shtml)
-- 2026-06-29 20:35 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/918924.shtml)
-- 2026-06-29 20:22 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/5615062990.shtml)
-- 2026-06-29 20:12 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/566688597250.shtml)
-- 2026-06-29 20:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/3156981.shtml)
-- 2026-06-29 20:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/16072704171.shtml)
-- 2026-06-29 20:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/927358296781.shtml)
-- 2026-06-29 20:15 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/22249227.shtml)
-- 2026-06-29 20:09 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/171679037.shtml)
-- 2026-06-29 20:12 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/96106913.shtml)
+- 2026-06-29 20:14 - [半导体和股市为何没让韩国人起飞](http://www.share.kurohicncr.top/Article/details/33312824502.shtml)
+- 2026-06-29 20:29 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/39140585.shtml)
+- 2026-06-29 20:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/016320964.shtml)
+- 2026-06-29 20:35 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/09671229234.shtml)
+- 2026-06-29 20:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/01311693.shtml)
+- 2026-06-29 20:37 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/4271910.shtml)
+- 2026-06-29 20:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/877516.shtml)
+- 2026-06-29 20:32 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/773795630.shtml)
+- 2026-06-29 20:28 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/4400162.shtml)
+- 2026-06-29 20:13 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/577011188738.shtml)
+- 2026-06-29 20:31 - [极限挑战第一季](http://www.share.minike.top/Article/details/9158274.shtml)
+- 2026-06-29 20:31 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/248003.shtml)
+- 2026-06-29 20:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/88782121145.shtml)
+- 2026-06-29 20:25 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/8185949074.shtml)
+- 2026-06-29 20:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/3480478443.shtml)

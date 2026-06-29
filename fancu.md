@@ -1,48 +1,59 @@
-# 伊朗就美在“12日战争”中行为向国际仲裁机构提起诉讼
+# 公司引进AI就能降薪裁人？法院这样判→
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-总台记者当地时间5月12日获悉，伊朗政府已向国际仲裁机构伊朗-美国求偿仲裁法庭(IUSCT)提起诉讼，起诉美国“对伊朗核设施进行军事侵略”“实施经济制裁”以及“威胁使用武力”。 该诉状针对美国在对伊“12日战争”期间违反国际义务的行为，已于2026年2月至3月期间在伊朗-美国求偿仲裁庭正式登记。 伊朗-美国求偿仲裁庭是根据1981年《阿尔及尔宣言》设立的国际仲裁机构，总部位于荷
+新闻周刊丨公司引进AI就能降薪裁人？法院这样判→ AI替岗替的是谁、怎么替？中间的过程是什么样的？它对劳动者带来的影响需要不需要一种新的制度安排以最大程度上保护劳动者的权益？近日，杭州市中院发布了一起AI替岗典型案例。 杭州中院发布的这起典型案例的当事人是35岁的周先生，他在一家金融科技企业担任AI大模型质检主管，负责对AI与用户交互所生成的答案进行把关。去年1月，公司提出要将
 
 ## 正文
 
-总台记者当地时间5月12日获悉，伊朗政府已向国际仲裁机构伊朗-美国求偿仲裁法庭(IUSCT)提起诉讼，起诉美国“对伊朗核设施进行军事侵略”“实施经济制裁”以及“威胁使用武力”。
+新闻周刊丨公司引进AI就能降薪裁人？
 
-该诉状针对美国在对伊“12日战争”期间违反国际义务的行为，已于2026年2月至3月期间在伊朗-美国求偿仲裁庭正式登记。
+法院这样判→ AI替岗替的是谁、怎么替？
 
-伊朗-美国求偿仲裁庭是根据1981年《阿尔及尔宣言》设立的国际仲裁机构，总部位于荷兰海牙。
+中间的过程是什么样的？
 
-(总台记者 李健南 李霜溪)
+它对劳动者带来的影响需要不需要一种新的制度安排以最大程度上保护劳动者的权益？
+
+近日，杭州市中院发布了一起AI替岗典型案例。
+
+杭州中院发布的这起典型案例的当事人是35岁的周先生，他在一家金融科技企业担任AI大模型质检主管，负责对AI与用户交互所生成的答案进行把关。
+
+去年1月，公司提出要将他从主管调到普通运营岗位，原先2.5万元的月薪降为1.5万元。
+
+协商不成后，公司直接通知他解除劳动合同。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 20:16 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 20:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 20:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 20:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 20:08 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 20:10 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 20:15 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 20:16 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 20:10 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 20:26 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 20:33 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 20:33 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 20:12 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 20:17 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 20:21 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 20:39 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 20:19 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 20:13 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 20:26 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 20:34 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 20:39 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 20:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/1480376.shtml)
-- 2026-06-29 20:34 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/012404113.shtml)
-- 2026-06-29 20:22 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/3279613772.shtml)
-- 2026-06-29 20:24 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/89008078.shtml)
-- 2026-06-29 20:08 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/452050.shtml)
-- 2026-06-29 20:14 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/984465669498.shtml)
-- 2026-06-29 20:13 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/543048.shtml)
-- 2026-06-29 20:14 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/25532449.shtml)
-- 2026-06-29 20:16 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/192579.shtml)
-- 2026-06-29 20:22 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/070417.shtml)
-- 2026-06-29 20:16 - [逃狱兄弟](http://www.share.minike.top/Article/details/40997957150.shtml)
-- 2026-06-29 20:24 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/625719595.shtml)
-- 2026-06-29 20:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/3602769145.shtml)
-- 2026-06-29 20:23 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/33005415.shtml)
-- 2026-06-29 20:06 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/65661.shtml)
+- 2026-06-29 20:26 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/4277080377.shtml)
+- 2026-06-29 20:26 - [金牌调解](https://www.share.minike.top/Article/details/027568263423.shtml)
+- 2026-06-29 20:18 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/34660110456.shtml)
+- 2026-06-29 20:26 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/607266.shtml)
+- 2026-06-29 20:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/4782048.shtml)
+- 2026-06-29 20:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/893185327.shtml)
+- 2026-06-29 20:38 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/332726.shtml)
+- 2026-06-29 20:39 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/24840.shtml)
+- 2026-06-29 20:28 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/0369492635.shtml)
+- 2026-06-29 20:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/14964101825.shtml)
+- 2026-06-29 20:41 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/945127536.shtml)
+- 2026-06-29 20:33 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/2559634142.shtml)
+- 2026-06-29 20:16 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/161350597.shtml)
+- 2026-06-29 20:17 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/73154719521.shtml)
+- 2026-06-29 20:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/6435726918.shtml)

@@ -1,61 +1,58 @@
-# 专家解读：日本“再军事化”为何是“灰犀牛”
+# 对非洲53国零关税首批货物之一在广州通关
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-日本执政党自民党近日召开了“宇宙开发”特别委员会会议，通过了一项面向政府的建议方案，其中包括增加自卫队中从事宇宙相关工作的人员编制等内容。专家分析，这份所谓的“宇宙开发”建议方案是日本加速推进军事大国化路线以及太空“军事化”的关键步骤。在12日举行的外交部例行记者会上，发言人郭嘉昆表示，日本“再军事化”这头“灰犀牛”正奔袭而来。很多国际专家学者和媒体都指出日本已经抛弃和平主义，
+中新网广州5月1日电 (记者 许青青)5月1日0时0分10秒，深圳欧恒进出口有限公司向广州海关所属广州白云机场海关申报一批超6900千克的肯尼亚鲜鳄梨，经海关关员现场审核、验放后顺利通关。 5月1日起，中国对53个非洲建交国全面实施零关税举措。广州海关介绍，这批来自肯尼亚的鲜鳄梨是该举措落地后，全国首批自非洲进口货物之一，预计可享受关税优惠1.3万元(人民币，下同)。 广州海关
 
 ## 正文
 
-日本执政党自民党近日召开了“宇宙开发”特别委员会会议，通过了一项面向政府的建议方案，其中包括增加自卫队中从事宇宙相关工作的人员编制等内容。
+中新网广州5月1日电 (记者 许青青)5月1日0时0分10秒，深圳欧恒进出口有限公司向广州海关所属广州白云机场海关申报一批超6900千克的肯尼亚鲜鳄梨，经海关关员现场审核、验放后顺利通关。
 
-专家分析，这份所谓的“宇宙开发”建议方案是日本加速推进军事大国化路线以及太空“军事化”的关键步骤。
+5月1日起，中国对53个非洲建交国全面实施零关税举措。
 
-在12日举行的外交部例行记者会上，发言人郭嘉昆表示，日本“再军事化”这头“灰犀牛”正奔袭而来。
+广州海关介绍，这批来自肯尼亚的鲜鳄梨是该举措落地后，全国首批自非洲进口货物之一，预计可享受关税优惠1.3万元(人民币，下同)。
 
-很多国际专家学者和媒体都指出日本已经抛弃和平主义，正在经历战后最危险的军事安全政策转向，威胁地区和世界和平稳定。
+广州海关关税处原产地管理科副科长张欧洲介绍：“零关税举措为非洲产品进入中国市场提供了竞争优势，例如，埃及的椰枣，关税税率为15%，南非的葡萄酒，关税税率为14%，科特迪瓦的腰果，关税税率为5%，这些承载着当地民众生计的产品，在符合相关原产地规则和检验检疫要求的前提下，都将享受零关税进口，也将有效丰富中国内地市场供给。
 
-什么是“灰犀牛”？
+” 近年来，广州依托空港、海港双枢纽，构建起高效便捷的对非贸易通道。
 
-为什么说日本“再军事化”是“灰犀牛”？
+空运方面，广州白云国际机场目前已开通5条对非定期航线，通达埃塞俄比亚、埃及等国家。
 
-日本“再军事化”这头正奔袭而来的“灰犀牛”将给哪些区域带来什么样的威胁？
+海运方面，南沙港目前已开通25条对非航线。
 
-来听专家的解读。
+今年4月新开北非直航航线，实现与埃及塞得港、利比亚班加西港等港口的稳定直航，贸易往来更加便利。
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 20:17 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 20:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 20:21 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 20:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 20:29 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 20:31 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 20:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 20:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 20:23 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 20:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 20:27 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 20:28 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 20:28 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 20:33 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 20:40 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 20:35 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 20:23 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 20:17 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 20:12 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 20:14 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 20:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 20:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 20:16 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 20:23 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 20:13 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 20:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/1862743.shtml)
-- 2026-06-29 20:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/22786586.shtml)
-- 2026-06-29 20:28 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/81548998852.shtml)
-- 2026-06-29 20:08 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/9688588277.shtml)
-- 2026-06-29 20:27 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/91817067805.shtml)
-- 2026-06-29 20:23 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/7088172.shtml)
-- 2026-06-29 20:25 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/000020980794.shtml)
-- 2026-06-29 20:22 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/21354269.shtml)
-- 2026-06-29 20:25 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/305434.shtml)
-- 2026-06-29 20:20 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/588811784260.shtml)
-- 2026-06-29 20:21 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/151573.shtml)
-- 2026-06-29 20:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/64156656627.shtml)
-- 2026-06-29 20:07 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/595824918.shtml)
-- 2026-06-29 20:10 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/24686742399.shtml)
-- 2026-06-29 20:06 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/29008405102.shtml)
+- 2026-06-29 20:12 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/381592584868.shtml)
+- 2026-06-29 20:19 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/145951499897.shtml)
+- 2026-06-29 20:17 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/753135171.shtml)
+- 2026-06-29 20:38 - [天道](http://www.blog.minike.top/Article/details/811919141727.shtml)
+- 2026-06-29 20:29 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/7003662.shtml)
+- 2026-06-29 20:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/1223258.shtml)
+- 2026-06-29 20:41 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/6011827662.shtml)
+- 2026-06-29 20:19 - [一生一世](https://www.share.kurohicncr.top/Article/details/35227592.shtml)
+- 2026-06-29 20:23 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/86234212858.shtml)
+- 2026-06-29 20:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/90942686924.shtml)
+- 2026-06-29 20:38 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/34602.shtml)
+- 2026-06-29 20:35 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/64477549555.shtml)
+- 2026-06-29 20:18 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/743725099503.shtml)
+- 2026-06-29 20:17 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/877535989.shtml)
+- 2026-06-29 20:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/0697428.shtml)

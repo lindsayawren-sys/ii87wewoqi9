@@ -1,52 +1,57 @@
-# 潍柴动力午后涨近3% 大和将目标价由40港元上升至50港元
+# 商汤年内配股再募32亿港元：2021年至今累亏超350亿 股东权益持续遭稀释
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-潍柴动力（02338）盘中涨近4%，截至发稿，股价上涨2.78%，现报40.72港元，成交额6.36亿港元。 近日，大和发布研报称，潍柴动力（02338）更新预测以反映2026年第一季度电源供应业务强劲的盈利表现。该行最新预测显示，2027至2028年净利同比增长料14%至24%，此前为6%至14%，主要受惠于强劲的AI数据中心需求。尽管仍看好潍柴因AI数据中心强劲需求所带来的
+时隔不足四个月，人工智能龙头企业商汤集团再度启动配售再融资，其融资频率之高、股权摊薄幅度之大，引发市场对股东权益持续受损的深切忧虑。 2026年4月16日（交易时段后），商汤与配售代理HSBC订立配售协议，计划以每股1.91港元的价格向不少于六名独立承配人配售最多17亿股新B类股份，预计所得款项总额约32.47亿港元，扣除相关成本后净额约为32.30亿港元。每股1.91港元的配
 
 ## 正文
 
-潍柴动力（02338）盘中涨近4%，截至发稿，股价上涨2.78%，现报40.72港元，成交额6.36亿港元。
+时隔不足四个月，人工智能龙头企业商汤集团再度启动配售再融资，其融资频率之高、股权摊薄幅度之大，引发市场对股东权益持续受损的深切忧虑。
 
-近日，大和发布研报称，潍柴动力（02338）更新预测以反映2026年第一季度电源供应业务强劲的盈利表现。
+2026年4月16日（交易时段后），商汤与配售代理HSBC订立配售协议，计划以每股1.91港元的价格向不少于六名独立承配人配售最多17亿股新B类股份，预计所得款项总额约32.47亿港元，扣除相关成本后净额约为32.30亿港元。
 
-该行最新预测显示，2027至2028年净利同比增长料14%至24%，此前为6%至14%，主要受惠于强劲的AI数据中心需求。
+每股1.91港元的配售价较2026年4月16日收市价2.09港元折让约8.61%，较前五个交易日平均收市价2.02港元亦有约5.45%的折让。
 
-尽管仍看好潍柴因AI数据中心强劲需求所带来的长期增长潜力，但基于估值考量，LNG重卡业务短期可能承压，将其评级由“买入”下调至“跑赢大市”，H股目标价由40港元升至50港元。
+这是商汤自2025年6月股东周年大会获得一般授权以来，第三次大规模动用该项授权进行配股融资。
 
-责任编辑：卢昱君
+在此之前，公司于2025年7月以每股1.5港元配售约16.67亿股，募集净额约24.98亿港元；2025年12月以每股1.8港元配售17.5亿股，募集净额约31.46亿港元。
+
+加上本次配售，仅过去十个月，商汤已通过股权融资合计募集资金净额接近90亿港元。
+
+而根据公告披露，截至2026年4月16日，公司已根据一般授权发行合共约34.17亿股B类股份，仍剩余约39.85亿股可供发行——如果公司选择继续悉数动用余下额度，将进一步对现有股东权益构成巨大摊薄压力。
+
+消息公布后，商汤股价并未获得正向反馈。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 20:09 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 20:31 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 20:10 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 20:08 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 20:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 20:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 20:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 20:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 20:24 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 20:08 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 20:24 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 20:21 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 20:25 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 20:24 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 20:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 20:34 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 20:29 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 20:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 20:20 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 20:27 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 20:33 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 20:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:26 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/23623188970.shtml)
-- 2026-06-29 20:18 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/69052369.shtml)
-- 2026-06-29 20:12 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/827543.shtml)
-- 2026-06-29 20:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/5506098168.shtml)
-- 2026-06-29 20:30 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/146780.shtml)
-- 2026-06-29 20:11 - [送你一朵小红花](https://www.blog.minike.top/Article/details/48808610698.shtml)
-- 2026-06-29 20:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/686708261599.shtml)
-- 2026-06-29 20:09 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/4266488.shtml)
-- 2026-06-29 20:33 - [85花告别古偶](https://www.share.minike.top/Article/details/097011208.shtml)
-- 2026-06-29 20:13 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/5199606.shtml)
-- 2026-06-29 20:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/66310.shtml)
-- 2026-06-29 20:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/2819919.shtml)
-- 2026-06-29 20:16 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/741075731.shtml)
-- 2026-06-29 20:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/657210983.shtml)
-- 2026-06-29 20:14 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/92127963.shtml)
+- 2026-06-29 20:33 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/6937786.shtml)
+- 2026-06-29 20:29 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/9654669.shtml)
+- 2026-06-29 20:26 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/08307113552.shtml)
+- 2026-06-29 20:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/3508303.shtml)
+- 2026-06-29 20:27 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/72079.shtml)
+- 2026-06-29 20:41 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/64865.shtml)
+- 2026-06-29 20:27 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/520013.shtml)
+- 2026-06-29 20:41 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/6334632499.shtml)
+- 2026-06-29 20:24 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/8678310.shtml)
+- 2026-06-29 20:18 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/19385128.shtml)
+- 2026-06-29 20:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/39205097.shtml)
+- 2026-06-29 20:30 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/85956.shtml)
+- 2026-06-29 20:25 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/574553531519.shtml)
+- 2026-06-29 20:22 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/84903522058.shtml)
+- 2026-06-29 20:32 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/90685505684.shtml)

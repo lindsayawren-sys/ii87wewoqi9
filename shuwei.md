@@ -1,59 +1,44 @@
-# 日本Eneos斥资22亿美元收购雪佛龙部分亚洲石油资产
+# 【小新的Vlog】如何把动车“开”走？小新带你体验
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-日本炼油企业Eneos控股株式会社已同意以21.7亿美元收购雪佛龙公司在亚太地区的部分炼油和零售资产，从而大幅扩大其在该地区的业务版图。 据这家东京上市公司发布的声明，此次收购的资产包括雪佛龙在新加坡一家炼油厂持有的50%股份，以及在新加坡、马来西亚、菲律宾、澳大利亚和印尼的其他资产。Eneos是日本最大的炼油商，在日本各地运营原油加工厂和燃油零售网络。 此次交易使Eneos首
+发布时间：2026年05月01日 20:43 来源：中国新闻网 5月1日，正值“五一国际劳动节”当天，中新社记者走进中国铁路南宁局集团有限公司南宁机务段动车组模拟驾驶仿真实训室，近距离探访动车司机岗位，沉浸式体验动车司机开车日常系统学习动车操控、司机值乘作业、瞭望路况、等全流程工作内容，真切感受铁路人节日在岗、守护旅途平安的责任与担当。(蒋雪林 陈沿佑 广西南宁报道） 责任编辑
 
 ## 正文
 
-日本炼油企业Eneos控股株式会社已同意以21.7亿美元收购雪佛龙公司在亚太地区的部分炼油和零售资产，从而大幅扩大其在该地区的业务版图。
+发布时间：2026年05月01日 20:43 来源：中国新闻网 5月1日，正值“五一国际劳动节”当天，中新社记者走进中国铁路南宁局集团有限公司南宁机务段动车组模拟驾驶仿真实训室，近距离探访动车司机岗位，沉浸式体验动车司机开车日常系统学习动车操控、司机值乘作业、瞭望路况、等全流程工作内容，真切感受铁路人节日在岗、守护旅途平安的责任与担当。
 
-据这家东京上市公司发布的声明，此次收购的资产包括雪佛龙在新加坡一家炼油厂持有的50%股份，以及在新加坡、马来西亚、菲律宾、澳大利亚和印尼的其他资产。
-
-Eneos是日本最大的炼油商，在日本各地运营原油加工厂和燃油零售网络。
-
-此次交易使Eneos首次在日本以外的炼油厂持有股份，并增强其在亚洲石油贸易和供应中心新加坡的影响力。
-
-今年早些时候雪佛龙同意以2.7亿美元，将香港燃料业务售予Bangchak Corp．。
-
-而包括埃克森美孚公司在内的其他石油巨头近年来也在出售东南亚资产。
-
-责任编辑：王永生
+(蒋雪林 陈沿佑 广西南宁报道） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 20:28 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 20:23 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 20:26 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 20:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 20:15 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 20:22 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 20:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 20:16 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 20:28 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 20:18 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 20:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 20:15 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 20:26 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 20:33 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 20:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 20:40 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 20:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 20:16 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 20:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 20:24 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 20:37 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 20:35 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 20:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 20:17 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/6890200.shtml)
-- 2026-06-29 20:12 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/921671162.shtml)
-- 2026-06-29 20:34 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/45469696.shtml)
-- 2026-06-29 20:20 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/4807602500.shtml)
-- 2026-06-29 20:34 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/91770094328.shtml)
-- 2026-06-29 20:33 - [TOP Prada](https://www.share.minike.top/Article/details/948054677340.shtml)
-- 2026-06-29 20:08 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/943149.shtml)
-- 2026-06-29 20:06 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/434439693412.shtml)
-- 2026-06-29 20:22 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/096259621.shtml)
-- 2026-06-29 20:14 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/2415215035.shtml)
-- 2026-06-29 20:17 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/861398878389.shtml)
-- 2026-06-29 20:13 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/175331748.shtml)
-- 2026-06-29 20:09 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/411265754.shtml)
-- 2026-06-29 20:15 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/92378841866.shtml)
-- 2026-06-29 20:26 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/428941.shtml)
+- 2026-06-29 20:30 - [沙丘](http://www.blog.kurohicncr.top/Article/details/6205160.shtml)
+- 2026-06-29 20:15 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/75312668.shtml)
+- 2026-06-29 20:25 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/569381584901.shtml)
+- 2026-06-29 20:13 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/85689972116.shtml)
+- 2026-06-29 20:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/66519637.shtml)
+- 2026-06-29 20:28 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/3603035.shtml)
+- 2026-06-29 20:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/32000946.shtml)
+- 2026-06-29 20:28 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/95731.shtml)
+- 2026-06-29 20:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/7182678.shtml)
+- 2026-06-29 20:19 - [毒液2](https://www.blog.kurohicncr.top/Article/details/839988.shtml)
+- 2026-06-29 20:12 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/8780366.shtml)
+- 2026-06-29 20:26 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/566181402.shtml)
+- 2026-06-29 20:23 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/7321308.shtml)
+- 2026-06-29 20:18 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/7383074105.shtml)
+- 2026-06-29 20:15 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/7379723.shtml)

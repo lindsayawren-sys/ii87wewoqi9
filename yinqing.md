@@ -1,59 +1,59 @@
-# 高盛称韩国国债加息定价过度，外资年内狂买21万亿韩元债券
+# 消息人士：欧佩克 + 拟敲定霍尔木兹海峡封航以来第三次上调石油产量配额
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 根据 汇通财经APP 报道，高盛最新研究指出，随着全球地缘局势阶段性缓和以及国际资本重新流向亚洲固定收益市场，韩国国债收益率存在逐步企稳空间。当前市场对韩国央行未来货币政策路径的预期已经明显偏激，利率市场甚至计入未来12个月至少四次加息的可能性，而高盛认为这一预期已经超过韩国经济基本面所能承受范围。 近期，韩国债券市场成为亚洲资金流向的重要观察窗口。受全球高
+消息人士透露，欧佩克 + 将于周日达成小幅增产决议，但只要美伊冲突持续扰乱海湾石油供应，本次增产基本只会停留在纸面层面，难以落地。 消息人士及一份欧佩克 + 声明草案显示，七个欧佩克 + 成员国已同意在 6 月将石油产量目标日均上调约 18.8 万桶，这也是连续第三个月上调产量配额。 此举意在释放信号：一旦战事结束，该联盟随时准备增加石油供应。消息人士称，尽管阿联酋本周退出欧佩
 
 ## 正文
 
-文章来源：汇通财经 根据 汇通财经APP 报道，高盛最新研究指出，随着全球地缘局势阶段性缓和以及国际资本重新流向亚洲固定收益市场，韩国国债收益率存在逐步企稳空间。
+消息人士透露，欧佩克 + 将于周日达成小幅增产决议，但只要美伊冲突持续扰乱海湾石油供应，本次增产基本只会停留在纸面层面，难以落地。
 
-当前市场对韩国央行未来货币政策路径的预期已经明显偏激，利率市场甚至计入未来12个月至少四次加息的可能性，而高盛认为这一预期已经超过韩国经济基本面所能承受范围。
+消息人士及一份欧佩克 + 声明草案显示，七个欧佩克 + 成员国已同意在 6 月将石油产量目标日均上调约 18.8 万桶，这也是连续第三个月上调产量配额。
 
-近期，韩国债券市场成为亚洲资金流向的重要观察窗口。
+此举意在释放信号：一旦战事结束，该联盟随时准备增加石油供应。
 
-受全球高利率环境、中东局势波动以及美国长期维持紧缩政策影响，韩国国债收益率此前一度快速攀升。
+消息人士称，尽管阿联酋本周退出欧佩克 +，联盟仍继续推进上调产量目标的计划。
 
-不过随着全球避险情绪有所降温，国际资金重新开始增持韩国债券资产。
+周日参与会议的七个成员国为：沙特阿拉伯、伊拉克、科威特、阿尔及利亚、哈萨克斯坦、俄罗斯、阿曼。
 
-高盛认为，当前韩国国债市场最大的核心变化，是外资流入规模远超市场此前预估。
+阿联酋退出后，欧佩克 + 目前共有 21 个成员国（含伊朗），但近年仅有上述七国加上阿联酋参与月度产量决议制定。
 
-数据显示，截至今年4月，境外投资者年内累计增持韩国国债规模已经达到约21万亿韩元，折合约140亿美元。
+2 月 28 日爆发的美伊冲突，以及随之而来的霍尔木兹海峡航运停运，重创沙特、伊拉克、科威特、阿联酋等欧佩克 + 成员国的石油出口。
 
-这一规模不仅明显高于过去五年单季度平均5万亿至6万亿韩元水平，也超过高盛此前对全年净流入约55万亿韩元的预测节奏。
+冲突爆发前，上述产油国是联盟内仅有的具备增产产能的国家。
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 20:11 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 20:13 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 20:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 20:10 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 20:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 20:30 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 20:25 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 20:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 20:20 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 20:20 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 20:13 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 20:08 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 20:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 20:39 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 20:31 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 20:13 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 20:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 20:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 20:40 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 20:14 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 20:32 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 20:34 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 20:19 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 20:21 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 20:29 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/669869334078.shtml)
-- 2026-06-29 20:18 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/6301754058.shtml)
-- 2026-06-29 20:13 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/4376386871.shtml)
-- 2026-06-29 20:08 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/478180.shtml)
-- 2026-06-29 20:10 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/3939624.shtml)
-- 2026-06-29 20:20 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/30958788.shtml)
-- 2026-06-29 20:22 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/775323.shtml)
-- 2026-06-29 20:23 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/5545432.shtml)
-- 2026-06-29 20:32 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/05165.shtml)
-- 2026-06-29 20:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/47782234706.shtml)
-- 2026-06-29 20:17 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/44453888.shtml)
-- 2026-06-29 20:13 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/17357.shtml)
-- 2026-06-29 20:31 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/333116.shtml)
-- 2026-06-29 20:26 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/1124048404.shtml)
-- 2026-06-29 20:12 - [温网](http://www.blog.kurohicncr.top/Article/details/33538.shtml)
+- 2026-06-29 20:16 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/61644.shtml)
+- 2026-06-29 20:34 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/7987275092.shtml)
+- 2026-06-29 20:30 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/3093869.shtml)
+- 2026-06-29 20:17 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/15823318.shtml)
+- 2026-06-29 20:36 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/3779018008.shtml)
+- 2026-06-29 20:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/924144571294.shtml)
+- 2026-06-29 20:31 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/742565.shtml)
+- 2026-06-29 20:21 - [这一刀 会很帅](http://www.share.minike.top/Article/details/10132537095.shtml)
+- 2026-06-29 20:17 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/83419.shtml)
+- 2026-06-29 20:36 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/476053356822.shtml)
+- 2026-06-29 20:31 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/8384199.shtml)
+- 2026-06-29 20:23 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/85922.shtml)
+- 2026-06-29 20:24 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/941735861.shtml)
+- 2026-06-29 20:25 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/79324430620.shtml)
+- 2026-06-29 20:17 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/18466.shtml)

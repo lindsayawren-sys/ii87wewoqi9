@@ -1,59 +1,59 @@
-# 中金：京东物流目标价升至19.4港元 维持“跑赢行业”评级
+# 中国外交部：任何人企图为侵略翻案必将遭到坚决抵制
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持京东物流（02618）2026年和2027年盈利预测，预计2026及27年non-IFRS净利润分别为97.4亿元及107.7亿元。维持“跑赢行业”评级，但由于看好未来盈利及股东回报稳健增长、综合考虑市场风险偏好，上调目标价22%至19.4港元。 京东物流首季业绩胜该行及市场预期。收入同比增长29%至606亿元人民币（下同）； 净利润同比增长95%至8.8亿
+中新社北京5月3日电 中国外交部发言人3日就东京审判开庭80周年答记者问时表示，任何人、任何势力如果不自量力，企图为侵略翻案，必将遭到全世界爱好和平人们的坚决抵制，必将被再次押上历史的审判台。 有记者提问，今天(3日)是远东国际军事法庭(东京审判)开庭80周年纪念日。近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。请问中方对此有何评论？ 外交部发言人表示
 
 ## 正文
 
-中金发布研报称，维持京东物流（02618）2026年和2027年盈利预测，预计2026及27年non-IFRS净利润分别为97.4亿元及107.7亿元。
+中新社北京5月3日电 中国外交部发言人3日就东京审判开庭80周年答记者问时表示，任何人、任何势力如果不自量力，企图为侵略翻案，必将遭到全世界爱好和平人们的坚决抵制，必将被再次押上历史的审判台。
 
-维持“跑赢行业”评级，但由于看好未来盈利及股东回报稳健增长、综合考虑市场风险偏好，上调目标价22%至19.4港元。
+有记者提问，今天(3日)是远东国际军事法庭(东京审判)开庭80周年纪念日。
 
-京东物流首季业绩胜该行及市场预期。
+近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。
 
-收入同比增长29%至606亿元人民币（下同）； 净利润同比增长95%至8.8亿元；non-IFRS净利润同比增长40.1%至10.5亿元。
+请问中方对此有何评论？
 
-首季业绩超出该行预期，主由海外业务加速扩张、供应链业务客户合作加深、快递业务服务优化带动量收增长。
+外交部发言人表示，1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。
 
-报告指，公司首季一体化供应链客户收入同比增长25.9%至292亿元，其中：来自京东集团的收入同比增长32%至194亿元，主要受益于海外业务加速扩张、零售主要品类稳健增长； 外部一体化供应链客户收入同比增长15.5%至98亿元，公司加深与各行业龙头客户的战略合作，实现单客平均收入同比增长7%至14.4万元，客户数量同比增长7.5%达6.8万个。
+这场历史性审判汇聚11国司法力量，以海量铁证和严谨法理，判定日本军国主义发动侵略战争、严重违反国际法，揭露日本侵略者在亚洲多国犯下的累累罪行，判处东条英机等25名甲级战犯绞刑、徒刑，驳斥所谓“胜利者审判”“自卫战争”“事后立法”等谬论。
 
-其他客户收入同比增长32%至314亿元，估计主要受益于并表秒送，以及快递时效优化、量价双升。
+东京审判是《开罗宣言》《波茨坦公告》规定的实施，反映战胜国与受害者集体意志，践行《联合国宪章》的宗旨与原则，捍卫了二战胜利成果。
 
-责任编辑：卢昱君
+发言人指出，接受东京审判判决是战后日本回归国际社会的前提。
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 20:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 20:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 20:31 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 20:25 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 20:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 20:29 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 20:29 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 20:35 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 20:15 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 20:33 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 20:13 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 20:29 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 20:14 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 20:25 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 20:38 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 20:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 20:38 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 20:22 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 20:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 20:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 20:36 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 20:14 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 20:27 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 20:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 20:34 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/5534597.shtml)
-- 2026-06-29 20:07 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/444751905.shtml)
-- 2026-06-29 20:27 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/366851087998.shtml)
-- 2026-06-29 20:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/06688.shtml)
-- 2026-06-29 20:24 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/535030.shtml)
-- 2026-06-29 20:14 - [一生一世](https://www.blog.minike.top/Article/details/28121.shtml)
-- 2026-06-29 20:07 - [《贺子珍》](http://www.blog.minike.top/Article/details/110356995.shtml)
-- 2026-06-29 20:09 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/03851.shtml)
-- 2026-06-29 20:30 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/648634053816.shtml)
-- 2026-06-29 20:21 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/32823510645.shtml)
-- 2026-06-29 20:34 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/688239293147.shtml)
-- 2026-06-29 20:08 - [起风了](http://www.share.kurohicncr.top/Article/details/18213212.shtml)
-- 2026-06-29 20:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/579870517.shtml)
-- 2026-06-29 20:28 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/054281.shtml)
-- 2026-06-29 20:07 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/3386150.shtml)
+- 2026-06-29 20:17 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/072608963901.shtml)
+- 2026-06-29 20:28 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/882185.shtml)
+- 2026-06-29 20:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/225406729244.shtml)
+- 2026-06-29 20:16 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/564726.shtml)
+- 2026-06-29 20:30 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/25473926090.shtml)
+- 2026-06-29 20:15 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/3988178.shtml)
+- 2026-06-29 20:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/631636236940.shtml)
+- 2026-06-29 20:26 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/35497.shtml)
+- 2026-06-29 20:30 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/330610045141.shtml)
+- 2026-06-29 20:29 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/7375074434.shtml)
+- 2026-06-29 20:32 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/274735587609.shtml)
+- 2026-06-29 20:40 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/98978246017.shtml)
+- 2026-06-29 20:18 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/1461322.shtml)
+- 2026-06-29 20:40 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/07148.shtml)
+- 2026-06-29 20:31 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/25548.shtml)

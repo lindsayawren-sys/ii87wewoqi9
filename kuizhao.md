@@ -1,56 +1,61 @@
-# 长江有色: 强美元+弱需求+高库存施压 13日铝价或涨跌有限
+# 20CM涨停，股价新高，“寒王”再登顶！华宝基金科创芯片ETF（589190）暴力冲高7.5%，标的指数4月涨幅超34%
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-长江铝价alu.ccmn.cn短评：美指走强施压，隔夜伦铝微跌0.2%；伦沪两市库存走势分化，季节性淡季逐步来临，下游需求趋弱，市场多空因素交织，今现铝或涨跌有限。【铝期货市场】：美指走强施压，隔夜伦铝窄幅区间弱势整理，最新收盘报价3575美元/吨，收跌7美元，跌幅0.20%，成交量16372手减少5933手，持仓量670286手减少325手。晚间沪铝开盘跳水后反弹震荡，尾盘横
+4月30日，算力芯片全线走强，寒武纪、芯原股份20CM涨停，寒武纪股价逼近1700元创历史新高，单日成交额284.66亿元，登顶A股量价“双冠王”！杰华特、联芸科技、芯源微、思瑞浦、翱捷科技-U齐创两位数涨幅。 全“芯”布局芯片产业的科创芯片ETF华宝（589190）高开高走，场内价格涨幅一度上探7.5%，收涨6.46%，刷新上市以来的历史高点！4月行情收官，589190跟踪的
 
 ## 正文
 
-长江铝价alu.ccmn.cn短评：美指走强施压，隔夜伦铝微跌0.2%；伦沪两市库存走势分化，季节性淡季逐步来临，下游需求趋弱，市场多空因素交织，今现铝或涨跌有限。
+4月30日，算力芯片全线走强，寒武纪、芯原股份20CM涨停，寒武纪股价逼近1700元创历史新高，单日成交额284.66亿元，登顶A股量价“双冠王”！
 
-【铝期货市场】：美指走强施压，隔夜伦铝窄幅区间弱势整理，最新收盘报价3575美元/吨，收跌7美元，跌幅0.20%，成交量16372手减少5933手，持仓量670286手减少325手。
+杰华特、联芸科技、芯源微、思瑞浦、翱捷科技-U齐创两位数涨幅。
 
-晚间沪铝开盘跳水后反弹震荡，尾盘横盘整理收录小阴线；主力月2606合约最新收盘价报24640元/吨，跌5元，跌幅0.02%。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）高开高走，场内价格涨幅一度上探7.5%，收涨6.46%，刷新上市以来的历史高点！
 
-伦敦金属交易所（LME）5月12日伦铝最新库存量报351000公吨，较上个交易日减少2350公吨，跌幅0.67%。
+4月行情收官，589190跟踪的上证科创板芯片指数单月累计上涨34.72%，跑赢同期万得全A指数涨幅（8.69%）逾26个百分点。
 
-长江铝业网讯：5月12日现货铝价，长江现货A00铝锭价报24380元/吨，跌10元；广东现货A00铝锭价报24320元/吨，涨80元。
+注：上证科创板芯片指数近5个完整年度涨跌幅为2021年 6.87%，2022年 -33.69%，2023年 7.26%，2024年 34.52%，2025年 61.33%，指数成份股构成根据该指数编制规则适时调整，其回测历史业绩不预示指数未来表现。
 
-宏观层面，隔夜美元指数震荡走强升至98.289，对以美元计价的金属商品形成较强压制。
+国产芯片产业催化密集，从行情驱动来看，一方面，AI算力需求密集释放，国产算力迈入业绩加速释放期。
 
-美股市场表现分化，标普500和纳斯达克指数周二分别收跌0.16%和0.71%，道琼斯指数微涨0.11%。
+寒武纪一季度总营收28.85亿元，归母净利润为10.13亿元，分别同比增长159.56%、185.04%。
 
-受伊朗局势影响，美伊停火协议日益脆弱，叠加美国4月CPI同比大幅走高，市场对美联储降息的期望几近破灭，加息概率有所上升，整体打压了风险资产的吸引力。
+芯原股份一季度营收增长114.47%，新签订单大幅提升，年内至4月29日新签订单金额达82.4亿元，其中AI算力相关订单占比高达91.37%；截至一季度末，在手订单金额达51.33亿元，已连续十个季度保持高位，其中量产业务订单超30亿元。
 
 ## 相关推荐
 
-- 2026-06-29 20:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 20:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 20:29 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 20:07 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 20:06 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 20:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 20:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 20:18 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 20:19 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 20:25 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 20:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 20:35 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 20:28 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 20:36 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 20:14 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 20:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 20:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 20:14 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 20:39 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 20:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 20:22 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 20:14 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 20:19 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 20:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 20:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/155434582.shtml)
-- 2026-06-29 20:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/5048758263.shtml)
-- 2026-06-29 20:19 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/48446571.shtml)
-- 2026-06-29 20:15 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/079275916038.shtml)
-- 2026-06-29 20:18 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/919884.shtml)
-- 2026-06-29 20:11 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/0202902.shtml)
-- 2026-06-29 20:23 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/501602898.shtml)
-- 2026-06-29 20:21 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/9844809.shtml)
-- 2026-06-29 20:26 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/9938424745.shtml)
-- 2026-06-29 20:30 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/840075411.shtml)
-- 2026-06-29 20:26 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/454205939.shtml)
-- 2026-06-29 20:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/526492527.shtml)
-- 2026-06-29 20:19 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/1532049117.shtml)
-- 2026-06-29 20:16 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/6731003.shtml)
-- 2026-06-29 20:26 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/94021.shtml)
+- 2026-06-29 20:35 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/17262283.shtml)
+- 2026-06-29 20:34 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/4611297925.shtml)
+- 2026-06-29 20:31 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/4331198168.shtml)
+- 2026-06-29 20:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/405018474.shtml)
+- 2026-06-29 20:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/924002.shtml)
+- 2026-06-29 20:28 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/0995028.shtml)
+- 2026-06-29 20:14 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/640990.shtml)
+- 2026-06-29 20:27 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/069578.shtml)
+- 2026-06-29 20:25 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/58218632412.shtml)
+- 2026-06-29 20:15 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/8060363.shtml)
+- 2026-06-29 20:22 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/647917205625.shtml)
+- 2026-06-29 20:18 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/36437425.shtml)
+- 2026-06-29 20:34 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/6849012.shtml)
+- 2026-06-29 20:26 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/15175042.shtml)
+- 2026-06-29 20:15 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/75729274042.shtml)

@@ -1,45 +1,56 @@
-# 战鹰列阵！直击歼-20、歼-10C等多机型对抗演练
+# 5月“金股”出炉！“科技成长”与“涨价题材”成两大主线
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-戈壁深处，战鹰列阵近日，空军某部 组织多机型实战化空战对抗演练 歼-20、歼-16、歼-10C等 多型战机混合编组 在预警探测、电子干扰体系支撑下 展开空战对抗 视频：战鹰列阵！直击歼-20、歼-10C等多机型对抗演练来源：央视军事 这次演练，指挥员不设预案 加入临机导调强电磁干扰 雷达压制等复合特情 全程聚焦多机协同漏洞和体系对抗短板 来源：央视军事
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】券商5月“金股”名单新鲜出炉，“科技成长”与“涨价题材”成两大主线 中国基金报记者舍梨 回顾4月行情，A股迎来明显反弹。数据显示，沪指站稳4100点；科创50指数当月大涨超25%；创业板指月涨幅达15．45%，不仅突破2015年6月3日的历史高点，更创下近十年来的新高。 券商金股表现同样亮眼，4月收
 
 ## 正文
 
-戈壁深处，战鹰列阵近日，空军某部 组织多机型实战化空战对抗演练 歼-20、歼-16、歼-10C等 多型战机混合编组 在预警探测、电子干扰体系支撑下 展开空战对抗 视频：战鹰列阵！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-直击歼-20、歼-10C等多机型对抗演练来源：央视军事 这次演练，指挥员不设预案 加入临机导调强电磁干扰 雷达压制等复合特情 全程聚焦多机协同漏洞和体系对抗短板 来源：央视军事
+【导读】券商5月“金股”名单新鲜出炉，“科技成长”与“涨价题材”成两大主线 中国基金报记者舍梨 回顾4月行情，A股迎来明显反弹。
+
+数据显示，沪指站稳4100点；科创50指数当月大涨超25%；创业板指月涨幅达15．45%，不仅突破2015年6月3日的历史高点，更创下近十年来的新高。
+
+券商金股表现同样亮眼，4月收益排名前20的券商金股组合全部实现正收益，其中招商证券以27.40%的月度收益率居首，华鑫证券、东兴证券等多家券商收益超20%。
+
+伴随着5月行情启幕，多家券商陆续发布5月金股组合，电子、有色金属板块获集中推荐。
+
+机构认为，5月市场有望在震荡中延续向上格局，“科技成长”与“涨价题材”成两大主线。
+
+5月“金股”聚焦“科技”和“涨价” 每市App数据显示，截至发稿，已有14家券商公布5月金股名单，累计推荐146次，共涉及129只A股。
+
+整体来看，券商配置主线围绕科技成长与涨价题材两大方向展开。
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 20:15 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 20:22 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 20:06 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 20:16 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 20:28 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 20:07 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 20:20 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 20:18 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 20:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 20:28 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 20:21 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 20:37 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 20:17 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 20:18 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 20:19 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 20:28 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 20:31 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 20:24 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 20:30 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 20:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/21285214197.shtml)
-- 2026-06-29 20:06 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/201981459134.shtml)
-- 2026-06-29 20:31 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.kurohicncr.top/Article/details/1102437.shtml)
-- 2026-06-29 20:18 - [一生一世](https://www.blog.minike.top/Article/details/591191683.shtml)
-- 2026-06-29 20:22 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/613930861856.shtml)
-- 2026-06-29 20:17 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/1416008.shtml)
-- 2026-06-29 20:27 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/68774622248.shtml)
-- 2026-06-29 20:11 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/61905717.shtml)
-- 2026-06-29 20:30 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/293683299.shtml)
-- 2026-06-29 20:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/1809559373.shtml)
-- 2026-06-29 20:06 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/311628.shtml)
-- 2026-06-29 20:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/1867066035.shtml)
-- 2026-06-29 20:19 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/97827379.shtml)
-- 2026-06-29 20:24 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/5078784647.shtml)
-- 2026-06-29 20:26 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/88511296.shtml)
+- 2026-06-29 20:39 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/63493596101.shtml)
+- 2026-06-29 20:15 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/387708.shtml)
+- 2026-06-29 20:19 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/411663641.shtml)
+- 2026-06-29 20:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/0132398758.shtml)
+- 2026-06-29 20:26 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/353262.shtml)
+- 2026-06-29 20:32 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/2913113.shtml)
+- 2026-06-29 20:17 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/13674624132.shtml)
+- 2026-06-29 20:27 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/24387.shtml)
+- 2026-06-29 20:17 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/371690914907.shtml)
+- 2026-06-29 20:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/62850448.shtml)
+- 2026-06-29 20:31 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/739611399925.shtml)
+- 2026-06-29 20:36 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/72481967.shtml)
+- 2026-06-29 20:41 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/2610766.shtml)
+- 2026-06-29 20:27 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/495140505768.shtml)
+- 2026-06-29 20:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/95803552.shtml)

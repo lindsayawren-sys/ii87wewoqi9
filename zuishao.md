@@ -1,59 +1,60 @@
-# 北约拟邀海湾国家参加峰会 伊朗战争将成议题
+# 伯克希尔CEO阿贝尔首挑大梁，巴菲特开场盛赞：“他是满分人选”
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。 这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。 知情人士表示，这些国家的外交部长
+专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。 奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。在开场讲话中
 
 ## 正文
 
-知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。
+专题：巴菲特2026年股东大会重磅来袭 伯克希尔哈撒韦CEO格雷格·阿贝尔以致敬沃伦·巴菲特拉开公司年度股东大会序幕。
 
-这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。
+阿贝尔借此展现自身运营能力，而这份能力正是其被选定为伯克希尔传奇掌门人继任者的核心原因。
 
-知情人士表示，这些国家的外交部长预计将受邀出席7月7日至8日在土耳其首都举行的会议。
+奥马哈时间周六上午，阿贝尔在奇健康中心场馆发表讲话：“早上好，欢迎来到奥马哈。
 
-此次会议召开之际，在伊朗战争爆发后，跨大西洋关系日益紧张。
+” 今年1月接替巴菲特上任的阿贝尔，首次以伯克希尔首席执行官的身份登台向股东致辞。
 
-此前，美国总统唐纳德·特朗普批评北约盟友未能协助重启霍尔木兹海峡航运，随后又宣布将从德国撤出约5000名驻军。
+在开场讲话中，他向现场股东承诺，巴菲特打造的企业文化将保持不变，随后详细解读了公司一季度经营业绩。
 
-其中一位知情人士称，此举部分源于北约强化其所谓南翼的计划，尤其是在伊朗战争背景下。
+这位新任首席执行官还透露，伯克希尔旗下部分业务板块，包括伯灵顿北方圣太菲铁路运输公司，已开始应用人工智能工具。
 
-知情人士表示，本次峰会将设有一个核心会议，仅限32个成员国领导人参加，与去年类似；同时，北约也在考虑邀请印太地区或乌克兰等其他国家领导人，他们将参与周边活动。
+“我们不会为了人工智能而盲目布局，”阿贝尔表示，“现阶段，我们运用AI技术，主要是为了解决各项业务中的逻辑性问题。
 
-他们还表示，此次峰会连续第二年计划以极为精简和压缩的形式举行，以配合美国总统的安排。
+” 阿贝尔已着手推行多项变革：提拔长期与自己共事的核心副手，并加码布局日本市场投资。
 
 ## 相关推荐
 
-- 2026-06-29 20:14 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 20:20 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 20:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 20:14 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 20:30 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 20:14 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 20:10 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 20:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 20:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 20:12 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 20:20 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 20:31 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 20:24 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 20:12 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 20:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 20:31 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 20:41 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 20:13 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 20:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 20:35 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 20:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 20:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 20:26 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 20:24 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 20:15 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 20:34 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 20:23 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/8306300315.shtml)
-- 2026-06-29 20:27 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/559076748.shtml)
-- 2026-06-29 20:15 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/801238099.shtml)
-- 2026-06-29 20:11 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/16734783.shtml)
-- 2026-06-29 20:21 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/163060.shtml)
-- 2026-06-29 20:25 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/20197465.shtml)
-- 2026-06-29 20:09 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/566213.shtml)
-- 2026-06-29 20:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/79707100.shtml)
-- 2026-06-29 20:17 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/62732044577.shtml)
-- 2026-06-29 20:18 - [沉睡花园](https://www.blog.minike.top/Article/details/43958052804.shtml)
-- 2026-06-29 20:21 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/99647682431.shtml)
-- 2026-06-29 20:30 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/44675207.shtml)
-- 2026-06-29 20:28 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/31221.shtml)
-- 2026-06-29 20:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/45637205.shtml)
-- 2026-06-29 20:30 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/73619.shtml)
+- 2026-06-29 20:33 - [天柱山回应网红打卡树枝被砍](http://www.share.kurohicncr.top/Article/details/6083496298.shtml)
+- 2026-06-29 20:14 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/4966388752.shtml)
+- 2026-06-29 20:40 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/695634930.shtml)
+- 2026-06-29 20:32 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/41548942.shtml)
+- 2026-06-29 20:34 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/713007.shtml)
+- 2026-06-29 20:40 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/87337935.shtml)
+- 2026-06-29 20:21 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/7038873.shtml)
+- 2026-06-29 20:30 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/238372.shtml)
+- 2026-06-29 20:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/7602793359.shtml)
+- 2026-06-29 20:29 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/0611901.shtml)
+- 2026-06-29 20:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/17032.shtml)
+- 2026-06-29 20:38 - [极限挑战第一季](http://www.blog.minike.top/Article/details/510662453.shtml)
+- 2026-06-29 20:20 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/828390.shtml)
+- 2026-06-29 20:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/08657568.shtml)
+- 2026-06-29 20:28 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/040860466710.shtml)

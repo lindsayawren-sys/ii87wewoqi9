@@ -1,55 +1,58 @@
-# 机构：全球4月电动汽车需求连续第二个月增长
+# 第十八届安徽茶博会将启 突出国际经贸合作
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-咨询公司Benchmark Mineral Intelligence（BMI）周三公布的数据显示，随着汽油价格高企持续促使消费者远离燃油车，4月全球电动汽车需求连续第二个月增长。BMI表示，4月份纯电动汽车和插电式混合动力汽车的新车注册量（可视为销量指标）同比增长6%，达到160万辆，不过较3月创下的月度纪录高位下降了9%。BMI在声明中表示：“需求继续受到政策激励、汽油价格上
+中新网合肥4月30日电 (记者 赵强)记者30日从安徽省政府新闻办召开的新闻发布会上获悉，2026第十八届安徽国际茶产业博览会(下称“茶博会”)将于5月8日至11日在合肥举办。本届展会突出国际经贸合作，已邀请法国、尼泊尔、斯里兰卡等共8个国家的企业参展。 本届茶博会以“中国徽茶 迎客天下”为主题，专设国际展区，展品涵盖特色红茶、有机茶等多元品类，面向共建“一带一路”国家与重点产
 
 ## 正文
 
-咨询公司Benchmark Mineral Intelligence（BMI）周三公布的数据显示，随着汽油价格高企持续促使消费者远离燃油车，4月全球电动汽车需求连续第二个月增长。
+中新网合肥4月30日电 (记者 赵强)记者30日从安徽省政府新闻办召开的新闻发布会上获悉，2026第十八届安徽国际茶产业博览会(下称“茶博会”)将于5月8日至11日在合肥举办。
 
-BMI表示，4月份纯电动汽车和插电式混合动力汽车的新车注册量（可视为销量指标）同比增长6%，达到160万辆，不过较3月创下的月度纪录高位下降了9%。
+本届展会突出国际经贸合作，已邀请法国、尼泊尔、斯里兰卡等共8个国家的企业参展。
 
-BMI在声明中表示：“需求继续受到政策激励、汽油价格上涨以及中国制造商影响力提升等因素支撑。
+本届茶博会以“中国徽茶 迎客天下”为主题，专设国际展区，展品涵盖特色红茶、有机茶等多元品类，面向共建“一带一路”国家与重点产茶国精准招商，同步对接跨境电商平台与外贸服务机构，吸引境外优质采购商参会洽谈，推动徽茶品牌加速“出海”。
 
-”BMI数据显示，尽管欧盟征收关税，中国品牌在欧洲市场的份额仍在提升：2026年前四个月，欧洲售出的电动汽车和插电式混合动力车中，22%产自中国，高于上年同期的19%。
+作为中国绿茶重要出口省份之一，安徽茶叶出口持续稳步增长。
 
-责任编辑：王永生
+2025年该省茶叶出口额达2.8亿美元，同比增长12.6%。
+
+近年来，安徽持续培育休宁、歙县等茶叶外向型产业集聚区，支持企业打造出口名牌，组织茶企参加境内外国际展会，拓展跨境电商渠道，并在境外参展、信用保险、国际认证等方面给予政策支持。
+
+当地还开通茶叶中欧班列与海铁联运班列，打通黄山至塔什干、宁波舟山港等物流通道，累计发运茶叶专列近30趟、集装箱超6000箱，物流成本降幅超20%。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:33 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 20:15 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 20:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 20:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 20:28 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 20:35 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 20:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 20:14 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 20:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 20:33 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 20:24 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 20:19 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 20:28 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 20:24 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 20:15 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 20:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 20:26 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 20:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 20:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 20:20 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 20:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 20:37 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 20:17 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 20:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 20:16 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 20:19 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:18 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/298509436.shtml)
-- 2026-06-29 20:13 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/821983920.shtml)
-- 2026-06-29 20:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/42171524.shtml)
-- 2026-06-29 20:06 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/391315566.shtml)
-- 2026-06-29 20:15 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/54960254873.shtml)
-- 2026-06-29 20:13 - [温网](http://www.share.minike.top/Article/details/22822964151.shtml)
-- 2026-06-29 20:25 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/798911022796.shtml)
-- 2026-06-29 20:30 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/3226474.shtml)
-- 2026-06-29 20:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/05020.shtml)
-- 2026-06-29 20:18 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/953152283.shtml)
-- 2026-06-29 20:09 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/0508639.shtml)
-- 2026-06-29 20:15 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/29556428.shtml)
-- 2026-06-29 20:14 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/81850157.shtml)
-- 2026-06-29 20:14 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/52266.shtml)
-- 2026-06-29 20:23 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/86409955.shtml)
+- 2026-06-29 20:17 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/642075.shtml)
+- 2026-06-29 20:29 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/750185089.shtml)
+- 2026-06-29 20:27 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/635632.shtml)
+- 2026-06-29 20:13 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/7193527.shtml)
+- 2026-06-29 20:41 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/86840.shtml)
+- 2026-06-29 20:17 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/91894.shtml)
+- 2026-06-29 20:25 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/731782031529.shtml)
+- 2026-06-29 20:19 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/9291837.shtml)
+- 2026-06-29 20:39 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/25620634.shtml)
+- 2026-06-29 20:39 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/35650796397.shtml)
+- 2026-06-29 20:41 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/07129318.shtml)
+- 2026-06-29 20:13 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/065773.shtml)
+- 2026-06-29 20:20 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/6654342079.shtml)
+- 2026-06-29 20:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/968808591.shtml)
+- 2026-06-29 20:14 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/7638852.shtml)

@@ -1,56 +1,59 @@
-# 青海尖扎黄河水近五年养殖3500余吨高原冷水鱼
+# 浙江力争2030年人工智能核心产业营收达1.2万亿元
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-天热了车里别放这些东西！已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？专家提示科幻走进现实！首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降
+中新社杭州4月30日电 (鲍梦妮)“开局起步‘十五五’”浙江专场新闻发布会4月30日在杭州举行。浙江省省长刘捷在发布会上表示，“十五五”时期浙江将坚持把人工智能作为制胜未来的核心变量，目标到2030年人工智能核心产业营收达到1.2万亿元(人民币，下同)。2025年，浙江提出了打造“人工智能创新发展高地”的目标。当年，该省人工智能核心产业营收突破7000亿元、增长20%。 面向“
 
 ## 正文
 
-天热了车里别放这些东西！
+中新社杭州4月30日电 (鲍梦妮)“开局起步‘十五五’”浙江专场新闻发布会4月30日在杭州举行。
 
-已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
+浙江省省长刘捷在发布会上表示，“十五五”时期浙江将坚持把人工智能作为制胜未来的核心变量，目标到2030年人工智能核心产业营收达到1.2万亿元(人民币，下同)。
 
-专家提示科幻走进现实！
+2025年，浙江提出了打造“人工智能创新发展高地”的目标。
 
-首款载人变形机甲发布 核心看点详解铬铁矿新增资源量73.83万吨，意义几何？
+当年，该省人工智能核心产业营收突破7000亿元、增长20%。
 
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
+面向“十五五”，浙江将从优化人工智能发展生态、夯实人工智能基础底座、厚植人工智能产业根基、拓展人工智能场景应用4个方面发力。
 
-门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
+以厚植人工智能产业根基为例，该省将加快建设医疗、具身智能、时空信息、文旅、地球科学、石化等6个国家人工智能应用中试基地，推动人工智能创新成果转化落地；加强OPC、数字游民等新业态发展的政策支持和服务保障，营造人工智能创新创业的最优氛围；优化人工智能全产业链布局，推动芯片、大模型、智能体、应用服务等全产业链协同发展，加快打造具有国际竞争力的智能经济产业集群。
 
-专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？
+聚焦拓展人工智能场景应用，刘捷表示，浙江将深入实施“人工智能+”行动，积极推进智能体开发应用，深化人工智能同产业升级、消费转型、文化建设、民生保障、社会治理等各领域的结合，让人工智能全方位赋能千行百业、造福千家万户。
 
-专家提醒己所不欲勿施于人，这条东方智慧我们免费送给欧洲朋友六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取中英“乒乓外交”手记：小球轻转处，自有山海来人这一辈子，一定要三顾南阳！
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:29 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 20:28 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 20:14 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 20:19 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 20:16 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 20:29 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 20:07 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 20:14 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 20:27 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 20:31 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 20:38 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 20:26 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 20:21 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 20:17 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 20:27 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 20:27 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 20:21 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 20:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 20:29 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 20:25 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 20:38 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 20:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 20:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/505937421.shtml)
-- 2026-06-29 20:21 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/07858.shtml)
-- 2026-06-29 20:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/318116099.shtml)
-- 2026-06-29 20:29 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/116719.shtml)
-- 2026-06-29 20:12 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/65709.shtml)
-- 2026-06-29 20:28 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/04954015.shtml)
-- 2026-06-29 20:23 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/59377.shtml)
-- 2026-06-29 20:28 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/23123794.shtml)
-- 2026-06-29 20:14 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/767569772109.shtml)
-- 2026-06-29 20:06 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/35360462521.shtml)
-- 2026-06-29 20:15 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/545694387899.shtml)
-- 2026-06-29 20:28 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/08693.shtml)
-- 2026-06-29 20:09 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/55084555.shtml)
-- 2026-06-29 20:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/227613466.shtml)
-- 2026-06-29 20:07 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/14238265.shtml)
+- 2026-06-29 20:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/45512666.shtml)
+- 2026-06-29 20:24 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/517257.shtml)
+- 2026-06-29 20:29 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/6941010258.shtml)
+- 2026-06-29 20:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/78903.shtml)
+- 2026-06-29 20:27 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/78994.shtml)
+- 2026-06-29 20:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/321653.shtml)
+- 2026-06-29 20:31 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/126315.shtml)
+- 2026-06-29 20:28 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/6696066.shtml)
+- 2026-06-29 20:32 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/0922785886.shtml)
+- 2026-06-29 20:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/03285618867.shtml)
+- 2026-06-29 20:38 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/86945304.shtml)
+- 2026-06-29 20:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/3852769389.shtml)
+- 2026-06-29 20:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/471464551.shtml)
+- 2026-06-29 20:41 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/8083254.shtml)
+- 2026-06-29 20:33 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/873202909686.shtml)

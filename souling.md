@@ -1,55 +1,50 @@
-# 中国·红河蝴蝶谷迎来蝴蝶爆发季
+# 今日全国铁路预计发送旅客1855万人次
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 10:59 来源：中国新闻网 连日来，位于云南金平县的中国·红河蝴蝶谷迎来蝴蝶大规模爆发。大量蝴蝶在山野林间翩翩起舞，蔚为壮观。监测数据显示，仅营盘山片区的蝴蝶总爆发量就将超过1亿只，为近十年来规模最大的一次。预计到5月15日前后，本次爆发将达到峰值。(白玲 制作 王佳琪 视频来源 金平县融媒体中心） 责任编辑：【李季】
+记者从国铁集团了解到，今日(3日)全国铁路预计发送旅客1855万人次，计划加开旅客列车923列。昨日(2日)，全国铁路发送旅客1978.1万人次，运输安全平稳有序。 (央视新闻客户端 总台央视记者 王善涛)
 
 ## 正文
 
-发布时间：2026年05月14日 10:59 来源：中国新闻网 连日来，位于云南金平县的中国·红河蝴蝶谷迎来蝴蝶大规模爆发。
+记者从国铁集团了解到，今日(3日)全国铁路预计发送旅客1855万人次，计划加开旅客列车923列。
 
-大量蝴蝶在山野林间翩翩起舞，蔚为壮观。
+昨日(2日)，全国铁路发送旅客1978.1万人次，运输安全平稳有序。
 
-监测数据显示，仅营盘山片区的蝴蝶总爆发量就将超过1亿只，为近十年来规模最大的一次。
-
-预计到5月15日前后，本次爆发将达到峰值。
-
-(白玲 制作 王佳琪 视频来源 金平县融媒体中心） 责任编辑：【李季】
+(央视新闻客户端 总台央视记者 王善涛)
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 20:20 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 20:31 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 20:34 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 20:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 20:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 20:10 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 20:29 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 20:20 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 20:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 20:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 20:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 20:20 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 20:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 20:35 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 20:22 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 20:40 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 20:28 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 20:35 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 20:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 20:35 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 20:32 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 20:16 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 20:20 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 20:27 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 20:17 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 20:14 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 20:27 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 20:13 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:24 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/612665676.shtml)
-- 2026-06-29 20:13 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/0619398113.shtml)
-- 2026-06-29 20:28 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/8280365833.shtml)
-- 2026-06-29 20:26 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/8502496237.shtml)
-- 2026-06-29 20:16 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/011045.shtml)
-- 2026-06-29 20:08 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/64883.shtml)
-- 2026-06-29 20:22 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/124763104.shtml)
-- 2026-06-29 20:07 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/54966622191.shtml)
-- 2026-06-29 20:34 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/8452585.shtml)
-- 2026-06-29 20:08 - [起风了](http://www.share.kurohicncr.top/Article/details/30491.shtml)
-- 2026-06-29 20:12 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/34209765597.shtml)
-- 2026-06-29 20:17 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/963561.shtml)
-- 2026-06-29 20:10 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/908407507913.shtml)
-- 2026-06-29 20:25 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/079066842.shtml)
-- 2026-06-29 20:29 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/7399380.shtml)
+- 2026-06-29 20:22 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/421291.shtml)
+- 2026-06-29 20:32 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/15924.shtml)
+- 2026-06-29 20:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/55906701.shtml)
+- 2026-06-29 20:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/659249631801.shtml)
+- 2026-06-29 20:32 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/05889.shtml)
+- 2026-06-29 20:28 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/00828575717.shtml)
+- 2026-06-29 20:38 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/53254137.shtml)
+- 2026-06-29 20:36 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/818761897.shtml)
+- 2026-06-29 20:34 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/62498.shtml)
+- 2026-06-29 20:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/585547429.shtml)
+- 2026-06-29 20:12 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/5249658.shtml)
+- 2026-06-29 20:30 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/782130385398.shtml)
+- 2026-06-29 20:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/853215.shtml)
+- 2026-06-29 20:17 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/6900164.shtml)
+- 2026-06-29 20:18 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/08539925207.shtml)

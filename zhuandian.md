@@ -1,55 +1,58 @@
-# 国台办：将支持福建不断探索海峡两岸融合发展新路径、新模式
+# 摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新网5月13日电 国务院台办13日举行例行新闻发布会。有记者问，近日，建设两岸融合发展示范区部省际工作会议在京召开。请问目前落实《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》情况如何？下一步如何进一步支持福建高质量推进两岸融合发展示范区建设？发言人张晗介绍，自2023年9年《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合
+专题：聚焦美股2026年第一季度财报 即便消费者信心走弱，一季度啤酒购买人次与消费人群数量仍有所回升 内容摘要 摩森康胜饮料一季度净利润达 1.513 亿美元，营收 23.5 亿美元，均超出分析师预期。 摩森康胜饮料表示，尽管市场消费情绪承压，但消费者的啤酒购买需求反而有所上升。 公司首席执行官拉胡尔・戈亚尔周四向分析师表示，受伊朗冲突推高燃油价格影响，消费者信心下滑，但一季度
 
 ## 正文
 
-中新网5月13日电 国务院台办13日举行例行新闻发布会。
+专题：聚焦美股2026年第一季度财报 即便消费者信心走弱，一季度啤酒购买人次与消费人群数量仍有所回升 内容摘要 摩森康胜饮料一季度净利润达 1.513 亿美元，营收 23.5 亿美元，均超出分析师预期。
 
-有记者问，近日，建设两岸融合发展示范区部省际工作会议在京召开。
+摩森康胜饮料表示，尽管市场消费情绪承压，但消费者的啤酒购买需求反而有所上升。
 
-请问目前落实《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》情况如何？
+公司首席执行官拉胡尔・戈亚尔周四向分析师表示，受伊朗冲突推高燃油价格影响，消费者信心下滑，但一季度啤酒到店购买频次及消费人群数量反而有所改善。
 
-下一步如何进一步支持福建高质量推进两岸融合发展示范区建设？
+他指出：“宏观不确定性持续压制原材料成本与消费行为，低收入啤酒消费群体受到的冲击尤为明显。
 
-发言人张晗介绍，自2023年9年《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》发布以来，中央台办、国家发展改革委会同中央和国家机关有关部门及福建省，坚决贯彻落实党中央决策部署，全面推动《意见》各项重点任务落地生效，有力推动两岸融合发展示范区建设走深走实。
+” 这家旗下拥有银子弹淡啤、米勒高生活啤酒的饮品企业公布，在截至 3 月 31 日的一季度，净利润1.513 亿美元，折合每股收益 80 美分；上年同期净利润 1.21 亿美元，每股收益 59 美分。
 
-近三年来，两岸融合发展示范区对台示范效应逐步显现、影响力日益扩大，台胞台企登陆第一家园更加便利、闽台经贸往来持续热络、福建全域深化两岸融合发展保持良好势头、闽台人文社会交流不断深化，示范区建设取得显著进展。
+据 FactSet 数据，剔除一次性项目后，公司调整后每股收益 62 美分，远超分析师预期的 36 美分。
 
-张晗表示，下一步，中央台办、国家发展改革委将会同中央和国家机关有关部门及福建省，支持福建不断探索海峡两岸融合发展的新路径、新模式，推出更多创新举措，深化闽台各领域融合发展，为在更大范围深化两岸融合发展积累可复制、可推广的经验。
+一季度营收同比增长 2%，达23.5 亿美元；分析师此前预期为 23.3 亿美元。
+
+摩森康胜表示，营收增长主要受益于定价策略优化与产品销售结构改善；但受出货量下滑影响，财务销量同比下降 2.9%。
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 20:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 20:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 20:06 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 20:29 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 20:22 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 20:35 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 20:30 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 20:21 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 20:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 20:07 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 20:39 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 20:33 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 20:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 20:12 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 20:28 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 20:25 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 20:33 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 20:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 20:12 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 20:20 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 20:40 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 20:40 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/7976081.shtml)
-- 2026-06-29 20:25 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/15454.shtml)
-- 2026-06-29 20:23 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/19576358979.shtml)
-- 2026-06-29 20:10 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/35991.shtml)
-- 2026-06-29 20:18 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/6138109.shtml)
-- 2026-06-29 20:23 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/29874.shtml)
-- 2026-06-29 20:27 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/42145.shtml)
-- 2026-06-29 20:21 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/4936638.shtml)
-- 2026-06-29 20:17 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/82773.shtml)
-- 2026-06-29 20:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/098697.shtml)
-- 2026-06-29 20:30 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/4184242.shtml)
-- 2026-06-29 20:26 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/469057285879.shtml)
-- 2026-06-29 20:17 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/8437486.shtml)
-- 2026-06-29 20:22 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/15828079.shtml)
-- 2026-06-29 20:32 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/59911678.shtml)
+- 2026-06-29 20:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/798401718.shtml)
+- 2026-06-29 20:17 - [一生一世](https://www.share.kurohicncr.top/Article/details/67849528.shtml)
+- 2026-06-29 20:19 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/1220320.shtml)
+- 2026-06-29 20:31 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/292085804.shtml)
+- 2026-06-29 20:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/5792940599.shtml)
+- 2026-06-29 20:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/3230386.shtml)
+- 2026-06-29 20:20 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/8890679136.shtml)
+- 2026-06-29 20:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/600782387.shtml)
+- 2026-06-29 20:13 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/422701631.shtml)
+- 2026-06-29 20:28 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/49010106.shtml)
+- 2026-06-29 20:27 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/8677188704.shtml)
+- 2026-06-29 20:12 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/40707652.shtml)
+- 2026-06-29 20:18 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/803676.shtml)
+- 2026-06-29 20:35 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/245295.shtml)
+- 2026-06-29 20:14 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/553035689.shtml)

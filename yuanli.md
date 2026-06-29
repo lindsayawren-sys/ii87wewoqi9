@@ -1,47 +1,57 @@
-# 东方甄选于5月12日斥资1886.82万港元回购71.05万股
+# 春到骆驼湾
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-东方甄选（01797）发布公告，该公司于2026年5月12日斥资1886.82万港元回购71.05万股股份，每股回购价格为26.16-26.72港元。责任编辑：卢昱君
+“五一”假期，太行山深处的河北省阜平县龙泉关镇骆驼湾村，山花绽放，绿意盎然，一批批游客踏春而来。 这个曾经深度贫困的小山村，正迎着春风，舒展乡村全面振兴新画卷。 巨变，始于14年前。 2012年12月底，习近平总书记踏着皑皑白雪来到骆驼湾村，盘腿坐在炕上，和乡亲们促膝交谈，殷殷叮嘱“进一步坚定信心、找对路子，坚持苦干实干，推动贫困地区脱贫致富、加快发展”。那时的骆驼湾，山路崎岖
 
 ## 正文
 
-东方甄选（01797）发布公告，该公司于2026年5月12日斥资1886.82万港元回购71.05万股股份，每股回购价格为26.16-26.72港元。
+“五一”假期，太行山深处的河北省阜平县龙泉关镇骆驼湾村，山花绽放，绿意盎然，一批批游客踏春而来。
 
-责任编辑：卢昱君
+这个曾经深度贫困的小山村，正迎着春风，舒展乡村全面振兴新画卷。
+
+巨变，始于14年前。
+
+2012年12月底，习近平总书记踏着皑皑白雪来到骆驼湾村，盘腿坐在炕上，和乡亲们促膝交谈，殷殷叮嘱“进一步坚定信心、找对路子，坚持苦干实干，推动贫困地区脱贫致富、加快发展”。
+
+那时的骆驼湾，山路崎岖，土坯房破旧，全村贫困发生率近八成，人均年收入仅900多元。
+
+回忆当年，年逾八旬的村民唐宗秀慨叹：“屋里连件像样的家具都没有。
+
+” 春风化雨，十余载奋进。
+
+“只要有信心，黄土变成金”，总书记的殷切嘱托，融入每一名村民的奋斗。
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 20:07 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 20:27 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 20:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 20:20 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 20:11 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 20:28 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 20:20 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 20:29 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 20:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 20:17 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 20:34 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 20:22 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 20:26 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 20:16 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 20:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 20:15 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 20:41 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 20:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 20:41 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 20:26 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 20:33 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 20:33 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 20:18 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:09 - [伊朗足球队将启程回国](https://www.blog.kurohicncr.top/Article/details/5390723061.shtml)
-- 2026-06-29 20:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/24893390449.shtml)
-- 2026-06-29 20:28 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/73128005.shtml)
-- 2026-06-29 20:15 - [新官上任三把火](http://www.share.minike.top/Article/details/129203541.shtml)
-- 2026-06-29 20:35 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/79250504.shtml)
-- 2026-06-29 20:12 - [起风了](https://www.blog.minike.top/Article/details/8217330.shtml)
-- 2026-06-29 20:20 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/7562544.shtml)
-- 2026-06-29 20:10 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/381103.shtml)
-- 2026-06-29 20:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/346605.shtml)
-- 2026-06-29 20:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/658624.shtml)
-- 2026-06-29 20:09 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/6326659.shtml)
-- 2026-06-29 20:34 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/058926869.shtml)
-- 2026-06-29 20:35 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/38403.shtml)
-- 2026-06-29 20:23 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/548434196.shtml)
-- 2026-06-29 20:27 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/06164847074.shtml)
+- 2026-06-29 20:41 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/25643552.shtml)
+- 2026-06-29 20:36 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/278466631980.shtml)
+- 2026-06-29 20:14 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/737727720.shtml)
+- 2026-06-29 20:33 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/39523012859.shtml)
+- 2026-06-29 20:33 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/1034096.shtml)
+- 2026-06-29 20:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/99695.shtml)
+- 2026-06-29 20:22 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/7780446774.shtml)
+- 2026-06-29 20:20 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/06291570070.shtml)
+- 2026-06-29 20:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/7483046.shtml)
+- 2026-06-29 20:20 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/809455236017.shtml)
+- 2026-06-29 20:37 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/4060941678.shtml)
+- 2026-06-29 20:12 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/6022300758.shtml)
+- 2026-06-29 20:19 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/509950606.shtml)
+- 2026-06-29 20:23 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/7553648620.shtml)
+- 2026-06-29 20:39 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/123396112.shtml)

@@ -1,48 +1,56 @@
-# 网易云音乐于5月12日斥资1499.49万港元回购11.75万股
+# 南非定于11月4日举行地方选举
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-网易云音乐（09899）发布公告，于2026年5月12日斥资1499.49万港元回购11.75万股。责任编辑：卢昱君
+中新社约翰内斯堡4月30日电 南非总统拉马福萨4月30日宣布，南非将于11月4日举行新一届地方政府选举。 拉马福萨当天在豪登省埃库鲁莱尼举行的总统协调委员会扩大会期间宣布上述消息，并与各省省长、市长及高级官员就选举及地方治理等议题进行沟通。 他说，此次选举将完成自2021年市政选举以来的完整五年任期，符合宪法规定的时间安排。选举日期确定，为各方提供了明确时间表，也意味着竞选周期
 
 ## 正文
 
-网易云音乐（09899）发布公告，于2026年5月12日斥资1499.49万港元回购11.75万股。
+中新社约翰内斯堡4月30日电 南非总统拉马福萨4月30日宣布，南非将于11月4日举行新一届地方政府选举。
 
-责任编辑：卢昱君
+拉马福萨当天在豪登省埃库鲁莱尼举行的总统协调委员会扩大会期间宣布上述消息，并与各省省长、市长及高级官员就选举及地方治理等议题进行沟通。
+
+他说，此次选举将完成自2021年市政选举以来的完整五年任期，符合宪法规定的时间安排。
+
+选举日期确定，为各方提供了明确时间表，也意味着竞选周期正式启动。
+
+未来数月，各政党将加紧动员选民、推进登记工作。
+
+在同一场会议上，拉马福萨还就地方治理问题发出警示，要求各级市政机构加快改善公共服务，尤其是供水问题，同时减少行政审批障碍，提升治理效率，以更好支撑经济增长和投资环境。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:30 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 20:24 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 20:14 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 20:32 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 20:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 20:16 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 20:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 20:35 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 20:23 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 20:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 20:26 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 20:18 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 20:07 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 20:26 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 20:30 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 20:18 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 20:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 20:40 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 20:20 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 20:27 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 20:33 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 20:16 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 20:21 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 20:22 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 20:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 20:30 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/134420015.shtml)
-- 2026-06-29 20:21 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/6617358.shtml)
-- 2026-06-29 20:20 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/5890231954.shtml)
-- 2026-06-29 20:20 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/4147287.shtml)
-- 2026-06-29 20:23 - [斗破苍穹](https://www.share.minike.top/Article/details/058096060308.shtml)
-- 2026-06-29 20:23 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/79447080.shtml)
-- 2026-06-29 20:21 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/837617.shtml)
-- 2026-06-29 20:33 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/91189633.shtml)
-- 2026-06-29 20:12 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/571233.shtml)
-- 2026-06-29 20:07 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/72008694990.shtml)
-- 2026-06-29 20:19 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/483185.shtml)
-- 2026-06-29 20:06 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/0988487.shtml)
-- 2026-06-29 20:27 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/22661.shtml)
-- 2026-06-29 20:11 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/56765.shtml)
-- 2026-06-29 20:24 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/603142.shtml)
+- 2026-06-29 20:23 - [金鹰奖第二阶段投票明日开启](https://www.blog.kurohicncr.top/Article/details/841368615.shtml)
+- 2026-06-29 20:33 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/6987957371.shtml)
+- 2026-06-29 20:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/998609.shtml)
+- 2026-06-29 20:37 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/819294.shtml)
+- 2026-06-29 20:23 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.kurohicncr.top/Article/details/345637303939.shtml)
+- 2026-06-29 20:35 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/131721462315.shtml)
+- 2026-06-29 20:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/599570.shtml)
+- 2026-06-29 20:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/1174811860.shtml)
+- 2026-06-29 20:32 - [速度与激情9](https://www.blog.minike.top/Article/details/988996009025.shtml)
+- 2026-06-29 20:12 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/158367.shtml)
+- 2026-06-29 20:32 - [逃狱兄弟](http://www.share.minike.top/Article/details/41564.shtml)
+- 2026-06-29 20:40 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/5336209817.shtml)
+- 2026-06-29 20:13 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/00442863.shtml)
+- 2026-06-29 20:40 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/4413409838.shtml)
+- 2026-06-29 20:20 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/6937982410.shtml)

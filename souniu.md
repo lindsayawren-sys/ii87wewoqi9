@@ -1,58 +1,47 @@
-# 第79届戛纳电影节开幕
+# 一习话·追光的你丨靠实干奋斗 使人民群众生活越来越好
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。电影节开幕典礼当晚在戛纳节庆宫举行。 本届戛纳电影节评委会主席由韩国导演朴赞郁担任。本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。 法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。电影节官方海
+发布时间：2026年05月03日 11:28 来源：央广网 责任编辑：【姜媛媛】
 
 ## 正文
 
-中新社巴黎5月12日电 (记者 李洋)第79届戛纳电影节当地时间12日开幕。
-
-电影节开幕典礼当晚在戛纳节庆宫举行。
-
-本届戛纳电影节评委会主席由韩国导演朴赞郁担任。
-
-本届电影节荣誉金棕榈奖颁给新西兰导演彼得·杰克逊和美国老牌影星芭芭拉·斯特赖桑德。
-
-影星巩俐在开幕典礼上致辞并以中文宣布本届电影节开幕。
-
-法国导演皮埃尔·沙尔瓦多利的作品《电动维纳斯》成为本届电影节的开幕影片。
-
-电影节官方海报采用的是1991年美国电影《末路狂花》的画面。
-
-共有22部影片入围本届电影节主竞赛单元，角逐最高奖项“金棕榈奖”。
+发布时间：2026年05月03日 11:28 来源：央广网 责任编辑：【姜媛媛】
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 20:13 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 20:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 20:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 20:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 20:07 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 20:25 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 20:08 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 20:21 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 20:27 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 20:31 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 20:11 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 20:21 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 20:31 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 20:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 20:33 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 20:21 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 20:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 20:17 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 20:26 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 20:30 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 20:34 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 20:34 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 20:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 20:31 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 20:39 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 20:41 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/93968.shtml)
-- 2026-06-29 20:30 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/0016705.shtml)
-- 2026-06-29 20:14 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/13623222521.shtml)
-- 2026-06-29 20:23 - [起风了](https://www.share.kurohicncr.top/Article/details/709723.shtml)
-- 2026-06-29 20:19 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/502146767355.shtml)
-- 2026-06-29 20:23 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/68901351670.shtml)
-- 2026-06-29 20:26 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/301396698097.shtml)
-- 2026-06-29 20:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/79650151449.shtml)
-- 2026-06-29 20:18 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/1046842734.shtml)
-- 2026-06-29 20:19 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/05382606.shtml)
-- 2026-06-29 20:29 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/82952915459.shtml)
-- 2026-06-29 20:16 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/91610061.shtml)
-- 2026-06-29 20:21 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/252198892.shtml)
-- 2026-06-29 20:29 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/4697969566.shtml)
-- 2026-06-29 20:35 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/33807.shtml)
+- 2026-06-29 20:19 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/9471108.shtml)
+- 2026-06-29 20:32 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/7648768050.shtml)
+- 2026-06-29 20:36 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/32109328096.shtml)
+- 2026-06-29 20:36 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/8009608.shtml)
+- 2026-06-29 20:35 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/8961806557.shtml)
+- 2026-06-29 20:23 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/9627277.shtml)
+- 2026-06-29 20:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/389762.shtml)
+- 2026-06-29 20:35 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/185014486.shtml)
+- 2026-06-29 20:40 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/628557880090.shtml)
+- 2026-06-29 20:21 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/724138286.shtml)
+- 2026-06-29 20:15 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/08590222.shtml)
+- 2026-06-29 20:17 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/60511.shtml)
+- 2026-06-29 20:25 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/23108.shtml)
+- 2026-06-29 20:35 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/86229717187.shtml)
+- 2026-06-29 20:30 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/506417.shtml)

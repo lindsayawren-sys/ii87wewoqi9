@@ -1,48 +1,46 @@
-# 香港科技探索获王维基增持11.4万股 每股均价约1.10港元
+# 人民之心·总书记谈政绩观③｜一词一观：从实际出发
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月8日，王维基增持香港科技探索（01137）11.4万股，每股均价1.0988港元，总金额约为12.53万港元。增持后最新持股数目约为3.57亿股，最新持股比例为45.17%。责任编辑：卢昱君
+统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：人民日报客户端、新华社、中国新闻网
 
 ## 正文
 
-香港联交所最新资料显示，5月8日，王维基增持香港科技探索（01137）11.4万股，每股均价1.0988港元，总金额约为12.53万港元。
-
-增持后最新持股数目约为3.57亿股，最新持股比例为45.17%。
-
-责任编辑：卢昱君
+统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：人民日报客户端、新华社、中国新闻网
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 20:15 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 20:30 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 20:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 20:27 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 20:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 20:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 20:30 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 20:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 20:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 20:31 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 20:31 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 20:26 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 20:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 20:21 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 20:37 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 20:39 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 20:20 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 20:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 20:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 20:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 20:17 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 20:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 20:16 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 20:16 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 20:41 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:35 - [啊啊啊](http://www.blog.minike.top/Article/details/048643.shtml)
-- 2026-06-29 20:07 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/375971653429.shtml)
-- 2026-06-29 20:19 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/08322066846.shtml)
-- 2026-06-29 20:35 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/755193713.shtml)
-- 2026-06-29 20:08 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/41201056.shtml)
-- 2026-06-29 20:18 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/907108.shtml)
-- 2026-06-29 20:10 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/2155039131.shtml)
-- 2026-06-29 20:07 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/0569093154.shtml)
-- 2026-06-29 20:17 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/50669140.shtml)
-- 2026-06-29 20:09 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/62326318051.shtml)
-- 2026-06-29 20:10 - [美人鱼](https://www.share.kurohicncr.top/Article/details/42217688.shtml)
-- 2026-06-29 20:13 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/62269607.shtml)
-- 2026-06-29 20:32 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/9909744426.shtml)
-- 2026-06-29 20:20 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/304061697.shtml)
-- 2026-06-29 20:32 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/752070965.shtml)
+- 2026-06-29 20:19 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/8659465.shtml)
+- 2026-06-29 20:30 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/487226094934.shtml)
+- 2026-06-29 20:38 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/01641466504.shtml)
+- 2026-06-29 20:18 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/0854058412.shtml)
+- 2026-06-29 20:32 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/458845767185.shtml)
+- 2026-06-29 20:21 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/68491246773.shtml)
+- 2026-06-29 20:40 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/100184.shtml)
+- 2026-06-29 20:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/033397553.shtml)
+- 2026-06-29 20:41 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/28454812852.shtml)
+- 2026-06-29 20:29 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/608991741.shtml)
+- 2026-06-29 20:38 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/535282561744.shtml)
+- 2026-06-29 20:13 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/454332.shtml)
+- 2026-06-29 20:17 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/3632122370.shtml)
+- 2026-06-29 20:18 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/14388.shtml)
+- 2026-06-29 20:22 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/464196665.shtml)

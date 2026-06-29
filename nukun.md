@@ -1,57 +1,58 @@
-# MH迈汇:黄金年末望挑战五千关口
+# 【长江月评】滞胀阴霾下的供需博弈与新动能突围，“银四”旺季助铜价月线大涨5.61%
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-5月13日，近期国际金价虽然较年内高位回吐约12%的涨幅，但市场对黄金的中期前景依然保持建设性看法。MH迈汇表示，本轮回落更多反映的是能源价格冲击带来的宏观负面溢出效应，而非黄金避险属性的根本性削弱，机构资金的配置思路并未发生方向性转变，仍以中长期布局为主，长期资金对结构性故事的认可度并未明显下降。 从驱动逻辑分析，能源价格上行推升通胀预期，进而支撑实际收益率与美元走强，对计价
+长江有色金属网 一、2026年4月月度复盘： 4月，沪期铜在宏观情绪反复与基本面强支撑的博弈中，呈现“宽幅震荡、重心抬升”的走势。全月来看，尽管月末受地缘局势升级影响出现回调，但得益于供应端紧缺逻辑的兑现，铜价展现出较强的韧性，月线大涨5.61% （一）宏观层面：地缘政治主导风险偏好，美联储政策维持中性 本月宏观主线围绕“美伊局势”与“美联储动向”展开。 ●地缘风险溢价反复：美
 
 ## 正文
 
-5月13日，近期国际金价虽然较年内高位回吐约12%的涨幅，但市场对黄金的中期前景依然保持建设性看法。
+长江有色金属网 一、2026年4月月度复盘： 4月，沪期铜在宏观情绪反复与基本面强支撑的博弈中，呈现“宽幅震荡、重心抬升”的走势。
 
-MH迈汇表示，本轮回落更多反映的是能源价格冲击带来的宏观负面溢出效应，而非黄金避险属性的根本性削弱，机构资金的配置思路并未发生方向性转变，仍以中长期布局为主，长期资金对结构性故事的认可度并未明显下降。
+全月来看，尽管月末受地缘局势升级影响出现回调，但得益于供应端紧缺逻辑的兑现，铜价展现出较强的韧性，月线大涨5.61% （一）宏观层面：地缘政治主导风险偏好，美联储政策维持中性 本月宏观主线围绕“美伊局势”与“美联储动向”展开。
 
-从驱动逻辑分析，能源价格上行推升通胀预期，进而支撑实际收益率与美元走强，对计价黄金构成短期压制。
+●地缘风险溢价反复：美伊冲突经历“紧张-缓和-再升级”的波折。
 
-MH迈汇分析称，类似情形在历史上也曾出现，2022年地缘冲突初期黄金同样经历过快速冲高后的回调，本轮调整节奏甚至更快。
+月中停火谈判曾一度提振市场风险偏好，但月末随着谈判陷入僵局、霍尔木兹海峡通航受阻及美国制裁加码，避险情绪重燃，油价飙升引发通胀担忧，压制了铜价表现。
 
-市场预计，一旦能源价格趋稳、通胀回落以及货币政策重新转向宽松，金价将重新获得上行动能，避险叙事的再启动也会带来增量配置资金。
+●美联储政策预期：美联储维持“以静制动”策略，利率决议符合市场预期（维持利率不变），有释放小幅加息信号但不激进。
 
-ING大宗商品策略师玛恩特（Manthey）预计，金价有望在年末挑战每盎司5000美元的目标位。
+同时受地缘冲突推升的通胀预期影响，降息预期大幅降温，美元指数高位运行对铜价形成一定压制。
 
-她强调，全球央行的持续购金行为为市场提供坚实底部支撑，季度购金量虽有阶段性波动，但储备多元化趋势仍在延续，黄金的战略价值并未因短期波动而下降。
+●国内政策托底：国内一季度经济数据开局良好，政治局会议定调扩大内需及加强算力网建设，叠加房地产及制造业PMI回暖，为市场提供了信心支撑。
 
-机构观察人士提醒，央行购金节奏与ETF资金流向是判断金价中期方向的两大关键信号。
+此外，4月分中国制造业采购经理人指数环比上升0.1个百分点，继续处于扩张区间；综合PMI环比下降0.4个百分点，但仍高于临界点，表明我国经济总体处于扩张趋势。
 
 ## 相关推荐
 
-- 2026-06-29 20:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 20:16 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 20:26 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 20:20 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 20:33 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 20:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 20:24 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 20:14 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 20:27 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 20:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 20:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 20:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 20:22 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 20:35 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 20:33 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 20:20 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 20:40 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 20:40 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 20:30 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 20:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 20:19 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 20:20 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 20:39 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/31616673.shtml)
-- 2026-06-29 20:29 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/7902506.shtml)
-- 2026-06-29 20:29 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/173503644517.shtml)
-- 2026-06-29 20:34 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/760546.shtml)
-- 2026-06-29 20:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/978068.shtml)
-- 2026-06-29 20:11 - [毒液2](http://www.share.minike.top/Article/details/53679845989.shtml)
-- 2026-06-29 20:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/264719396.shtml)
-- 2026-06-29 20:08 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/303910963882.shtml)
-- 2026-06-29 20:30 - [金牌调解](http://www.share.kurohicncr.top/Article/details/5907217.shtml)
-- 2026-06-29 20:30 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/97117998081.shtml)
-- 2026-06-29 20:34 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/14865633.shtml)
-- 2026-06-29 20:15 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/53210.shtml)
-- 2026-06-29 20:35 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/20859240.shtml)
-- 2026-06-29 20:32 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/96401.shtml)
-- 2026-06-29 20:27 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/164071.shtml)
+- 2026-06-29 20:28 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/5798668980.shtml)
+- 2026-06-29 20:27 - [第一炉香](http://www.share.kurohicncr.top/Article/details/6060609863.shtml)
+- 2026-06-29 20:33 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/428203174.shtml)
+- 2026-06-29 20:29 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/322685726328.shtml)
+- 2026-06-29 20:40 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/12700406706.shtml)
+- 2026-06-29 20:31 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/4788523981.shtml)
+- 2026-06-29 20:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/7500584830.shtml)
+- 2026-06-29 20:23 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/53021280.shtml)
+- 2026-06-29 20:16 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/624441112749.shtml)
+- 2026-06-29 20:16 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/73141915464.shtml)
+- 2026-06-29 20:35 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/6792902.shtml)
+- 2026-06-29 20:38 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/38659.shtml)
+- 2026-06-29 20:24 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/359350.shtml)
+- 2026-06-29 20:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/7568598.shtml)
+- 2026-06-29 20:23 - [LPL第三赛段赛制公布](http://www.share.minike.top/Article/details/843751497560.shtml)

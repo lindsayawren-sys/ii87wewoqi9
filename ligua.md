@@ -1,56 +1,61 @@
-# 六年前，鲍威尔误判了通胀，这一次沃什会重蹈覆辙吗？
+# 5月2日外盘头条：特朗普称对美伊谈判情况不满意 Meta收购机器人AI公司，加速布局人形机器人技术
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 凯文·沃什即将接掌美联储，却面临一份棘手的政策遗产——通胀重燃、内部分歧加剧，以及来自白宫的政治压力。这一幕，与六年前鲍威尔误判通胀的历史惊人相似，只是这一次，外部变量更为复杂。 据华尔街日报周三报道，参议院本周预计将正式确认沃什出任美联储主席。就在确认投票前夕，美国劳工统计局公布的4月CPI数据显示，消费者价格同比上涨3.8%，创近三年来最大月度同比涨幅，高
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普称对美伊谈判情况不满意 目前无结束战争打算 2、 特朗普宣布对欧盟汽车额外征收25%关税 3、Meta收购机器人AI公司，加速布局人形机器人技术 4、 五角大楼与七家AI巨头签约，Anthropic遭排除 5、 卡尔希交易员：若冲突持续，美国油价将突破伊朗战争时期高点至125美元以上 6、 美联储副主席鲍曼：监管机构必须
 
 ## 正文
 
-来源：华尔街见闻 凯文·沃什即将接掌美联储，却面临一份棘手的政策遗产——通胀重燃、内部分歧加剧，以及来自白宫的政治压力。
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、特朗普称对美伊谈判情况不满意 目前无结束战争打算 2、 特朗普宣布对欧盟汽车额外征收25%关税 3、Meta收购机器人AI公司，加速布局人形机器人技术 4、 五角大楼与七家AI巨头签约，Anthropic遭排除 5、 卡尔希交易员：若冲突持续，美国油价将突破伊朗战争时期高点至125美元以上 6、 美联储副主席鲍曼：监管机构必须考虑如何应对Mythos等新技术 特朗普称对美伊谈判情况不满意 目前无结束战争打算 美国总统唐纳德·特朗普对当前与伊朗谈判的进展表示不满，他还将目前未能达成协议的原因归咎于德黑兰领导层不齐心。
 
-这一幕，与六年前鲍威尔误判通胀的历史惊人相似，只是这一次，外部变量更为复杂。
+特朗普周五在白宫对记者表示：“他们想达成协议，但我对它不满意。
 
-据华尔街日报周三报道，参议院本周预计将正式确认沃什出任美联储主席。
+我们刚刚与伊朗进行了沟通。
 
-就在确认投票前夕，美国劳工统计局公布的4月CPI数据显示，消费者价格同比上涨3.8%，创近三年来最大月度同比涨幅，高于市场预期的3.7%，核心CPI（剔除食品和能源）月环比加速至0.4%，高于3月的0.2%，同比升至2.8%。
+看看会发生什么吧。
 
-有“新美联储通讯社”之称的记者Nick Timiraos指出，这份CPI报告是最新信号，表明市场此前定价的降息预期已不再是2026年可期的前景。
+但我得说我不高兴。
 
-交易员目前越来越倾向于认为，美联储今年可能根本不会降息，部分机构甚至开始讨论是否需要加息。
+” 特朗普没有透露参与最新谈判的伊朗官员身份，也未透露谈判发生的时间。
 
-对于即将接掌美联储的沃什而言，这一局面的核心风险在于：无论他选择跟随政治压力提前降息，还是坚守通胀目标维持利率，两条路都将对美联储的信誉与独立性造成深远冲击。
+他补充称，“他们已经取得了一些进展，但我不确定是否能最终达成协议。
 
-鲍威尔的遗产：一次代价高昂的误判 以价格稳定这一核心职责衡量，鲍威尔八年任期留下的是一份“显著的失败”记录。
+” 伊朗已向美国提交了一项新提议，而特朗普誓言将维持海上封锁。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:12 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 20:06 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 20:24 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 20:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 20:34 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 20:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 20:14 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 20:16 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 20:17 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 20:37 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 20:24 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 20:34 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 20:41 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 20:17 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 20:35 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 20:13 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 20:12 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 20:15 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 20:38 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 20:19 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 20:12 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 20:12 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 20:22 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 20:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/8564116.shtml)
-- 2026-06-29 20:08 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/3863071536.shtml)
-- 2026-06-29 20:23 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/977862.shtml)
-- 2026-06-29 20:17 - [AG 宫斗](https://www.share.minike.top/Article/details/452760.shtml)
-- 2026-06-29 20:09 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/59270.shtml)
-- 2026-06-29 20:34 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/99849.shtml)
-- 2026-06-29 20:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/8828665961.shtml)
-- 2026-06-29 20:24 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/4802568808.shtml)
-- 2026-06-29 20:33 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/556197.shtml)
-- 2026-06-29 20:13 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/567699.shtml)
-- 2026-06-29 20:33 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/62385119528.shtml)
-- 2026-06-29 20:17 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/67581351.shtml)
-- 2026-06-29 20:19 - [华工科技龙虎榜数据](https://www.blog.kurohicncr.top/Article/details/8514701.shtml)
-- 2026-06-29 20:06 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/8876021.shtml)
-- 2026-06-29 20:24 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/5455321405.shtml)
+- 2026-06-29 20:35 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/35649843.shtml)
+- 2026-06-29 20:38 - [千与千寻](https://www.share.minike.top/Article/details/179881.shtml)
+- 2026-06-29 20:41 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/785452959477.shtml)
+- 2026-06-29 20:34 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/708107516473.shtml)
+- 2026-06-29 20:12 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/93494168.shtml)
+- 2026-06-29 20:38 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/7709067.shtml)
+- 2026-06-29 20:20 - [一见倾心](http://www.share.kurohicncr.top/Article/details/043507706042.shtml)
+- 2026-06-29 20:32 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/7156629358.shtml)
+- 2026-06-29 20:39 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/4641418.shtml)
+- 2026-06-29 20:18 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/82027079452.shtml)
+- 2026-06-29 20:37 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/55428445.shtml)
+- 2026-06-29 20:40 - [TTG KSG](https://www.blog.minike.top/Article/details/91876.shtml)
+- 2026-06-29 20:21 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/862650664.shtml)
+- 2026-06-29 20:31 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/7145740440.shtml)
+- 2026-06-29 20:14 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/186557618268.shtml)

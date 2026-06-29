@@ -1,46 +1,59 @@
-# 收评|国内期货主力合约跌多涨少 碳酸锂跌近5%
+# 杨德龙：做价值投资不能让你一夜暴富，但能让你真正成为时间的朋友
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-2026年5月14日，国内期货主力合约跌多涨少。沪银、鸡蛋、多晶硅、焦炭涨超1%；跌幅方面，碳酸锂跌近5%，SC原油、液化石油气（LPG）、集运欧线、瓶片、乙二醇（EG）跌超3%，苯乙烯（EB）、低硫燃料油（LU）、PX跌超2%。 责任编辑：赵思远
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。 前海开源基金执行总经理杨德龙在演讲中表示，去年开股东大会的时候，他分享过一个观点。当时巴菲特在股东大会上正式宣布，年底会正式退休，将CEO职位交给格雷格·阿贝尔。“我当时就说，这会带来两个变化：第一，伯克希尔·哈撒韦的股价会见顶下跌
 
 ## 正文
 
-2026年5月14日，国内期货主力合约跌多涨少。
+专题：对话奥马哈·第十一届中美投资人酒会 由新浪财经主办的“对话奥马哈·第十一届中美投资人酒会”于当地时间5月2日在美国内布拉斯加·奥马哈市举办。
 
-沪银、鸡蛋、多晶硅、焦炭涨超1%；跌幅方面，碳酸锂跌近5%，SC原油、液化石油气（LPG）、集运欧线、瓶片、乙二醇（EG）跌超3%，苯乙烯（EB）、低硫燃料油（LU）、PX跌超2%。
+前海开源基金执行总经理杨德龙在演讲中表示，去年开股东大会的时候，他分享过一个观点。
 
-责任编辑：赵思远
+当时巴菲特在股东大会上正式宣布，年底会正式退休，将CEO职位交给格雷格·阿贝尔。
+
+“我当时就说，这会带来两个变化：第一，伯克希尔·哈撒韦的股价会见顶下跌；第二，参会人数会逐年下降，最终可能只剩下几个股东。
+
+” 为什么会有这样的变化？
+
+其实这就是“股神”巴菲特个人的魅力所在。
+
+去年巴菲特宣布退休后，周一股市就出现了暴跌，这其实也是市场对巴菲特个人投资能力的一种肯定。
+
+巴菲特以前曾幽默地说过：“如果哪一天媒体报道说我死了，结果伯克希尔·哈撒韦的股价大涨，那就尴尬了；股价大跌，才是对我真正的敬意。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 20:29 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 20:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 20:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 20:26 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 20:35 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 20:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 20:34 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 20:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 20:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 20:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 20:35 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 20:32 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 20:17 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 20:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 20:19 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 20:19 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 20:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 20:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 20:24 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 20:17 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 20:38 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/26411.shtml)
-- 2026-06-29 20:25 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/35169133033.shtml)
-- 2026-06-29 20:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/00660090.shtml)
-- 2026-06-29 20:27 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/737709.shtml)
-- 2026-06-29 20:09 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/697991320590.shtml)
-- 2026-06-29 20:34 - [AG 宫斗](http://www.blog.minike.top/Article/details/49655449.shtml)
-- 2026-06-29 20:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/473238387.shtml)
-- 2026-06-29 20:33 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/3785521.shtml)
-- 2026-06-29 20:17 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/39332.shtml)
-- 2026-06-29 20:15 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/6642598611.shtml)
-- 2026-06-29 20:21 - [小娘惹](https://www.share.kurohicncr.top/Article/details/1490636866.shtml)
-- 2026-06-29 20:33 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/7109089.shtml)
-- 2026-06-29 20:32 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/9384441.shtml)
-- 2026-06-29 20:31 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.kurohicncr.top/Article/details/00482723006.shtml)
-- 2026-06-29 20:21 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/47367124832.shtml)
+- 2026-06-29 20:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/7385503.shtml)
+- 2026-06-29 20:39 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/9112801.shtml)
+- 2026-06-29 20:41 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/99553.shtml)
+- 2026-06-29 20:40 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/89758.shtml)
+- 2026-06-29 20:33 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/0571825.shtml)
+- 2026-06-29 20:19 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/761635763497.shtml)
+- 2026-06-29 20:34 - [恋与深空回应争议](https://www.share.minike.top/Article/details/54294302.shtml)
+- 2026-06-29 20:35 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/6142181996.shtml)
+- 2026-06-29 20:24 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/58269.shtml)
+- 2026-06-29 20:27 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/9748736010.shtml)
+- 2026-06-29 20:22 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/637424490.shtml)
+- 2026-06-29 20:24 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/20364.shtml)
+- 2026-06-29 20:35 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/375946.shtml)
+- 2026-06-29 20:35 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/152820259789.shtml)
+- 2026-06-29 20:36 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/7749866.shtml)

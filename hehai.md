@@ -1,61 +1,59 @@
-# 美国股市：标普500指数反弹创新高 科技股领涨无视通胀担忧
+# 加拿大将承办多边防务银行，启动或需时日
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-标普500指数周三反弹并触及历史高位，逢低买盘无视成本压力，在回调后抢购科技公司股票。 标普500指数在纽约上涨0.6%，纳斯达克100指数上涨1%。 芯片制造商、光学及存储类公司领涨，因全球存储芯片供应进一步趋紧。 英伟达上涨2.3%。 受战争推动的能源价格上涨带动运输成本上升影响，美国4月生产者价格通胀加速至2022年以来最快步伐。 投资者权衡通胀回升带来的扰动，同时强劲的
+加拿大政府宣布，将承办拟议中的多边防务银行，旨在为面临地缘政治风险加剧的国家提供军备融资支持。 加拿大总理马克·卡尼表示，参与谈判的国家一致同意，一旦协议获得批准，加拿大将成为该银行未来总部的东道国。据悉，约有18个国家参与了在蒙特利尔举行的宪章谈判，但具体参与国名单尚未公开。 该银行由前北约安全顾问、退役高级军官及银行家共同提议，目标是打造一家AAA级机构，能够筹集1000亿
 
 ## 正文
 
-标普500指数周三反弹并触及历史高位，逢低买盘无视成本压力，在回调后抢购科技公司股票。
+加拿大政府宣布，将承办拟议中的多边防务银行，旨在为面临地缘政治风险加剧的国家提供军备融资支持。
 
-标普500指数在纽约上涨0.6%，纳斯达克100指数上涨1%。
+加拿大总理马克·卡尼表示，参与谈判的国家一致同意，一旦协议获得批准，加拿大将成为该银行未来总部的东道国。
 
-芯片制造商、光学及存储类公司领涨，因全球存储芯片供应进一步趋紧。
+据悉，约有18个国家参与了在蒙特利尔举行的宪章谈判，但具体参与国名单尚未公开。
 
-英伟达上涨2.3%。
+该银行由前北约安全顾问、退役高级军官及银行家共同提议，目标是打造一家AAA级机构，能够筹集1000亿英镑用于国防项目融资，尤其面向那些难以获得廉价融资的国家。
 
-受战争推动的能源价格上涨带动运输成本上升影响，美国4月生产者价格通胀加速至2022年以来最快步伐。
+加拿大财长称，谈判是从构想到现实的关键一步。
 
-投资者权衡通胀回升带来的扰动，同时强劲的企业盈利和人工智能带来的利润前景继续支撑对经济和股市的信心。
+多家知名银行已表示支持，包括摩根大通、德意志银行和加拿大皇家银行。
 
-美国参议院表决通过对凯文·沃什出任美联储主席的提名确认，为美国央行数十年来最具争议的一次领导层交接铺平道路。
+加拿大的六大银行也已签约加入。
 
-围绕工业企业有望从AI热潮中获利的乐观情绪，推动该板块录得创纪录的动能。
+然而，该倡议也面临挫折，英国和德国已明确表示不支持。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 20:26 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 20:16 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 20:11 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 20:11 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 20:14 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 20:22 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 20:22 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 20:34 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 20:20 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 20:33 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 20:19 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 20:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 20:28 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 20:28 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 20:32 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 20:28 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 20:14 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 20:22 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 20:23 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 20:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 20:37 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 20:38 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 20:27 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 20:13 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 20:37 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 20:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 20:24 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/351030.shtml)
-- 2026-06-29 20:34 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/058004714.shtml)
-- 2026-06-29 20:16 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/996892840.shtml)
-- 2026-06-29 20:08 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/41826962997.shtml)
-- 2026-06-29 20:20 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/715795241967.shtml)
-- 2026-06-29 20:17 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/360160.shtml)
-- 2026-06-29 20:14 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/328709125604.shtml)
-- 2026-06-29 20:23 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/275816659.shtml)
-- 2026-06-29 20:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/81517.shtml)
-- 2026-06-29 20:30 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/123725941426.shtml)
-- 2026-06-29 20:26 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/823220864.shtml)
-- 2026-06-29 20:10 - [第一炉香](https://www.share.kurohicncr.top/Article/details/34697.shtml)
-- 2026-06-29 20:14 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/3356389682.shtml)
-- 2026-06-29 20:08 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/10465.shtml)
-- 2026-06-29 20:30 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/137840674435.shtml)
+- 2026-06-29 20:25 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/274692130240.shtml)
+- 2026-06-29 20:25 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/75656672.shtml)
+- 2026-06-29 20:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/86721696.shtml)
+- 2026-06-29 20:31 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/39533673.shtml)
+- 2026-06-29 20:36 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/24561906667.shtml)
+- 2026-06-29 20:21 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/356081995.shtml)
+- 2026-06-29 20:36 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/0638475.shtml)
+- 2026-06-29 20:33 - [我们的少年时代2](http://www.blog.minike.top/Article/details/2557671099.shtml)
+- 2026-06-29 20:30 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/96724086.shtml)
+- 2026-06-29 20:14 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/39108557743.shtml)
+- 2026-06-29 20:22 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/44764439.shtml)
+- 2026-06-29 20:36 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/2121430370.shtml)
+- 2026-06-29 20:19 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/528945442.shtml)
+- 2026-06-29 20:35 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/902141265486.shtml)
+- 2026-06-29 20:40 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/2273849450.shtml)

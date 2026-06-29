@@ -1,58 +1,59 @@
-# 元首外交即将开启中美关系新篇章（国际论坛）
+# 2026汉江睡觉大赛在首尔举行
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-人民日报 章思远 应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。这是美国总统时隔9年再次访华，是特朗普总统第二个任期内首次访华，亦是今年以来中美元首首次面对面会晤。中美元首即将聚首北京，举世瞩目。此访对新时代中美关系发展具有重要历史意义。 今年中美两国各自都有不少重要议程。中国十四届全国人大四次会议审查批准了“十五五”规划纲要，为“十五五”时
+发布时间：2026年05月02日 21:16 来源：中国新闻网 当地时间5月2日下午，2026汉江睡觉大赛在韩国首尔举行。170名参赛选手齐聚汝矣岛汉江公园，展开一场趣味十足的“睡眠对决”。 根据赛事规则，选手可身着睡衣等服饰参赛。赛事综合评估参赛者的深度睡眠时间与睡眠质量分数，以此评定最终排名。 值得一提的是，现场同步举办“最佳着装奖”选拔赛，由现场民众投票，评选出最佳着装参
 
 ## 正文
 
-人民日报 章思远 应中国国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
+发布时间：2026年05月02日 21:16 来源：中国新闻网 当地时间5月2日下午，2026汉江睡觉大赛在韩国首尔举行。
 
-这是美国总统时隔9年再次访华，是特朗普总统第二个任期内首次访华，亦是今年以来中美元首首次面对面会晤。
+170名参赛选手齐聚汝矣岛汉江公园，展开一场趣味十足的“睡眠对决”。
 
-中美元首即将聚首北京，举世瞩目。
+根据赛事规则，选手可身着睡衣等服饰参赛。
 
-此访对新时代中美关系发展具有重要历史意义。
+赛事综合评估参赛者的深度睡眠时间与睡眠质量分数，以此评定最终排名。
 
-今年中美两国各自都有不少重要议程。
+值得一提的是，现场同步举办“最佳着装奖”选拔赛，由现场民众投票，评选出最佳着装参赛者。
 
-中国十四届全国人大四次会议审查批准了“十五五”规划纲要，为“十五五”时期经济社会发展指明了方向，全国人民正为努力实现“十五五”良好开局而努力奋斗。
+据首尔市政府介绍，作为该市代表性特色文化活动，汉江睡觉大赛自2024年以来已举办3届，旨在向忙碌的民众传递“休息”的价值和重要性。
 
-中国式现代化进程稳步推进，将为包括美国在内的各国带来更多机遇。
-
-美国迎来独立250周年。
+(记者 金旭 制作 王佳琪) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 20:32 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 20:12 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 20:31 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 20:35 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 20:33 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 20:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 20:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 20:28 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 20:24 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 20:24 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 20:27 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 20:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 20:41 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 20:17 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 20:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 20:34 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 20:40 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 20:28 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 20:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 20:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 20:25 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 20:34 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 20:21 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 20:36 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 20:32 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 20:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/5815247093.shtml)
-- 2026-06-29 20:08 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/77343887652.shtml)
-- 2026-06-29 20:16 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/059999430713.shtml)
-- 2026-06-29 20:27 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/727960600.shtml)
-- 2026-06-29 20:08 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/62617379.shtml)
-- 2026-06-29 20:33 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/0354365731.shtml)
-- 2026-06-29 20:17 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.kurohicncr.top/Article/details/7328340.shtml)
-- 2026-06-29 20:16 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/694670468915.shtml)
-- 2026-06-29 20:33 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/19743.shtml)
-- 2026-06-29 20:12 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/41990296.shtml)
-- 2026-06-29 20:34 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/4220886.shtml)
-- 2026-06-29 20:11 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/82104.shtml)
-- 2026-06-29 20:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/41798.shtml)
-- 2026-06-29 20:21 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/45563011182.shtml)
-- 2026-06-29 20:30 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/602583.shtml)
+- 2026-06-29 20:19 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/466858062.shtml)
+- 2026-06-29 20:25 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/4224631.shtml)
+- 2026-06-29 20:21 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/18499421963.shtml)
+- 2026-06-29 20:40 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/45008.shtml)
+- 2026-06-29 20:30 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.minike.top/Article/details/2451536568.shtml)
+- 2026-06-29 20:22 - [明星大侦探第一季](http://www.share.minike.top/Article/details/7369318010.shtml)
+- 2026-06-29 20:33 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/41491167.shtml)
+- 2026-06-29 20:31 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/0616660.shtml)
+- 2026-06-29 20:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/713542459710.shtml)
+- 2026-06-29 20:39 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/878252.shtml)
+- 2026-06-29 20:22 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/32864444.shtml)
+- 2026-06-29 20:41 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/8393754.shtml)
+- 2026-06-29 20:25 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/39339653316.shtml)
+- 2026-06-29 20:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/96186.shtml)
+- 2026-06-29 20:40 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/01363.shtml)

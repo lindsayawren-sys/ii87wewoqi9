@@ -1,61 +1,61 @@
-# 南宁江北中堤水毁段应急抢险工程封顶 邕江防洪屏障进一步巩固
+# （文化中国行）鲁迅家开“语文课” 忆童趣重温百年经典
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月13日电(张广权 谢敏 罗春梅)广西南宁市江北中堤二坑口水毁段应急抢险工程防洪堤12日顺利封顶。堤防现已具备防洪挡水能力，为后续机电金结安装、园区道路及绿化恢复施工筑牢坚实基础。 2025年10月，受台风天气影响，邕江水位持续上涨，造成江北中堤二坑水闸出现渗漏险情。中国安能一局第一时间抽调专业抢险力量驰援现场，高效稳妥完成应急处置工作。险情处置结束后，受地方政府部
+中新社浙江绍兴5月2日电 题：鲁迅家开“语文课” 忆童趣重温百年经典 作者 项菁 “叮铃——”一阵清脆的老式电铃声响起，古朴学堂内16个座位瞬间满员，不少游客驻足围观。今年“五一”假期，鲁迅故居开起“语文课”。 “仿佛梦回求学时光。”趁着小长假，黑龙江游客陈晓来到浙江绍兴鲁迅故里，逛百草园、看三味书屋，沉浸式体验《从百草园到三味书屋》实景课堂。她受访时称，在鲁迅家重温课本，也是
 
 ## 正文
 
-中新网南宁5月13日电(张广权 谢敏 罗春梅)广西南宁市江北中堤二坑口水毁段应急抢险工程防洪堤12日顺利封顶。
+中新社浙江绍兴5月2日电 题：鲁迅家开“语文课” 忆童趣重温百年经典 作者 项菁 “叮铃——”一阵清脆的老式电铃声响起，古朴学堂内16个座位瞬间满员，不少游客驻足围观。
 
-堤防现已具备防洪挡水能力，为后续机电金结安装、园区道路及绿化恢复施工筑牢坚实基础。
+今年“五一”假期，鲁迅故居开起“语文课”。
 
-2025年10月，受台风天气影响，邕江水位持续上涨，造成江北中堤二坑水闸出现渗漏险情。
+“仿佛梦回求学时光。
 
-中国安能一局第一时间抽调专业抢险力量驰援现场，高效稳妥完成应急处置工作。
+”趁着小长假，黑龙江游客陈晓来到浙江绍兴鲁迅故里，逛百草园、看三味书屋，沉浸式体验《从百草园到三味书屋》实景课堂。
 
-险情处置结束后，受地方政府部门委托，该局承接该水毁段灾后重建施工任务。
+她受访时称，在鲁迅家重温课本，也是与自己青春的一次重逢。
 
-自进场施工以来，中国安能一局优化人员设备配置，配齐建强项目管理团队、施工班组及各类施工机械，全力保障工程推进。
+课本中的鲁迅是几代中国人的共同记忆。
 
-施工期间，项目团队先后攻克污水管渗漏、静载试验滞后、地质条件复杂等多项施工难题。
+鲁迅1926年写下的《从百草园到三味书屋》，早在上世纪50年代便入选初中语文教材。
 
-针对复杂地质易引发塌孔、地面沉降等问题，项目优化桩基施工工艺，采用专用护筒加固孔位，严格管控泥浆液面高程，规范护筒埋设、黏土夯实等施工流程，保持钻孔作业连续施工，同步做好施工隐患排查与上报处置，有效解决旋挖桩塌孔难题。
+百年流转，这一追忆童年趣事的名篇，不仅深深影响着一代代学子，更承载了每个人的年少时光。
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 20:20 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 20:21 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 20:07 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 20:27 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 20:15 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 20:25 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 20:21 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 20:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 20:07 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 20:20 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 20:12 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 20:26 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 20:18 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 20:08 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 20:33 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 20:28 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 20:40 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 20:25 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 20:23 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 20:35 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 20:36 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 20:34 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 20:26 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 20:38 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 20:35 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 20:30 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 20:28 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 20:35 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 20:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:12 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/9241149224.shtml)
-- 2026-06-29 20:34 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/8667478256.shtml)
-- 2026-06-29 20:18 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/7322962470.shtml)
-- 2026-06-29 20:18 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/929893.shtml)
-- 2026-06-29 20:23 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/68166.shtml)
-- 2026-06-29 20:07 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/07954.shtml)
-- 2026-06-29 20:27 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/512310614221.shtml)
-- 2026-06-29 20:23 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/32478.shtml)
-- 2026-06-29 20:11 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/28467.shtml)
-- 2026-06-29 20:23 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/37354590.shtml)
-- 2026-06-29 20:14 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/45874.shtml)
-- 2026-06-29 20:24 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/35227667152.shtml)
-- 2026-06-29 20:15 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/770175789110.shtml)
-- 2026-06-29 20:34 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/526065242809.shtml)
-- 2026-06-29 20:21 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/90617.shtml)
+- 2026-06-29 20:23 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/567393588942.shtml)
+- 2026-06-29 20:35 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/07559387.shtml)
+- 2026-06-29 20:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/56345058.shtml)
+- 2026-06-29 20:38 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/017902.shtml)
+- 2026-06-29 20:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/905302.shtml)
+- 2026-06-29 20:13 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/37283862040.shtml)
+- 2026-06-29 20:18 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/512014448.shtml)
+- 2026-06-29 20:20 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/204298024838.shtml)
+- 2026-06-29 20:14 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/038446959.shtml)
+- 2026-06-29 20:15 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/39083357382.shtml)
+- 2026-06-29 20:12 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/0809132.shtml)
+- 2026-06-29 20:32 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/7075328.shtml)
+- 2026-06-29 20:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/132515.shtml)
+- 2026-06-29 20:15 - [德国医生在没有空调的手术室工作](http://www.share.kurohicncr.top/Article/details/0278906.shtml)
+- 2026-06-29 20:37 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/75231.shtml)

@@ -1,59 +1,54 @@
-# 韩国加息定价过度 国债收益率或将回落
+# 国防部：日本难道又要成为东亚“祸源”？
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-高盛表示，随着地缘政治动荡缓和，韩国国债收益率存在企稳空间；目前市场计价未来12个月至少四次加息，定价明显过度。 尽管韩国国债本土需求低迷，但外资配置意愿有望抵消这一利空。 韩国纳入全球政府债券指数，对本国国债构成长期结构性利好。 截至4月，境外投资者年内增持韩国国债规模达21万亿韩元（折合140亿美元）。 这一规模远超过去五年季度均值5万亿至6万亿韩元，也略高于高盛全年约55
+中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。 有记者提问：据报道，日本政府正式修改“防卫装备转移三原则”及其运用指南，原则上允许出口杀伤性武器；此外还拟恢复与旧日本军队相同的“大佐”等军衔，通过国家情报会议设置法案。请问对此有何评论？ 张晓刚表示，日方近期在军事安全领域危险、冒进和试探、挑衅动作频频，早已戳穿了
 
 ## 正文
 
-高盛表示，随着地缘政治动荡缓和，韩国国债收益率存在企稳空间；目前市场计价未来12个月至少四次加息，定价明显过度。
+中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。
 
-尽管韩国国债本土需求低迷，但外资配置意愿有望抵消这一利空。
+有记者提问：据报道，日本政府正式修改“防卫装备转移三原则”及其运用指南，原则上允许出口杀伤性武器；此外还拟恢复与旧日本军队相同的“大佐”等军衔，通过国家情报会议设置法案。
 
-韩国纳入全球政府债券指数，对本国国债构成长期结构性利好。
+请问对此有何评论？
 
-截至4月，境外投资者年内增持韩国国债规模达21万亿韩元（折合140亿美元）。
+张晓刚表示，日方近期在军事安全领域危险、冒进和试探、挑衅动作频频，早已戳穿了其“和平国家”和“专守防卫”的自我标榜。
 
-这一规模远超过去五年季度均值5万亿至6万亿韩元，也略高于高盛全年约55万亿韩元的净买入预期。
+不仅如此，日方图谋启用旧日本军队军阶用语，计划组建的国家情报机构更让人想到臭名昭著的“特高课”，严重伤害亚洲国家人民感情。
 
-韩国补充预算案获批且未新增发债，市场对国债供给扩容的担忧已有所缓解。
+日方在“再军事化”道路上狂飙突进，难道又要成为东亚“祸源”？
 
-今年截至4月的实际发债规模与去年同期大体持平。
-
-受益于人工智能热潮带来的巨额财政超收，全年实际发债规模或将低于年度发债上限。
+所有爱好和平的人们都要对此高度警惕，坚决遏阻日本的倒行逆施，绝不能让其破坏和平、为祸世界。
 
 ## 相关推荐
 
-- 2026-06-29 20:35 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 20:35 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 20:23 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 20:34 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 20:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 20:23 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 20:18 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 20:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 20:18 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 20:35 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 20:33 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 20:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 20:14 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 20:37 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 20:32 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 20:19 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 20:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 20:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 20:20 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 20:36 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 20:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 20:29 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 20:39 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:23 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/94526578917.shtml)
-- 2026-06-29 20:22 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/374550330.shtml)
-- 2026-06-29 20:10 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/842888296.shtml)
-- 2026-06-29 20:28 - [沙丘](https://www.share.minike.top/Article/details/840698.shtml)
-- 2026-06-29 20:27 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/039619352.shtml)
-- 2026-06-29 20:25 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/9948514.shtml)
-- 2026-06-29 20:21 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/21109055831.shtml)
-- 2026-06-29 20:14 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/731157.shtml)
-- 2026-06-29 20:35 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/34067.shtml)
-- 2026-06-29 20:12 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/17106.shtml)
-- 2026-06-29 20:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/59049866838.shtml)
-- 2026-06-29 20:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/81948961.shtml)
-- 2026-06-29 20:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/94252.shtml)
-- 2026-06-29 20:12 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/344545340.shtml)
-- 2026-06-29 20:34 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/22030131590.shtml)
+- 2026-06-29 20:40 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/65623256.shtml)
+- 2026-06-29 20:36 - [请回答王牌2019](https://www.blog.minike.top/Article/details/883814205503.shtml)
+- 2026-06-29 20:24 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/91908875.shtml)
+- 2026-06-29 20:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/276504.shtml)
+- 2026-06-29 20:18 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/818791770658.shtml)
+- 2026-06-29 20:14 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/90303735.shtml)
+- 2026-06-29 20:17 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/165227.shtml)
+- 2026-06-29 20:35 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/49946005.shtml)
+- 2026-06-29 20:12 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/5381558.shtml)
+- 2026-06-29 20:14 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/51377548.shtml)
+- 2026-06-29 20:30 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/3047234.shtml)
+- 2026-06-29 20:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/5828192.shtml)
+- 2026-06-29 20:34 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/188477754030.shtml)
+- 2026-06-29 20:22 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/31147737679.shtml)
+- 2026-06-29 20:13 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/96929886919.shtml)

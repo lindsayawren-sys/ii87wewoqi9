@@ -1,61 +1,56 @@
-# 加拿大黄金勘探公司Bonterra首席执行官Pelletier辞职 董事长临时代理
+# 优化房地产市场供给 广州、天津等地出台楼市新政
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-加拿大黄金勘探公司Bonterra Resources周三宣布，总裁兼首席执行官Marc-André Pelletier已辞去职务，辞呈于5月31日生效。Pelletier为寻求其他职业机会而主动离职，同时辞去了公司董事职位。 过渡安排与临时接任 为确保平稳过渡，Pelletier已同意以顾问身份继续为公司服务至2026年12月31日。董事会已任命现任董事长Cesar Gonz
+昨天，多地出台楼市新政。广州发布了关于进一步促进房地产市场平稳健康发展的实施意见，在提升公积金贷款额度的同时，优化多项政策，满足多样化居住需求。 首先，广州的政策核心亮点，就是大幅提升了公积金贷款额度，单人最高可贷100万元，两人及以上共同申请最高200万元，育儿家庭购买“好房子”可叠加上浮，最高可达360万元，同时放宽商转公条件，允许办理组合贷，有效降低购房成本。 亮点二，广
 
 ## 正文
 
-加拿大黄金勘探公司Bonterra Resources周三宣布，总裁兼首席执行官Marc-André Pelletier已辞去职务，辞呈于5月31日生效。
+昨天，多地出台楼市新政。
 
-Pelletier为寻求其他职业机会而主动离职，同时辞去了公司董事职位。
+广州发布了关于进一步促进房地产市场平稳健康发展的实施意见，在提升公积金贷款额度的同时，优化多项政策，满足多样化居住需求。
 
-过渡安排与临时接任 为确保平稳过渡，Pelletier已同意以顾问身份继续为公司服务至2026年12月31日。
+首先，广州的政策核心亮点，就是大幅提升了公积金贷款额度，单人最高可贷100万元，两人及以上共同申请最高200万元，育儿家庭购买“好房子”可叠加上浮，最高可达360万元，同时放宽商转公条件，允许办理组合贷，有效降低购房成本。
 
-董事会已任命现任董事长Cesar Gonzalez为临时首席执行官，在寻找正式继任者期间负责公司日常运营。
+亮点二，广州推出“卖旧买新”专项补贴，2026年12月31日前买新房网签，且网签前后1年内卖出本市二手房，可按新房贷款总额1%申领补贴，单套最高3万元，总补贴2亿元，用完即止。
 
-董事会表示将启动全面的CEO搜寻工作，考虑内部和外部候选人。
+同时鼓励国企收购二手房用作保障房、人才房，助力改善型需求释放。
 
-公司战略与运营不受影响 Bonterra在声明中强调，此次管理层变动不会影响公司的战略优先事项和日常运营。
+亮点三，房票政策进一步优化，适用范围从住宅拓展至商业、办公等物业，实现跨区全市通用，探索一二手联动使用，提升安置灵活性。
 
-董事长在感谢Pelletier多年贡献的同时表示，董事会将与管理层密切合作，确保过渡期间的业务连续性。
+亮点四，土地供应坚持“以需定供”，与去库存周期挂钩，避免集中供地，试点现房销售，保障购房者权益。
 
-公司背景 Bonterra Resources是一家总部位于魁北克省瓦多尔的黄金勘探公司，在魁北克省拥有多个金矿资产组合。
+亮点五，政策鼓励各区发放购房家装消费券，部分区域可实现预售定学位、网签即入学，简化港澳居民置业流程，支持公积金跨境结算。
 
 ## 相关推荐
 
-- 2026-06-29 20:24 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 20:26 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 20:30 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 20:31 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 20:08 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 20:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 20:09 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 20:26 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 20:32 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 20:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 20:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 20:34 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 20:19 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 20:07 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 20:18 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 20:17 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 20:15 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 20:31 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 20:30 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 20:41 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 20:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 20:14 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 20:16 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 20:31 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 20:33 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/9050583867.shtml)
-- 2026-06-29 20:12 - [毒液2](https://www.share.kurohicncr.top/Article/details/32110597.shtml)
-- 2026-06-29 20:34 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/9899211.shtml)
-- 2026-06-29 20:14 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/742382.shtml)
-- 2026-06-29 20:28 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/97873468001.shtml)
-- 2026-06-29 20:16 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/34779324458.shtml)
-- 2026-06-29 20:34 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/40325028336.shtml)
-- 2026-06-29 20:34 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/72181883236.shtml)
-- 2026-06-29 20:13 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/35506196467.shtml)
-- 2026-06-29 20:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/6039346.shtml)
-- 2026-06-29 20:19 - [叠纸](http://www.blog.kurohicncr.top/Article/details/4371314748.shtml)
-- 2026-06-29 20:06 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/27052.shtml)
-- 2026-06-29 20:10 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/5080285.shtml)
-- 2026-06-29 20:13 - [第一炉香](http://www.share.minike.top/Article/details/2639174910.shtml)
-- 2026-06-29 20:21 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/289012.shtml)
+- 2026-06-29 20:25 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/741778782835.shtml)
+- 2026-06-29 20:31 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/78574888.shtml)
+- 2026-06-29 20:26 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/57552.shtml)
+- 2026-06-29 20:33 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/38218.shtml)
+- 2026-06-29 20:23 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/494509983.shtml)
+- 2026-06-29 20:22 - [锐评T1零封KC](http://www.share.minike.top/Article/details/621927.shtml)
+- 2026-06-29 20:31 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/66505786134.shtml)
+- 2026-06-29 20:21 - [男子40度高温下骑行严重晒伤](http://www.blog.minike.top/Article/details/942152830.shtml)
+- 2026-06-29 20:12 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/519607524545.shtml)
+- 2026-06-29 20:23 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/63354708.shtml)
+- 2026-06-29 20:14 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/821826320.shtml)
+- 2026-06-29 20:21 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/83768968183.shtml)
+- 2026-06-29 20:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/3417310431.shtml)
+- 2026-06-29 20:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/19908.shtml)
+- 2026-06-29 20:23 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/73212.shtml)

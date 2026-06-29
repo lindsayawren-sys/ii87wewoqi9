@@ -1,60 +1,60 @@
-# 日产完成重组整顿，目标重回盈利轨道
+# 专家学者齐聚沈阳为推动土地资源管理学科数智化转型建言献策
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 日产公布截至 3 月的季度净亏损达 2829 亿日元。 内容概要 日产汽车在连续七个季度录得净亏损后，预计本财年将重新实现净利润转正。 日产汽车在连续第七个季度亏损后，预测本财年将扭亏为盈。 这家日本车企正通过一系列重组改革削减成本、应对销量下滑，包括出售总部大楼、裁员、缩减生产基地及全球产能，以此迎来业绩拐点。 去年 4 月上任的日产首席
+中新网沈阳5月2日电 (记者 韩宏)记者2日从东北大学获悉，由国务院学位委员会公共管理学科评议组、全国高校土地资源管理专业院长(系主任)联席会、东北大学主办，东北大学文法学院承办的第十二届全国土地资源管理博士生论坛暨土地资源管理学科发展论坛，近日在东北大学举行。 东北大学党委书记郭海表示，本次论坛紧扣数智时代发展趋势，对发挥学科优势、服务乡村振兴与生态文明建设具有重要意义。学校
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 日产公布截至 3 月的季度净亏损达 2829 亿日元。
+中新网沈阳5月2日电 (记者 韩宏)记者2日从东北大学获悉，由国务院学位委员会公共管理学科评议组、全国高校土地资源管理专业院长(系主任)联席会、东北大学主办，东北大学文法学院承办的第十二届全国土地资源管理博士生论坛暨土地资源管理学科发展论坛，近日在东北大学举行。
 
-内容概要 日产汽车在连续七个季度录得净亏损后，预计本财年将重新实现净利润转正。
+东北大学党委书记郭海表示，本次论坛紧扣数智时代发展趋势，对发挥学科优势、服务乡村振兴与生态文明建设具有重要意义。
 
-日产汽车在连续第七个季度亏损后，预测本财年将扭亏为盈。
+学校将继续加大对公共管理的学科支持力度，建好建强土地资源管理学科方向，坚持数智赋能、学科交叉融合，持续提升服务国家战略与区域高质量发展能力。
 
-这家日本车企正通过一系列重组改革削减成本、应对销量下滑，包括出售总部大楼、裁员、缩减生产基地及全球产能，以此迎来业绩拐点。
+辽宁省自然资源厅二级巡视员陈永实表示，辽宁作为粮食主产区与老工业基地，耕地保护与黑土地可持续利用责任重大。
 
-去年 4 月上任的日产首席执行官伊万・埃斯皮诺萨表示，尽管仍有多项举措待落地，但公司过去一年已发生根本性转变。
+希望以本次论坛为契机，深化厅校、校校协同，推动数智技术与土地资源管理深度融合，以理论、技术、制度创新为辽宁全面振兴新突破贡献力量。
 
-他称：“我们已经展现出自身的发展潜力。
+国务院学位委员会公共管理学科评议组成员、全国高校土地资源管理专业院长(系主任)联席会主席欧名豪教授表示，论坛为全国土地资源管理专业博士生搭建了高水平学术交流平台，有助于青年学子聚焦学科前沿、提升科研创新能力，更好服务学科发展与国家战略落地。
 
-” 仅过去数月，日产已宣布多项举措： 计划在欧洲裁员数百人、全面重组欧洲业务；停产表现不佳的车型、精简全球产品矩阵；同时同意将南非工厂出售给中国车企奇瑞汽车。
+论坛邀请南京农业大学教授曲福田、中国矿业大学胡振琪院士做大会主旨报告，同时邀请来自清华大学、北京大学、浙江大学等知名专家围绕“大食物观背景下耕地保护与治理”“数智赋能国土空间规划与治理”等学术议题开展深度研讨，在保障国家粮食安全、推进国土空间治理数字化转型等方面形成重要共识。
 
-日产同时着手提升品牌吸引力，近期与优步、英国自动驾驶初创企业 Wayve 合作推出无人驾驶出租车服务，计划 2026 年末在东京启动试点项目。
+博士生分论坛与学科发展论坛中，60余名博士研究生围绕土地数智化管理与低碳利用、城乡融合发展与土地制度改革等前沿方向互动交流。
 
 ## 相关推荐
 
-- 2026-06-29 20:25 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 20:08 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 20:20 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 20:30 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 20:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 20:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 20:21 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 20:15 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 20:33 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 20:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 20:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 20:21 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 20:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 20:12 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 20:22 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 20:38 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 20:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 20:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 20:13 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 20:18 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 20:27 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 20:30 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 20:32 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 20:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 20:33 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 20:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 20:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 20:26 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:10 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/13789781.shtml)
-- 2026-06-29 20:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/34342.shtml)
-- 2026-06-29 20:22 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/0088278502.shtml)
-- 2026-06-29 20:30 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/994418.shtml)
-- 2026-06-29 20:35 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/9436667.shtml)
-- 2026-06-29 20:21 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/412622462681.shtml)
-- 2026-06-29 20:15 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/2628186.shtml)
-- 2026-06-29 20:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/412901.shtml)
-- 2026-06-29 20:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/91970204.shtml)
-- 2026-06-29 20:06 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/97096.shtml)
-- 2026-06-29 20:30 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/3821649.shtml)
-- 2026-06-29 20:22 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/6857597.shtml)
-- 2026-06-29 20:06 - [委内瑞拉发生余震](https://www.share.minike.top/Article/details/29868865.shtml)
-- 2026-06-29 20:27 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/435328864542.shtml)
-- 2026-06-29 20:15 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/72243247.shtml)
+- 2026-06-29 20:33 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/078923368.shtml)
+- 2026-06-29 20:16 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/84177706.shtml)
+- 2026-06-29 20:18 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/6233377725.shtml)
+- 2026-06-29 20:33 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/293576911.shtml)
+- 2026-06-29 20:17 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/8953061.shtml)
+- 2026-06-29 20:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/4914175086.shtml)
+- 2026-06-29 20:31 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/524877720.shtml)
+- 2026-06-29 20:20 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/2671098117.shtml)
+- 2026-06-29 20:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/43615268.shtml)
+- 2026-06-29 20:20 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/2598804.shtml)
+- 2026-06-29 20:16 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/397083127.shtml)
+- 2026-06-29 20:16 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/841216025.shtml)
+- 2026-06-29 20:19 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/9133072979.shtml)
+- 2026-06-29 20:24 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/69055.shtml)
+- 2026-06-29 20:17 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/88406.shtml)

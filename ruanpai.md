@@ -1,58 +1,49 @@
-# 福建新一轮降雨开启
+# 特朗普称更倾向于不对伊朗动武
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？专家提醒己所不欲勿施于人，这条东方智慧我们免费送给欧洲朋友六旬环卫工11次跳海救人：自
+美国总统特朗普表示，他“宁愿不”打伊朗。 特朗普在白宫对记者发表上述讲话。 特朗普称，目前的选项要么是“轰炸”伊朗，要么是达成协议。责任编辑：丁文武
 
 ## 正文
 
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
+美国总统特朗普表示，他“宁愿不”打伊朗。
 
-门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
+特朗普在白宫对记者发表上述讲话。
 
-专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？
+特朗普称，目前的选项要么是“轰炸”伊朗，要么是达成协议。
 
-专家提醒己所不欲勿施于人，这条东方智慧我们免费送给欧洲朋友六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取中英“乒乓外交”手记：小球轻转处，自有山海来人这一辈子，一定要三顾南阳！
-
-遭党内“逼宫” 斯塔默能迈过这道坎吗？
-
-Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？
-
-专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？
-
-央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 20:08 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 20:12 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 20:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 20:16 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 20:31 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 20:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 20:06 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 20:12 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 20:21 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 20:25 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 20:20 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 20:31 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 20:31 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 20:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 20:12 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 20:27 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 20:20 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 20:17 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 20:33 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 20:24 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 20:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 20:16 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/7318183.shtml)
-- 2026-06-29 20:22 - [虞书欣好辣的剧宣](https://www.share.minike.top/Article/details/0252697975.shtml)
-- 2026-06-29 20:07 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/4849686171.shtml)
-- 2026-06-29 20:35 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/46788307759.shtml)
-- 2026-06-29 20:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/92605.shtml)
-- 2026-06-29 20:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/61402.shtml)
-- 2026-06-29 20:23 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/579166.shtml)
-- 2026-06-29 20:32 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/47528429482.shtml)
-- 2026-06-29 20:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/2058611.shtml)
-- 2026-06-29 20:11 - [扫黑风暴](https://www.blog.minike.top/Article/details/84321122775.shtml)
-- 2026-06-29 20:19 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/58819316.shtml)
-- 2026-06-29 20:33 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/66588914.shtml)
-- 2026-06-29 20:34 - [毒液2](http://www.blog.minike.top/Article/details/872243464.shtml)
-- 2026-06-29 20:14 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/251605834.shtml)
-- 2026-06-29 20:33 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/32174547.shtml)
+- 2026-06-29 20:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/1958958.shtml)
+- 2026-06-29 20:22 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/4507376.shtml)
+- 2026-06-29 20:20 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/35963356.shtml)
+- 2026-06-29 20:33 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/0130020529.shtml)
+- 2026-06-29 20:29 - [恋与深空致歉](http://www.blog.minike.top/Article/details/342823.shtml)
+- 2026-06-29 20:34 - [斗破苍穹](http://www.share.minike.top/Article/details/9432116682.shtml)
+- 2026-06-29 20:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/41572948.shtml)
+- 2026-06-29 20:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/36633059586.shtml)
+- 2026-06-29 20:26 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/215316.shtml)
+- 2026-06-29 20:37 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/575762.shtml)
+- 2026-06-29 20:36 - [温网](https://www.share.minike.top/Article/details/06083271.shtml)
+- 2026-06-29 20:14 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/54493377.shtml)
+- 2026-06-29 20:16 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/28979.shtml)
+- 2026-06-29 20:27 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/6102723.shtml)
+- 2026-06-29 20:31 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/78095.shtml)

@@ -1,56 +1,59 @@
-# 酒价内参5月14日价格发布：青花汾20下跌1元
+# 莫德纳营收走高但依旧亏损
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月14日整体明显回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9961元，较昨日上涨10元，创下近半个月以来最高。市场结束连续三日高位盘整后上扬，终端交投情绪升温，核心龙头茅台系酒品全线走高，核心单品的涨跌分化依然显著。 今日白
+专题：聚焦美股2026年第一季度财报 公司表示，营收增长得益于新冠疫苗销量提升 莫德纳（股票代码：MRNA，涨幅 0.48%）公布一季度营收同比上涨，原因是其新冠疫苗在国际市场销量大增。 这家疫苗生产商周五公布，当期亏损 13.4 亿美元，合每股亏损 3.40 美元；而去年同期亏损 9.71 亿美元，合每股亏损 2.52 美元。 莫德纳称，此次亏损中，约 9 亿美元（合每股 2
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月14日整体明显回暖。
+专题：聚焦美股2026年第一季度财报 公司表示，营收增长得益于新冠疫苗销量提升 莫德纳（股票代码：MRNA，涨幅 0.48%）公布一季度营收同比上涨，原因是其新冠疫苗在国际市场销量大增。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9961元，较昨日上涨10元，创下近半个月以来最高。
+这家疫苗生产商周五公布，当期亏损 13.4 亿美元，合每股亏损 3.40 美元；而去年同期亏损 9.71 亿美元，合每股亏损 2.52 美元。
 
-市场结束连续三日高位盘整后上扬，终端交投情绪升温，核心龙头茅台系酒品全线走高，核心单品的涨跌分化依然显著。
+莫德纳称，此次亏损中，约 9 亿美元（合每股 2.22 美元）源于诉讼和解相关支出。
 
-今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
+公司已于今年 3 月同意支付 9.5 亿美元，了结与杨梅生物制药及杰内万特科学有限公司的专利诉讼纠纷。
 
-上涨方面，飞天茅台涨幅居前，强势上涨15元/瓶，收获三连阳价格大幅反弹至1745元，精品茅台上涨5元/瓶；古井贡古20上涨7元/瓶，创近一个月最高价纪录；国窖1573上涨2元/瓶，斩获五连阳，亦创下近一月最高价；洋河梦之蓝M6+上涨1元/瓶，价格升至月内次高。
+公司一季度营收从去年同期的 1.08 亿美元增至 3.89 亿美元。
 
-下跌方面，青花郎跌幅居前，下跌7元/瓶，再度失守700元关口；习酒君品下跌6元/瓶，三连阴走势下，价格快速下探至近一月最低位；五粮液普五八代下跌5元/瓶，在830元一线附近上行阻力较大；五粮液1618与青花汾20均下跌1元/瓶。
+其中美国市场营收 7800 万美元，国际市场营收 3.11 亿美元。
 
-水晶剑南春的价格环比保持不变。
+路孚特 FactSet 调查的分析师此前预期，公司每股亏损 4.43 美元，营收 2.364 亿美元。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+公司表示，营收增长主要得益于依托与多国政府的长期战略合作，新冠疫苗在国际市场销量大幅提升。
 
 ## 相关推荐
 
-- 2026-06-29 20:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 20:33 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 20:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 20:18 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 20:32 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 20:14 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 20:23 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 20:35 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 20:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 20:19 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 20:35 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 20:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 20:15 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 20:21 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 20:40 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 20:12 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 20:26 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 20:17 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 20:33 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 20:30 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 20:18 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 20:17 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 20:14 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/16748742.shtml)
-- 2026-06-29 20:07 - [曝腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/53902924471.shtml)
-- 2026-06-29 20:33 - [存储三巨头被告了](https://www.share.minike.top/Article/details/7475727400.shtml)
-- 2026-06-29 20:30 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/48433514704.shtml)
-- 2026-06-29 20:32 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/9527133.shtml)
-- 2026-06-29 20:24 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/3462837.shtml)
-- 2026-06-29 20:10 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/635689.shtml)
-- 2026-06-29 20:17 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/655047.shtml)
-- 2026-06-29 20:24 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/510126588.shtml)
-- 2026-06-29 20:29 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/58997.shtml)
-- 2026-06-29 20:29 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/6256612.shtml)
-- 2026-06-29 20:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/6728652647.shtml)
-- 2026-06-29 20:10 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/983661628288.shtml)
-- 2026-06-29 20:27 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/434152596755.shtml)
-- 2026-06-29 20:33 - [扬名立万](https://www.share.minike.top/Article/details/19817533.shtml)
+- 2026-06-29 20:23 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/60019472503.shtml)
+- 2026-06-29 20:32 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/813058262.shtml)
+- 2026-06-29 20:38 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/184028.shtml)
+- 2026-06-29 20:41 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/32063767524.shtml)
+- 2026-06-29 20:30 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/4181692.shtml)
+- 2026-06-29 20:40 - [急先锋](http://www.blog.kurohicncr.top/Article/details/646802712456.shtml)
+- 2026-06-29 20:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/474212976357.shtml)
+- 2026-06-29 20:33 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/32414168.shtml)
+- 2026-06-29 20:16 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/537539.shtml)
+- 2026-06-29 20:33 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/9495589.shtml)
+- 2026-06-29 20:14 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/99186658.shtml)
+- 2026-06-29 20:34 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/62395.shtml)
+- 2026-06-29 20:39 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/51175.shtml)
+- 2026-06-29 20:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/124675192.shtml)
+- 2026-06-29 20:28 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/22679494780.shtml)

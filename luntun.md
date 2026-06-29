@@ -1,56 +1,61 @@
-# 【数据点评】核心通胀加速走强，美降息“重任”面临挑战
+# “拼小团”出游热度高，这份“避坑指南”请收好
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 数据表现 4月美国CPI同比3.8%，核心CPI同比2.8%，后者有加速迹象。 市场反应 数据公布后，美元指数、10年期美债收益率基本延续原有运行方向、黄金价格先抑后扬趋于震荡。 事件 4月美国CPI继续上扬，核心通胀在住房价格推动下亦超预期走强。尽管当前中东冲突处于休战期，但海峡通航问题悬而未决
+35岁的郑州游客安迪还记得去年3月的新疆之行。8天7晚的行程，她和几位陌生游客一起“拼小团”。“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。”安迪说。 川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。“拼小团”恰好解决了这个痛点。在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千
 
 ## 正文
 
-作者：张晨/F0284349、Z0010567/ 一德期货宏观分析师 要点速览版 数据表现 4月美国CPI同比3.8%，核心CPI同比2.8%，后者有加速迹象。
+35岁的郑州游客安迪还记得去年3月的新疆之行。
 
-市场反应 数据公布后，美元指数、10年期美债收益率基本延续原有运行方向、黄金价格先抑后扬趋于震荡。
+8天7晚的行程，她和几位陌生游客一起“拼小团”。
 
-事件 4月美国CPI继续上扬，核心通胀在住房价格推动下亦超预期走强。
+“一个人想在短时间内转一圈北疆，拼团是性价比最高的方式。
 
-尽管当前中东冲突处于休战期，但海峡通航问题悬而未决，“过去时”数据影响仍让位于预期变化。
+”安迪说。
 
-核心观点 4月CPI同比受能源价格推动延续快速上行。
+川西、新疆、内蒙古，这些地方风景壮美，但有一个共同的难题：公共交通覆盖有限，自驾对路况不熟悉的游客来说挑战不小。
 
-整体CPI同比3.8%，一致预期3.7%，前值3.3%；环比0.6%，一致预期0.6%，前值0.9%。
+“拼小团”恰好解决了这个痛点。
 
-核心CPI同比2.8%，一致预期2.7%，前值2.6%；环比0.4%，一致预期0.3%，前值0.2%。
+在社交平台搜索“新疆小团”“川西拼团”，评论区里问路线、求推荐的网友成百上千。
 
-4月CPI环比增速边际回落。
+某在线旅游平台数据显示，近期“拼小团”产品订单量同比增长1.5倍。
 
 ## 相关推荐
 
-- 2026-06-29 20:32 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 20:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 20:16 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 20:31 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 20:21 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 20:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 20:18 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 20:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 20:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 20:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 20:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 20:36 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 20:19 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 20:37 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 20:21 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 20:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 20:19 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 20:12 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 20:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 20:34 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 20:14 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 20:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 20:24 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 20:17 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 20:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:16 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/2149611731.shtml)
-- 2026-06-29 20:20 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/99355.shtml)
-- 2026-06-29 20:14 - [绘画区你赢了](http://www.share.minike.top/Article/details/6974501136.shtml)
-- 2026-06-29 20:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/1825657704.shtml)
-- 2026-06-29 20:35 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/55567.shtml)
-- 2026-06-29 20:24 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/571158932.shtml)
-- 2026-06-29 20:26 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/9497202427.shtml)
-- 2026-06-29 20:21 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/34916379553.shtml)
-- 2026-06-29 20:16 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/9526103958.shtml)
-- 2026-06-29 20:26 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/5348664093.shtml)
-- 2026-06-29 20:19 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/968652.shtml)
-- 2026-06-29 20:17 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/877140431240.shtml)
-- 2026-06-29 20:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/418988930127.shtml)
-- 2026-06-29 20:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/67266669459.shtml)
-- 2026-06-29 20:35 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/372392490581.shtml)
+- 2026-06-29 20:28 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/141196074781.shtml)
+- 2026-06-29 20:41 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/836429120803.shtml)
+- 2026-06-29 20:22 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/558138697519.shtml)
+- 2026-06-29 20:26 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/131990557376.shtml)
+- 2026-06-29 20:12 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/6004170100.shtml)
+- 2026-06-29 20:31 - [啊啊啊](https://www.share.minike.top/Article/details/170058315.shtml)
+- 2026-06-29 20:28 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/7045352.shtml)
+- 2026-06-29 20:26 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/84999.shtml)
+- 2026-06-29 20:31 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/6988437.shtml)
+- 2026-06-29 20:25 - [济南航空航天全面起势](http://www.blog.kurohicncr.top/Article/details/56376.shtml)
+- 2026-06-29 20:12 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/6953817434.shtml)
+- 2026-06-29 20:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/72755.shtml)
+- 2026-06-29 20:12 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/242536.shtml)
+- 2026-06-29 20:28 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/4182960.shtml)
+- 2026-06-29 20:35 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/807119.shtml)

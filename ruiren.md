@@ -1,59 +1,57 @@
-# 江西南昌举办文艺晚会 集中展现“英雄城”文化风貌
+# 2026“购在中国”国际消费季暨第七届上海“五五购物节”启动
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新网南昌5月14日电 (熊锦阳)5月13日晚，第五届南昌艺术季文艺晚会在南昌红谷滩大剧院精彩上演，通过一场兼具传统底蕴与时代气息的艺术盛宴，集中展现“英雄城”近年来文艺事业发展成就。 本次活动由南昌市委宣传部、南昌市文化广电旅游局、南昌市文联主办。网红达人、高校艺术界人士及市民代表等齐聚一堂，共赴艺术之约。 此次晚会以“春”为核心意象，共有“春启·赣江”“薪传·豫章”“刻印·
+中新网上海5月1日电 (李秋莹)4月30日晚，由商务部、中央广播电视总台、上海市人民政府联合主办的2026“购在中国”国际消费季(上海站)暨第七届上海“五五购物节”启动。仪式现场，10家重点企业发布一系列促消费举措，覆盖衣食住行、吃喝玩乐等各个方面，满足市民多层次消费需求。 活动现场还举行了第五届国际消费中心城市论坛，商务部部长王文涛表示，5年来，国际消费中心城市培育建设取得积
 
 ## 正文
 
-中新网南昌5月14日电 (熊锦阳)5月13日晚，第五届南昌艺术季文艺晚会在南昌红谷滩大剧院精彩上演，通过一场兼具传统底蕴与时代气息的艺术盛宴，集中展现“英雄城”近年来文艺事业发展成就。
+中新网上海5月1日电 (李秋莹)4月30日晚，由商务部、中央广播电视总台、上海市人民政府联合主办的2026“购在中国”国际消费季(上海站)暨第七届上海“五五购物节”启动。
 
-本次活动由南昌市委宣传部、南昌市文化广电旅游局、南昌市文联主办。
+仪式现场，10家重点企业发布一系列促消费举措，覆盖衣食住行、吃喝玩乐等各个方面，满足市民多层次消费需求。
 
-网红达人、高校艺术界人士及市民代表等齐聚一堂，共赴艺术之约。
+活动现场还举行了第五届国际消费中心城市论坛，商务部部长王文涛表示，5年来，国际消费中心城市培育建设取得积极进展，消费引领和示范带动作用持续增强，全球影响力显著提升。
 
-此次晚会以“春”为核心意象，共有“春启·赣江”“薪传·豫章”“刻印·洪都”“逐光·南昌”四大篇章。
+中央广播电视总台副台长余俊生表示，中央广播电视总台连续七年携手商务部及各地方政府，创新打造“全国消费促进月”、京津冀消费季、上海“五五购物节”、大湾区消费季等特色活动，有力提振消费信心。
 
-节目形式丰富多样，涵盖舞蹈、歌唱、朗诵、乐器等多个类别。
+总台将进一步深化与各方协作，助力构建全球联通、全民共享、全龄友好、全时活跃、全景呈现的现代化消费体系。
 
-开场芭蕾舞《春启》以舞姿描绘大地回春的勃勃生机；歌曲《禾下乘凉》传递着人们对美好生活的向往；二胡演奏《沏春》以乐为笔，勾勒出春日沏茶的诗意画卷…… 据了解，南昌艺术季自2022年启动以来已连续举办至第五届。
+西班牙巴塞罗那市副市长拉克尔·希尔在视频致辞中表示，巴塞罗那与上海保持着密切的机构交流和商贸往来，今年，是两市缔结友好城市关系25周年。
 
-围绕建党百年、建军95周年等重要时间节点，南昌市创排了一系列精品文艺作品。
+巴塞罗那是一座向世界开放的城市，2026年被评为“欧洲本地商业之都”，经验表明，一座国际化城市懂得守护自己的独特之处，就会更具竞争力。
 
-数据显示，前四届南昌艺术季累计举办艺术活动88个，创作舞台艺术作品62部，举办各类书画展107次，创作书画作品880件，共荣获国家级荣誉73个。
+据悉，2026国际消费季是商务部“购在中国”系列重点专题活动，以“在中国、购全球”为目标，汇聚国际精品、国货潮品、时尚名品，优化消费环境、创新消费场景，推动消费提质升级、扩大入境消费。
 
 ## 相关推荐
 
-- 2026-06-29 20:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 20:19 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 20:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 20:15 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 20:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 20:32 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 20:18 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 20:07 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 20:15 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 20:15 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 20:08 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 20:20 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 20:32 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 20:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 20:33 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 20:12 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 20:13 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 20:24 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 20:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 20:24 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 20:17 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 20:38 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 20:21 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 20:17 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:06 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/0195052.shtml)
-- 2026-06-29 20:12 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/66403914717.shtml)
-- 2026-06-29 20:07 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/3674928.shtml)
-- 2026-06-29 20:14 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/33615.shtml)
-- 2026-06-29 20:28 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/36988452.shtml)
-- 2026-06-29 20:33 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/328452190552.shtml)
-- 2026-06-29 20:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/369686.shtml)
-- 2026-06-29 20:09 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/4594693.shtml)
-- 2026-06-29 20:28 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/171512.shtml)
-- 2026-06-29 20:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/159116902.shtml)
-- 2026-06-29 20:32 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/5412830434.shtml)
-- 2026-06-29 20:10 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/87365.shtml)
-- 2026-06-29 20:11 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/34434351.shtml)
-- 2026-06-29 20:16 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/88062.shtml)
-- 2026-06-29 20:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/985329066.shtml)
+- 2026-06-29 20:31 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/487259.shtml)
+- 2026-06-29 20:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/41571.shtml)
+- 2026-06-29 20:37 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/03884.shtml)
+- 2026-06-29 20:15 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/5984700.shtml)
+- 2026-06-29 20:26 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/569897463.shtml)
+- 2026-06-29 20:26 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/532204791.shtml)
+- 2026-06-29 20:14 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/846911531.shtml)
+- 2026-06-29 20:29 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/59325613.shtml)
+- 2026-06-29 20:39 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/62866339.shtml)
+- 2026-06-29 20:22 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/39125363016.shtml)
+- 2026-06-29 20:32 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/410860897.shtml)
+- 2026-06-29 20:19 - [女心理师](https://www.share.kurohicncr.top/Article/details/2364027.shtml)
+- 2026-06-29 20:22 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/12473937161.shtml)
+- 2026-06-29 20:38 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/76135714.shtml)
+- 2026-06-29 20:39 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/785911.shtml)

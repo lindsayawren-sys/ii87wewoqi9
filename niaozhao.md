@@ -1,61 +1,58 @@
-# 中央气象台：全国农业气象影响预报与评估（2026年05月14日）
+# 欧洲天然气延续涨势 市场担忧美伊紧张局势升级
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-来源：中央气象台网站 南方降水偏多注意排涝降渍和避雨抢晴收晒作物 一、冬小麦、油菜生长状况和土壤墒情 目前，新疆、西北地区中部、华北北部局地冬小麦处于孕穗至抽穗开花期，西北地区东南部、华北南部、黄淮处于灌浆期，江淮、江汉等地大部处于灌浆乳熟期，西南地区大部处于成熟收获期；大部发育期接近常年或偏早3~10天。5月12日冬小麦长势遥感监测显示：与上年同期相比，冬小麦主产省长势持平比
+由于担忧中东紧张局势可能再度升级、且和平协议谈判未见实质进展，欧洲天然气价格持续走高。 基准期货连续第二个交易日上涨，触及两周高位。此前，媒体报道称，美国总统特朗普将于周四听取关于对伊朗采取新军事选项的简报。与此同时，油价创下四年以来的日内最高水平。 特朗普还表示，他已拒绝伊朗方面近期提出的重启霍尔木兹海峡通航的提议——在伊朗核问题达成协议前，将维持对伊朗港口的海上封锁。 自2
 
 ## 正文
 
-来源：中央气象台网站 南方降水偏多注意排涝降渍和避雨抢晴收晒作物 一、冬小麦、油菜生长状况和土壤墒情 目前，新疆、西北地区中部、华北北部局地冬小麦处于孕穗至抽穗开花期，西北地区东南部、华北南部、黄淮处于灌浆期，江淮、江汉等地大部处于灌浆乳熟期，西南地区大部处于成熟收获期；大部发育期接近常年或偏早3~10天。
+由于担忧中东紧张局势可能再度升级、且和平协议谈判未见实质进展，欧洲天然气价格持续走高。
 
-5月12日冬小麦长势遥感监测显示：与上年同期相比，冬小麦主产省长势持平比例占55%，偏好比例占44%（图1）。
+基准期货连续第二个交易日上涨，触及两周高位。
 
-长江中下游和西南地区大部油菜处于绿熟至成熟收获期，大部发育期接近常年或偏早3~7天。
+此前，媒体报道称，美国总统特朗普将于周四听取关于对伊朗采取新军事选项的简报。
 
-5月12日冬小麦主产省长势遥感监测 5月14日20厘米土壤水分监测结果表明，北方冬麦区大部土壤墒情适宜，利于冬小麦灌浆，河北西部、山西西南部、安徽中北部等地部分地区土壤缺墒。
+与此同时，油价创下四年以来的日内最高水平。
 
-南方油菜产区大部墒情适宜，湖北南部、湖南北部和中部等地土壤过湿，其中湖北东南部、湖南中南部等地低洼农田出现渍涝灾害（图2）。
+特朗普还表示，他已拒绝伊朗方面近期提出的重启霍尔木兹海峡通航的提议——在伊朗核问题达成协议前，将维持对伊朗港口的海上封锁。
 
-5月14日冬小麦和油菜产区20厘米土壤墒情 二、未来10天天气对冬小麦和油菜生产影响预估及建议 预计未来10天北方冬麦区大部气温接近常年同期，土壤墒情适宜，总体利于大部冬小麦灌浆乳熟。
+自2月底战事爆发以来，霍尔木兹海峡实际上已处于关闭状态，导致全球约五分之一的液化天然气（LNG）运输受阻，并推动价格上涨。
 
-15-19日，西北地区东部、华北西部和南部、黄淮、江汉等地部分地区有中到大雨或雷阵雨，局地有暴雨，降水利于改善土壤墒情，对西北地区东部、华北、黄淮北部等地冬小麦灌浆有利，但江汉、黄淮西部和南部等地的部分地区雨量可能在100毫米以上，局地超200毫米，且阴雨持续时间可达3天以上，易导致低洼农田渍涝和冬小麦倒伏、造成机收作业困难，影响产量和品质。
+许多交易商已削减天然气头寸，而现货市场正准备迎接今夏欧洲与亚洲主要能源进口国之间更激烈的供应竞争。
 
-此外，25-27日华北黄淮地区有一次高温天气过程，河北中南部、山东西部和北部、河南东部和北部等地日最高气温可达32℃以上，部分地区可达35℃以上，局地缺墒冬小麦有干热风灾害风险。
+荷兰国际集团（ING）策略师沃伦·帕特森与埃娃·曼泰在一份报告中指出：“市场对波斯湾能源流动快速恢复失去信心。
 
 ## 相关推荐
 
-- 2026-06-29 20:10 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 20:17 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 20:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 20:28 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 20:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 20:26 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 20:08 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 20:11 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 20:12 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 20:33 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 20:32 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 20:21 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 20:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 20:09 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 20:15 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 20:36 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 20:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 20:39 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 20:14 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 20:28 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 20:23 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 20:12 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 20:25 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 20:34 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 20:16 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 20:29 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 20:18 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:30 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/425606832772.shtml)
-- 2026-06-29 20:24 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/1759187.shtml)
-- 2026-06-29 20:28 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/7525945324.shtml)
-- 2026-06-29 20:25 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/600153023109.shtml)
-- 2026-06-29 20:29 - [送你一朵小红花](https://www.blog.minike.top/Article/details/611334310599.shtml)
-- 2026-06-29 20:27 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/63539745.shtml)
-- 2026-06-29 20:08 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/664549989114.shtml)
-- 2026-06-29 20:13 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/865889622227.shtml)
-- 2026-06-29 20:17 - [急先锋](https://www.blog.minike.top/Article/details/24558289.shtml)
-- 2026-06-29 20:25 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/13924491028.shtml)
-- 2026-06-29 20:18 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/0919303236.shtml)
-- 2026-06-29 20:20 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/391812336.shtml)
-- 2026-06-29 20:34 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/979514.shtml)
-- 2026-06-29 20:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/01958072334.shtml)
-- 2026-06-29 20:35 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/279377725705.shtml)
+- 2026-06-29 20:33 - [沉睡花园](http://www.share.minike.top/Article/details/074406508865.shtml)
+- 2026-06-29 20:15 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/167415467382.shtml)
+- 2026-06-29 20:39 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/24501597.shtml)
+- 2026-06-29 20:29 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/389247689.shtml)
+- 2026-06-29 20:40 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/0893460.shtml)
+- 2026-06-29 20:31 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/4783643.shtml)
+- 2026-06-29 20:23 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/10319953454.shtml)
+- 2026-06-29 20:19 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/23157164230.shtml)
+- 2026-06-29 20:12 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/6951869.shtml)
+- 2026-06-29 20:36 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/09429304117.shtml)
+- 2026-06-29 20:38 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/3138021.shtml)
+- 2026-06-29 20:29 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/95254.shtml)
+- 2026-06-29 20:14 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/194968352.shtml)
+- 2026-06-29 20:25 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/9375135888.shtml)
+- 2026-06-29 20:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/82229.shtml)

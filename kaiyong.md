@@ -1,59 +1,59 @@
-# 从重庆宝坪村实践看农村互助养老新模式
+# “走在前列的广东实践”高校思政实践课程创新探索
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-依托共享食堂，天天都能吃上热乎饭——从重庆宝坪村实践看农村互助养老新模式 5月的重庆，暖意渐起。在重庆市石柱土家族自治县宝坪村村委会旁的坝上，70多岁的留守老人张德芬和几个老姐妹围坐在一起，晒着太阳，拉着家常。临近中午，她们不用起身往家赶，隔壁就是村里的“互助养老共享食堂”(以下简称共享食堂)，走几步路，就能吃上热乎饭。谈起现在的养老生活，大爷大娘们都“满意得很”。 这温情的一
+“走在前列的广东实践”高校思政实践课程创新探索—— 营造在场感 提升转化力 冲压、焊接、涂装、总装，数百台工业机器人组成的全自动生产线精准完成各项工序……广汽埃安新能源汽车股份有限公司的智慧工厂，创新成果令人注目。在这里，华南理工大学师生围绕“科技创新励青春，自强自立担重任”主题，上了一堂生动的思政课。 2025年秋季学期起，名为“走在前列的广东实践”的思政实践课程，在广东各类
 
 ## 正文
 
-依托共享食堂，天天都能吃上热乎饭——从重庆宝坪村实践看农村互助养老新模式 5月的重庆，暖意渐起。
+“走在前列的广东实践”高校思政实践课程创新探索—— 营造在场感 提升转化力 冲压、焊接、涂装、总装，数百台工业机器人组成的全自动生产线精准完成各项工序……广汽埃安新能源汽车股份有限公司的智慧工厂，创新成果令人注目。
 
-在重庆市石柱土家族自治县宝坪村村委会旁的坝上，70多岁的留守老人张德芬和几个老姐妹围坐在一起，晒着太阳，拉着家常。
+在这里，华南理工大学师生围绕“科技创新励青春，自强自立担重任”主题，上了一堂生动的思政课。
 
-临近中午，她们不用起身往家赶，隔壁就是村里的“互助养老共享食堂”(以下简称共享食堂)，走几步路，就能吃上热乎饭。
+2025年秋季学期起，名为“走在前列的广东实践”的思政实践课程，在广东各类高校全面开设。
 
-谈起现在的养老生活，大爷大娘们都“满意得很”。
+课程围绕推动经济高质量发展、粤港澳大湾区建设、科技创新、文化繁荣等10个教学专题，以实践教学和社会大课堂为双翼，打通思政教育与传统课堂的边界。
 
-这温情的一幕，正是近年来我国农村互助性养老服务落地见效的一个生动缩影。
+为何开设这样一门课程？
 
-近日，民政部等11部门发布《关于推进互助性养老服务发展的意见》(以下简称《意见》)。
+城市发展的日新月异、科技创新的硬核突破……生动实践正是鲜活的思政课教材。
 
-这是我国首次在全国层面就如何推进互助性养老服务发展作出系统性、总体性部署，进一步推动互助性养老服务高质量、可持续发展。
+在广东省委宣传部、省教育厅推动下，课程探索出改革先锋、科技创新、南粤文脉、绿美广东、魅力湾区、共同富裕6条实践教学路线，将课堂搬至广阔天地。
 
-《意见》指出，互助性养老服务是指通过邻里或村(社区)居民间的互相帮扶，为老年人提供自愿性、非营利性养老服务的活动。
+华南理工大学依托思政课虚拟仿真体验教学中心，构建线上线下双向联动的教学场景。
 
 ## 相关推荐
 
-- 2026-06-29 20:26 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 20:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 20:16 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 20:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 20:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 20:15 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 20:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 20:31 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 20:25 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 20:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 20:33 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 20:22 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 20:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 20:29 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 20:19 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 20:33 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 20:22 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 20:25 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 20:12 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 20:27 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 20:25 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 20:28 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 20:13 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 20:23 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 20:37 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 20:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/9088063518.shtml)
-- 2026-06-29 20:24 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/311004.shtml)
-- 2026-06-29 20:08 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/4446273.shtml)
-- 2026-06-29 20:31 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/4651004.shtml)
-- 2026-06-29 20:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/37099869322.shtml)
-- 2026-06-29 20:24 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/6006749.shtml)
-- 2026-06-29 20:25 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/261492157344.shtml)
-- 2026-06-29 20:07 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/76679502.shtml)
-- 2026-06-29 20:26 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/3775967.shtml)
-- 2026-06-29 20:10 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/2574045406.shtml)
-- 2026-06-29 20:22 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/2262336.shtml)
-- 2026-06-29 20:28 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/278585813812.shtml)
-- 2026-06-29 20:21 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/1656920.shtml)
-- 2026-06-29 20:31 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/898234363284.shtml)
-- 2026-06-29 20:27 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/9986208377.shtml)
+- 2026-06-29 20:27 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/377348714841.shtml)
+- 2026-06-29 20:23 - [明星大侦探第一季](https://www.share.minike.top/Article/details/578500519976.shtml)
+- 2026-06-29 20:21 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/25705.shtml)
+- 2026-06-29 20:36 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/36741.shtml)
+- 2026-06-29 20:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/294163916.shtml)
+- 2026-06-29 20:34 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/44645219035.shtml)
+- 2026-06-29 20:15 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/06177764.shtml)
+- 2026-06-29 20:35 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/551218453.shtml)
+- 2026-06-29 20:26 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/92019305.shtml)
+- 2026-06-29 20:27 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/8042605.shtml)
+- 2026-06-29 20:16 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/63180.shtml)
+- 2026-06-29 20:30 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/230733849.shtml)
+- 2026-06-29 20:21 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/5791764624.shtml)
+- 2026-06-29 20:29 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/3921909.shtml)
+- 2026-06-29 20:31 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/455027481.shtml)

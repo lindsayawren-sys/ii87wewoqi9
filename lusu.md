@@ -1,59 +1,58 @@
-# 国台办回应民进党炒作台防务安全
+# 体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。有记者问：近日，岛内民意机构通过上限由1.25兆元新台币降为7800亿元新台币的“军购特别条例”。民进党对此称，遗憾“在野党”将美方与国际的提醒当作耳边风，可能让未来防务安全出现破口。但有舆论质疑，无论通过任何版本的军购预算，都是被美国当成谈判桌上的筹码。请问对此有何评论？ 国台办发言人张晗表示，我们坚决反对台美军事勾连
+DAZN 谋求扩大在美国市场的业务版图 内容速览 DAZN 已同意以约1 亿美元收购科技公司 ViewLift，以此扩张在美国体育市场的影响力。 据知情人士透露，体育媒体平台 DAZN 已达成协议，斥资约 1 亿美元收购科技企业 ViewLift。 总部位于伦敦的 DAZN 覆盖足球、拳击、篮球等体育赛事流媒体业务，服务遍及全球 200 多个国家和地区，目前正致力于打造自身在美
 
 ## 正文
 
-中新网5月13日电 5月13日，国台办举行例行新闻发布会。
+DAZN 谋求扩大在美国市场的业务版图 内容速览 DAZN 已同意以约1 亿美元收购科技公司 ViewLift，以此扩张在美国体育市场的影响力。
 
-有记者问：近日，岛内民意机构通过上限由1.25兆元新台币降为7800亿元新台币的“军购特别条例”。
+据知情人士透露，体育媒体平台 DAZN 已达成协议，斥资约 1 亿美元收购科技企业 ViewLift。
 
-民进党对此称，遗憾“在野党”将美方与国际的提醒当作耳边风，可能让未来防务安全出现破口。
+总部位于伦敦的 DAZN 覆盖足球、拳击、篮球等体育赛事流媒体业务，服务遍及全球 200 多个国家和地区，目前正致力于打造自身在美国体育市场的领军地位。
 
-但有舆论质疑，无论通过任何版本的军购预算，都是被美国当成谈判桌上的筹码。
+此外，用户可通过 DAZN 在海外观看美国国家橄榄球联盟（NFL）赛事转播服务 NFL Game Pass。
 
-请问对此有何评论？
+ViewLift 为美国15 支职业体育队伍、5 家地区体育电视网以及新闻、娱乐类客户提供流媒体技术解决方案。
 
-国台办发言人张晗表示，我们坚决反对台美军事勾连。
+DAZN 押注此次收购将助力其大幅拓展美国业务版图。
 
-民进党当局所谓“防务安全”包藏着“以武谋独”、“以武拒统”的种种祸心，其大肆挥霍台湾老百姓的血汗钱，甘当美国的“提款机”，损害台湾民众切身利益，破坏台海和平稳定。
+ViewLift 创立已有十余年，最初主营电影流媒体业务，后续转型拓展至体育等内容领域。
 
-我们坚决反对台美军事勾连。
+近年来，随着消费者陆续取消有线电视套餐，地方体育电视网深陷经营压力。
 
 ## 相关推荐
 
-- 2026-06-29 20:23 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 20:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 20:17 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 20:08 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 20:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 20:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 20:15 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 20:32 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 20:31 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 20:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 20:18 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 20:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 20:17 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 20:36 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 20:36 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 20:12 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 20:37 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 20:26 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 20:23 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 20:12 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 20:14 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 20:19 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 20:39 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 20:19 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 20:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:17 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/24817.shtml)
-- 2026-06-29 20:32 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/76336.shtml)
-- 2026-06-29 20:08 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/27984.shtml)
-- 2026-06-29 20:26 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/4333372.shtml)
-- 2026-06-29 20:09 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/13841305.shtml)
-- 2026-06-29 20:30 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/62228429.shtml)
-- 2026-06-29 20:06 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/90502988.shtml)
-- 2026-06-29 20:07 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/98452286.shtml)
-- 2026-06-29 20:20 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/497197.shtml)
-- 2026-06-29 20:21 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/77870.shtml)
-- 2026-06-29 20:33 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/897828103.shtml)
-- 2026-06-29 20:10 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/403482363610.shtml)
-- 2026-06-29 20:18 - [一生一世](http://www.blog.minike.top/Article/details/448205.shtml)
-- 2026-06-29 20:35 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/6576724.shtml)
-- 2026-06-29 20:16 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/26890.shtml)
+- 2026-06-29 20:38 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/3961370.shtml)
+- 2026-06-29 20:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/815150.shtml)
+- 2026-06-29 20:28 - [斗破苍穹](http://www.blog.minike.top/Article/details/806542715.shtml)
+- 2026-06-29 20:37 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/4980585.shtml)
+- 2026-06-29 20:15 - [扬名立万](http://www.share.kurohicncr.top/Article/details/49178048.shtml)
+- 2026-06-29 20:41 - [扬名立万](https://www.share.minike.top/Article/details/5927668.shtml)
+- 2026-06-29 20:32 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/14378213306.shtml)
+- 2026-06-29 20:19 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/05383317.shtml)
+- 2026-06-29 20:41 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/407188491884.shtml)
+- 2026-06-29 20:30 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/54426774.shtml)
+- 2026-06-29 20:40 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/64247224.shtml)
+- 2026-06-29 20:40 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/31557.shtml)
+- 2026-06-29 20:23 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/209273346537.shtml)
+- 2026-06-29 20:31 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/9443072.shtml)
+- 2026-06-29 20:18 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/52591451.shtml)

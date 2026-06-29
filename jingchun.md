@@ -1,61 +1,57 @@
-# Beasley出售佛罗里达电台 带动一季度扭亏为盈
+# 昆明果市见闻：“甜果”背后的科研接力
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-Beasley Broadcast Group股价周三走高，此前该公司公布的第一季度财报显示，尽管营收同比下降，但受益于出售佛罗里达州迈尔斯堡电台带来的资产处置收益，公司成功实现扭亏为盈。 财务数据：营收下滑但净利润转正 财报显示，Beasley第一季度净营收为4260万美元，同比下降12.9%。同店基础上营收降幅为6.7%，反映了传统广告市场的持续疲软。 尽管营收下滑，公司报
+中新网昆明5月1日电 (陆希成)5月1日，昆明市五华区一处街角，“果‘燃’很疯狂”水果市集开市。蓝花楹正盛，紫色花影下，坚果、牛油果、蓝莓、青柚等云南高原特色农产品沿街堆陈，市民游客提袋穿行。 来自山东的游客王丽娟左手拎着青柚、坚果，右手端着一杯咖啡。“云南农产品新鲜，价格也实在，这趟没白来。”她说。 云南地处低纬高原，气候类型多样，咖啡、坚果、青柚等热带亚热带果品在此落地生根
 
 ## 正文
 
-Beasley Broadcast Group股价周三走高，此前该公司公布的第一季度财报显示，尽管营收同比下降，但受益于出售佛罗里达州迈尔斯堡电台带来的资产处置收益，公司成功实现扭亏为盈。
+中新网昆明5月1日电 (陆希成)5月1日，昆明市五华区一处街角，“果‘燃’很疯狂”水果市集开市。
 
-财务数据：营收下滑但净利润转正 财报显示，Beasley第一季度净营收为4260万美元，同比下降12.9%。
+蓝花楹正盛，紫色花影下，坚果、牛油果、蓝莓、青柚等云南高原特色农产品沿街堆陈，市民游客提袋穿行。
 
-同店基础上营收降幅为6.7%，反映了传统广告市场的持续疲软。
+来自山东的游客王丽娟左手拎着青柚、坚果，右手端着一杯咖啡。
 
-尽管营收下滑，公司报告期内实现净利润约320万美元，较去年同期270万美元净亏损实现大幅逆转。
+“云南农产品新鲜，价格也实在，这趟没白来。
 
-这一转变主要归因于公司完成出售电台集群所带来的资产处置收益。
+”她说。
 
-不过，调整后EBITDA从去年同期的110万美元降至负40万美元，表明核心业务运营仍面临压力。
+云南地处低纬高原，气候类型多样，咖啡、坚果、青柚等热带亚热带果品在此落地生根，鲜果四季不断。
 
-交易背景：1800万美元出售5家电台 Beasley于2026年2月完成了对迈尔斯堡市场的多台出售交易，总价约1800万美元。
+摆上市集的每一颗，背后大多藏着数十年的育种故事。
 
-两家买方公司共享运营设施，并订有共享服务协议。
+一颗咖啡育出“中国味” 云南省德宏热带农业科学研究所(下称“德宏热作所”)的咖啡故事，从60年前一根扁担、一只搪瓷缸开始。
 
 ## 相关推荐
 
-- 2026-06-29 20:21 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 20:26 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 20:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 20:34 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 20:15 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 20:21 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 20:26 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 20:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 20:08 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 20:16 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 20:15 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 20:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 20:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 20:06 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 20:28 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 20:16 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 20:28 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 20:32 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 20:25 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 20:37 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 20:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 20:26 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 20:31 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 20:21 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 20:22 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 20:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:34 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/6325879.shtml)
-- 2026-06-29 20:25 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/97094176.shtml)
-- 2026-06-29 20:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/2747186664.shtml)
-- 2026-06-29 20:26 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/61967076228.shtml)
-- 2026-06-29 20:06 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/072372.shtml)
-- 2026-06-29 20:16 - [金牌调解](http://www.share.kurohicncr.top/Article/details/1920559.shtml)
-- 2026-06-29 20:30 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/85008.shtml)
-- 2026-06-29 20:06 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/912755342.shtml)
-- 2026-06-29 20:31 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/11731.shtml)
-- 2026-06-29 20:19 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/86946905.shtml)
-- 2026-06-29 20:20 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/548776580.shtml)
-- 2026-06-29 20:07 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/43247806.shtml)
-- 2026-06-29 20:11 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/790016.shtml)
-- 2026-06-29 20:18 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/841439.shtml)
-- 2026-06-29 20:29 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/3444237.shtml)
+- 2026-06-29 20:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/2161095.shtml)
+- 2026-06-29 20:36 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/3035713185.shtml)
+- 2026-06-29 20:30 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/8752564.shtml)
+- 2026-06-29 20:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/62299744.shtml)
+- 2026-06-29 20:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/6029955.shtml)
+- 2026-06-29 20:14 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/22818.shtml)
+- 2026-06-29 20:34 - [女心理师](https://www.share.kurohicncr.top/Article/details/05982767.shtml)
+- 2026-06-29 20:12 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/6852924.shtml)
+- 2026-06-29 20:26 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/67996405651.shtml)
+- 2026-06-29 20:12 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/382566.shtml)
+- 2026-06-29 20:26 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/934771635.shtml)
+- 2026-06-29 20:36 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/07220658380.shtml)
+- 2026-06-29 20:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/361900403.shtml)
+- 2026-06-29 20:16 - [明星大侦探第一季](http://www.share.minike.top/Article/details/1679088.shtml)
+- 2026-06-29 20:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/28144542822.shtml)

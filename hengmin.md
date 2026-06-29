@@ -1,48 +1,60 @@
-# 银行板块震荡上扬，青岛银行等股涨超1%
+# （走进中国乡村）一块豆腐里的千年技艺与乡村新路
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-5月14日金融一线消息，银行板块震荡上扬，青岛银行、沪农商行、建设银行、江苏银行、重庆银行等股涨超1%。责任编辑：王馨茹
+中新社浙江衢州5月3日电 题：一块豆腐里的千年技艺与乡村新路 作者 钱晨菲 叶冠琦 “五一”假期期间，浙江衢州江山市廿八都古镇的豆腐工坊里人声鼎沸，单日接待游客超3800人次，豆浆冰淇淋摊前排起长队。石磨转动的吱呀声和着游客的欢笑声，让这座古镇格外热闹。 这番热闹，始于每天清晨。本地豆子在山泉水里浸泡一夜，吸足了水分。制作师傅姜翰珊一推石磨，醇厚的豆香便缓缓弥漫开来。 泉水泡豆
 
 ## 正文
 
-5月14日金融一线消息，银行板块震荡上扬，青岛银行、沪农商行、建设银行、江苏银行、重庆银行等股涨超1%。
+中新社浙江衢州5月3日电 题：一块豆腐里的千年技艺与乡村新路 作者 钱晨菲 叶冠琦 “五一”假期期间，浙江衢州江山市廿八都古镇的豆腐工坊里人声鼎沸，单日接待游客超3800人次，豆浆冰淇淋摊前排起长队。
 
-责任编辑：王馨茹
+石磨转动的吱呀声和着游客的欢笑声，让这座古镇格外热闹。
+
+这番热闹，始于每天清晨。
+
+本地豆子在山泉水里浸泡一夜，吸足了水分。
+
+制作师傅姜翰珊一推石磨，醇厚的豆香便缓缓弥漫开来。
+
+泉水泡豆、手推石磨、柴火灶煮浆、布砖压制……廿八都豆腐的制作通常要花上两个半小时才能完成。
+
+这一传统豆腐制作工艺，如今已是衢州市级非物质文化遗产。
+
+豆腐制作在中国已有两千多年的历史，廿八都人至今仍坚持着古法技艺。
 
 ## 相关推荐
 
-- 2026-06-29 20:07 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 20:31 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 20:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 20:16 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 20:11 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 20:21 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 20:10 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 20:21 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 20:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 20:19 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 20:24 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 20:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 20:09 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 20:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 20:30 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 20:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 20:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 20:17 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 20:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 20:39 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 20:37 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 20:35 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 20:17 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 20:39 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 20:17 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 20:22 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 20:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 20:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:14 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/2872643.shtml)
-- 2026-06-29 20:23 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/75332980416.shtml)
-- 2026-06-29 20:21 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/22410537.shtml)
-- 2026-06-29 20:08 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/47320250.shtml)
-- 2026-06-29 20:19 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/961370.shtml)
-- 2026-06-29 20:24 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/55916223.shtml)
-- 2026-06-29 20:27 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/4723339.shtml)
-- 2026-06-29 20:17 - [千与千寻](http://www.share.minike.top/Article/details/192508331747.shtml)
-- 2026-06-29 20:11 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/765230640529.shtml)
-- 2026-06-29 20:14 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/654866.shtml)
-- 2026-06-29 20:09 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/3818631.shtml)
-- 2026-06-29 20:10 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/861163570828.shtml)
-- 2026-06-29 20:18 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/184471.shtml)
-- 2026-06-29 20:15 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/3758575.shtml)
-- 2026-06-29 20:25 - [周生如故](https://www.share.kurohicncr.top/Article/details/05771640.shtml)
+- 2026-06-29 20:31 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/671870343.shtml)
+- 2026-06-29 20:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/06707.shtml)
+- 2026-06-29 20:34 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/43024.shtml)
+- 2026-06-29 20:28 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/091281.shtml)
+- 2026-06-29 20:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/79320.shtml)
+- 2026-06-29 20:41 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/4481533958.shtml)
+- 2026-06-29 20:20 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/57644339976.shtml)
+- 2026-06-29 20:33 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/6955992473.shtml)
+- 2026-06-29 20:35 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/993956700.shtml)
+- 2026-06-29 20:13 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/792693641.shtml)
+- 2026-06-29 20:30 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/6467575293.shtml)
+- 2026-06-29 20:14 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/91088182442.shtml)
+- 2026-06-29 20:33 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/958265.shtml)
+- 2026-06-29 20:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/549514434774.shtml)
+- 2026-06-29 20:17 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/814055257177.shtml)

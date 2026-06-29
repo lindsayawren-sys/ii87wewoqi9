@@ -1,56 +1,51 @@
-# 受能源价格飙升影响，印度4月批发物价通胀率创三年半新高
+# 张雪回应德比斯第二回合退赛：机械故障，遗憾退赛，赛车就是这样，一切都有可能发生
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-受中东地区冲突导致能源价格大幅上涨的冲击，印度4月份批发物价通胀率意外攀升至8.3%，创下近三年半以来的最高水平。 这一通胀数据大幅超出市场普遍预期。根据此前预计，外界对该数值的预测均值为4.4%。相较于印度3月份3.88%的整体增速，4月数据呈现显著的加速态势。印度批发物价通胀率上一次触及高位是在2022年10月，当时该指标达到8.67%。 分项数据显示，4月份燃料和电力价格
+3日晚，张雪发视频回应德比斯第二回合退赛：机械故障，遗憾退赛。赛车就是这样，一切都有可能发生。在2026世界超级摩托车锦标赛（WSBK）匈牙利站WorldSSP组别第二回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯退赛。 来源：新华社、潇湘晨报·晨视频综合报道
 
 ## 正文
 
-受中东地区冲突导致能源价格大幅上涨的冲击，印度4月份批发物价通胀率意外攀升至8.3%，创下近三年半以来的最高水平。
+3日晚，张雪发视频回应德比斯第二回合退赛：机械故障，遗憾退赛。
 
-这一通胀数据大幅超出市场普遍预期。
+赛车就是这样，一切都有可能发生。
 
-根据此前预计，外界对该数值的预测均值为4.4%。
+在2026世界超级摩托车锦标赛（WSBK）匈牙利站WorldSSP组别第二回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯退赛。
 
-相较于印度3月份3.88%的整体增速，4月数据呈现显著的加速态势。
-
-印度批发物价通胀率上一次触及高位是在2022年10月，当时该指标达到8.67%。
-
-分项数据显示，4月份燃料和电力价格同比暴涨24.71%，较3月份1.05%的涨幅出现跃升；制造品价格的同比涨幅也从3月份的3.39%进一步扩大至4.62%。
-
-在民生消费领域，4月份批发食品价格同比上涨2.31%，略高于3月份1.85%的涨幅；蔬菜价格涨速有所回落，当月同比仅微涨0.53%，而前一个月的涨幅为1.45%。
-
-责任编辑：龙运翔
+来源：新华社、潇湘晨报·晨视频综合报道
 
 ## 相关推荐
 
-- 2026-06-29 20:07 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 20:19 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 20:26 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 20:11 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 20:16 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 20:19 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 20:18 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 20:35 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 20:25 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 20:30 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 20:34 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 20:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 20:39 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 20:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 20:17 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 20:18 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 20:26 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 20:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 20:14 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 20:34 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 20:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 20:26 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 20:34 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:33 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/53754417.shtml)
-- 2026-06-29 20:08 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/9562474.shtml)
-- 2026-06-29 20:22 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/9336399099.shtml)
-- 2026-06-29 20:16 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/845943760941.shtml)
-- 2026-06-29 20:27 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/04884636.shtml)
-- 2026-06-29 20:29 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/59276.shtml)
-- 2026-06-29 20:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/4501697.shtml)
-- 2026-06-29 20:14 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/13502119.shtml)
-- 2026-06-29 20:14 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/59471.shtml)
-- 2026-06-29 20:27 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/617222.shtml)
-- 2026-06-29 20:07 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/9075199.shtml)
-- 2026-06-29 20:15 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/636603352275.shtml)
-- 2026-06-29 20:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/332625.shtml)
-- 2026-06-29 20:30 - [沉睡花园](http://www.share.minike.top/Article/details/785804270090.shtml)
-- 2026-06-29 20:24 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/9423330166.shtml)
+- 2026-06-29 20:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/298478662238.shtml)
+- 2026-06-29 20:13 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/289438092196.shtml)
+- 2026-06-29 20:41 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/12784257374.shtml)
+- 2026-06-29 20:31 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/478919339406.shtml)
+- 2026-06-29 20:18 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/18253.shtml)
+- 2026-06-29 20:24 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/2982688.shtml)
+- 2026-06-29 20:28 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/2287802647.shtml)
+- 2026-06-29 20:12 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/97978.shtml)
+- 2026-06-29 20:27 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/6135652.shtml)
+- 2026-06-29 20:34 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/25298.shtml)
+- 2026-06-29 20:38 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/57996510.shtml)
+- 2026-06-29 20:26 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/5930901.shtml)
+- 2026-06-29 20:35 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/91149165.shtml)
+- 2026-06-29 20:28 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/666316578.shtml)
+- 2026-06-29 20:38 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/231590536.shtml)

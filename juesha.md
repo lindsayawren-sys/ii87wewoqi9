@@ -1,57 +1,59 @@
-# 第八届西洽会将在重庆举行 首设生产性服务业独立展区
+# 特朗普变卦 转而提名妮科尔·萨菲尔担任卫生局局长
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月14日电 (梁钦卿)重庆市政府新闻办在14日举行的新闻发布会上透露，第八届中国西部国际投资贸易洽谈会(下称“西洽会”)将于5月21日至24日在重庆举行。今年展会首次设立生产性服务业独立展区，并与产业融合发展展区联动，集中展示低碳环保、现代化物流、检验检测、金融服务、工业设计、高端制造、大健康等前沿成果，推动制造与服务同台展示、双向赋能。 本届西洽会主题为“新西部、
+美国总统唐纳德·特朗普撤回对企业家凯西·米恩斯出任公共卫生局局长的提名，并提名放射科医生妮科尔·萨菲尔接替。 特朗普在Truth Social上宣布了这一消息。萨菲尔现任新泽西州Memorial Sloan Kettering Monmouth的乳腺影像主任，同时也是福克斯新闻撰稿人。公共卫生局局长历来在公共卫生传播中发挥主导作用，并负责管理一支由受委任卫生官员组成的队伍。 特
 
 ## 正文
 
-中新网重庆5月14日电 (梁钦卿)重庆市政府新闻办在14日举行的新闻发布会上透露，第八届中国西部国际投资贸易洽谈会(下称“西洽会”)将于5月21日至24日在重庆举行。
+美国总统唐纳德·特朗普撤回对企业家凯西·米恩斯出任公共卫生局局长的提名，并提名放射科医生妮科尔·萨菲尔接替。
 
-今年展会首次设立生产性服务业独立展区，并与产业融合发展展区联动，集中展示低碳环保、现代化物流、检验检测、金融服务、工业设计、高端制造、大健康等前沿成果，推动制造与服务同台展示、双向赋能。
+特朗普在Truth Social上宣布了这一消息。
 
-本届西洽会主题为“新西部、新制造、新服务”，将举办开幕式、主题活动、投资贸易对接、消费促进等活动近40场。
+萨菲尔现任新泽西州Memorial Sloan Kettering Monmouth的乳腺影像主任，同时也是福克斯新闻撰稿人。
 
-展会邀请英国担任主宾国，四川省为常设主宾省，韩国京畿道担任主宾城。
+公共卫生局局长历来在公共卫生传播中发挥主导作用，并负责管理一支由受委任卫生官员组成的队伍。
 
-展会共设综合形象、生产性服务业、产业融合发展、国际和区域合作四大主题展区，展览面积达11万平方米，系统呈现重庆建设“33618”现代制造业集群体系和推进“416”科技创新布局的标志性成果。
+特朗普撤回提名的举动对卫生部长小罗伯特·F·肯尼迪的支持者来说是一次打击，尽管其政府近期已向所谓“让美国更健康”（Make America Healthy Again，简称MAHA）运动的知名倡导者示好。
 
-综合形象展区重点展示人工智能、低空经济、动力装备、先进材料等领域的新技术、新业态、新模式。
+反农药活动人士凯利·赖尔森在短信中表示：“共和党参议员没有支持凯西的提名，这对MAHA来说是巨大的失望和打击。
 
-在投资洽谈方面，本届西洽会全面升级全球采购对接机制，围绕智能网联新能源汽车、现代物流、大健康、新能源、食品及农产品加工、企业出海等六大领域，开设专场对接会。
+” “MAHA会在中期选举中记住这一点，”赖尔森说。
 
-定向邀请巴西、缅甸、韩国、马来西亚等20余个国家和地区的逾百家优质企业发布采购清单，并首次覆盖加纳、吉尔吉斯斯坦、津巴布韦等新兴市场。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 20:34 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 20:08 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 20:22 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 20:06 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 20:23 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 20:32 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 20:34 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 20:35 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 20:15 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 20:07 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 20:06 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 20:27 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 20:12 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 20:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 20:19 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 20:37 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 20:14 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 20:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 20:20 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 20:16 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 20:41 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 20:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 20:33 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 20:33 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:27 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/04284570.shtml)
-- 2026-06-29 20:13 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/686500807133.shtml)
-- 2026-06-29 20:14 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/992038136.shtml)
-- 2026-06-29 20:21 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/55728787038.shtml)
-- 2026-06-29 20:18 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/886274192.shtml)
-- 2026-06-29 20:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/9817552.shtml)
-- 2026-06-29 20:33 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/60851205.shtml)
-- 2026-06-29 20:33 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/7307173.shtml)
-- 2026-06-29 20:08 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/081379652380.shtml)
-- 2026-06-29 20:34 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/442678.shtml)
-- 2026-06-29 20:35 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/89947.shtml)
-- 2026-06-29 20:36 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/10339319.shtml)
-- 2026-06-29 20:07 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/887321490790.shtml)
-- 2026-06-29 20:29 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/68535.shtml)
-- 2026-06-29 20:09 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/99204.shtml)
+- 2026-06-29 20:13 - [李思潼：不会介意大家夸我运气好](http://www.blog.minike.top/Article/details/505408957762.shtml)
+- 2026-06-29 20:38 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/8435951.shtml)
+- 2026-06-29 20:29 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/85396307.shtml)
+- 2026-06-29 20:39 - [恋与深空致歉](https://www.share.minike.top/Article/details/66005824.shtml)
+- 2026-06-29 20:12 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/29355.shtml)
+- 2026-06-29 20:19 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/457041905822.shtml)
+- 2026-06-29 20:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.kurohicncr.top/Article/details/2932191637.shtml)
+- 2026-06-29 20:22 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/5673744930.shtml)
+- 2026-06-29 20:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/532095644.shtml)
+- 2026-06-29 20:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/6892245242.shtml)
+- 2026-06-29 20:17 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/347291601.shtml)
+- 2026-06-29 20:32 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/4742820536.shtml)
+- 2026-06-29 20:29 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/2819294794.shtml)
+- 2026-06-29 20:38 - [爱很美味](https://www.share.kurohicncr.top/Article/details/478961.shtml)
+- 2026-06-29 20:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/26598804362.shtml)

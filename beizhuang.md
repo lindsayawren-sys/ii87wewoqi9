@@ -1,61 +1,57 @@
-# 曾获Millennium支持的对冲基金从香港顶级写字楼退租
+# 英国央行面对能源冲击维持利率不变，警告通胀风险
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-Millennium Management撤资约一年后，香港对冲基金Pamalican Asset Management从租金昂贵的写字楼搬出。 根据土地登记文件，这家由高盛前高管Jamie Goodman领导的公司今年3月放弃在The Henderson写字楼的租约。这份为期三年的租赁合同原本应持续到2027年7月，并附带续租选项。 另一份备案文件显示，Pamalican已迁
+英国央行周四宣布，货币政策委员会以8比1的投票结果决定将基准利率维持在3.75%不变，但警告中东冲突导致的能源价格飙升可能推高通胀，释放出偏“鹰派”的观望信号。 此次决策符合市场普遍预期，但内部分歧明显，首席经济学家休·皮尔投票支持加息25个基点至4%，反映出对通胀第二轮效应的深切担忧。英国央行在声明中明确指出，货币政策虽无法左右全球能源价格，但必须确保能源冲击不演变为持续性通
 
 ## 正文
 
-Millennium Management撤资约一年后，香港对冲基金Pamalican Asset Management从租金昂贵的写字楼搬出。
+英国央行周四宣布，货币政策委员会以8比1的投票结果决定将基准利率维持在3.75%不变，但警告中东冲突导致的能源价格飙升可能推高通胀，释放出偏“鹰派”的观望信号。
 
-根据土地登记文件，这家由高盛前高管Jamie Goodman领导的公司今年3月放弃在The Henderson写字楼的租约。
+此次决策符合市场普遍预期，但内部分歧明显，首席经济学家休·皮尔投票支持加息25个基点至4%，反映出对通胀第二轮效应的深切担忧。
 
-这份为期三年的租赁合同原本应持续到2027年7月，并附带续租选项。
+英国央行在声明中明确指出，货币政策虽无法左右全球能源价格，但必须确保能源冲击不演变为持续性通胀，最终锚定2%的中期通胀目标。
 
-另一份备案文件显示，Pamalican已迁至中环公爵大厦的一个套间，距离原办公地点仅数个街区。
+数据显示，受燃料成本上涨推动，英国3月CPI通胀率已升至3.3%，预计今年晚些时候将进一步走高。
 
-Goodman于2024年创立了这家公司，获Millennium注资5亿美元，成为年度最受瞩目的对冲基金初创公司之一。
+英国央行强调，目前存在物价和工资出现“实质性第二轮效应”的风险，即企业转嫁成本、工人要求加薪，政策必须对此加以遏制。
 
-而Pamalican开始交易八个月之后，Millennium Management决定撤资，之后不得不向其他投资者筹集资金。
+不过，经济活动的持续疲软和劳动力市场的松动将在一定程度上限制这些效应的强度。
 
-恒基兆业旗下的The Henderson大楼由扎哈·哈迪德建筑事务所设计。
+由于战争走向存在高度不确定性，英国央行本次放弃了单一的核心预测，而是根据能源价格走势和“第二轮效应”强度构建了三种情景。
 
-根据公司2025年年报，这座大厦出租率为95%。
+在最严重的“情景C”下，油价攀升至130美元/桶并长期维持，通胀可能在2027年初突破6%，届时将需要“显著收紧”货币政策，代价是经济增长放缓和失业上升。
 
 ## 相关推荐
 
-- 2026-06-29 20:27 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 20:35 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 20:23 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 20:11 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 20:21 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 20:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 20:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 20:17 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 20:11 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 20:33 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 20:29 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 20:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 20:30 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 20:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 20:35 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 20:22 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 20:27 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 20:14 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 20:30 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 20:40 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 20:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 20:21 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 20:36 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 20:33 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 20:16 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 20:28 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:25 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/5117135.shtml)
-- 2026-06-29 20:09 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/6943873.shtml)
-- 2026-06-29 20:31 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/1244751.shtml)
-- 2026-06-29 20:25 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/7501957.shtml)
-- 2026-06-29 20:35 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/399143.shtml)
-- 2026-06-29 20:29 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/69169.shtml)
-- 2026-06-29 20:34 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/818831556786.shtml)
-- 2026-06-29 20:18 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/456671156.shtml)
-- 2026-06-29 20:11 - [小娘惹](https://www.share.minike.top/Article/details/411448622998.shtml)
-- 2026-06-29 20:27 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/38222.shtml)
-- 2026-06-29 20:31 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/6592761.shtml)
-- 2026-06-29 20:26 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/6830238916.shtml)
-- 2026-06-29 20:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/969783789397.shtml)
-- 2026-06-29 20:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/854229932372.shtml)
-- 2026-06-29 20:25 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/7990975.shtml)
+- 2026-06-29 20:21 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/467057203440.shtml)
+- 2026-06-29 20:18 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/50389547125.shtml)
+- 2026-06-29 20:35 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/57705818.shtml)
+- 2026-06-29 20:24 - [新官上任三把火](https://www.share.minike.top/Article/details/720433472234.shtml)
+- 2026-06-29 20:19 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/5291351156.shtml)
+- 2026-06-29 20:13 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/28979265385.shtml)
+- 2026-06-29 20:22 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/53794.shtml)
+- 2026-06-29 20:27 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/81088330.shtml)
+- 2026-06-29 20:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/882831595.shtml)
+- 2026-06-29 20:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/038046172.shtml)
+- 2026-06-29 20:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/366081228.shtml)
+- 2026-06-29 20:13 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/48981646.shtml)
+- 2026-06-29 20:20 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/5618278.shtml)
+- 2026-06-29 20:26 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/323042387.shtml)
+- 2026-06-29 20:37 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/76661289.shtml)

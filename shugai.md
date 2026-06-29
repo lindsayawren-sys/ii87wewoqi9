@@ -1,57 +1,52 @@
-# CIBF2026规模攀新高 展现全球电池产业生态
+# 铁路上海站迎来“五一”假期客流最高峰 预计发送旅客82.8万人次
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月13日电 (记者 索有为)第十八届深圳国际电池技术交流会/展览会(CIBF2026)13日在深圳国际会展中心开幕。展会规模再攀历史新高，展出面积约28万平方米，参展企业近3200家。展会专设国际馆，吸引了90多个国家和地区的客商参与。 CIBF2026由中国化学与物理电源行业协会主办、天津中电新能源研究院有限公司承办，以“链动全球·赋能绿色·驱动未来”为主题，聚焦
+中新网上海5月1日电 (殷立勤 过云松)记者从铁路上海站(下辖上海站、上海南站、上海虹桥站、上海松江站、上海西站、南翔北站、安亭北站、安亭西站、金山北站、练塘站)获悉，5月1日，铁路上海站迎来“五一”假期客流最高峰，预计发送旅客82.8万人次(上海站21.3万人次，上海南站12.5万人次，上海虹桥站42.5万人次，上海松江站5.9万人次)。 为满足旅客出行需求，铁路上海站当日增
 
 ## 正文
 
-中新网深圳5月13日电 (记者 索有为)第十八届深圳国际电池技术交流会/展览会(CIBF2026)13日在深圳国际会展中心开幕。
+中新网上海5月1日电 (殷立勤 过云松)记者从铁路上海站(下辖上海站、上海南站、上海虹桥站、上海松江站、上海西站、南翔北站、安亭北站、安亭西站、金山北站、练塘站)获悉，5月1日，铁路上海站迎来“五一”假期客流最高峰，预计发送旅客82.8万人次(上海站21.3万人次，上海南站12.5万人次，上海虹桥站42.5万人次，上海松江站5.9万人次)。
 
-展会规模再攀历史新高，展出面积约28万平方米，参展企业近3200家。
+为满足旅客出行需求，铁路上海站当日增开安徽、徐州、甬台温、江西、中原、湖北等方向旅客列车140列。
 
-展会专设国际馆，吸引了90多个国家和地区的客商参与。
+5月2日0时至5时期间增开旅客列车36列(上海站6列、上海南站4列、上海虹桥站25列、上海松江站1列)。
 
-CIBF2026由中国化学与物理电源行业协会主办、天津中电新能源研究院有限公司承办，以“链动全球·赋能绿色·驱动未来”为主题，聚焦新型能源体系建设与绿色低碳发展，汇聚全球产业链资源，服务电池产业高质量发展，预计3天累计到访的专业观众将超过35万人次。
+为应对旅客出行高峰，铁路上海站全面升级服务举措，持续深化“畅通工程”，结合实际客流动态，灵活设置旅客进出站流线，最大限度缩短旅客进站时间。
 
-展会覆盖动力电池、储能电池、3C消费电池、燃料电池、电池正负极材料、电解液、隔膜、智能生产装备、检测测试设备、回收循环利用、系统集成解决方案等全产业链细分领域，全方位展现全球电池产业生态与实力。
+5月1日还将投入200多名志愿者，全力做好问询指引和重点旅客服务，并结合加开列车需求开放夜间候车服务，不间断提供热水、充电、照明等基础服务，满足夜间及凌晨出行旅客的候乘需求，营造安全有序、温馨顺畅的假日出行环境。
 
-在技术展示方面，CIBF2026全景呈现电池产业创新突破。
-
-在固态电池领域，观众可零距离触摸固态电池电解质攻关、干法电极设备创新等“从0到1”的突破；在钠电池领域，规模化应用的最新成果悉数展示；在锂电池领域，高镍三元、硅基负极等核心材料的创新突破全面呈现。
-
-针对新型储能系统，展会集中展示大容量储能系统、储能电池关键技术及工程化应用成果，助力破解储能发展瓶颈，推动储能行业从“装机导向”向“效益导向”转型。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 20:11 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 20:08 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 20:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 20:33 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 20:11 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 20:14 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 20:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 20:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 20:27 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 20:33 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 20:17 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 20:18 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 20:34 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 20:36 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 20:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 20:39 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 20:26 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 20:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 20:34 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 20:32 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:21 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/790190600.shtml)
-- 2026-06-29 20:12 - [女心理师](https://www.blog.kurohicncr.top/Article/details/15038095406.shtml)
-- 2026-06-29 20:28 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/17397650.shtml)
-- 2026-06-29 20:18 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/051753111.shtml)
-- 2026-06-29 20:17 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/6208306.shtml)
-- 2026-06-29 20:34 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/16435408.shtml)
-- 2026-06-29 20:15 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/2688791944.shtml)
-- 2026-06-29 20:12 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/466234385.shtml)
-- 2026-06-29 20:31 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/125356.shtml)
-- 2026-06-29 20:14 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/245103.shtml)
-- 2026-06-29 20:17 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/663500888484.shtml)
-- 2026-06-29 20:12 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/877623.shtml)
-- 2026-06-29 20:21 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/194643032.shtml)
-- 2026-06-29 20:07 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/941760.shtml)
-- 2026-06-29 20:19 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/811672020.shtml)
+- 2026-06-29 20:38 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/85657409.shtml)
+- 2026-06-29 20:26 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/76056.shtml)
+- 2026-06-29 20:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/646791.shtml)
+- 2026-06-29 20:24 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/69743765314.shtml)
+- 2026-06-29 20:18 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/8452743.shtml)
+- 2026-06-29 20:16 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/41794662.shtml)
+- 2026-06-29 20:14 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/929337005.shtml)
+- 2026-06-29 20:14 - [CORTIS 小牌大耍](http://www.blog.kurohicncr.top/Article/details/098020925.shtml)
+- 2026-06-29 20:28 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/98352633252.shtml)
+- 2026-06-29 20:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/2163599.shtml)
+- 2026-06-29 20:16 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/7523902.shtml)
+- 2026-06-29 20:17 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.minike.top/Article/details/21923837.shtml)
+- 2026-06-29 20:21 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/81507195264.shtml)
+- 2026-06-29 20:25 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/4018842.shtml)
+- 2026-06-29 20:18 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/885583.shtml)

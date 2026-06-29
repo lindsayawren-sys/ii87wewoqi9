@@ -1,57 +1,44 @@
-# 全球媒体聚焦︱外媒：中美保持建设性关系至关重要
+# 习言道｜要以更大力度、更实举措加强基础研究
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。这是中美两国元首继去年10月韩国釜山之后再次面对面会晤，备受国际舆论关注。 美国消费者新闻与商业频道(CNBC)13日对特朗普总统抵达北京开启访华行程进行了详细报道，在接受采访时，美国蒙大拿州共和党联邦参议员戴安斯表示，美中双方缓和关系而非脱钩，符合各自利益。他说，美中是全球最大的两个经济体，美中关系是世界上最重
+中共中央总书记、国家主席、中央军委主席习近平4月30日在上海出席加强基础研究座谈会并发表重要讲话。他强调——
 
 ## 正文
 
-美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。
+中共中央总书记、国家主席、中央军委主席习近平4月30日在上海出席加强基础研究座谈会并发表重要讲话。
 
-这是中美两国元首继去年10月韩国釜山之后再次面对面会晤，备受国际舆论关注。
-
-美国消费者新闻与商业频道(CNBC)13日对特朗普总统抵达北京开启访华行程进行了详细报道，在接受采访时，美国蒙大拿州共和党联邦参议员戴安斯表示，美中双方缓和关系而非脱钩，符合各自利益。
-
-他说，美中是全球最大的两个经济体，美中关系是世界上最重要的双边关系，美中保持建设性关系至关重要。
-
-美中贸易全国委员会主席肖恩·斯坦在接受美国公共广播公司(PBS)采访时表示，两国元首对话总能带来好的结果。
-
-他非常乐观地认为，两国元首将在许多领域找到一个良好的契机。
-
-“两国最需要的莫过于稳定。
-
-两国元首的对话将为两国关系注入稳定，这将有利于两国关系行稳致远。
+他强调——
 
 ## 相关推荐
 
-- 2026-06-29 20:08 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 20:35 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 20:32 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 20:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 20:33 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 20:34 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 20:27 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 20:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 20:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 20:23 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 20:32 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 20:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 20:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 20:18 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 20:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 20:27 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 20:14 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 20:40 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 20:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 20:31 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 20:16 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:13 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/019945651413.shtml)
-- 2026-06-29 20:16 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/40533.shtml)
-- 2026-06-29 20:13 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/374975.shtml)
-- 2026-06-29 20:07 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/221623611.shtml)
-- 2026-06-29 20:14 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/622946658902.shtml)
-- 2026-06-29 20:27 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/35582279.shtml)
-- 2026-06-29 20:10 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/721229547282.shtml)
-- 2026-06-29 20:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/640741946.shtml)
-- 2026-06-29 20:19 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/1775359.shtml)
-- 2026-06-29 20:33 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/7612634904.shtml)
-- 2026-06-29 20:07 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/980449.shtml)
-- 2026-06-29 20:20 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/804574926151.shtml)
-- 2026-06-29 20:28 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/29331307979.shtml)
-- 2026-06-29 20:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/130413530.shtml)
-- 2026-06-29 20:06 - [一见倾心](http://www.blog.minike.top/Article/details/78942403.shtml)
+- 2026-06-29 20:15 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/0314060809.shtml)
+- 2026-06-29 20:29 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/24700505387.shtml)
+- 2026-06-29 20:17 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/21758.shtml)
+- 2026-06-29 20:35 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/347313579438.shtml)
+- 2026-06-29 20:39 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/94253430.shtml)
+- 2026-06-29 20:18 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/7293885.shtml)
+- 2026-06-29 20:15 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/885980574.shtml)
+- 2026-06-29 20:37 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/616456476863.shtml)
+- 2026-06-29 20:36 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/2931025.shtml)
+- 2026-06-29 20:28 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/723142133.shtml)
+- 2026-06-29 20:35 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/122576.shtml)
+- 2026-06-29 20:30 - [扬名立万](https://www.blog.minike.top/Article/details/384160367.shtml)
+- 2026-06-29 20:37 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/154431.shtml)
+- 2026-06-29 20:12 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.minike.top/Article/details/03095319.shtml)
+- 2026-06-29 20:23 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/46597549.shtml)

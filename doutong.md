@@ -1,57 +1,52 @@
-# 中国新闻社参评第36届中国新闻奖作品公示
+# 福建宁德活水鱼出口迎高峰 前4月出口活水鱼超千吨
 
-> 更新时间：2026-06-29 20:36:02 UTC+8
+> 更新时间：2026-06-29 20:42:02 UTC+8
 
 ## 摘要
 
-根据《关于开展第36届中国新闻奖评选工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐7件新闻作品、1件新闻研究作品参加第36届中国新闻奖评选，现予以公示。 公示期为2026年5月13日至5月19日，共5个工作日。如有异议，可以通过书面、电话方式，于5月19日17时前反映。 联系电话：010-68316636 邮箱：zbs@chinanews.com.cn中国新闻奖报
+中新网宁德4月30日电 (杨隆宇)30日，福建宁德口岸三都澳港区迎来新一轮活水渔船出境高峰，满载33.26吨鲈鱼、红鱼、真鲷等鲜活水产品的中国籍“丰海76”轮顺利完成边防检查手续后，出口韩国市场。 宁德市腾源水产有限公司副总经理吴迪寿称，通关效率就是渔业竞争力，服务质量就是外贸的软实力，感谢边检等口岸部门的通关保障，才让他们水产企业的出海经营更有底气。 据悉，随着宁德三都澳“海
 
 ## 正文
 
-根据《关于开展第36届中国新闻奖评选工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐7件新闻作品、1件新闻研究作品参加第36届中国新闻奖评选，现予以公示。
+中新网宁德4月30日电 (杨隆宇)30日，福建宁德口岸三都澳港区迎来新一轮活水渔船出境高峰，满载33.26吨鲈鱼、红鱼、真鲷等鲜活水产品的中国籍“丰海76”轮顺利完成边防检查手续后，出口韩国市场。
 
-公示期为2026年5月13日至5月19日，共5个工作日。
+宁德市腾源水产有限公司副总经理吴迪寿称，通关效率就是渔业竞争力，服务质量就是外贸的软实力，感谢边检等口岸部门的通关保障，才让他们水产企业的出海经营更有底气。
 
-如有异议，可以通过书面、电话方式，于5月19日17时前反映。
+据悉，随着宁德三都澳“海上牧场”品牌影响力持续提升，闽东特色渔业出口已成为拉动地方外贸增长的重要引擎。
 
-联系电话：010-68316636 邮箱：zbs@chinanews.com.cn中国新闻奖报送作品： 1.《中新社直击现场：西藏地震灾区小女孩捧着热面条笑了》 作者(主创人员)：贡桑拉姆、江飞波、贡嘎来松、王雪尔、方敏 编辑：齐彬、邢一、赵朗 2.《 为何能火到中国台湾？
+今年来，宁德口岸活水渔船出入境数量达到50艘次，出口活水鱼产品1000多吨，同比增长365%，出口货值超5000万元，产品远销韩国市场，呈现出强劲的增长态势。
 
-》 作者(主创人员)：张文晖、曹旭帆 编辑：魏晞 3.《长江“病了”，禁渔五年变样了？
+为破解活水鱼产品出口对通关时效的高要求，宁德边检站主动靠前服务，提前对接水产出口企业与船舶代理单位，全面掌握船舶动态、货物情况与通关需求，为水产产品出口量身定做“绿色通道”，将查验服务前移至作业区域，现场优化查验流程、压缩等待时长，实现船舶即到即检、办结即行，最大限度保障水产鲜活品质，以移民管理担当助力宁德海洋经济高质量发展。
 
-》 作者(主创人员)：邱启媛、徐天、蔡如鹏 编辑：王晨波、文龙杰、郑利文 4.《55岁农妇“辱骂”法官，被罚10万元》 作者(主创人员)：周群峰、徐天、蔡如鹏 编辑：王晨波、文龙杰、郑利文 5.《三里河》 作者(主创人员)：集体(俞岚、吴庆才、周锐、李雨昕、李金磊、查志远、孟湘君、张乃月、宫宏宇、谢艺观) 编辑：集体(翁阳、王庆凯、程春雨、黄蕾) 6.《大爱吾疆》 作者(主创人员)：集体(陈陆军、俞岚、吴庆才、李德华、刘羡、程勇、张舰元、徐洋、任帅、孙静波、莫红娥、陈天浩、刘棣) 编辑：佟瑶、李雪瑶、倪雯冰 7.《异国“故乡”》 作者(主创人员)：集体(陈陆军、俞岚、齐彬、王玉平、张昂、金美辰、闻奕、罗嗣昱、范思忆、孙恒业、王潮、李晨、曹艳培) 编辑：集体(宋哲、王晓丹、吴兆飞、刁海洋、赵安源、刘璐、赵宇航、于琨、姜禹帆、禹瑞斋、韩浩天、杨毅、李彦国
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 20:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 20:13 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 20:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 20:19 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 20:25 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 20:06 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 20:12 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 20:28 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 20:34 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 20:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 20:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 20:10 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 20:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 20:19 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 20:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 20:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 20:28 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 20:13 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 20:12 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 20:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 20:28 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 20:13 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 20:18 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 20:33 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 20:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:23 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/692681.shtml)
-- 2026-06-29 20:22 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/88568.shtml)
-- 2026-06-29 20:31 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/4297812109.shtml)
-- 2026-06-29 20:26 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/8422618845.shtml)
-- 2026-06-29 20:35 - [周生如故](http://www.share.minike.top/Article/details/82293.shtml)
-- 2026-06-29 20:13 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/4287744687.shtml)
-- 2026-06-29 20:06 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/7036697896.shtml)
-- 2026-06-29 20:23 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/9690958610.shtml)
-- 2026-06-29 20:35 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/7843899.shtml)
-- 2026-06-29 20:17 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/541855811017.shtml)
-- 2026-06-29 20:08 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/833021.shtml)
-- 2026-06-29 20:18 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/615321.shtml)
-- 2026-06-29 20:14 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/02786122773.shtml)
-- 2026-06-29 20:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/20464.shtml)
-- 2026-06-29 20:20 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/132008.shtml)
+- 2026-06-29 20:40 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/30110903.shtml)
+- 2026-06-29 20:38 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/045608087364.shtml)
+- 2026-06-29 20:36 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/420563.shtml)
+- 2026-06-29 20:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/43568100594.shtml)
+- 2026-06-29 20:34 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/19649133392.shtml)
+- 2026-06-29 20:12 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/89462806322.shtml)
+- 2026-06-29 20:28 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/27403810.shtml)
+- 2026-06-29 20:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/4617246273.shtml)
+- 2026-06-29 20:34 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/3866034.shtml)
+- 2026-06-29 20:29 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/102892465.shtml)
+- 2026-06-29 20:32 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/023557099555.shtml)
+- 2026-06-29 20:16 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/30054.shtml)
+- 2026-06-29 20:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/396034.shtml)
+- 2026-06-29 20:31 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/74815342.shtml)
+- 2026-06-29 20:33 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/98894.shtml)
