@@ -1,50 +1,59 @@
-# “十五五”重点培育三类数字产业集群
+# 从“城市矿山”中“碳”索未来 沪高校沉浸式思政课赋能绿色育人
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-今天，《中国数字经济创新型企业发展报告〔2026〕》在福州发布，国家数据局负责人表示，“十五五”期间，将重点培育三类数字产业集群。 据了解，国家数据局今年已会同国家发展改革委等有关部门开展首批数字经济创新型企业培育工作，将在创新研发、企业出海、人才培育、监管方式等方面，建立更加开放包容审慎的政策环境；“十五五”期间，将重点培育创新引领型、区域支柱型和区域特色型三类数字产业集群，
+中新网上海5月29日电(记者 许婧)废弃的旧手机、淘汰的洗衣机、闲置的笔记本电脑……在许多人眼中，这些是毫无用处的“电子垃圾”。但在上海第二工业大学的师生看来，它们却是蕴藏着金、银、铜等宝贵资源的“城市矿山”。29日，一场以“万物循环 ‘碳’索未来”为主题的生态文明展览在上海第二工业大学拉开帷幕，一堂生态文明沉浸式大思政课同时开讲。 活动旨在将“科普新知”与“立德树人”深度融合
 
 ## 正文
 
-今天，《中国数字经济创新型企业发展报告〔2026〕》在福州发布，国家数据局负责人表示，“十五五”期间，将重点培育三类数字产业集群。
+中新网上海5月29日电(记者 许婧)废弃的旧手机、淘汰的洗衣机、闲置的笔记本电脑……在许多人眼中，这些是毫无用处的“电子垃圾”。
 
-据了解，国家数据局今年已会同国家发展改革委等有关部门开展首批数字经济创新型企业培育工作，将在创新研发、企业出海、人才培育、监管方式等方面，建立更加开放包容审慎的政策环境；“十五五”期间，将重点培育创新引领型、区域支柱型和区域特色型三类数字产业集群，塑造我国数字经济竞争新优势。
+但在上海第二工业大学的师生看来，它们却是蕴藏着金、银、铜等宝贵资源的“城市矿山”。
 
-数字经济核心产业规模占GDP比重超10.5% 目前，我国数字经济核心产业规模已突破14.7万亿元，占GDP比重提升至10.5%以上。
+29日，一场以“万物循环 ‘碳’索未来”为主题的生态文明展览在上海第二工业大学拉开帷幕，一堂生态文明沉浸式大思政课同时开讲。
 
-数字经济核心产业企业呈快速增长之势，数字经济创新型企业快速涌现。
+活动旨在将“科普新知”与“立德树人”深度融合，通过设备模型、实物拆解、艺术创作、视频课程等多元形式，将“双碳”战略、无废城市建设、资源安全等宏大命题转化为可观、可感、可学的育人资源。
 
-国家数据发展研究院数据资源研究部主任 王威：数字经济创新型企业是以数据为关键生产要素，以数字技术创新、应用场景创新、数据价值创新为核心驱动力，具备高敏捷性和高成长性的企业，2025年，在被调查的数创企业中，研发人员平均占一半以上，超六成企业研发强度超过15%，约45.6%的潜在独角兽型数创企业拥有省级以上研发机构。
+上海第二工业大学党委书记陆敏回顾了学校自2004年设立国内首个电子废物资源化方向以来，二十年磨一剑的奋斗历程。
+
+他强调，学校主导制定国家行业标准5项，获发明专利160余项，年处理电子废物超10万吨，这些数据不仅是科研实力的体现，更是开展“大思政课”最鲜活的素材。
+
+“电子废弃物含金量是天然金矿的17倍，含铜量是天然铜矿的40倍。
+
+仅一吨废旧电路板，黄金含量就能达到80克至1500克。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 02:02 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 01:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 01:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 01:37 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 02:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 01:42 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 01:56 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 01:55 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 01:38 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 01:57 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 02:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 02:03 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 02:07 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 02:01 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 02:09 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 01:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 01:59 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 01:43 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 01:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 01:47 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 01:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 01:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/28294150.shtml)
-- 2026-06-30 01:58 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/667465259.shtml)
-- 2026-06-30 02:05 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/63986.shtml)
-- 2026-06-30 01:57 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/4133406438.shtml)
-- 2026-06-30 01:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/3298390891.shtml)
-- 2026-06-30 01:44 - [内马尔替补](https://www.share.minike.top/Article/details/79591.shtml)
-- 2026-06-30 02:03 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/219510933575.shtml)
-- 2026-06-30 01:50 - [逃狱兄弟](http://www.share.minike.top/Article/details/997480635.shtml)
-- 2026-06-30 02:00 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/331445047.shtml)
-- 2026-06-30 01:55 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/275279117673.shtml)
-- 2026-06-30 01:57 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/117087.shtml)
-- 2026-06-30 01:38 - [请回答王牌2019](https://www.blog.minike.top/Article/details/43749.shtml)
-- 2026-06-30 01:43 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/83777.shtml)
-- 2026-06-30 01:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/58554.shtml)
-- 2026-06-30 01:43 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/042891478.shtml)
+- 2026-06-30 01:44 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/4491060.shtml)
+- 2026-06-30 02:02 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/907802199.shtml)
+- 2026-06-30 02:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/188088078749.shtml)
+- 2026-06-30 01:43 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/33851033052.shtml)
+- 2026-06-30 02:05 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/7803834.shtml)
+- 2026-06-30 01:51 - [千香](https://www.share.minike.top/Article/details/8613779024.shtml)
+- 2026-06-30 01:57 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/1120105141.shtml)
+- 2026-06-30 02:07 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/26402085200.shtml)
+- 2026-06-30 01:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/33243154337.shtml)
+- 2026-06-30 01:45 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/57264348.shtml)
+- 2026-06-30 02:02 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/46358538.shtml)
+- 2026-06-30 02:00 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/62779099.shtml)
+- 2026-06-30 01:54 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/300049631074.shtml)
+- 2026-06-30 02:11 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/86191.shtml)
+- 2026-06-30 01:42 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/92622.shtml)

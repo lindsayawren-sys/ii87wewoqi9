@@ -1,51 +1,59 @@
-# 大美边疆看我家丨云南剑川：滇西明珠 剑湖凝翠
+# 广州航天小镇开工 打造大湾区商业航天增长极
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 11:57 来源：中国新闻网 近日，大理剑川县剑湖湿地天光清朗，和风煦暖。沿岸草木抽芽吐绿，苍翠林木与万里蓝天相映成趣，湖水清碧透亮，各类水鸟自在栖息，勾勒出春日湿地灵动别致的风景线。(来源：剑川县融媒体中心） 责任编辑：【魏聪聪】
+中新社广州5月28日电 (记者 程景伟)广州航天小镇项目28日在广州市黄埔区西基岛开工。项目计划总投资约50亿元人民币，分阶段推进建设，将形成涵盖火箭制造、卫星制造及应用服务的完整产业链，打造粤港澳大湾区商业航天产业重要增长极。当前，商业航天正成为全球科技竞争和产业变革的重要方向。近年来，广东持续加快布局未来产业，着力打造航空航天经济发展高地。广州加快将商业航天纳入战略性新兴产
 
 ## 正文
 
-发布时间：2026年04月29日 11:57 来源：中国新闻网 近日，大理剑川县剑湖湿地天光清朗，和风煦暖。
+中新社广州5月28日电 (记者 程景伟)广州航天小镇项目28日在广州市黄埔区西基岛开工。
 
-沿岸草木抽芽吐绿，苍翠林木与万里蓝天相映成趣，湖水清碧透亮，各类水鸟自在栖息，勾勒出春日湿地灵动别致的风景线。
+项目计划总投资约50亿元人民币，分阶段推进建设，将形成涵盖火箭制造、卫星制造及应用服务的完整产业链，打造粤港澳大湾区商业航天产业重要增长极。
 
-(来源：剑川县融媒体中心） 责任编辑：【魏聪聪】
+当前，商业航天正成为全球科技竞争和产业变革的重要方向。
+
+近年来，广东持续加快布局未来产业，着力打造航空航天经济发展高地。
+
+广州加快将商业航天纳入战略性新兴产业重点布局。
+
+广州航天小镇项目位于广深港澳科技创新走廊关键节点，计划占地面积57.41万平方米，临江靠港，配套两座5000吨级泊位码头，具备大型航天装备运输及高端制造发展条件。
+
+项目重点布局可重复使用航天运输系统、卫星制造及应用等产业方向。
+
+当天，中科宇航可重复使用运载器、航天器与液体发动机项目率先动工，主要建设综合制造厂房、研发办公楼及相关配套设施，计划于2027年建成投产。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 01:46 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 01:45 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 01:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:51 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 01:43 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 01:55 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 02:03 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 01:37 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 01:45 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 02:03 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 01:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 02:02 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 02:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 01:54 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 02:10 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 01:44 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 01:47 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 01:53 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 01:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 01:50 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 02:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 02:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 02:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 02:05 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 01:55 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 01:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 01:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/56130.shtml)
-- 2026-06-30 01:45 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/9184968.shtml)
-- 2026-06-30 01:56 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/6893240.shtml)
-- 2026-06-30 01:45 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/13798846.shtml)
-- 2026-06-30 01:39 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/26024.shtml)
-- 2026-06-30 01:40 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/358602246.shtml)
-- 2026-06-30 01:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/48674.shtml)
-- 2026-06-30 02:00 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/38643080.shtml)
-- 2026-06-30 02:03 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/981247395789.shtml)
-- 2026-06-30 01:53 - [蔚来车主罚站](https://www.share.minike.top/Article/details/09932255.shtml)
-- 2026-06-30 01:53 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/3464795293.shtml)
-- 2026-06-30 01:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/98306474747.shtml)
-- 2026-06-30 01:54 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/18868801348.shtml)
-- 2026-06-30 01:57 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/72880308.shtml)
-- 2026-06-30 01:50 - [小娘惹](http://www.share.kurohicncr.top/Article/details/11380801413.shtml)
+- 2026-06-30 01:54 - [斗破苍穹](https://www.blog.minike.top/Article/details/495703467.shtml)
+- 2026-06-30 01:52 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/6312784784.shtml)
+- 2026-06-30 02:07 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/0264380.shtml)
+- 2026-06-30 01:44 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/57139.shtml)
+- 2026-06-30 01:56 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/4225856138.shtml)
+- 2026-06-30 01:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/777561960514.shtml)
+- 2026-06-30 01:56 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/33508373.shtml)
+- 2026-06-30 01:47 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/11555263475.shtml)
+- 2026-06-30 02:02 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/777473101075.shtml)
+- 2026-06-30 01:42 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/40101674.shtml)
+- 2026-06-30 01:51 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/03581428283.shtml)
+- 2026-06-30 01:49 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/932791295.shtml)
+- 2026-06-30 01:53 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/177225173.shtml)
+- 2026-06-30 01:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/233928050.shtml)
+- 2026-06-30 01:52 - [第一炉香](http://www.blog.minike.top/Article/details/40766914139.shtml)

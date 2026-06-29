@@ -1,52 +1,59 @@
-# 兖矿能源早盘涨逾7% 第一季度归母净利润同比增长42.14%
+# Moneta Markets外汇:贵金属承压看支撑
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-兖矿能源（01171）早盘涨超7%，截至发稿，股价上涨6.82%，现报16.23港元，成交额7.09亿港元。 4月28日晚，兖矿能源公布，2026年第一季度，该集团取得营业收入345.89亿元，同比增加1.83%；归属于上市公司股东的净利润39.55亿元，同比增加42.14%。公司指，一季度市场低位运行期间，公司深度释放“煤化一体”优势，煤化工板块逆势突围、量效齐升，实现化工品
+5月28日，隔夜贵金属市场在美元与收益率变化中重新定价，黄金从高位回落后靠近关键支撑区域。Kitco 5月27日晚间报道显示，现货黄金在4454.80美元附近，日内下跌1.17%，现货白银在74.665美元附近，日内下跌3.00%。报道还表示，Richmond Fed制造业综合指数由4月3升至5月13，原油回落、美股高位和收益率变化共同影响贵金属情绪。技术层面，黄金上方关注45
 
 ## 正文
 
-兖矿能源（01171）早盘涨超7%，截至发稿，股价上涨6.82%，现报16.23港元，成交额7.09亿港元。
+5月28日，隔夜贵金属市场在美元与收益率变化中重新定价，黄金从高位回落后靠近关键支撑区域。
 
-4月28日晚，兖矿能源公布，2026年第一季度，该集团取得营业收入345.89亿元，同比增加1.83%；归属于上市公司股东的净利润39.55亿元，同比增加42.14%。
+Kitco 5月27日晚间报道显示，现货黄金在4454.80美元附近，日内下跌1.17%，现货白银在74.665美元附近，日内下跌3.00%。
 
-公司指，一季度市场低位运行期间，公司深度释放“煤化一体”优势，煤化工板块逆势突围、量效齐升，实现化工品产量261万吨，同比增长4.2%，单季盈利创近四年新高。
+报道还表示，Richmond Fed制造业综合指数由4月3升至5月13，原油回落、美股高位和收益率变化共同影响贵金属情绪。
 
-主要产品甲醇、醋酸单位销售成本同比大幅下降11.2%和15.4%，强力驱动板块盈利逆势上扬。
+技术层面，黄金上方关注4551.10至4600美元区间，下方关注4450、4400和4373美元。
 
-责任编辑：卢昱君
+Moneta Markets外汇认为金价短线并非单一消息驱动，而是避险需求降温、宏观数据偏强与技术位压力共同作用。
+
+从盘面结构看，Moneta Markets外汇认为黄金目前更像是在高位区间内进行压力测试。
+
+报价仍处于历史相对高位附近，但日内跌幅说明资金对追高更谨慎；白银同步回落，也使贵金属板块的波动率保持偏高。
+
+市场数据显示，若金价不能重新站上4550美元附近，短线交易者可能继续围绕4450美元一带观察买盘强度。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 01:42 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 01:38 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 01:45 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-30 01:52 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 01:37 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 01:41 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 02:00 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 01:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 01:53 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 01:36 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 01:54 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 01:57 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 01:43 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 01:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 02:04 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 02:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 02:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 01:59 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 02:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 01:46 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 01:44 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 01:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 01:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/14905.shtml)
-- 2026-06-30 02:03 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/05072191.shtml)
-- 2026-06-30 01:41 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/670958738.shtml)
-- 2026-06-30 01:37 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/856616618.shtml)
-- 2026-06-30 01:41 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/081305549681.shtml)
-- 2026-06-30 01:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/05030.shtml)
-- 2026-06-30 01:54 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/49273810.shtml)
-- 2026-06-30 02:03 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/947821567.shtml)
-- 2026-06-30 01:58 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/56079.shtml)
-- 2026-06-30 01:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/240677.shtml)
-- 2026-06-30 01:40 - [一见倾心](https://www.blog.minike.top/Article/details/018778.shtml)
-- 2026-06-30 01:42 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/52809.shtml)
-- 2026-06-30 01:37 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/391833994.shtml)
-- 2026-06-30 01:36 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/87259903.shtml)
-- 2026-06-30 02:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/79145335.shtml)
+- 2026-06-30 02:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/9052991.shtml)
+- 2026-06-30 01:48 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/11405854842.shtml)
+- 2026-06-30 02:03 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/56621234.shtml)
+- 2026-06-30 01:51 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/94286057.shtml)
+- 2026-06-30 01:51 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/01556222685.shtml)
+- 2026-06-30 01:57 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/077116.shtml)
+- 2026-06-30 01:49 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/028483231.shtml)
+- 2026-06-30 01:50 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/920491.shtml)
+- 2026-06-30 01:46 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/36966.shtml)
+- 2026-06-30 01:46 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/63268130700.shtml)
+- 2026-06-30 01:50 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/555787177.shtml)
+- 2026-06-30 01:47 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/2553379684.shtml)
+- 2026-06-30 02:02 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/0470629.shtml)
+- 2026-06-30 02:05 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/1619500.shtml)
+- 2026-06-30 01:58 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/287256.shtml)

@@ -1,58 +1,60 @@
-# 广西“村麦争霸2026”总决赛在南宁举行 打造“音乐版村BA”
+# 国防部：中巴密切务实合作 把两军关系推向更高水平
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月29日电(黄艳梅 刘海文 韦佳彤)4月28日晚，作为2026年“广西三月三·八桂嘉年华”重要活动之一的“村麦争霸2026”总决赛在南宁民歌湖举行，14组民间歌手同台角逐，用质朴的歌声唱响新时代的百姓声音。 本次大赛由广西壮族自治区党委宣传部主办、广西广播电视台承办，旨在打造属于广西的“音乐版村BA”。 赛事以“新时代村歌”为核心，深入基层，覆盖全区，从海选时的“百
+中新网5月28日电 5月28日下午，国防部举行例行记者会，国防部新闻发言人蒋斌大校答记者问。 记者：据报道，国家主席习近平会见了来华访问的巴基斯坦总理夏巴兹，中央军委副主席张升民会见了与总理一起访华的巴基斯坦国防军司令兼陆军参谋长穆尼尔。请问发言人对中巴两国两军间交往合作有何评价？ 蒋斌：中国和巴基斯坦是山水相连的好邻居、信义相交的好朋友、守望相助的好伙伴、患难与共的好兄弟。建
 
 ## 正文
 
-中新网南宁4月29日电(黄艳梅 刘海文 韦佳彤)4月28日晚，作为2026年“广西三月三·八桂嘉年华”重要活动之一的“村麦争霸2026”总决赛在南宁民歌湖举行，14组民间歌手同台角逐，用质朴的歌声唱响新时代的百姓声音。
+中新网5月28日电 5月28日下午，国防部举行例行记者会，国防部新闻发言人蒋斌大校答记者问。
 
-本次大赛由广西壮族自治区党委宣传部主办、广西广播电视台承办，旨在打造属于广西的“音乐版村BA”。
+记者：据报道，国家主席习近平会见了来华访问的巴基斯坦总理夏巴兹，中央军委副主席张升民会见了与总理一起访华的巴基斯坦国防军司令兼陆军参谋长穆尼尔。
 
-赛事以“新时代村歌”为核心，深入基层，覆盖全区，从海选时的“百舸争流”，到总决赛的“强强对决”，来自田间地头、工厂车间、校园课堂的普通人握紧话筒，站上舞台，生动展现新时代广西群众文艺的蓬勃生机。
+请问发言人对中巴两国两军间交往合作有何评价？
 
-总决赛现场，多元音乐交相辉映，传统与现代激情碰撞。
+蒋斌：中国和巴基斯坦是山水相连的好邻居、信义相交的好朋友、守望相助的好伙伴、患难与共的好兄弟。
 
-广西三江侗族自治县的“兜央组合”将侗族大歌的千年回响与现代舞台艺术融合，展现非物质文化遗产的魅力；河池民间歌手吴恩师以充满泥土气息的演唱，唱出了普通人的朴实和坚韧。
+建交75年来，两国友谊经历了国际风云变幻的考验，历久弥坚、深入人心。
 
-广西大学研究生蔡孟耘带来一曲《我在广西种甘蔗》，用轻快的说唱将广西甘蔗产业链的耕耘故事搬上舞台。
+巴基斯坦朋友常用“比山高、比海深、比蜜甜”来形容中巴友谊，而中国人民也亲切地称呼巴基斯坦为“巴铁”。
 
-“广西是中国蔗糖主产区。
+中巴两军关系密切，在战略沟通、联演联训、人员培训、装备技术等领域务实合作成果丰硕。
 
-这首歌里的‘我’，代表的是千千万万甘蔗从业者。
+两国陆军“勇士”、海军“海洋卫士”、空军“雄鹰”等系列联演联训已成为双方合作的品牌项目。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 01:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 02:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-30 01:41 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 01:40 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 02:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 02:04 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 01:58 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 01:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 01:39 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 01:38 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 01:53 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 01:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 01:48 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 01:53 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 02:02 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 01:58 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 01:57 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 01:52 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 02:01 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 01:51 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 01:57 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 01:46 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 01:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 01:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 02:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/48459410.shtml)
-- 2026-06-30 02:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/46669883480.shtml)
-- 2026-06-30 01:51 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/59389.shtml)
-- 2026-06-30 01:42 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/88244196.shtml)
-- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/392380651096.shtml)
-- 2026-06-30 01:58 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/09200.shtml)
-- 2026-06-30 02:04 - [内马尔替补](http://www.share.minike.top/Article/details/251245040.shtml)
-- 2026-06-30 01:53 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/05589349.shtml)
-- 2026-06-30 01:48 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/731717655724.shtml)
-- 2026-06-30 01:42 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/768974439053.shtml)
-- 2026-06-30 01:37 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/50300256679.shtml)
-- 2026-06-30 01:53 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/69057416950.shtml)
-- 2026-06-30 01:40 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/27801355.shtml)
-- 2026-06-30 01:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/304132731.shtml)
-- 2026-06-30 01:41 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/298298721631.shtml)
+- 2026-06-30 01:42 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/074160441.shtml)
+- 2026-06-30 01:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/6343335.shtml)
+- 2026-06-30 01:56 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/958149.shtml)
+- 2026-06-30 02:02 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/625772930009.shtml)
+- 2026-06-30 02:03 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/23991.shtml)
+- 2026-06-30 02:09 - [恋与深空致歉](http://www.blog.minike.top/Article/details/963874253.shtml)
+- 2026-06-30 02:01 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/69329150009.shtml)
+- 2026-06-30 01:50 - [电影后室值得看吗](https://www.share.minike.top/Article/details/68048.shtml)
+- 2026-06-30 01:53 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/986258913406.shtml)
+- 2026-06-30 01:52 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/9694064972.shtml)
+- 2026-06-30 01:55 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/453940877.shtml)
+- 2026-06-30 01:46 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/021004612070.shtml)
+- 2026-06-30 02:06 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/100301.shtml)
+- 2026-06-30 01:56 - [曝詹姆斯即将与勇士会面](https://www.share.kurohicncr.top/Article/details/921678188718.shtml)
+- 2026-06-30 01:54 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/82950047.shtml)

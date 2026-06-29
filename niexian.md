@@ -1,56 +1,61 @@
-# 北京银行首席信息官明立松：投资科技就是投资未来
+# 夏季胃肠爱“闹脾气”，日常这样调理丨时令节气与健康
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。首席信息官明立松表示，首先，北京银行始终以科技引领发展。面对复杂多变的经济环境和行业竞争压力，北京银行坚定不移地推动数字化转型。我们秉承长期主义理念，持续加大投入，因为我们相信，投资科技就是投资未来。过去几年，北京银行科技投入占营收的比例稳定在 4.5% 以上，科技投入增速达到 22.45%，
+夏季，不少人喜欢吃生冷、辛辣的食物，有些人一吃这些食物或一紧张就容易腹胀、腹泻，但做胃肠镜等检查没有明显异常，这可能是胃肠比较敏感。 中国中医科学院西苑医院主任医师刘征堂提醒大家注意以下三点： 第一，找诱因。 建议大家留意自己每次不舒服前吃了什么、有没有熬夜、是否紧张。胃肠敏感的人要少吃冷饮、凉菜、烧烤、油炸食品和剩饭剩菜，吃水果也要适量。腹泻时不要完全不吃东西，可选择粥、面条
 
 ## 正文
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。
+夏季，不少人喜欢吃生冷、辛辣的食物，有些人一吃这些食物或一紧张就容易腹胀、腹泻，但做胃肠镜等检查没有明显异常，这可能是胃肠比较敏感。
 
-首席信息官明立松表示，首先，北京银行始终以科技引领发展。
+中国中医科学院西苑医院主任医师刘征堂提醒大家注意以下三点： 第一，找诱因。
 
-面对复杂多变的经济环境和行业竞争压力，北京银行坚定不移地推动数字化转型。
+建议大家留意自己每次不舒服前吃了什么、有没有熬夜、是否紧张。
 
-我们秉承长期主义理念，持续加大投入，因为我们相信，投资科技就是投资未来。
+胃肠敏感的人要少吃冷饮、凉菜、烧烤、油炸食品和剩饭剩菜，吃水果也要适量。
 
-过去几年，北京银行科技投入占营收的比例稳定在 4.5% 以上，科技投入增速达到 22.45%，该项指标在同业中保持较高水平。
+腹泻时不要完全不吃东西，可选择粥、面条、馒头、鸡蛋羹等温软的食物，少量多餐。
 
-“资金投入并非短期行为，而是构建未来核心竞争力的坚实基础。
+腹泻次数多时，可使用口服补液盐，防止脱水。
 
-”明立松强调。
+第二，调整情绪和作息。
 
-明立松还表示，我们坚持投资未来，以人工智能驱动创新发展。
+中医认为，思虑过度会影响胃肠功能。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 01:54 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 01:50 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 01:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 01:41 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 01:49 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 02:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 01:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 01:53 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 01:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 02:04 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 02:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 02:06 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 02:08 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:06 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 01:51 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 02:06 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 02:08 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 01:57 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 01:43 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-30 01:58 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 01:54 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 01:58 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 02:01 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 01:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/52952.shtml)
-- 2026-06-30 01:52 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/6352453461.shtml)
-- 2026-06-30 01:56 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/44993.shtml)
-- 2026-06-30 01:40 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/58174292.shtml)
-- 2026-06-30 02:02 - [金牌调解](https://www.share.minike.top/Article/details/2328719.shtml)
-- 2026-06-30 01:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/2939592.shtml)
-- 2026-06-30 01:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/821005071944.shtml)
-- 2026-06-30 01:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/2343443852.shtml)
-- 2026-06-30 01:47 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/381644886645.shtml)
-- 2026-06-30 01:49 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/37162170024.shtml)
-- 2026-06-30 01:59 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/71012940.shtml)
-- 2026-06-30 01:51 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/28326.shtml)
-- 2026-06-30 02:00 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/08832349913.shtml)
-- 2026-06-30 01:55 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/54752138151.shtml)
-- 2026-06-30 01:53 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/495832.shtml)
+- 2026-06-30 02:03 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/80716102715.shtml)
+- 2026-06-30 01:56 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/039789.shtml)
+- 2026-06-30 01:52 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/2280820.shtml)
+- 2026-06-30 02:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/3277463.shtml)
+- 2026-06-30 02:09 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/9132529.shtml)
+- 2026-06-30 01:53 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/9335001.shtml)
+- 2026-06-30 01:51 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/95974082375.shtml)
+- 2026-06-30 01:52 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/31675.shtml)
+- 2026-06-30 01:55 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/221579.shtml)
+- 2026-06-30 02:04 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/657451660.shtml)
+- 2026-06-30 01:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/76781.shtml)
+- 2026-06-30 01:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/483353875893.shtml)
+- 2026-06-30 01:43 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/6786934104.shtml)
+- 2026-06-30 01:56 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/54586979.shtml)
+- 2026-06-30 02:05 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/55955432231.shtml)

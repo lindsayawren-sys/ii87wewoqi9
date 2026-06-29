@@ -1,58 +1,58 @@
-# 三名独董反对，688121问题有多大？
+# 香港学子走进延安开启研学之旅
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日晚间，卓然股份（维权）（688121）发布《关于2025年年度报告预计无法在法定期限内披露的重大风险提示性公告》称，因审计委员会3名独董全票反对，年报无法提交至公司董事会进一步审议，公司预计无法按期披露2025年年度报告。 这可能将成为科创板首单因
+发布时间：2026年05月28日 20:46 来源：中国新闻网 5月23日至29日，香港理工大学爱国主义教育研习营一行约50名师生走进陕西。其间，师生们专程前往延安开启研学之旅。 师生们先后到访杨家岭革命旧址、宝塔山、鲁迅艺术文学院等红色地标，循着革命足迹回望峥嵘岁月。 研学期间，师生们观看沉浸式实景剧《再回延安》。生动的演绎重现艰苦的革命岁月，让大家直观领会延安精神的丰富内涵
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月28日 20:46 来源：中国新闻网 5月23日至29日，香港理工大学爱国主义教育研习营一行约50名师生走进陕西。
 
-4月28日晚间，卓然股份（维权）（688121）发布《关于2025年年度报告预计无法在法定期限内披露的重大风险提示性公告》称，因审计委员会3名独董全票反对，年报无法提交至公司董事会进一步审议，公司预计无法按期披露2025年年度报告。
+其间，师生们专程前往延安开启研学之旅。
 
-这可能将成为科创板首单因无法按期披露年报触发退市风险的案例。
+师生们先后到访杨家岭革命旧址、宝塔山、鲁迅艺术文学院等红色地标，循着革命足迹回望峥嵘岁月。
 
-根据规定，公司将自法定披露期限（2026年4月30日）届满之日起停牌2个月，如无法在2个月内披露年报，公司股票将被实施退市风险警示。
+研学期间，师生们观看沉浸式实景剧《再回延安》。
 
-被实施退市风险警示2个月后仍无法披露年报的，将被实施规范类退市。
+生动的演绎重现艰苦的革命岁月，让大家直观领会延安精神的丰富内涵，接受深刻的精神洗礼。
 
-当晚，上交所火速下发监管工作函，分别针对公司董事会、董事长及财务总监等核心人员、审计委员会等提出监管要求。
+大家纷纷表示，将传承红色基因，汲取奋进力量，厚植爱国情怀，主动融入国家发展大局。
 
-独董详述反对理由 财务报告存重大疑虑 3名独董对公司年报齐声说“不”，究竟是何原因？
-
-记者发现，独董主要提出3点理由：一是对2025年财务报告中的关联关系及关联交易、部分业务的商业实质等事项存在重大疑虑。
+(记者 戴小橦 制作 徐妙巧） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 01:41 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 01:58 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 02:04 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 01:39 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 01:45 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 01:40 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 01:50 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 01:54 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 01:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 01:55 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 01:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 01:47 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-30 02:04 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 02:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 01:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 02:03 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 02:01 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 02:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 02:00 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 02:10 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 01:54 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 01:54 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 02:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/44956.shtml)
-- 2026-06-30 01:42 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/43766457178.shtml)
-- 2026-06-30 01:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/703176911.shtml)
-- 2026-06-30 01:51 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/630851864.shtml)
-- 2026-06-30 01:53 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/28397347.shtml)
-- 2026-06-30 01:45 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/36552.shtml)
-- 2026-06-30 01:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/44850546.shtml)
-- 2026-06-30 01:44 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/994381087779.shtml)
-- 2026-06-30 01:54 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/2437937.shtml)
-- 2026-06-30 01:47 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/306175519.shtml)
-- 2026-06-30 01:59 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/565150075245.shtml)
-- 2026-06-30 02:02 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/46861283.shtml)
-- 2026-06-30 01:47 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/73789.shtml)
-- 2026-06-30 01:52 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/1344923.shtml)
-- 2026-06-30 01:39 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/293551706.shtml)
+- 2026-06-30 02:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/1609299.shtml)
+- 2026-06-30 01:42 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/325923050507.shtml)
+- 2026-06-30 02:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/865503.shtml)
+- 2026-06-30 01:45 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/39444242.shtml)
+- 2026-06-30 02:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/1806952.shtml)
+- 2026-06-30 01:53 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/6282367.shtml)
+- 2026-06-30 02:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/48395104499.shtml)
+- 2026-06-30 02:07 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/15805.shtml)
+- 2026-06-30 01:58 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/226573.shtml)
+- 2026-06-30 02:10 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/26909.shtml)
+- 2026-06-30 01:56 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/118606219630.shtml)
+- 2026-06-30 02:09 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/576457.shtml)
+- 2026-06-30 02:03 - [爱很美味](http://www.share.kurohicncr.top/Article/details/762914875016.shtml)
+- 2026-06-30 01:56 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/875757.shtml)
+- 2026-06-30 02:09 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/90246.shtml)

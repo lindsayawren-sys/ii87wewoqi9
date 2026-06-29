@@ -1,52 +1,60 @@
-# 中国人寿：一季度实现归母净利润195.05亿元，同比减少32.3%
+# 《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》政策解读
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，中国人寿发布2026年一季度报告。数据显示，2026年第一季度实现现归属于母公司股东的净利润195.05亿元，同比减少32.3%。2026年一季度，公司实现总保费人民币3，584.78亿元，同比增长1.1%，其中，长险新单保费为人民币856.60亿元，同比增长29.9%；短期险保费为人民币427.02亿元，同比增长2.9%；续期保费为人民币2，301.1
+近日，国家医保局在官网和微信公众号发布了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》（以下简称《工作方案》）并公开征求社会意见。《工作方案》主要对制定《国家基本医疗保险医疗服务项目目录》（以下简称医保项目目录）的目标任务、目录范围、工作程序等内容进行了说明，现就有关内容解读如下。 一、为什么要制定《国家基本医疗保险医疗服务项目目录》？ 为贯彻落实党中央、国务院关于
 
 ## 正文
 
-4月29日金融一线消息，中国人寿发布2026年一季度报告。
+近日，国家医保局在官网和微信公众号发布了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》（以下简称《工作方案》）并公开征求社会意见。
 
-数据显示，2026年第一季度实现现归属于母公司股东的净利润195.05亿元，同比减少32.3%。
+《工作方案》主要对制定《国家基本医疗保险医疗服务项目目录》（以下简称医保项目目录）的目标任务、目录范围、工作程序等内容进行了说明，现就有关内容解读如下。
 
-2026年一季度，公司实现总保费人民币3，584.78亿元，同比增长1.1%，其中，长险新单保费为人民币856.60亿元，同比增长29.9%；短期险保费为人民币427.02亿元，同比增长2.9%；续期保费为人民币2，301.16亿元，受部分业务续期止收影响，同比下降6.8%。
+一、为什么要制定《国家基本医疗保险医疗服务项目目录》？
 
-责任编辑：王馨茹
+为贯彻落实党中央、国务院关于增强社会保障制度统一性和规范性的要求，国家医保局持续完善医保支付范围管理。
+
+药品目录、医疗服务项目目录和医用耗材目录一起构成了医保基金的支付范围。
+
+目前，国家医保药品目录已实现全国层面基本统一。
+
+对于医疗服务项目，国家层面只规定了不予支付和可以部分支付费用的范围，各地医保部门根据临床需求、医疗技术发展、医保基金运行等实际情况确定本地区医疗服务项目医保支付范围。
+
+医疗服务价格项目是医保支付的基础，在国家医保局成立以前，各地区项目的名称、内涵、颗粒度不一等情况普遍存在。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 01:46 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 01:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 01:53 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 01:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 02:01 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 01:49 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 02:05 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 02:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 01:57 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 01:42 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 01:40 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 01:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 01:44 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 01:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 02:03 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 02:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 02:00 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 02:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 01:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 01:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-30 02:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 02:08 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 01:45 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 01:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 01:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 02:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 01:48 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/82937569525.shtml)
-- 2026-06-30 01:39 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/55183034939.shtml)
-- 2026-06-30 02:02 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/491566597.shtml)
-- 2026-06-30 01:45 - [小娘惹](https://www.share.kurohicncr.top/Article/details/370483.shtml)
-- 2026-06-30 01:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/9525583.shtml)
-- 2026-06-30 02:06 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/96716605.shtml)
-- 2026-06-30 01:57 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/2248330444.shtml)
-- 2026-06-30 02:01 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/6467091832.shtml)
-- 2026-06-30 01:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/4645169.shtml)
-- 2026-06-30 02:01 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/17837.shtml)
-- 2026-06-30 01:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/2433557.shtml)
-- 2026-06-30 01:55 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/610952.shtml)
-- 2026-06-30 02:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/17270791458.shtml)
-- 2026-06-30 02:03 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/068222330.shtml)
-- 2026-06-30 01:37 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/93370159674.shtml)
+- 2026-06-30 01:47 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/1207023063.shtml)
+- 2026-06-30 01:54 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/162568925.shtml)
+- 2026-06-30 02:03 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/22804.shtml)
+- 2026-06-30 02:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/32977359188.shtml)
+- 2026-06-30 01:50 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/1890622659.shtml)
+- 2026-06-30 01:55 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/70177055.shtml)
+- 2026-06-30 01:42 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/702836.shtml)
+- 2026-06-30 02:08 - [啊啊啊](http://www.share.minike.top/Article/details/492556.shtml)
+- 2026-06-30 01:44 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/263087420448.shtml)
+- 2026-06-30 01:53 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/48960.shtml)
+- 2026-06-30 02:02 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/9411872.shtml)
+- 2026-06-30 02:04 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/47611565931.shtml)
+- 2026-06-30 01:43 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/778758163116.shtml)
+- 2026-06-30 01:57 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/5776069.shtml)
+- 2026-06-30 02:02 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/51319445670.shtml)

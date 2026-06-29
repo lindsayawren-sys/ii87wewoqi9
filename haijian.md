@@ -1,58 +1,61 @@
-# 新质提质 浙江国有控股上市公司总市值达1.28万亿元
+# 挪威国家石油公司与DeepOcean签署挪威大陆架海底作业一揽子合同
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月29日电(奚金燕)29日，浙江省国资委联合浙江证监局共同举办“浙里领航‘十五五’ 聚能提质开新局——在浙里看国企”2026年浙江国有控股上市公司集体业绩说明会。 会上，锦华新材、浙江新能、江海股份、汽轮科技4家公司相关负责人分别介绍公司2025年度经营业绩及2026年一季度业绩表现，同时积极回应投资者关切问题，与专业投资者、中小投资者及媒体代表开展面对面互动交流。
+挪威国家石油公司Equinor已将一份涵盖挪威大陆架多个油气田的海底作业一揽子合同授予DeepOcean公司。该合同涉及北海与巴伦支海的项目，海上作业计划在2027年至2028年期间进行。 该合同包涵盖北海Visund油田和Snorre A油田，以及巴伦支海的Johan Castberg区域。 Visund油田高难度作业 在Visund油田，DeepOcean获得了一份SIMO
 
 ## 正文
 
-中新网杭州4月29日电(奚金燕)29日，浙江省国资委联合浙江证监局共同举办“浙里领航‘十五五’ 聚能提质开新局——在浙里看国企”2026年浙江国有控股上市公司集体业绩说明会。
+挪威国家石油公司Equinor已将一份涵盖挪威大陆架多个油气田的海底作业一揽子合同授予DeepOcean公司。
 
-会上，锦华新材、浙江新能、江海股份、汽轮科技4家公司相关负责人分别介绍公司2025年度经营业绩及2026年一季度业绩表现，同时积极回应投资者关切问题，与专业投资者、中小投资者及媒体代表开展面对面互动交流。
+该合同涉及北海与巴伦支海的项目，海上作业计划在2027年至2028年期间进行。
 
-据悉，浙江省国资委已连续六年举办国有控股上市公司集体业绩说明会，逐步形成了常态化、规范化的市场沟通机制。
+该合同包涵盖北海Visund油田和Snorre A油田，以及巴伦支海的Johan Castberg区域。
 
-集体业绩说明会既是展示浙江国有控股上市公司发展蓝图、深入解读经营答卷、彰显企业核心价值的重要舞台，也是国资国企与投资者、市场高效沟通的关键载体。
+Visund油田高难度作业 在Visund油田，DeepOcean获得了一份SIMOPRO（海上作业与生产同步进行）安装合同，内容涉及在海上设施保持生产的同时更换输气和输油立管。
 
-近年来，浙江省国资委以“新质提质”为工作主线，持续深化国有控股上市公司高质量发展专项行动，充分发挥国有控股上市公司在科技创新、产业控制、安全支撑等方面的重要作用。
+公司表示，作业范围包括项目管理、工程设计、制造、采购和海上安装活动，以及勘测、疏浚、管线连接和预调试作业。
 
-如，在地方国资委中率先出台省属国有控股上市公司市值管理制度，引导企业加强市值管理创新、提升发展质量，打造领航上市公司；指导推动国有控股上市公司及国有股东加大股票增持回购力度，助力资本市场平稳运行，彰显国资国企责任担当。
+DeepOcean北欧区域执行副总裁Olaf A． Hansen表示：“此类复杂作业需要运营商和我们分包商网络之间进行强有力的协调和周全的安全规划，以确保无缝执行。
 
-截至4月27日，浙江国有控股上市公司增至79家，总市值约1.28万亿元，较2024年末增长23.13%。
+我们曾为Equinor执行过类似项目的良好记录，使我们为再次被选中感到自豪。
 
-其中，浙江省属国有控股上市公司去年新增2家，共计达到30家，总市值6099亿元，浙江省属上市公司资产总额占省属企业比重近半，全年利润总额占省属企业比重近90%，有力发挥了顶梁柱、压舱石作用，体现了优质资产向上市公司聚集的战略导向。
+” 巴伦支海首个回接项目 DeepOcean同时获得了与Isflak石油发现相关的作业合同。
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 01:40 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 01:51 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 01:55 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 01:54 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 01:49 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 01:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 01:49 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 02:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-30 01:58 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 01:41 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 02:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 01:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 02:03 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 01:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 02:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 02:06 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 01:49 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 01:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 02:09 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 01:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 02:09 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:51 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 01:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 01:53 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 01:57 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5896382650.shtml)
-- 2026-06-30 02:04 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/242902874891.shtml)
-- 2026-06-30 01:37 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/9324409154.shtml)
-- 2026-06-30 01:55 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/305630137.shtml)
-- 2026-06-30 02:03 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/04585.shtml)
-- 2026-06-30 01:51 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/083132726.shtml)
-- 2026-06-30 01:52 - [世界杯](http://www.share.kurohicncr.top/Article/details/91852281080.shtml)
-- 2026-06-30 02:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/24112.shtml)
-- 2026-06-30 01:38 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/42761186.shtml)
-- 2026-06-30 02:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/52337.shtml)
-- 2026-06-30 01:45 - [孙兴慜道歉](http://www.share.minike.top/Article/details/379609.shtml)
-- 2026-06-30 01:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/21978.shtml)
-- 2026-06-30 01:41 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/88236373570.shtml)
-- 2026-06-30 01:50 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/686948885.shtml)
-- 2026-06-30 02:03 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/513134.shtml)
+- 2026-06-30 01:43 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/1811897558.shtml)
+- 2026-06-30 01:47 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/20340.shtml)
+- 2026-06-30 01:55 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/9595566.shtml)
+- 2026-06-30 02:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/4013494545.shtml)
+- 2026-06-30 01:44 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/18873397.shtml)
+- 2026-06-30 01:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/7993888556.shtml)
+- 2026-06-30 01:49 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/07970209.shtml)
+- 2026-06-30 02:02 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/9299791.shtml)
+- 2026-06-30 01:51 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/3508456.shtml)
+- 2026-06-30 02:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/51681.shtml)
+- 2026-06-30 01:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/313791.shtml)
+- 2026-06-30 02:05 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/49555.shtml)
+- 2026-06-30 01:44 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/40808061.shtml)
+- 2026-06-30 01:53 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/306486.shtml)
+- 2026-06-30 02:04 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/637618083.shtml)

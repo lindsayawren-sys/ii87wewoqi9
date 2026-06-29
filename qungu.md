@@ -1,59 +1,55 @@
-# 牧羊犬带羊仔上街“放羊” 被民警紧急拦截
+# 王沪宁会见英国跨党派议员代表团
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月28日 20:42 来源：中国新闻网 近日早高峰时段，上海市公安局奉贤分局平安派出所民警发现非机动车道上有羊群肆意乱跑，还有一只牧羊犬随行看护。此时正值早高峰，电瓶车往来频繁，存在较大安全隐患。 民警即刻停车管控现场，疏导通行秩序，同时多方寻找羊群主人，现场却未见农户身影。后续有热心路人提供了羊主人的住址，民警随即上门联系。经询问得知，农户饲养近三十只
+新华社北京5月28日电 中共中央政治局常委、全国政协主席王沪宁28日在京会见来华出席第十四届中英政党对话的英国跨党派议员代表团。 王沪宁表示，今年1月，习近平主席会见来华访问的斯塔默首相，双方一致同意发展长期稳定的全面战略伙伴关系，为两国关系发展指明了方向。中方愿同英方共同落实两国领导人重要共识，加强政党交往，增进政治互信，推动两国互利合作取得更多成果。中国全国政协愿为此作出积
 
 ## 正文
 
-发布时间：2026年04月28日 20:42 来源：中国新闻网 近日早高峰时段，上海市公安局奉贤分局平安派出所民警发现非机动车道上有羊群肆意乱跑，还有一只牧羊犬随行看护。
+新华社北京5月28日电 中共中央政治局常委、全国政协主席王沪宁28日在京会见来华出席第十四届中英政党对话的英国跨党派议员代表团。
 
-此时正值早高峰，电瓶车往来频繁，存在较大安全隐患。
+王沪宁表示，今年1月，习近平主席会见来华访问的斯塔默首相，双方一致同意发展长期稳定的全面战略伙伴关系，为两国关系发展指明了方向。
 
-民警即刻停车管控现场，疏导通行秩序，同时多方寻找羊群主人，现场却未见农户身影。
+中方愿同英方共同落实两国领导人重要共识，加强政党交往，增进政治互信，推动两国互利合作取得更多成果。
 
-后续有热心路人提供了羊主人的住址，民警随即上门联系。
+中国全国政协愿为此作出积极贡献。
 
-经询问得知，农户饲养近三十只小羊，平日务农忙碌疏于看管，家中牧羊犬竟私自带领羊群跑出，闯入城市道路。
+英国前首席内阁大臣、英中协会会长利丁顿等表示，此行目睹中国更大发展成就，一个繁荣稳定的中国符合各方利益。
 
-农户迅速赶往现场，在民警协助下，将羊群安全驱离非机动车道，及时消除路面安全隐患。
+英方重视对华合作机遇，赞赏中国为全球治理所作贡献，愿同中方加强互利合作和多边协调，促进共同发展与世界和平稳定。
 
-(记者 李姝徵 制作 徐妙巧 视频来源 上海市公安局奉贤分局） 责任编辑：【周驰】
+王东峰等参加会见。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 01:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 01:50 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 01:47 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 01:42 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 01:45 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 01:55 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 01:59 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 01:39 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 02:02 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 01:53 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 01:54 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 02:04 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 01:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 01:37 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 01:48 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 01:48 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 01:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 01:46 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 01:53 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 01:53 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 01:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 02:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 02:07 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 01:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [孙兴慜道歉](https://www.share.minike.top/Article/details/60163.shtml)
-- 2026-06-30 01:40 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/61182906983.shtml)
-- 2026-06-30 01:58 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/062921766613.shtml)
-- 2026-06-30 02:03 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/572831086358.shtml)
-- 2026-06-30 01:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/67413788391.shtml)
-- 2026-06-30 01:52 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/6176924797.shtml)
-- 2026-06-30 01:59 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/74445933893.shtml)
-- 2026-06-30 01:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/058339581.shtml)
-- 2026-06-30 02:05 - [千与千寻](http://www.share.minike.top/Article/details/72237919.shtml)
-- 2026-06-30 01:44 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/02187670884.shtml)
-- 2026-06-30 02:03 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/5748572.shtml)
-- 2026-06-30 02:05 - [爱很美味](https://www.share.kurohicncr.top/Article/details/475758220005.shtml)
-- 2026-06-30 01:49 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/4538688.shtml)
-- 2026-06-30 01:55 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/683618.shtml)
-- 2026-06-30 01:56 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/4558001.shtml)
+- 2026-06-30 01:59 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/245971.shtml)
+- 2026-06-30 01:55 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/8685975.shtml)
+- 2026-06-30 02:09 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/74918264.shtml)
+- 2026-06-30 01:49 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/069304233420.shtml)
+- 2026-06-30 01:49 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/8545980.shtml)
+- 2026-06-30 02:11 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/431176.shtml)
+- 2026-06-30 02:06 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/1135689.shtml)
+- 2026-06-30 01:57 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/371366356131.shtml)
+- 2026-06-30 01:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/723042.shtml)
+- 2026-06-30 01:54 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/62496.shtml)
+- 2026-06-30 02:01 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/0658826029.shtml)
+- 2026-06-30 01:51 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/20877993252.shtml)
+- 2026-06-30 01:54 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/00271.shtml)
+- 2026-06-30 01:48 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/5914166.shtml)
+- 2026-06-30 02:06 - [美股](https://www.share.kurohicncr.top/Article/details/9986976.shtml)

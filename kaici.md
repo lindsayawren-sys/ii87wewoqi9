@@ -1,58 +1,50 @@
-# 全文|谷歌Q1业绩会实录：智能代理将重塑购物体验 将向客户提供TPU
+# 市监总局再谈甘肃天水幼儿血铅异常事件：为幼儿园食品安全敲响警钟
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 谷歌母公司Alphabet今日公布了截至2026年3月31日的第一季度财务业绩。 详见：Alphabet营收同比增长22% 净利润同比增长81% 云业务加速增长 财报发布后，谷歌CEO桑达尔·皮查伊（Sundar Pichai）、首席商务官菲利普·辛德勒（Philipp Schindler）以及CFO阿娜特·阿什肯纳齐（Anat Ashke
+发布时间：2026年05月29日 18:54 来源：中国新闻网 5月29日，市场监管总局召开食品安全专题新闻发布会。市场监管总局食品安全总监孙会川表示， 2025年的甘肃天水幼儿血铅异常事件，为幼儿园食品安全敲响了一记沉重的警钟。涉事幼儿园的行为令人震惊，后果令人痛心，教训也极其深刻，充分暴露出一些幼儿园食品安全“第一责任人”意识淡薄、食品安全风险防控能力弱、从业人员素质低下等
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 谷歌母公司Alphabet今日公布了截至2026年3月31日的第一季度财务业绩。
+发布时间：2026年05月29日 18:54 来源：中国新闻网 5月29日，市场监管总局召开食品安全专题新闻发布会。
 
-详见：Alphabet营收同比增长22% 净利润同比增长81% 云业务加速增长 财报发布后，谷歌CEO桑达尔·皮查伊（Sundar Pichai）、首席商务官菲利普·辛德勒（Philipp Schindler）以及CFO阿娜特·阿什肯纳齐（Anat Ashkenazi）召开了分析师电话会议，解读财报要点，并回答分析师提问。
+市场监管总局食品安全总监孙会川表示， 2025年的甘肃天水幼儿血铅异常事件，为幼儿园食品安全敲响了一记沉重的警钟。
 
-以下为本次电话会议分析师问答环节的主要内容： 摩根士丹利分析师布赖恩·诺瓦克（Brian Nowak）：我有两个问题。
+涉事幼儿园的行为令人震惊，后果令人痛心，教训也极其深刻，充分暴露出一些幼儿园食品安全“第一责任人”意识淡薄、食品安全风险防控能力弱、从业人员素质低下等问题。
 
-第一个问题问桑达尔（Sundar）：在最近的播客节目中，您提到计算资源（Compute）面临严重限制，您几乎每周都会关注这一问题，以确保合理部署计算容量。
+为此，市场监管总局会同教育部，按照《食品安全法》的相关规定，在《学校食品安全与营养健康管理规定》和《集中用餐单位落实食品安全主体责任监督管理规定》的基础上，专门制定了《幼儿园落实食品安全主体责任监督管理规定》，将自6月1日起实施。
 
-那么，在您看来，未来 12 个月内，搜索业务在哪些领域应用下一代计算资源最有可能产生投资回报率（ROIC）？
-
-第二个问题关于向第三方销售TPU：从战略角度出发，考虑到使用TPU支持Google Cloud多年期工作负载能带来较高的投资回报率，您能否解释一下TPU的定价策略？
-
-谢谢。
-
-桑达尔·皮查伊：我先回答关于搜索业务的问题。
+(左雨晴） 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 01:53 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 02:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 02:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 02:02 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 01:54 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 01:48 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 02:05 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-30 02:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 01:49 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 02:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 01:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 02:10 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 01:56 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 02:09 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 02:11 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 02:01 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 01:45 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-30 02:07 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 01:55 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 01:44 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-30 01:46 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/983282.shtml)
-- 2026-06-30 01:41 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/8677465.shtml)
-- 2026-06-30 01:52 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/4447044.shtml)
-- 2026-06-30 01:42 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/954822764420.shtml)
-- 2026-06-30 01:37 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/694057.shtml)
-- 2026-06-30 01:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/30304.shtml)
-- 2026-06-30 01:58 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/103587.shtml)
-- 2026-06-30 02:02 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/91076949.shtml)
-- 2026-06-30 01:48 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/25603.shtml)
-- 2026-06-30 02:00 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/53734754249.shtml)
-- 2026-06-30 01:48 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/5943299.shtml)
-- 2026-06-30 02:02 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/999631.shtml)
-- 2026-06-30 02:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/77032609542.shtml)
-- 2026-06-30 01:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/31916573101.shtml)
-- 2026-06-30 02:04 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/185532791577.shtml)
+- 2026-06-30 02:05 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/329389663058.shtml)
+- 2026-06-30 01:51 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/39788132405.shtml)
+- 2026-06-30 01:58 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/994294298.shtml)
+- 2026-06-30 01:46 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/99014299515.shtml)
+- 2026-06-30 02:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/155327303034.shtml)
+- 2026-06-30 02:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/26059142277.shtml)
+- 2026-06-30 01:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/5434642.shtml)
+- 2026-06-30 02:00 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/847756457824.shtml)
+- 2026-06-30 02:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/14840189.shtml)
+- 2026-06-30 01:59 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/797117.shtml)
+- 2026-06-30 01:44 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/41434.shtml)
+- 2026-06-30 01:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/169319526983.shtml)
+- 2026-06-30 02:05 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/1714116.shtml)
+- 2026-06-30 02:06 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/1666271.shtml)
+- 2026-06-30 01:43 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/7897244526.shtml)

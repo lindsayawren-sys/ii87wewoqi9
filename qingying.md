@@ -1,56 +1,58 @@
-# 习近平：着力提高防范应对自然灾害能力 切实维护人民群众生命财产安全
+# 沃什刚上任，美联储内部已现“质疑声”
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-原标题：习近平在中共中央政治局第二十五次集体学习时强调 着力提高防范应对自然灾害能力 切实维护人民群众生命财产安全 新华社北京4月29日电 中共中央政治局4月28日下午就提高防灾减灾救灾能力进行第二十五次集体学习。中共中央总书记习近平在主持学习时强调，要站在统筹高质量发展和高水平安全的战略高度，充分认识做好防灾减灾救灾工作的重要性，着力提高防范应对自然灾害能力，切实维护人民群众
+作者 | 第一财经 樊志菁 本月以来，越来越多的美联储官员表示，若通胀未能迅速缓解，可能需要加息。同时，他们对人工智能（AI）能否抑制通胀持怀疑态度。这为新任美联储主席凯文・沃什下月首次主持的利率决议会议，埋下了激烈辩论的伏笔。 通胀压力持续升级 美伊冲突爆发以来，汽油与燃料价格大幅飙升，已经引发美联储官员激烈争论：能源涨价叠加关税推升的物价压力，是否会全面渗透至核心通胀？ “
 
 ## 正文
 
-原标题：习近平在中共中央政治局第二十五次集体学习时强调 着力提高防范应对自然灾害能力 切实维护人民群众生命财产安全 新华社北京4月29日电 中共中央政治局4月28日下午就提高防灾减灾救灾能力进行第二十五次集体学习。
+作者 | 第一财经 樊志菁 本月以来，越来越多的美联储官员表示，若通胀未能迅速缓解，可能需要加息。
 
-中共中央总书记习近平在主持学习时强调，要站在统筹高质量发展和高水平安全的战略高度，充分认识做好防灾减灾救灾工作的重要性，着力提高防范应对自然灾害能力，切实维护人民群众生命财产安全。
+同时，他们对人工智能（AI）能否抑制通胀持怀疑态度。
 
-应急管理部国家自然灾害防治研究院杨思全同志就这个问题进行讲解，提出工作建议。
+这为新任美联储主席凯文・沃什下月首次主持的利率决议会议，埋下了激烈辩论的伏笔。
 
-中央政治局的同志认真听取讲解，并进行了讨论。
+通胀压力持续升级 美伊冲突爆发以来，汽油与燃料价格大幅飙升，已经引发美联储官员激烈争论：能源涨价叠加关税推升的物价压力，是否会全面渗透至核心通胀？
 
-习近平在听取讲解和讨论后发表重要讲话。
+“若未来一两个季度看不到通胀降温，我会非常担忧。
 
-他指出，我国国土广袤、地理复杂、气候多样，自然灾害易发多发。
+”圣路易斯联储主席阿尔伯托・穆萨莱姆周四在冰岛央行与西北大学联合举办的经济会议上称。
 
-党的十八大以来，党中央坚持把防灾减灾救灾工作作为关系人民安危和国家安全的大事来抓，在理念转变、体制改革、体系建设、能力提升等方面作出许多部署，带领广大干部群众战胜一系列重特大自然灾害，成效举世公认。
+他勾勒了可能迫使美联储加息的情景：“目前来看，风险天平已明显偏向通胀，而非就业市场。
 
-实践中深刻认识到，做好防灾减灾救灾工作必须坚持党的全面领导，坚持人民至上、生命至上，坚持尊重自然规律，坚持预防为主，坚持改革创新，坚持系统观念，坚持社会共治。
+” 最新会议纪要显示，上月美联储19位官员中至少6人认为：应删除会后声明中 “下一步大概率降息”的措辞，改为 “加息与降息可能性均等”。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 02:03 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 01:40 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 01:55 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-30 01:42 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 01:42 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 02:01 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 01:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 01:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 01:57 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-30 01:47 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 01:58 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 02:03 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 01:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 01:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 01:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 02:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 02:06 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 02:00 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 02:05 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 01:46 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 01:42 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:55 - [这几秒成世界杯最值钱广告位](https://www.blog.kurohicncr.top/Article/details/3017897112.shtml)
-- 2026-06-30 01:50 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/93367718219.shtml)
-- 2026-06-30 01:52 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/7179910667.shtml)
-- 2026-06-30 01:36 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/927863313.shtml)
-- 2026-06-30 01:51 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/2056975215.shtml)
-- 2026-06-30 01:57 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/81683876125.shtml)
-- 2026-06-30 01:56 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/3893936.shtml)
-- 2026-06-30 01:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/757424.shtml)
-- 2026-06-30 01:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/012817132050.shtml)
-- 2026-06-30 02:05 - [天道](https://www.share.kurohicncr.top/Article/details/813296.shtml)
-- 2026-06-30 01:38 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/31877230.shtml)
-- 2026-06-30 01:44 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/132067921.shtml)
-- 2026-06-30 01:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/65786.shtml)
-- 2026-06-30 01:46 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/935957760.shtml)
-- 2026-06-30 01:58 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/712567653072.shtml)
+- 2026-06-30 02:11 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/448252.shtml)
+- 2026-06-30 01:45 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/687567.shtml)
+- 2026-06-30 01:57 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/1078523.shtml)
+- 2026-06-30 02:06 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/913490.shtml)
+- 2026-06-30 02:10 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/98060819706.shtml)
+- 2026-06-30 01:49 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/47679.shtml)
+- 2026-06-30 01:52 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/690469.shtml)
+- 2026-06-30 02:06 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/08234862.shtml)
+- 2026-06-30 01:42 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/28788728654.shtml)
+- 2026-06-30 02:08 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/24425226.shtml)
+- 2026-06-30 02:03 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/51200982811.shtml)
+- 2026-06-30 01:46 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/7507845871.shtml)
+- 2026-06-30 01:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/360492119.shtml)
+- 2026-06-30 01:46 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/6818952.shtml)
+- 2026-06-30 01:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/30076209.shtml)

@@ -1,55 +1,58 @@
-# 报道称美方已要求多家芯片公司停止向中企出货设备 中方回应
+# 王毅在“全球治理之友小组”会议上的主旨发言（全文）
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 (记者 张蔚然)中国外交部发言人林剑29日主持例行记者会。 有记者提问，美方已要求多家芯片公司停止向中国华虹公司出货部分设备。中方有何回应？ 林剑：中方已多次表明了在美输华芯片问题上的原则立场，希望美方以实际行动维护全球产供链的稳定畅通。(完)
+新华社联合国5月28日电 改革完善全球治理 携手共创美好未来 ——在“全球治理之友小组”会议上的主旨发言 中共中央政治局委员、外交部长 王毅 (2026年5月28日，纽约联合国总部) 各位同事： 感谢大家出席今天的“全球治理之友小组”会议。 当今国际形势变乱交织，各国呼唤公平正义、渴望团结合作、向往和平稳定。在此背景下，习近平主席去年9月郑重提出全球治理倡议，强调主权平等、国际
 
 ## 正文
 
-中新网北京4月29日电 (记者 张蔚然)中国外交部发言人林剑29日主持例行记者会。
+新华社联合国5月28日电 改革完善全球治理 携手共创美好未来 ——在“全球治理之友小组”会议上的主旨发言 中共中央政治局委员、外交部长 王毅 (2026年5月28日，纽约联合国总部) 各位同事： 感谢大家出席今天的“全球治理之友小组”会议。
 
-有记者提问，美方已要求多家芯片公司停止向中国华虹公司出货部分设备。
+当今国际形势变乱交织，各国呼唤公平正义、渴望团结合作、向往和平稳定。
 
-中方有何回应？
+在此背景下，习近平主席去年9月郑重提出全球治理倡议，强调主权平等、国际法治、多边主义、以人为本、行动导向五大核心理念。
 
-林剑：中方已多次表明了在美输华芯片问题上的原则立场，希望美方以实际行动维护全球产供链的稳定畅通。
+不到一年，倡议已得到近160个国家和国际组织支持响应。
 
-(完)
+“全球治理之友小组”在纽约、日内瓦、维也纳三地相继成立，成员数量达到60余国。
+
+大家本着平等、尊重精神，围绕改革完善全球治理进行了广泛讨论，凝聚了五大共识： 一是都主张推进国际关系民主化，认为各国无论大小、强弱、贫富，都有权自主选择社会制度和发展道路，都应在全球治理进程中平等参与、平等决策、平等受益。
+
+二是都主张维护联合国宪章宗旨和原则，确保国际法和国际规则平等统一适用，反对双重标准和强加于人。
+
+三是都主张维护联合国核心地位，践行多边主义，筑牢多边机制，反对单边主义和强权政治。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 01:41 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 01:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 01:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 01:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-30 02:01 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 01:41 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 02:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 01:49 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 01:48 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 01:46 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 01:51 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-30 01:58 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 01:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 02:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 02:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 02:07 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 02:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 01:47 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 02:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 02:10 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-30 02:09 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 01:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 01:48 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 01:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 02:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 01:57 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/964731260852.shtml)
-- 2026-06-30 02:05 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/583068.shtml)
-- 2026-06-30 01:58 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/86477236.shtml)
-- 2026-06-30 01:57 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/9683966492.shtml)
-- 2026-06-30 02:03 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/531375640.shtml)
-- 2026-06-30 01:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/752401.shtml)
-- 2026-06-30 01:37 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/188982817116.shtml)
-- 2026-06-30 01:53 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/953395.shtml)
-- 2026-06-30 01:48 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/2069816166.shtml)
-- 2026-06-30 01:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/40730.shtml)
-- 2026-06-30 01:58 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/7088571179.shtml)
-- 2026-06-30 01:53 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/412218056.shtml)
-- 2026-06-30 01:43 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/566968.shtml)
-- 2026-06-30 01:36 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/943130.shtml)
-- 2026-06-30 01:50 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/37980589.shtml)
+- 2026-06-30 02:09 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/75140782.shtml)
+- 2026-06-30 01:55 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/558884.shtml)
+- 2026-06-30 01:55 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/9682414103.shtml)
+- 2026-06-30 01:47 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/74014.shtml)
+- 2026-06-30 01:56 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/784007659383.shtml)
+- 2026-06-30 01:54 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/8496739.shtml)
+- 2026-06-30 01:56 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/391963017805.shtml)
+- 2026-06-30 02:11 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/83520.shtml)
+- 2026-06-30 02:08 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/802820048243.shtml)
+- 2026-06-30 02:02 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/780952.shtml)
+- 2026-06-30 01:59 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/236513427.shtml)
+- 2026-06-30 01:48 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/09542575918.shtml)
+- 2026-06-30 01:48 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/881994.shtml)
+- 2026-06-30 02:08 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/23747.shtml)
+- 2026-06-30 01:50 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/5588378934.shtml)

@@ -1,61 +1,58 @@
-# 国台办：民进党当局为了谋“独”，“反中”反到反智、反科技的地步
+# 大宗商品综述：美伊协议相关报道后油价稳 铜价创两周高点 金价升
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 13:16 来源：中国新闻网 4月29日，国务院台办举行例行新闻发布会。有记者问，大陆高德地图App近期在台湾上线“红绿灯倒计时”功能，引发岛内民众点赞导航倒计时几乎“零误差”，便利又高效。民进党有人指称当中有安全疑虑，民进党当局也称，一旦确认有安全疑虑，会先要求公务部门禁止使用，并劝导民众不要使用。请问对此有何评论？ 国台办发言人陈斌华表示，
+油价经历盘中震荡后收盘基本持平，交易员消化有关美国和伊朗已达成初步协议的消息。该初步协议将延长停火，并推动达成结束战争的协议。这一消息推动伦敦期铜跃升至两周高点，现货金价走高，因市场对高利率的押注降温。 原油：油价持稳 交易员评估美伊停火相关报道 油价经历盘中震荡后收盘基本持平，交易员消化有关美国和伊朗已达成初步协议的消息。该初步协议将延长停火，并推动达成结束战争的协议。 WT
 
 ## 正文
 
-发布时间：2026年04月29日 13:16 来源：中国新闻网 4月29日，国务院台办举行例行新闻发布会。
+油价经历盘中震荡后收盘基本持平，交易员消化有关美国和伊朗已达成初步协议的消息。
 
-有记者问，大陆高德地图App近期在台湾上线“红绿灯倒计时”功能，引发岛内民众点赞导航倒计时几乎“零误差”，便利又高效。
+该初步协议将延长停火，并推动达成结束战争的协议。
 
-民进党有人指称当中有安全疑虑，民进党当局也称，一旦确认有安全疑虑，会先要求公务部门禁止使用，并劝导民众不要使用。
+这一消息推动伦敦期铜跃升至两周高点，现货金价走高，因市场对高利率的押注降温。
 
-请问对此有何评论？
+原油：油价持稳 交易员评估美伊停火相关报道 油价经历盘中震荡后收盘基本持平，交易员消化有关美国和伊朗已达成初步协议的消息。
 
-国台办发言人陈斌华表示，民进党当局为了谋求“台独”，“反中”反到反智、反科技的地步，民进党上台以来，台湾社会出现一种思想禁锢、言论钳制的怪现象，最典型的就是不能对美国说“不”、不能说大陆好。
+该初步协议将延长停火，并推动达成结束战争的协议。
 
-只因为是大陆的科技和产品好用、台湾民众爱用，就阻止台湾民众使用，真是杯弓蛇影、荒唐可笑。
+WTI上涨0.3%，结算价在每桶89美元下方。
 
-这种做法不得人心，也不会得逞。
+全球基准布伦特原油小幅下跌，至略低于94美元。
 
-(记者 刘子衿 制作 刘鹏) 责任编辑：【刘湃】
+此前盘中涨跌反复。
 
 ## 相关推荐
 
-- 2026-06-30 01:38 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 01:45 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 01:50 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 01:46 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-30 01:39 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 02:00 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 02:01 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 01:38 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 01:54 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 01:44 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 01:54 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 01:59 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 01:54 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 02:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 01:53 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-30 01:49 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 01:59 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 01:49 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 01:51 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 01:54 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 01:52 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 01:52 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 01:42 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 01:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 02:10 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 02:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 01:51 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/83322.shtml)
-- 2026-06-30 01:39 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/914330.shtml)
-- 2026-06-30 02:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/1113320393.shtml)
-- 2026-06-30 01:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/4133496.shtml)
-- 2026-06-30 01:56 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/01734837.shtml)
-- 2026-06-30 01:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/5576748.shtml)
-- 2026-06-30 01:54 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/55267380.shtml)
-- 2026-06-30 01:38 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/10477794853.shtml)
-- 2026-06-30 01:45 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/832149668.shtml)
-- 2026-06-30 02:05 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/16668466256.shtml)
-- 2026-06-30 01:56 - [扬名立万](https://www.share.kurohicncr.top/Article/details/71560211.shtml)
-- 2026-06-30 01:55 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/815712017.shtml)
-- 2026-06-30 02:04 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/80765747086.shtml)
-- 2026-06-30 01:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/7802034.shtml)
-- 2026-06-30 01:40 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/55982080936.shtml)
+- 2026-06-30 01:52 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/070214.shtml)
+- 2026-06-30 01:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/1810650.shtml)
+- 2026-06-30 01:47 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/467120607.shtml)
+- 2026-06-30 01:57 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/92407561.shtml)
+- 2026-06-30 02:08 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/7271631.shtml)
+- 2026-06-30 01:52 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/02326644419.shtml)
+- 2026-06-30 01:57 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/54974596185.shtml)
+- 2026-06-30 01:51 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/3016597.shtml)
+- 2026-06-30 01:56 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/03166672.shtml)
+- 2026-06-30 02:04 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/19823546.shtml)
+- 2026-06-30 01:46 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/744956.shtml)
+- 2026-06-30 02:11 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/658423.shtml)
+- 2026-06-30 01:47 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/962796040.shtml)
+- 2026-06-30 01:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/93260830.shtml)
+- 2026-06-30 02:08 - [极限挑战第一季](https://www.blog.minike.top/Article/details/81558.shtml)

@@ -1,56 +1,57 @@
-# 鲍威尔称将留在美联储担任理事 但将“保持低调”
+# PCB，下一个“光”？苹果产业链两大利好提振！华宝基金电子ETF（515260）近6日连续吸金2.3亿元！
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-专题：美联储连续三次维持利率不变 4人投反对票 鲍威尔称将留任理事 美联储主席杰罗姆·鲍威尔表示，他将在主席任期届满后继续留在该央行担任理事，从而结束了数月来外界关于他去留问题的猜测。 这一决定打破了以往美联储主席在任期结束后离开该央行的惯例，但鲍威尔表示，针对他本人及美联储的刑事调查威胁持续存在，使他别无选择只能留下。 “我的主席任期将于5月15日结束，之后我将继续担任理事一
+周五（5月29日）A股三大指数悉数收绿，荟聚电子板块核心龙头的电子ETF华宝（515260）随市盘整回调，场内价格重挫3.91%，全天成交额9067万元，环比小幅放量。 上交所数据显示，电子ETF华宝（515260）近6个交易日连续吸金，合计狂揽2.31亿元，反映资金看好电子板块后市表现，积极进场布局！ 成份股方面，PCB龙头深南电路、生益科技领涨超3%，果链龙头立讯精密、蓝思
 
 ## 正文
 
-专题：美联储连续三次维持利率不变 4人投反对票 鲍威尔称将留任理事 美联储主席杰罗姆·鲍威尔表示，他将在主席任期届满后继续留在该央行担任理事，从而结束了数月来外界关于他去留问题的猜测。
+周五（5月29日）A股三大指数悉数收绿，荟聚电子板块核心龙头的电子ETF华宝（515260）随市盘整回调，场内价格重挫3.91%，全天成交额9067万元，环比小幅放量。
 
-这一决定打破了以往美联储主席在任期结束后离开该央行的惯例，但鲍威尔表示，针对他本人及美联储的刑事调查威胁持续存在，使他别无选择只能留下。
+上交所数据显示，电子ETF华宝（515260）近6个交易日连续吸金，合计狂揽2.31亿元，反映资金看好电子板块后市表现，积极进场布局！
 
-“我的主席任期将于5月15日结束，之后我将继续担任理事一段时间，具体时长待定，”鲍威尔周三在新闻发布会上说。
+成份股方面，PCB龙头深南电路、生益科技领涨超3%，果链龙头立讯精密、蓝思科技、华勤技术逆市收红，其余44股尽墨，京东方A、士兰微跌停，华大九天跌近11%，跌幅居前，拖累指数表现。
 
-上一位在卸任主席后仍留任理事会的是马里纳·埃克尔斯，他在1948年卸任美联储主席后继续担任政策制定者，直至1951年。
+发生了什么？
 
-鲍威尔此举迅速招来特朗普的批评。
+为何半导体方向大幅下跌？
 
-一直推动美联储降息的特朗普多次批评鲍威尔。
+消息面上，大基金减持计划持续推进，减持中芯国际、沪硅产业等多只半导体股。
 
-他在社交媒体上表示：“杰罗姆·‘太迟’·鲍威尔想留在美联储，因为他在别处找不到工作——没人想要他。
+业内人士指出，大基金减持属于常规的市场化退出行为，其投资存在明确的退出周期。
 
-” “我计划作为理事保持低调，”他说，“美联储主席只有一个。
+只是减持消息在敏感期恰好被市场当作“高抛”的导火索，引发部分短线博弈资金的集中兑现，拖累了行情表现。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 01:44 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 01:43 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 01:59 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 01:52 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 01:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 01:44 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-30 02:02 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 01:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 02:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 01:58 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 01:42 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 02:09 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 01:45 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 01:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 01:43 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 01:48 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 02:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 01:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 01:56 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 02:12 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/252605647293.shtml)
-- 2026-06-30 01:49 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/49896.shtml)
-- 2026-06-30 01:58 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/53601.shtml)
-- 2026-06-30 01:46 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/574216.shtml)
-- 2026-06-30 02:00 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/29588401525.shtml)
-- 2026-06-30 01:46 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/253365335.shtml)
-- 2026-06-30 01:43 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/439068079769.shtml)
-- 2026-06-30 01:50 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/04351.shtml)
-- 2026-06-30 01:43 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/804114191914.shtml)
-- 2026-06-30 01:43 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/219927100.shtml)
-- 2026-06-30 01:54 - [请回答王牌2019](https://www.share.minike.top/Article/details/611274709208.shtml)
-- 2026-06-30 01:43 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/01953.shtml)
-- 2026-06-30 01:48 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/3904213467.shtml)
-- 2026-06-30 01:56 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/1300685.shtml)
-- 2026-06-30 01:44 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/47031507971.shtml)
+- 2026-06-30 01:45 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/92153170.shtml)
+- 2026-06-30 01:42 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/55438952287.shtml)
+- 2026-06-30 01:55 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/27882.shtml)
+- 2026-06-30 02:11 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/603777342276.shtml)
+- 2026-06-30 02:00 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/471179726.shtml)
+- 2026-06-30 01:49 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/806514.shtml)
+- 2026-06-30 01:49 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/5012237.shtml)
+- 2026-06-30 02:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/992623714865.shtml)
+- 2026-06-30 02:02 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/62423978.shtml)
+- 2026-06-30 02:11 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/2144975929.shtml)
+- 2026-06-30 01:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/58315120415.shtml)
+- 2026-06-30 02:05 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/986707555.shtml)
+- 2026-06-30 01:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/655992635623.shtml)
+- 2026-06-30 02:07 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/279925977351.shtml)
+- 2026-06-30 01:58 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/48456795587.shtml)

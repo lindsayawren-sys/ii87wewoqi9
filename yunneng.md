@@ -1,56 +1,50 @@
-# 国铁北京局2026年五一假期运输即将启动 预计发送旅客1303万人次
+# 中金：石药集团维持跑赢行业评级 目标价12港元
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月28日电(记者 贾天勇)记者从中国铁路北京局集团有限公司(以下简称：国铁北京局)获悉：2026年五一假期铁路运输期限为4月29日至5月6日，共计8天。国铁北京局预计发送旅客1303万人次(日均162.8万人次)，同比增幅6.8%。高峰日5月1日预计发送旅客186万人次。旅客出行目的地主要集中在上海、杭州、成都、西安等旅游热门城市，青岛、大连等沿海地区，以及京津冀区
+中金发布研报称，考虑对外授权收入确认节奏变化，下调石药集团（01093）2026年净利润17.6%至75.03亿元，上调2027年净利润72.2%至78.56亿元当前股价对应2026/2027年9.3倍/8.7倍市盈率。维持跑赢行业评级，考虑本次盈利预测调整仅因收入利润确认节奏变化，该行看好公司业绩恢复增长以及对外授权在后续三个季度的持续兑现，维持12.00港元目标价，对应15
 
 ## 正文
 
-中新网北京4月28日电(记者 贾天勇)记者从中国铁路北京局集团有限公司(以下简称：国铁北京局)获悉：2026年五一假期铁路运输期限为4月29日至5月6日，共计8天。
+中金发布研报称，考虑对外授权收入确认节奏变化，下调石药集团（01093）2026年净利润17.6%至75.03亿元，上调2027年净利润72.2%至78.56亿元当前股价对应2026/2027年9.3倍/8.7倍市盈率。
 
-国铁北京局预计发送旅客1303万人次(日均162.8万人次)，同比增幅6.8%。
+维持跑赢行业评级，考虑本次盈利预测调整仅因收入利润确认节奏变化，该行看好公司业绩恢复增长以及对外授权在后续三个季度的持续兑现，维持12.00港元目标价，对应15.9倍2026年市盈率和14.9倍2027年市盈率，较当前股价有70.5%的上行空间。
 
-高峰日5月1日预计发送旅客186万人次。
-
-旅客出行目的地主要集中在上海、杭州、成都、西安等旅游热门城市，青岛、大连等沿海地区，以及京津冀区域内北京至天津、石家庄、秦皇岛等短途方向；北京市域内八达岭、延庆方向也将迎来密集的往返客流。
-
-根据客票预售及旅客候补需求，国铁北京局通过动车组重联、加开临客高峰线等方式，动态实施“一日一图”，有针对性地补强热门方向运力，预计日均开行旅客列车1108对，较去年五一日均增开33对，全力保障旅客探亲、旅游等多元化出行需求。
-
-假日期间，热门方向高铁动车组每日采用重联方式运行43对，使出行集中方向的列车运力供给翻倍，并加大京津冀运力投放力度，为区域旅客出行提供便利。
-
-国铁北京局调整列车开行规律，从4月28日至5月7日每日开行昆明、深圳、成都、贵阳方向高铁动卧列车10对，旅客可以夜间乘火车，白天到目的地游玩。
-
-4月30日至5月4日，京津城际每日满图开行125对，方便京津两地旅客出行。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 02:04 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 01:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 01:54 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 01:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-30 01:36 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 02:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 02:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 01:52 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 02:02 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 01:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 02:03 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 02:07 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 01:48 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 02:10 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 02:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 02:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 02:02 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 01:47 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 01:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 01:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 02:11 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 01:46 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 02:09 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/5425798.shtml)
-- 2026-06-30 01:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/86370000.shtml)
-- 2026-06-30 01:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/476465.shtml)
-- 2026-06-30 01:36 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/5416162723.shtml)
-- 2026-06-30 01:38 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/61936379364.shtml)
-- 2026-06-30 02:03 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/7913194137.shtml)
-- 2026-06-30 01:39 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/90492.shtml)
-- 2026-06-30 01:53 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/0281087325.shtml)
-- 2026-06-30 01:42 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/93278.shtml)
-- 2026-06-30 01:57 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/570936144.shtml)
-- 2026-06-30 01:48 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/8787069.shtml)
-- 2026-06-30 01:42 - [天道](http://www.share.minike.top/Article/details/89475.shtml)
-- 2026-06-30 01:59 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/0318466785.shtml)
-- 2026-06-30 01:57 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/75339019.shtml)
-- 2026-06-30 01:48 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/01474477479.shtml)
+- 2026-06-30 02:04 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/458126.shtml)
+- 2026-06-30 01:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/4214762.shtml)
+- 2026-06-30 01:55 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/50335498104.shtml)
+- 2026-06-30 01:49 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/4209903.shtml)
+- 2026-06-30 01:50 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/720024897312.shtml)
+- 2026-06-30 02:01 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/812909588.shtml)
+- 2026-06-30 01:55 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/9605848457.shtml)
+- 2026-06-30 01:49 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/288169681.shtml)
+- 2026-06-30 02:00 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/38529.shtml)
+- 2026-06-30 01:58 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/1687461.shtml)
+- 2026-06-30 02:11 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/9328771.shtml)
+- 2026-06-30 01:53 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/757758.shtml)
+- 2026-06-30 01:50 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/866594.shtml)
+- 2026-06-30 01:57 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/9975167.shtml)
+- 2026-06-30 02:05 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/994485624628.shtml)

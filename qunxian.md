@@ -1,61 +1,59 @@
-# 辽宁鞍山出台“智改数转”三年行动 撬动产业转型
+# Almonty将跻身罗素1000与3000指数 战略转型获市场认可
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网鞍山4月28日电 (杨茜茜)鞍山市政府新闻办28日召开新闻发布会，正式发布《鞍山市深化制造业智能化改造数字化转型三年行动计划(2026－2028年)》及2026年工作要点，依托国家技改试点城市、省级中小企业数字化转型试点城市“双试点”优势，多部门联动推动老工业基地产业升级。 此次三年行动计划聚焦新一代信息技术与制造业融合，部署六大重点行动。作为启动之年，2026年鞍山明确
+钨精矿生产商Almonty Industries日前宣布，根据富时罗素于5月22日发布的初步名单，该公司将在2026年度指数重组后正式纳入大型股罗素1000指数和广泛市场罗素3000指数。此次纳入预计于2026年6月29日开盘时正式生效。 罗素美国指数年度重组将截至4月30日市值最大的约4000只美国股票纳入统计范围，并按总市值排名。一旦入选罗素3000指数，将自动纳入大盘股罗
 
 ## 正文
 
-中新网鞍山4月28日电 (杨茜茜)鞍山市政府新闻办28日召开新闻发布会，正式发布《鞍山市深化制造业智能化改造数字化转型三年行动计划(2026－2028年)》及2026年工作要点，依托国家技改试点城市、省级中小企业数字化转型试点城市“双试点”优势，多部门联动推动老工业基地产业升级。
+钨精矿生产商Almonty Industries日前宣布，根据富时罗素于5月22日发布的初步名单，该公司将在2026年度指数重组后正式纳入大型股罗素1000指数和广泛市场罗素3000指数。
 
-此次三年行动计划聚焦新一代信息技术与制造业融合，部署六大重点行动。
+此次纳入预计于2026年6月29日开盘时正式生效。
 
-作为启动之年，2026年鞍山明确七大核心任务，其中政策补助力度空前：国家技改试点项目按投资额20%补助，单个项目最高支持1000万元；省级数转试点对硬件、软件分别给予20%、40%补助。
+罗素美国指数年度重组将截至4月30日市值最大的约4000只美国股票纳入统计范围，并按总市值排名。
 
-据鞍山市工信局介绍，当地已统筹3.2亿元双试点资金，今年将滚动实施271个转型项目。
+一旦入选罗素3000指数，将自动纳入大盘股罗素1000指数以及相应的成长型和价值型风格指数。
 
-目前正开展全域政策宣贯与需求摸排，计划5月中旬前实现全市932户规上工业企业全覆盖，并为企业提供“一企一策”免费诊断服务。
+Almonty董事长、总裁兼首席执行官Lewis Black表示：“我们很荣幸能够加入罗素3000和1000指数，我们认为这反映了过去一年Almonty在运营和财务方面取得的重大进展，我们正稳固地确立自己作为西方钨供应链的基石。
 
-今年当地计划新增智能工厂培育库企业50户以上，争创5家先进级以上智能工厂，此前已向辽宁省推荐8户省级标杆企业、23户省级数字化车间及先进级智能工厂。
+”他指出，随着公司旗舰桑东矿在韩国投产、总部迁至美国，以及拥有强劲的资产负债表来支持持续增长，纳入罗素指数将进一步扩大在机构投资界的知名度，并在执行长期战略愿景的过程中拓宽股东基础。
 
-针对人才、技术痛点，鞍山多部门协同发力：教育系统构建多层次人才培养体系，建成135个产教融合实训基地；科技部门聚焦钢铁、菱镁产业实施省级科技攻关，打造“鞍矿模式”；数据局建成汇聚37亿条数据的共享交换平台，探索“算力租赁”模式降低中小企业转型成本。
+此次纳入罗素指数正值Almonty迎来发展转折点。
 
-鞍山将持续完善工业互联网底座，推进钢铁产业大脑建设，打造“人工智能+制造”标杆场景，力争走出具有地方特色的老工业基地转型新路径。
+公司2026年第一季度财报显示，受益于钨价创新高，营收同比增长221%至2540万加元，实现正运营现金流970万加元，调整后EBITDA为610万加元，较去年同期的-240万加元大幅改善。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 01:40 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 01:48 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 01:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 01:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-30 02:05 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 01:52 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 01:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 01:52 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 01:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 01:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 01:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 01:51 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 01:42 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 01:46 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 02:04 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 01:56 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 01:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:08 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 01:59 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 01:42 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 02:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 02:04 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 01:51 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 02:08 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 01:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 01:43 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/7273646144.shtml)
-- 2026-06-30 01:44 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/0963166818.shtml)
-- 2026-06-30 01:44 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/381910614821.shtml)
-- 2026-06-30 01:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/294890315.shtml)
-- 2026-06-30 01:56 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/400782.shtml)
-- 2026-06-30 01:42 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/8228848.shtml)
-- 2026-06-30 01:44 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/202809751.shtml)
-- 2026-06-30 02:03 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/23102132.shtml)
-- 2026-06-30 01:50 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/3717918259.shtml)
-- 2026-06-30 01:45 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/100129358447.shtml)
-- 2026-06-30 01:56 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/268639244594.shtml)
-- 2026-06-30 02:04 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/836869781504.shtml)
-- 2026-06-30 02:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/32573648103.shtml)
-- 2026-06-30 01:58 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/914895013408.shtml)
-- 2026-06-30 01:54 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/5641110.shtml)
+- 2026-06-30 02:10 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/14675.shtml)
+- 2026-06-30 02:11 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/53725263.shtml)
+- 2026-06-30 01:57 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/692994226288.shtml)
+- 2026-06-30 01:54 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/6683805.shtml)
+- 2026-06-30 01:47 - [乔家的儿女](http://www.blog.minike.top/Article/details/3750675.shtml)
+- 2026-06-30 02:11 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/048906154295.shtml)
+- 2026-06-30 01:43 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/5121299.shtml)
+- 2026-06-30 01:57 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/6222601.shtml)
+- 2026-06-30 01:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/317005.shtml)
+- 2026-06-30 01:47 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/53771.shtml)
+- 2026-06-30 02:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/649106603.shtml)
+- 2026-06-30 02:09 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/72457347.shtml)
+- 2026-06-30 02:08 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/6103989.shtml)
+- 2026-06-30 02:09 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/2295390.shtml)
+- 2026-06-30 01:45 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/68679.shtml)

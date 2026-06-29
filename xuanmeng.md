@@ -1,61 +1,57 @@
-# 空客一季度营收超预期但利润腰斩，防务业务抵消交付下滑
+# 全球跨境财富中心转移到亚洲，黄金贸易同步迎来爆发
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-飞机制造商空中客车周二公布的第一季度财报喜忧参半：尽管营收略高于市场预期，但受商用飞机交付量下降及供应链瓶颈拖累，核心利润同比暴跌逾50%，不过防务与航天业务的强劲增长在一定程度上抵消了不利影响。 财报显示，空客第一季度营收为126.5亿欧元，同比下降7%，但略低于分析师预期的128.7亿欧元。经调整后的息税前利润为3亿欧元，较去年同期的6.24亿欧元暴跌52%，远低于市场预期
+文章来源：汇通财经 凭借得天独厚的区位与金融优势，香港在全球黄金交易、跨境财富管理领域的影响力持续攀升，最新数据显示其已超越瑞士成为全球第一大离岸财富枢纽。 内地银行密集优化黄金业务、放宽交易限制，推动经香港入境的黄金规模大幅增长。放眼全球，财富格局迎来深度重塑，亚洲资本吸引力不断增强，区域财富传承与资产配置也随之呈现出新趋势。 黄金进口量翻倍，内地银行加码黄金零售业务 香港政
 
 ## 正文
 
-飞机制造商空中客车周二公布的第一季度财报喜忧参半：尽管营收略高于市场预期，但受商用飞机交付量下降及供应链瓶颈拖累，核心利润同比暴跌逾50%，不过防务与航天业务的强劲增长在一定程度上抵消了不利影响。
+文章来源：汇通财经 凭借得天独厚的区位与金融优势，香港在全球黄金交易、跨境财富管理领域的影响力持续攀升，最新数据显示其已超越瑞士成为全球第一大离岸财富枢纽。
 
-财报显示，空客第一季度营收为126.5亿欧元，同比下降7%，但略低于分析师预期的128.7亿欧元。
+内地银行密集优化黄金业务、放宽交易限制，推动经香港入境的黄金规模大幅增长。
 
-经调整后的息税前利润为3亿欧元，较去年同期的6.24亿欧元暴跌52%，远低于市场预期的约3.78亿至4.44亿欧元区间。
+放眼全球，财富格局迎来深度重塑，亚洲资本吸引力不断增强，区域财富传承与资产配置也随之呈现出新趋势。
 
-商用飞机交付受阻，防务业务成亮点 交付数据方面，空客第一季度共交付114架商用飞机，较去年同期的136架下降16%。
+黄金进口量翻倍，内地银行加码黄金零售业务 香港政府统计处周四（5月28日）发布数据，4月内地经香港净进口黄金86.715吨，环比增幅高达81.2%，较3月的47.866吨近乎实现翻倍。
 
-其中A320系列交付81架，A220交付19架，A350交付11架，A330交付3架。
+作为全球最大黄金消费市场，内地黄金流入规模显著走高，而多家银行推出的新政将进一步放大这一趋势。
 
-交付放缓的主要原因是核心供应商普惠的发动机持续短缺，以及A320机身整流罩生产缺陷导致的修复工作。
+当前国际金价自历史高点回落至每盎司4500美元下方，市场波动趋于平稳。
 
-空客首席执行官在声明中表示：“第一季度业绩反映了民用飞机交付量的下降以及防务与航天的强劲表现。
+各大银行纷纷优化黄金积存服务，同时多家机构延长线上交易时长，将夜盘交易结束时间延至次日凌晨两点，覆盖国际市场活跃时段，还推出手续费减免、主题优惠等活动，降低投资门槛。
 
-”国防与航天部门成为本季度的亮点，收入增长7%至28亿欧元，调整后息税前利润激增69%至1.3亿欧元，主要得益于订单量同比大增91%至约50亿欧元。
+业内人士表示，低利率环境下优质资产稀缺，金价底部支撑不断抬升，黄金已成为居民财富配置的重要选择。
 
 ## 相关推荐
 
-- 2026-06-30 02:01 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 01:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 01:50 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 01:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 01:37 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 01:54 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 01:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-30 01:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 02:04 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 02:02 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 01:43 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 01:36 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 01:52 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 01:54 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 02:03 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 02:07 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 01:52 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 02:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 02:02 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-30 02:09 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 01:52 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 02:11 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 01:44 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 01:44 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 01:47 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 01:47 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/85405952.shtml)
-- 2026-06-30 02:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/186513471.shtml)
-- 2026-06-30 01:43 - [恋与深空 日服](http://www.share.minike.top/Article/details/0805477516.shtml)
-- 2026-06-30 02:04 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/693916103.shtml)
-- 2026-06-30 01:56 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/2172965664.shtml)
-- 2026-06-30 01:49 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/263582337588.shtml)
-- 2026-06-30 01:51 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/92050141.shtml)
-- 2026-06-30 01:51 - [我们的少年时代2](http://www.blog.minike.top/Article/details/735219577286.shtml)
-- 2026-06-30 01:50 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/946299329.shtml)
-- 2026-06-30 02:04 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/07818818456.shtml)
-- 2026-06-30 01:46 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/4448449993.shtml)
-- 2026-06-30 01:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/15256.shtml)
-- 2026-06-30 02:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/71302543.shtml)
-- 2026-06-30 01:54 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/073841.shtml)
-- 2026-06-30 01:42 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/646144.shtml)
+- 2026-06-30 01:46 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/00704282.shtml)
+- 2026-06-30 01:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/3207291323.shtml)
+- 2026-06-30 02:06 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/53303906705.shtml)
+- 2026-06-30 02:06 - [爱很美味](http://www.blog.minike.top/Article/details/29555916512.shtml)
+- 2026-06-30 01:42 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/091169563423.shtml)
+- 2026-06-30 02:10 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/2519741059.shtml)
+- 2026-06-30 01:56 - [锐评T1零封KC](https://www.share.minike.top/Article/details/5266775.shtml)
+- 2026-06-30 01:53 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/552132965.shtml)
+- 2026-06-30 01:44 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/930893.shtml)
+- 2026-06-30 01:54 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/246836809929.shtml)
+- 2026-06-30 01:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/938337.shtml)
+- 2026-06-30 01:51 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/357233.shtml)
+- 2026-06-30 02:06 - [请回答王牌2019](http://www.share.minike.top/Article/details/17745.shtml)
+- 2026-06-30 01:47 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/1545138.shtml)
+- 2026-06-30 01:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/8016797.shtml)

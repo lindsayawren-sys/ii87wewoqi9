@@ -1,50 +1,56 @@
-# 浙江省统战宣传工作和网络统战工作推进活动举行
+# 中国“三夏”大规模小麦机收全面展开
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-全省统战宣传工作和网络统战工作推进活动举行 4月29日，全省统战宣传工作和网络统战工作推进活动在杭州举行，省委常委、统战部部长冯怡出席并讲话。 此次活动系统部署统战宣传工作和网络统战工作，要求全面做好统战宣传工作，有效壮大统一战线主流思想舆论，全面完善优质内容生产传播链条，系统构建统战宣传工作一盘棋格局；加力推进网络统战工作，持续加大探索创新和试点先行，推动形成更多具有浙江辨识
+中新社北京5月28日电 (记者 陈溯)记者28日从中国农业农村部获悉，中国“三夏”(夏收、夏种、夏管)大规模小麦机收全面展开。 截至28日17时，各地已收夏粮小麦4897万亩。当前麦收总体进度已近两成，西南地区及湖北麦收已进入尾声，河南、安徽进度近一成，江苏、陕西等地陆续开收。今年“三夏”，全国将投入各类农机具超1700万台(套)，其中联合收割机80多万台、参与跨区作业的20多
 
 ## 正文
 
-全省统战宣传工作和网络统战工作推进活动举行 4月29日，全省统战宣传工作和网络统战工作推进活动在杭州举行，省委常委、统战部部长冯怡出席并讲话。
+中新社北京5月28日电 (记者 陈溯)记者28日从中国农业农村部获悉，中国“三夏”(夏收、夏种、夏管)大规模小麦机收全面展开。
 
-此次活动系统部署统战宣传工作和网络统战工作，要求全面做好统战宣传工作，有效壮大统一战线主流思想舆论，全面完善优质内容生产传播链条，系统构建统战宣传工作一盘棋格局；加力推进网络统战工作，持续加大探索创新和试点先行，推动形成更多具有浙江辨识度的标志性成果；加强组织领导，一体推进统战宣传工作和网络统战工作，形成与大统战工作格局相匹配、与统战工作新形势新任务新要求相适应的工作新局面，更好发挥统一战线凝聚人心、汇聚力量的政治作用。
+截至28日17时，各地已收夏粮小麦4897万亩。
 
-活动中组织观摩杭州市网络统战工作内容制作中心，杭州市委统战部、温州市委统战部、台州市委统战部等作交流发言。
+当前麦收总体进度已近两成，西南地区及湖北麦收已进入尾声，河南、安徽进度近一成，江苏、陕西等地陆续开收。
 
-(“浙江统战”微信公众号)
+今年“三夏”，全国将投入各类农机具超1700万台(套)，其中联合收割机80多万台、参与跨区作业的20多万台。
+
+农业农村部提前组织各地做好机收准备，联合相关部门单位加强农机作业服务保障。
+
+目前，各麦收省份已设立跨区作业接待服务站3100多个，为跨区机手提供作业对接、维修保养等信息和生活食宿便利。
+
+交通运输部门组织高速公路收费站开通农机绿色通道5500多个。
+
+为应对近期强降雨天气不利影响，农业农村部指导相关省份迅速行动，组织3300多家区域农机社会化服务中心、2000多家区域农业应急救灾中心、5900多支常态化农机应急作业服务队，动员28万多台履带收割机、7万多台烘干机，全力以赴保障成熟小麦适收快收、应烘尽烘。
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 01:46 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 02:01 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 02:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 01:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 01:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 01:53 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-30 01:42 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 01:47 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 02:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 01:56 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 01:52 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 02:05 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 02:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 01:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 01:43 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 02:11 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 01:59 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 01:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 01:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 01:55 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-30 02:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/926639496.shtml)
-- 2026-06-30 01:43 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/76592.shtml)
-- 2026-06-30 01:44 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/24335459.shtml)
-- 2026-06-30 01:47 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/479111.shtml)
-- 2026-06-30 01:47 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/29917420258.shtml)
-- 2026-06-30 01:36 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/3436075300.shtml)
-- 2026-06-30 01:53 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/860492112.shtml)
-- 2026-06-30 01:59 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/144580051.shtml)
-- 2026-06-30 01:55 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/2121095.shtml)
-- 2026-06-30 01:41 - [沙丘](https://www.blog.kurohicncr.top/Article/details/204696359917.shtml)
-- 2026-06-30 01:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/440872.shtml)
-- 2026-06-30 01:47 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/5414120.shtml)
-- 2026-06-30 01:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/700781448.shtml)
-- 2026-06-30 02:02 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/928749.shtml)
-- 2026-06-30 01:50 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/31063.shtml)
+- 2026-06-30 01:47 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/1231315.shtml)
+- 2026-06-30 01:53 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/9350786.shtml)
+- 2026-06-30 01:43 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/91438.shtml)
+- 2026-06-30 01:45 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/208239433.shtml)
+- 2026-06-30 01:47 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/575959396583.shtml)
+- 2026-06-30 02:11 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/93864309.shtml)
+- 2026-06-30 01:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/3953882933.shtml)
+- 2026-06-30 01:46 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/9427369958.shtml)
+- 2026-06-30 01:43 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/808265.shtml)
+- 2026-06-30 02:00 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/608208855.shtml)
+- 2026-06-30 01:49 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/350380796100.shtml)
+- 2026-06-30 02:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/846463.shtml)
+- 2026-06-30 01:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/576015.shtml)
+- 2026-06-30 02:10 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/2519185587.shtml)
+- 2026-06-30 01:55 - [日本16强魔咒](https://www.blog.minike.top/Article/details/69002.shtml)

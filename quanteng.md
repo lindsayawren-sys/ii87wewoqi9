@@ -1,56 +1,57 @@
-# True Anomaly融资6.5亿美元，为特朗普“金穹”项目研发太空拦截器
+# 全方位解析出海机遇，景顺长城出海投资机遇展望报告发布
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-要点： 总部位于科罗拉多州、为特朗普政府宏大的 “金穹”天基导弹防御系统研发太空拦截器的初创公司 True Anomaly 于周二宣布，已完成6.5 亿美元 融资。 这家成立四年的公司目前估值22 亿美元，累计融资总额达10 亿美元。True Anomaly 计划将这笔资金用于业务扩张，并在今年年底前将员工人数从目前水平增加近一倍至 500 人。 “太空已成为作战领域，我们的对
+“出海的行情不是昙花一现，而是可以持续很长一段时间的行情，会贯穿A股投资的方方面面。”5月26日，在景顺长城基金举办的中国企业的“大航海时代”——2026年出海新趋势和投资机遇展望策略会上，景顺长城股票投资部基金经理柯海东表达了上述观点。 海关总署数据显示，即便是在处于全球贸易摩擦新常态的2025年，中国的年度出口同比增速仍达6.1%，贸易顺差提升至1.2万亿美元，在全球供给体
 
 ## 正文
 
-要点： 总部位于科罗拉多州、为特朗普政府宏大的 “金穹”天基导弹防御系统研发太空拦截器的初创公司 True Anomaly 于周二宣布，已完成6.5 亿美元 融资。
+“出海的行情不是昙花一现，而是可以持续很长一段时间的行情，会贯穿A股投资的方方面面。
 
-这家成立四年的公司目前估值22 亿美元，累计融资总额达10 亿美元。
+”5月26日，在景顺长城基金举办的中国企业的“大航海时代”——2026年出海新趋势和投资机遇展望策略会上，景顺长城股票投资部基金经理柯海东表达了上述观点。
 
-True Anomaly 计划将这笔资金用于业务扩张，并在今年年底前将员工人数从目前水平增加近一倍至 500 人。
+海关总署数据显示，即便是在处于全球贸易摩擦新常态的2025年，中国的年度出口同比增速仍达6.1%，贸易顺差提升至1.2万亿美元，在全球供给体系中的位置仍然稳固。
 
-“太空已成为作战领域，我们的对手正以前所未有的规模构建太空作战能力，” 公司首席执行官埃文・罗杰斯（Even Rogers）向 CNBC 表示。
+对应到资本市场，从潮玩消费品火爆全球到创新药BD的爆发，再到光模块龙头一年十倍的火爆表现——尽管这些行业千差万别，但背后都指向了“出海”。
 
-全球太空竞赛正持续升温，投资者对埃隆・马斯克旗下 SpaceX 期待已久的上市热情高涨，私人太空企业因此受益。
+由此，一些深层次的问题得以浮现：中国的出口为什么能保持韧性？
 
-初创公司 Vast 与 Sierra Space 近期均完成了5 亿美元及以上的融资。
+中国企业出海有哪些新趋势值得我们关注？
 
-与此同时，美国政府通过 “阿尔忒弥斯”（Artemis）计划，近半个世纪来首次将宇航员送回月球，并持续投资太空安全领域。
+是否蕴藏着值得挖掘的投资机遇？
 
-地缘政治紧张局势下，国防装备需求激增，为太空企业创造巨大机遇，尤其是那些可近距离追踪并拦截导弹的卫星及装备制造商。
+继连续多年发布科技产业洞察报告、红利策略洞察报告后，股票投资领先的多资产管理专家景顺长城再次重磅推出《中国企业的“大航海时代”——2026年中国企业出海新趋势及投资机遇展望》（下称“报告”）。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 02:05 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 01:56 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 01:53 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:39 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 02:01 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 01:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 02:00 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 01:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 01:57 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 01:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 01:59 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 01:59 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 02:01 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 02:09 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 01:48 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 01:50 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 02:11 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 02:09 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 02:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 01:45 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/55591006618.shtml)
-- 2026-06-30 01:47 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/051888.shtml)
-- 2026-06-30 01:51 - [美股](https://www.share.kurohicncr.top/Article/details/331570.shtml)
-- 2026-06-30 02:02 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/2784194.shtml)
-- 2026-06-30 01:56 - [日本16强魔咒](https://www.blog.minike.top/Article/details/675833679.shtml)
-- 2026-06-30 01:41 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/68428566.shtml)
-- 2026-06-30 01:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/450552024870.shtml)
-- 2026-06-30 01:46 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/429973.shtml)
-- 2026-06-30 01:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/491496807646.shtml)
-- 2026-06-30 01:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/2856382.shtml)
-- 2026-06-30 01:36 - [千香](https://www.share.minike.top/Article/details/4620925920.shtml)
-- 2026-06-30 01:58 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/66482.shtml)
-- 2026-06-30 01:44 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/45463000.shtml)
-- 2026-06-30 01:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/666136.shtml)
-- 2026-06-30 02:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/6706418892.shtml)
+- 2026-06-30 01:51 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/552688355.shtml)
+- 2026-06-30 01:57 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/326685343759.shtml)
+- 2026-06-30 02:03 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/86958.shtml)
+- 2026-06-30 02:05 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/595851323.shtml)
+- 2026-06-30 01:45 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/886104926099.shtml)
+- 2026-06-30 01:42 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/732285.shtml)
+- 2026-06-30 01:43 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/8952219.shtml)
+- 2026-06-30 01:45 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/7618141074.shtml)
+- 2026-06-30 01:46 - [绘画区你赢了](http://www.blog.minike.top/Article/details/030965.shtml)
+- 2026-06-30 01:45 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/52717671089.shtml)
+- 2026-06-30 01:59 - [流金岁月](https://www.share.minike.top/Article/details/183946.shtml)
+- 2026-06-30 01:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/97618.shtml)
+- 2026-06-30 02:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/21759936078.shtml)
+- 2026-06-30 01:47 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/1992266257.shtml)
+- 2026-06-30 01:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/4364561.shtml)

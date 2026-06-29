@@ -1,59 +1,60 @@
-# 苹果筹备iOS 27全新AI工具，全面改版照片编辑功能
+# 明尼阿波利斯联储行长卡什卡里：现在就断定美联储需要升息还为时过早
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-苹果公司正计划对 iPhone、iPad 及 Mac 的原生照片编辑功能进行重大升级，深度依托人工智能技术，以此缩小与安卓设备的竞争差距。 据知情人士透露，苹果正在为今年秋季推出的 iOS 27、iPadOS 27 以及 macOS 27 系统，研发一套由苹果智能平台驱动的全新工具套件。 该系列功能将借助端侧人工智能模型，支持用户拓展画面、优化画质、重新构图。相关知情人士表示，
+明尼阿波利斯联储行长尼尔·卡什卡里表示，现在断定利率需要上升还为时过早，但他认为美联储应当保留所有政策选项。 卡什卡里周五在首尔高丽大学的一场活动上表示，“我认为，现在就断定我们需要立即加息还为时过早。我们需要继续观察经济数据，并关注中东冲突的后续发展，然后我才会考虑是否需要调整政策。” 美联储官员在4月会议上维持利率不变。虽然卡什卡里支持这一决定，但他是三位对会后声明措辞提出
 
 ## 正文
 
-苹果公司正计划对 iPhone、iPad 及 Mac 的原生照片编辑功能进行重大升级，深度依托人工智能技术，以此缩小与安卓设备的竞争差距。
+明尼阿波利斯联储行长尼尔·卡什卡里表示，现在断定利率需要上升还为时过早，但他认为美联储应当保留所有政策选项。
 
-据知情人士透露，苹果正在为今年秋季推出的 iOS 27、iPadOS 27 以及 macOS 27 系统，研发一套由苹果智能平台驱动的全新工具套件。
+卡什卡里周五在首尔高丽大学的一场活动上表示，“我认为，现在就断定我们需要立即加息还为时过早。
 
-该系列功能将借助端侧人工智能模型，支持用户拓展画面、优化画质、重新构图。
+我们需要继续观察经济数据，并关注中东冲突的后续发展，然后我才会考虑是否需要调整政策。
 
-相关知情人士表示，这类 AI 处理操作通常仅需数秒即可完成。
+” 美联储官员在4月会议上维持利率不变。
 
-在 AI 影像编辑领域，苹果目前处于追赶阶段。
+虽然卡什卡里支持这一决定，但他是三位对会后声明措辞提出异议的决策者之一。
 
-谷歌多年来已在 Pixel 系列设备上线高阶 AI 修图功能，包含魔法消除、照片去模糊、生成式扩图等工具。
+该声明暗示美联储下一步行动可能是降息。
 
-搭载安卓系统的三星电子，也在其 Galaxy 智能手机系列中大力布局 AI 图像编辑能力。
+卡什卡里和其另外两位同事主张采用更中性的表述，以传递这样一个信号：加息与降息的可能性同样存在。
 
-目前，苹果照片应用的编辑功能主要分为四大板块：调整、滤镜、裁剪、清除。
+与许多美联储官员一样，卡什卡里表示，伊朗战争加剧了美国经济前景的不确定性。
 
 ## 相关推荐
 
-- 2026-06-30 01:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 01:37 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 01:56 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 01:42 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 01:40 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 01:40 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 01:36 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 01:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 01:58 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 01:57 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 01:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 01:37 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 01:37 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 01:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 02:09 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 02:06 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 01:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 02:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 01:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 02:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 01:52 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 01:47 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 02:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 01:55 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 02:04 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-30 02:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 02:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:56 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/581368914750.shtml)
-- 2026-06-30 02:01 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/06974694162.shtml)
-- 2026-06-30 01:49 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/331365.shtml)
-- 2026-06-30 02:01 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/05932426.shtml)
-- 2026-06-30 01:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/3973338.shtml)
-- 2026-06-30 01:59 - [极限挑战第一季](https://www.share.minike.top/Article/details/9346835058.shtml)
-- 2026-06-30 01:46 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/713036.shtml)
-- 2026-06-30 01:59 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/89302400538.shtml)
-- 2026-06-30 01:50 - [日本16强魔咒](http://www.blog.minike.top/Article/details/215546.shtml)
-- 2026-06-30 01:49 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/53040326962.shtml)
-- 2026-06-30 01:52 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/88647811.shtml)
-- 2026-06-30 01:39 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/65162.shtml)
-- 2026-06-30 01:36 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/96702367324.shtml)
-- 2026-06-30 01:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/07664137.shtml)
-- 2026-06-30 01:50 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/333195188.shtml)
+- 2026-06-30 01:55 - [时光音乐会](https://www.share.minike.top/Article/details/63710.shtml)
+- 2026-06-30 02:04 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/53525073322.shtml)
+- 2026-06-30 02:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/109646329510.shtml)
+- 2026-06-30 01:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/25686001636.shtml)
+- 2026-06-30 02:08 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/0862912.shtml)
+- 2026-06-30 02:04 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/235985.shtml)
+- 2026-06-30 01:56 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/319124443.shtml)
+- 2026-06-30 02:00 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/495441.shtml)
+- 2026-06-30 02:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/7162762029.shtml)
+- 2026-06-30 02:07 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/62515.shtml)
+- 2026-06-30 02:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/88982.shtml)
+- 2026-06-30 01:47 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/71692476807.shtml)
+- 2026-06-30 01:49 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/09895730365.shtml)
+- 2026-06-30 02:03 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/9777809.shtml)
+- 2026-06-30 01:53 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/14890369537.shtml)

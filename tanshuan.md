@@ -1,58 +1,57 @@
-# 评论：波浪能为何必须成为英国的下一个绿色前沿
+# 山西“十五五”全面推进美丽蓝天建设 聚焦重点行业深度减排
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-作为一个拥有超过1.1万英里海岸线的岛国，英国坐拥地球上最强大、却被最忽视的可再生能源资源之一：海洋波浪能。几十年来，海上风电一直主导着英国的清洁能源格局，但波浪能已不再是遥远的前景。它现在是一项经过验证、可部署的技术，其时代已经到来。 最近的全球能源市场冲击使波浪能的理由更加强烈。地缘政治紧张局势再次导致油气价格飙升，英国经济承受着能源成本上升、通胀加剧的压力。气候变化委员会
+中新网太原5月29日电 (记者 杨杰英)“十四五”以来，山西省环境空气质量持续改善。在29日举行的2025年全省生态环境质量状况新闻发布会上，山西省生态环境厅大气环境处处长高峰表示，“十五五”时期山西将以重点行业深度减排为突破口，全面推进美丽蓝天建设。高峰表示，回顾五年来的工作实践，污染减排是根本措施。大气污染防治的核心是减少污染物排放，山西充分发挥生态环境保护和高质量发展互促
 
 ## 正文
 
-作为一个拥有超过1.1万英里海岸线的岛国，英国坐拥地球上最强大、却被最忽视的可再生能源资源之一：海洋波浪能。
+中新网太原5月29日电 (记者 杨杰英)“十四五”以来，山西省环境空气质量持续改善。
 
-几十年来，海上风电一直主导着英国的清洁能源格局，但波浪能已不再是遥远的前景。
+在29日举行的2025年全省生态环境质量状况新闻发布会上，山西省生态环境厅大气环境处处长高峰表示，“十五五”时期山西将以重点行业深度减排为突破口，全面推进美丽蓝天建设。
 
-它现在是一项经过验证、可部署的技术，其时代已经到来。
+高峰表示，回顾五年来的工作实践，污染减排是根本措施。
 
-最近的全球能源市场冲击使波浪能的理由更加强烈。
+大气污染防治的核心是减少污染物排放，山西充分发挥生态环境保护和高质量发展互促共进的作用，着力推动产业、能源、交通绿色低碳转型。
 
-地缘政治紧张局势再次导致油气价格飙升，英国经济承受着能源成本上升、通胀加剧的压力。
+一组数据可以佐证：“十四五”期间，山西累计淘汰落后煤电机组412万千瓦，全面退出4.3米焦炉，压减粗钢产能306万吨，新增清洁取暖改造229.9万户，基本淘汰35蒸吨及以下燃煤锅炉，新能源重卡数量达到3.23万辆。
 
-气候变化委员会的新报告强调，到2050年实现净零排放的预计成本低于一次重大化石燃料价格冲击的经济影响——而这还是在海湾危机开始之前。
+同时，21家钢铁企业、66家焦化企业、43家水泥熟料企业加快推进超低排放改造，从源头大幅降低了污染物排放总量。
 
-正如能源安全与净零排放国务大臣经常强调的那样，脱碳不仅仅是气候义务，更是保护家庭和企业免受未来价格冲击的一种方式。
+精准治理是有效路径。
 
-使这一时刻具有历史意义的是，波浪能最大的障碍已被攻克。
+高峰介绍，大气污染治理点多面广，涉及工业源、交通源、生活源等方方面面。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 01:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 01:52 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 01:58 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 02:01 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 01:40 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 01:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 02:01 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-30 01:55 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 01:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 01:49 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 01:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 02:02 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 02:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 02:01 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 02:11 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 01:49 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 02:05 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 01:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 01:45 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 01:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 01:44 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 02:08 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/6149865.shtml)
-- 2026-06-30 01:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/013591708.shtml)
-- 2026-06-30 01:55 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/89936998112.shtml)
-- 2026-06-30 01:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/5381273436.shtml)
-- 2026-06-30 01:49 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/5782456.shtml)
-- 2026-06-30 01:41 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/2519896.shtml)
-- 2026-06-30 01:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/2859530.shtml)
-- 2026-06-30 01:55 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/26243005.shtml)
-- 2026-06-30 02:05 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/73243962265.shtml)
-- 2026-06-30 02:03 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/599891994211.shtml)
-- 2026-06-30 01:46 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/618692391.shtml)
-- 2026-06-30 01:58 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/613032568350.shtml)
-- 2026-06-30 02:01 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/4776381881.shtml)
-- 2026-06-30 01:54 - [曝詹姆斯即将与勇士会面](http://www.share.kurohicncr.top/Article/details/629344.shtml)
-- 2026-06-30 01:53 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/723771.shtml)
+- 2026-06-30 01:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/49929836.shtml)
+- 2026-06-30 01:42 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/30983.shtml)
+- 2026-06-30 01:46 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/01777939264.shtml)
+- 2026-06-30 01:58 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/757172666177.shtml)
+- 2026-06-30 01:48 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/634208.shtml)
+- 2026-06-30 02:07 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/3638809291.shtml)
+- 2026-06-30 01:54 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/156501409.shtml)
+- 2026-06-30 02:05 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/840578.shtml)
+- 2026-06-30 01:54 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/82537566207.shtml)
+- 2026-06-30 01:43 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/201539669536.shtml)
+- 2026-06-30 01:54 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/62242911.shtml)
+- 2026-06-30 02:11 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/72925408.shtml)
+- 2026-06-30 01:58 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/23009.shtml)
+- 2026-06-30 01:47 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/049398901.shtml)
+- 2026-06-30 01:48 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/0560021.shtml)

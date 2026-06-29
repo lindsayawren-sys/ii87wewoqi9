@@ -1,60 +1,60 @@
-# 美国将发行印有特朗普肖像的护照 以纪念美国独立250周年
+# 又一百亿美元级BD！信达生物牵手辉瑞，股价暴涨7%！重视港股通创新药底部配置机遇
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-一名美国国务院官员周二表示，美国将很快开始发行内页印有唐纳德·特朗普总统肖像的护照。 该官员表示，对于在华盛顿护照代理处亲自续签护照的人，这种护照“将成为该代理处可用的默认护照”。 官员称：“在线申请或其他地点的续签将维持现有的护照设计。” 特朗普的肖像出现在美国护照上，是所谓“纪念美国独立250周年”物品中使用其形象的最新——也是最重大的一例。与纪念币或国家公园通票不同，美国
+创新药又曝重磅BD！继与礼来达成第七次BD合作后，今日（5月29日），信达生物官宣其年内第二笔与MNC的重大BD项目——公司与辉瑞就肿瘤药物达成合作，交易总额达105亿美元。 根据公告，信达生物连同其附属公司与辉瑞公司签署全球战略许可及合作协议，双方宣布针对12个具有突破性潜力的肿瘤早期及源头创新研发项目展开深度合作，覆盖多款具有新型差异化载荷ADC及多抗。 根据协议，该合作首
 
 ## 正文
 
-一名美国国务院官员周二表示，美国将很快开始发行内页印有唐纳德·特朗普总统肖像的护照。
+创新药又曝重磅BD！
 
-该官员表示，对于在华盛顿护照代理处亲自续签护照的人，这种护照“将成为该代理处可用的默认护照”。
+继与礼来达成第七次BD合作后，今日（5月29日），信达生物官宣其年内第二笔与MNC的重大BD项目——公司与辉瑞就肿瘤药物达成合作，交易总额达105亿美元。
 
-官员称：“在线申请或其他地点的续签将维持现有的护照设计。
+根据公告，信达生物连同其附属公司与辉瑞公司签署全球战略许可及合作协议，双方宣布针对12个具有突破性潜力的肿瘤早期及源头创新研发项目展开深度合作，覆盖多款具有新型差异化载荷ADC及多抗。
 
-” 特朗普的肖像出现在美国护照上，是所谓“纪念美国独立250周年”物品中使用其形象的最新——也是最重大的一例。
+根据协议，该合作首付款为6.5亿美元，里程碑付款最高达98.5亿美元，交易总价值高达105亿美元，同时部分项目还将涉及双位数销售分成或利润共享。
 
-与纪念币或国家公园通票不同，美国护照是国际认可的身份证件，通常有效期为10年。
+二级市场急速响应！
 
-根据护照的样稿，特朗普的面孔和他的金色签名将出现在护照的内封面。
+29日早盘，信达生物跳空高开，涨幅一度逼近10%，截至发稿涨7%。
 
-美国国务院发言人汤米·皮戈特周二表示：“随着美国在7月庆祝独立250周年，国务院正准备发行限量版特别设计的美国护照，以纪念这一历史性时刻。
+板块方面，港股通创新药早盘高开后震荡回落，系百济神州、翰森制药、荣昌生物等多股飘绿拖累。
 
-” 他说：“这些护照将采用定制化的艺术图案和增强的图像，同时保持与世界其他护照相同的安全特性，使美国护照成为全球最安全的证件。
+100%创新药研发标的——港股通创新药ETF华宝（520880）一度涨逾1%，截至发稿在水面下方盘整，场内价格续探历史新低。
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 01:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 01:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 01:39 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 02:03 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 01:59 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 01:37 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 02:03 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-30 01:51 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 01:43 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 01:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-30 02:05 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 02:01 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 02:05 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 02:07 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 02:01 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 02:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:03 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 01:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 02:06 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 01:56 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 01:44 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 01:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 01:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 01:49 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 01:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 01:45 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 02:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/55087.shtml)
-- 2026-06-30 02:01 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/71655375.shtml)
-- 2026-06-30 02:02 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/0811577.shtml)
-- 2026-06-30 01:55 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/157486408857.shtml)
-- 2026-06-30 02:05 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/6956331534.shtml)
-- 2026-06-30 01:38 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/722161558107.shtml)
-- 2026-06-30 01:57 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/170804128378.shtml)
-- 2026-06-30 01:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/159355461.shtml)
-- 2026-06-30 01:40 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/823104543.shtml)
-- 2026-06-30 01:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/232419753657.shtml)
-- 2026-06-30 01:49 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/38383750137.shtml)
-- 2026-06-30 02:02 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/489900490853.shtml)
-- 2026-06-30 01:43 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/049169330439.shtml)
-- 2026-06-30 02:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/61014.shtml)
-- 2026-06-30 01:52 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/868374.shtml)
+- 2026-06-30 01:57 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/37849432905.shtml)
+- 2026-06-30 01:44 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/297742757938.shtml)
+- 2026-06-30 01:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/9295621075.shtml)
+- 2026-06-30 01:52 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/080705.shtml)
+- 2026-06-30 01:51 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/968960.shtml)
+- 2026-06-30 01:50 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/17015626.shtml)
+- 2026-06-30 02:10 - [千与千寻](http://www.share.kurohicncr.top/Article/details/40327484883.shtml)
+- 2026-06-30 01:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/77802291.shtml)
+- 2026-06-30 01:44 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/11696046134.shtml)
+- 2026-06-30 02:08 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/091588005.shtml)
+- 2026-06-30 01:50 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/0559803769.shtml)
+- 2026-06-30 02:08 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/12485184.shtml)
+- 2026-06-30 01:54 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/9001583.shtml)
+- 2026-06-30 01:48 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/457691.shtml)
+- 2026-06-30 01:58 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/93975382.shtml)

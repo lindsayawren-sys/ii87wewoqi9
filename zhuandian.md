@@ -1,57 +1,61 @@
-# 刚刚，油价跳水！霍尔木兹海峡最新消息
+# 市场静待美伊停火协议，油价持稳
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】阿联酋宣布将退出欧佩克及“欧佩克+”机制，将逐步提高石油产量，国际原油期货应声下跌 中国基金报记者 李智综合报道 中东局势瞬息万变。 国际原油期货持续走高 4月28日晚间，国际原油期货持续走高，WTI原油期货价格一度涨超5%，但随后快速跳水，最新报99.48美元/桶。 布伦特原油期
+周五原油期货价格持稳，但受美伊有望达成停火延期协议消息影响，本周油价创下 4 月初以来最大单周跌幅。 截至格林尼治标准时间 08：10，7 月交割的布伦特原油期货下跌 34 美分（跌幅 0.3%），报每桶 94.05 美元；美国 WTI 原油期货持平于每桶 88.89 美元。两大指标原油盘中早些时候均曾下跌超 1%。 布伦特原油本周暴跌约 9%，创 4 月 6 日当周以来最大单
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+周五原油期货价格持稳，但受美伊有望达成停火延期协议消息影响，本周油价创下 4 月初以来最大单周跌幅。
 
-来源：中国基金报 【导读】阿联酋宣布将退出欧佩克及“欧佩克+”机制，将逐步提高石油产量，国际原油期货应声下跌 中国基金报记者 李智综合报道 中东局势瞬息万变。
+截至格林尼治标准时间 08：10，7 月交割的布伦特原油期货下跌 34 美分（跌幅 0.3%），报每桶 94.05 美元；美国 WTI 原油期货持平于每桶 88.89 美元。
 
-国际原油期货持续走高 4月28日晚间，国际原油期货持续走高，WTI原油期货价格一度涨超5%，但随后快速跳水，最新报99.48美元/桶。
+两大指标原油盘中早些时候均曾下跌超 1%。
 
-布伦特原油期货涨幅一度扩大至4%，随后短线下探，现报104.1美元/桶。
+布伦特原油本周暴跌约 9%，创 4 月 6 日当周以来最大单周跌幅；WTI 原油本周跌幅近 8%，为 4 月 13 日当周以来最大单周亏损。
 
-消息面上，阿联酋发表声明称，自5月1日起退出欧佩克及“欧佩克+”，将逐步提高石油产量。
+瑞银分析师乔瓦尼・斯塔诺沃表示：“尽管霍尔木兹海峡石油运输仍受限、原油库存持续下降，但市场焦点仍集中在美伊能否达成协议上。
 
-阿联酋能源与基础设施部长马兹鲁伊表示，长期以来，阿联酋一直都是欧佩克及“欧佩克+”机制成员，未来全球对能源的需求仍将持续增长，世界需要更多能源供应。
+” 路透社援引消息人士称，美伊双方于周四达成协议，同意延长停火并取消霍尔木兹海峡航运限制。
 
-马兹鲁伊表示，这一决定将使阿联酋能够与合作伙伴和投资者更加灵活地开展合作，确保满足未来全球市场在原油产品、石化产品、天然气及其他能源领域的需求。
+不过，美国总统唐纳德・特朗普尚未批准该协议，伊朗官方媒体也表示协议尚未最终敲定。
 
-此前，据央视新闻，当地时间4月28日自伊朗方面获悉，一艘液化天然气船已经通过霍尔木兹海峡。
+近几个交易日油价波动剧烈，受伊朗战争或有望结束、霍尔木兹海峡或重新开放的矛盾消息影响，两大指标原油价格震荡幅度高达 6 美元。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 01:39 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 01:55 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 01:41 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 01:45 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 01:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 01:43 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 01:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 02:05 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 01:50 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 01:58 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 02:02 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 01:54 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 02:06 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 01:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 01:44 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 02:06 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 02:02 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 01:52 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 01:52 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 01:56 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 02:03 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:49 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 02:07 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 01:57 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/896072256354.shtml)
-- 2026-06-30 01:48 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/279071401637.shtml)
-- 2026-06-30 01:55 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/38459779297.shtml)
-- 2026-06-30 01:38 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/26142.shtml)
-- 2026-06-30 01:56 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/564837.shtml)
-- 2026-06-30 01:56 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/7790796.shtml)
-- 2026-06-30 01:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/683308260.shtml)
-- 2026-06-30 01:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/08712211.shtml)
-- 2026-06-30 01:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/295394091439.shtml)
-- 2026-06-30 01:54 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/4599937284.shtml)
-- 2026-06-30 02:01 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/840761568.shtml)
-- 2026-06-30 01:53 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/9122413.shtml)
-- 2026-06-30 01:58 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/15712803546.shtml)
-- 2026-06-30 01:55 - [美股](http://www.share.kurohicncr.top/Article/details/628499556997.shtml)
-- 2026-06-30 02:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/342998245135.shtml)
+- 2026-06-30 02:11 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/84749177429.shtml)
+- 2026-06-30 01:52 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/80495854312.shtml)
+- 2026-06-30 01:44 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/02530014.shtml)
+- 2026-06-30 01:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/99213982660.shtml)
+- 2026-06-30 02:09 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/4102971029.shtml)
+- 2026-06-30 02:10 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/71987603322.shtml)
+- 2026-06-30 01:44 - [沉睡花园](http://www.share.minike.top/Article/details/14532426.shtml)
+- 2026-06-30 02:00 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/594586059757.shtml)
+- 2026-06-30 01:45 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/789896004059.shtml)
+- 2026-06-30 01:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/036716039692.shtml)
+- 2026-06-30 01:58 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/677089.shtml)
+- 2026-06-30 02:05 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/8882260.shtml)
+- 2026-06-30 01:59 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/74802436823.shtml)
+- 2026-06-30 02:10 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6434938311.shtml)
+- 2026-06-30 02:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/38434541342.shtml)

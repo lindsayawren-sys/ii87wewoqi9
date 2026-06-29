@@ -1,59 +1,59 @@
-# 四大证券报头版头条内容精华摘要_2026年4月30日_财经新闻
+# Apollo寻求投资者参与360亿美元债务交易 为Anthropic采购AI芯片
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月30日（星期四），今日报刊头条主要内容精华如下： 中国证券报 2000亿存储龙头净利暴增超5倍 葛卫东减持 4月29日晚，兆易创新发布的2026年一季报显示，公司一季度营收、净利润大增；公司前十大股东中，葛卫东少量减持。Wind数据显示，4月29日，兆易创新股价收报308.89元/
+阿波罗全球管理公司和黑石集团正寻求为一项约360亿美元的债务融资交易引入更多投资者，以帮助Anthropic PBC构建其人工智能（AI）基础设施。 知情人士称，这笔债务融资将用于购买谷歌的定制芯片TPU，即张量处理单元，Anthropic随后将租用这些芯片。因信息未公开而不愿具名的知情人士称，协助谷歌开发这些芯片的博通为交易中规模最大的部分付款提供支持。 这将成为有史以来规模
 
 ## 正文
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+阿波罗全球管理公司和黑石集团正寻求为一项约360亿美元的债务融资交易引入更多投资者，以帮助Anthropic PBC构建其人工智能（AI）基础设施。
 
-4月30日（星期四），今日报刊头条主要内容精华如下： 中国证券报 2000亿存储龙头净利暴增超5倍 葛卫东减持 4月29日晚，兆易创新发布的2026年一季报显示，公司一季度营收、净利润大增；公司前十大股东中，葛卫东少量减持。
+知情人士称，这笔债务融资将用于购买谷歌的定制芯片TPU，即张量处理单元，Anthropic随后将租用这些芯片。
 
-Wind数据显示，4月29日，兆易创新股价收报308.89元/股，最新市值为2202亿元，今年以来，该股累计涨幅为44.17%。
+因信息未公开而不愿具名的知情人士称，协助谷歌开发这些芯片的博通为交易中规模最大的部分付款提供支持。
 
-两大芯片龙头业绩利好 牛散持股“换班” 4月29日晚，寒武纪发布2026年一季报。
+这将成为有史以来规模最大的私募信贷交易之一，也将是规模最大的芯片融资债务交易。
 
-2026年第一季度，公司实现营业收入28.85亿元，同比增长159.56%；净利润10.13亿元，同比增长185.04%。
+该交易旨在利用博通的信用资质，为估值刚刚超越竞争对手OpenAI的Anthropic提供算力获取渠道。
 
-同日，国产GPU头部企业沐曦股份披露的2026年一季报显示，第一季度，公司实现营业收入5.62亿元，同比增长75.37%；净利润为-9884.24万元，上年同期净利润为-2.33亿元，同比大幅减亏。
+消息传出后，博通和谷歌母公司Alphabet Inc．的股价在盘后交易中上涨。
 
-Token、人工智能、太空算力．．．．．．数字中国建设峰会 这些关键词刷屏 4月29日，在第九届数字中国建设峰会上，国家数据局、工业和信息化部相关负责人围绕Token（词元）、人工智能、太空算力产业发展最新发声。
+博通一度上涨1.9%，至盘后高点434.84美元；Alphabet一度上涨1.2%，至394.81美元。
 
-阿联酋“退群”欧佩克 国际油价影响几何？
+知情人士称，投资者被要求在本周提交认购意向，交易预计将在下周完成。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 01:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 01:49 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 01:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 01:59 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 01:56 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 01:41 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 02:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-30 01:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 01:52 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 01:54 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 01:53 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 01:38 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 01:45 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-30 01:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 02:08 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 02:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 02:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 01:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 02:11 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 02:03 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 01:43 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 01:51 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 02:08 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 01:46 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 02:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/208509540.shtml)
-- 2026-06-30 01:39 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/15355434810.shtml)
-- 2026-06-30 01:36 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/8282196048.shtml)
-- 2026-06-30 01:47 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/55847496.shtml)
-- 2026-06-30 02:01 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/2018237346.shtml)
-- 2026-06-30 01:58 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/9438765617.shtml)
-- 2026-06-30 01:45 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/3140078.shtml)
-- 2026-06-30 02:02 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/11428142921.shtml)
-- 2026-06-30 01:42 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/837046813.shtml)
-- 2026-06-30 01:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/752788.shtml)
-- 2026-06-30 02:00 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/746666627845.shtml)
-- 2026-06-30 01:44 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/06091923408.shtml)
-- 2026-06-30 02:01 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/19384.shtml)
-- 2026-06-30 01:53 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/413467111400.shtml)
-- 2026-06-30 01:51 - [恋与深空 巧合](http://www.share.minike.top/Article/details/17678.shtml)
+- 2026-06-30 02:05 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/301734.shtml)
+- 2026-06-30 02:10 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/2799038.shtml)
+- 2026-06-30 01:45 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/836093434.shtml)
+- 2026-06-30 01:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/8339794401.shtml)
+- 2026-06-30 01:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/2771214638.shtml)
+- 2026-06-30 01:55 - [小娘惹](https://www.share.kurohicncr.top/Article/details/35600.shtml)
+- 2026-06-30 01:49 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/864310993.shtml)
+- 2026-06-30 02:01 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/029074193515.shtml)
+- 2026-06-30 02:02 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/14237.shtml)
+- 2026-06-30 01:52 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/3726643.shtml)
+- 2026-06-30 02:02 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/05207641932.shtml)
+- 2026-06-30 01:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/9497012.shtml)
+- 2026-06-30 02:07 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/0822520.shtml)
+- 2026-06-30 01:42 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/85929370840.shtml)
+- 2026-06-30 02:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/000817.shtml)

@@ -1,57 +1,47 @@
-# 2026年中国网络文明大会将于5月19日至20日在南宁举办
+# 鸿远电子：华为不是公司的直接客户
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 29日，国新办就2026年中国网络文明大会有关情况举行新闻发布会。会上，中央网信办(国家网信办)副主任牛一兵表示，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办，会期一天半。主题是“文明网络空间 昂扬奋进力量”。今年的大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共同主办，中国网络社会组
+证券日报网讯5月28日，鸿远电子在互动平台回答投资者提问时表示，华为不是公司的直接客户，公司不掌握下游客户的最终产品应用去向。公司现有产品主要应用在国内高可靠领域。
 
 ## 正文
 
-中新网4月29日电 29日，国新办就2026年中国网络文明大会有关情况举行新闻发布会。
+证券日报网讯5月28日，鸿远电子在互动平台回答投资者提问时表示，华为不是公司的直接客户，公司不掌握下游客户的最终产品应用去向。
 
-会上，中央网信办(国家网信办)副主任牛一兵表示，2026年中国网络文明大会将于5月19日至20日在广西壮族自治区南宁市举办，会期一天半。
-
-主题是“文明网络空间 昂扬奋进力量”。
-
-今年的大会由中央网信办、中央精神文明建设办公室、中共广西壮族自治区委员会、广西壮族自治区人民政府共同主办，中国网络社会组织联合会、广西壮族自治区党委网信办、广西壮族自治区精神文明建设办公室、中共南宁市委、南宁市人民政府联合承办。
-
-牛一兵介绍，这次大会按照“十五五”规划纲要关于加强网络文明建设的战略部署，将举办开幕式及主论坛、14场分论坛，以及“铸魂领航 清朗八桂”主题活动。
-
-主论坛将邀请有关部门的同志发表主题演讲，安排主流媒体、网络平台、MCN机构、优质网络主播、正能量网络名人、中国好网民代表等分享交流，发布2026年全国网络文明建设优秀案例，启动2026年全民数字素养与技能提升月活动。
-
-14场分论坛将重点围绕党的创新理论网络传播、互联网与文明乡风建设、网络文明培育、优化营商网络环境、中国好网民培育、走好网上群众路线、新大众文艺发展、网络辟谣、网络公益建设、互联网企业社会责任、全民数字素养与技能提升、人工智能赋能网络文明建设等主题展开，并将发布一系列网络文明建设的成果。
-
-“铸魂领航 清朗八桂”主题活动将于大会前在南宁市举办，以实景演绎、故事讲述等形式，多元展现AI等前沿科技推动网络空间天朗气清、生态良好的生动景象。
+公司现有产品主要应用在国内高可靠领域。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 01:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 01:50 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 02:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 02:00 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 01:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 02:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 01:39 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 01:45 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 01:55 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 01:41 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 01:53 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 01:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 01:53 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 02:10 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 01:47 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 02:07 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 01:54 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 02:00 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 01:46 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 01:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 01:56 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 01:54 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/91106702691.shtml)
-- 2026-06-30 01:59 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/079293778286.shtml)
-- 2026-06-30 02:02 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/6957848.shtml)
-- 2026-06-30 01:42 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/43136.shtml)
-- 2026-06-30 02:01 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/08099765.shtml)
-- 2026-06-30 01:44 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/234549815592.shtml)
-- 2026-06-30 02:05 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/02016329826.shtml)
-- 2026-06-30 01:36 - [月亮](https://www.blog.minike.top/Article/details/491907778126.shtml)
-- 2026-06-30 01:44 - [电影后室值得看吗](http://www.share.minike.top/Article/details/700830.shtml)
-- 2026-06-30 02:03 - [日本16强魔咒](https://www.blog.minike.top/Article/details/85715.shtml)
-- 2026-06-30 01:59 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/379906909.shtml)
-- 2026-06-30 01:36 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/29878.shtml)
-- 2026-06-30 01:55 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/91187.shtml)
-- 2026-06-30 02:05 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/2222758115.shtml)
-- 2026-06-30 01:52 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/5217040316.shtml)
+- 2026-06-30 01:47 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/68401.shtml)
+- 2026-06-30 01:53 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/90649.shtml)
+- 2026-06-30 02:01 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/6917428.shtml)
+- 2026-06-30 01:53 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/264698754.shtml)
+- 2026-06-30 02:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/783542.shtml)
+- 2026-06-30 02:00 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/22769.shtml)
+- 2026-06-30 01:46 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/53761.shtml)
+- 2026-06-30 02:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/918867550.shtml)
+- 2026-06-30 01:46 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/6142344393.shtml)
+- 2026-06-30 01:55 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/65125.shtml)
+- 2026-06-30 02:06 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/8175614823.shtml)
+- 2026-06-30 01:50 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/8923705.shtml)
+- 2026-06-30 01:51 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/85437003791.shtml)
+- 2026-06-30 01:59 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/54875620.shtml)
+- 2026-06-30 01:52 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/700900918.shtml)

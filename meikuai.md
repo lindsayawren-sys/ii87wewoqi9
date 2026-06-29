@@ -1,51 +1,58 @@
-# 3333架！福州无人机集群编队演绎点亮夜空
+# 2.36万元商品遭“恶意退款” 卖家跨省千里维权
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 08:22 来源：中国新闻网 第九届数字中国建设峰会登场，4月28日晚，在福州旗山湖畔，3333架无人机以夜空为幕、光影为笔、用一场集群光影秀点亮福州夜空。 记者看到，光影秀聚焦数字中国、低空经济、人工智能等关键词，融入闽都文化、“福”文化及数智成果画面，传递福州的深厚底蕴与浓郁的人文温情，展示了数智技术与城市文化有机融合的成果。(记者 吴晟炜
+有人购买衣服穿几天弄脏后又退给卖家，有人买了昂贵的女士睡衣后，换成一件廉价的其他款式睡衣申请退货退款，而前些天河北邯郸一位商家更是遭遇了一起大额商品的“仅退款”，价值23600元的商品被买家仅退款，为了追回货款，卖家杨女士与同事一起，从邯郸赶往上海，找到买家当面对质。 据杨女士说，4月23日，有一位上海的买家从自家店铺下单了一批价值23600元的货物，4月27日，物流公司将货品
 
 ## 正文
 
-发布时间：2026年04月29日 08:22 来源：中国新闻网 第九届数字中国建设峰会登场，4月28日晚，在福州旗山湖畔，3333架无人机以夜空为幕、光影为笔、用一场集群光影秀点亮福州夜空。
+有人购买衣服穿几天弄脏后又退给卖家，有人买了昂贵的女士睡衣后，换成一件廉价的其他款式睡衣申请退货退款，而前些天河北邯郸一位商家更是遭遇了一起大额商品的“仅退款”，价值23600元的商品被买家仅退款，为了追回货款，卖家杨女士与同事一起，从邯郸赶往上海，找到买家当面对质。
 
-记者看到，光影秀聚焦数字中国、低空经济、人工智能等关键词，融入闽都文化、“福”文化及数智成果画面，传递福州的深厚底蕴与浓郁的人文温情，展示了数智技术与城市文化有机融合的成果。
+据杨女士说，4月23日，有一位上海的买家从自家店铺下单了一批价值23600元的货物，4月27日，物流公司将货品运送到了买家指定的收货地点，但到货第二天，这位买家就以缺少配件为由，申请3000元部分退款。
 
-(记者 吴晟炜） 责任编辑：【黄钰涵】
+此时，订单状态明确显示“已收到货”，并且负责货物物流的运输公司，也确认对方已收到货，买家也在这天让杨女士远程指导货品的安装。
+
+但在4月29日，买家却以未收到货物为由，在平台上发起全额退款申请，并备注“与卖家协商一致”。
+
+杨女士说店铺工作人员当时没有看到这条退款消息，因此未做处理。
+
+然而让她没想到的是，就在买家发起退款申请的24个小时后，平台就以卖家超时未处理为由，直接将23600元全款退给了买家。
+
+杨女士多次在线上找买家催还货款，但遭到对方拒绝。
+
+无奈之下，杨女士与同事一起从河北邯郸赶到上海，找买家当面协商退还货款，依然被拒。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 02:03 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-30 01:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 01:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 01:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 02:03 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 01:38 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 02:03 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 02:01 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 01:49 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 02:02 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 01:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 01:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 01:49 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 01:44 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 01:57 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 01:47 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 02:05 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:52 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 01:55 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 01:42 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 01:54 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 01:44 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 01:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 01:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 01:48 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/4709302369.shtml)
-- 2026-06-30 01:46 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/91450.shtml)
-- 2026-06-30 01:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/9613105039.shtml)
-- 2026-06-30 01:49 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/591861899.shtml)
-- 2026-06-30 01:48 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/28790971909.shtml)
-- 2026-06-30 02:04 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/033067.shtml)
-- 2026-06-30 01:58 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/58304.shtml)
-- 2026-06-30 01:42 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/6538222708.shtml)
-- 2026-06-30 02:04 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/382776769.shtml)
-- 2026-06-30 01:39 - [点菜也要教吗](http://www.share.minike.top/Article/details/92120.shtml)
-- 2026-06-30 01:49 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/996824438270.shtml)
-- 2026-06-30 01:36 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/9856203031.shtml)
-- 2026-06-30 01:53 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/04939607181.shtml)
-- 2026-06-30 01:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/905972077761.shtml)
-- 2026-06-30 02:04 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/65437525020.shtml)
+- 2026-06-30 02:05 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/8719513.shtml)
+- 2026-06-30 01:51 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/1009101828.shtml)
+- 2026-06-30 01:56 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/556015843921.shtml)
+- 2026-06-30 02:05 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/1554594.shtml)
+- 2026-06-30 02:08 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/72458682.shtml)
+- 2026-06-30 02:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/58365.shtml)
+- 2026-06-30 01:42 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/572465751.shtml)
+- 2026-06-30 01:57 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/41902833.shtml)
+- 2026-06-30 02:11 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/938674.shtml)
+- 2026-06-30 01:57 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/8267871.shtml)
+- 2026-06-30 02:11 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/61625.shtml)
+- 2026-06-30 02:02 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/6922600076.shtml)
+- 2026-06-30 01:51 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/231988225102.shtml)
+- 2026-06-30 02:05 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/1005430.shtml)
+- 2026-06-30 02:02 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/619635326.shtml)

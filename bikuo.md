@@ -1,46 +1,59 @@
-# 五一劳动节前夕 用镜头记录正在劳动中的民众
+# 聚焦港航业绿色化转型 浙港业内人士共话合作新机遇
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 10:38 来源：中国新闻网 近日，山东济南。五一劳动节前夕，中新社记者走到济南街头，用镜头记录正在劳动中的民众。(记者 王峰 制作 刘鹏） 责任编辑：【刘湃】
+中新网宁波5月28日电(蓝伊旎)5月27日，香港论坛暨清洁能源供应链交流会(下称“香港论坛”)在浙江宁波举办。来自浙港两地及其他地区的港务管理机构、港口运营商、航运研究和服务机构代表共话清洁能源供应链合作。 当前，全球港航业正迈入绿色转型与能源变革的关键时期，供应链重构、低碳治理已成为全球海事领域的核心议题。今年，海丝港口合作论坛首次设立香港论坛，聚焦氢基能源供应链这一核心议题
 
 ## 正文
 
-发布时间：2026年04月29日 10:38 来源：中国新闻网 近日，山东济南。
+中新网宁波5月28日电(蓝伊旎)5月27日，香港论坛暨清洁能源供应链交流会(下称“香港论坛”)在浙江宁波举办。
 
-五一劳动节前夕，中新社记者走到济南街头，用镜头记录正在劳动中的民众。
+来自浙港两地及其他地区的港务管理机构、港口运营商、航运研究和服务机构代表共话清洁能源供应链合作。
 
-(记者 王峰 制作 刘鹏） 责任编辑：【刘湃】
+当前，全球港航业正迈入绿色转型与能源变革的关键时期，供应链重构、低碳治理已成为全球海事领域的核心议题。
+
+今年，海丝港口合作论坛首次设立香港论坛，聚焦氢基能源供应链这一核心议题展开对话，正是回应时代之问、行业之盼。
+
+“亚太地区汇聚全球众多枢纽大港，既是国际海运贸易的核心引擎，也是保障全球供应链稳定的关键力量。
+
+”联合国亚洲及太平洋经济社会委员会交通运输司司长任为民认为，当前形势下，如何在确保航运畅通的基础上优化碳排放结构已是行业面临的全新挑战。
+
+他强调，面对复杂变化的行业环境，打造高效、韧性、可持续的航运体系，需要秉持统筹一体的思路全面推进，这就需要强化各区域间的合作与政策标准协同。
+
+以本次论坛为纽带，浙港两地深化对接，携手探索合作新路径。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 01:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-30 02:04 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 01:52 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 01:50 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 01:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 01:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 01:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 01:36 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 01:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 01:48 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 01:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 02:08 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 01:55 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-30 02:08 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 02:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 01:50 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 01:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 02:02 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 01:58 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 01:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 02:05 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 01:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/706495764417.shtml)
-- 2026-06-30 01:53 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/56547555904.shtml)
-- 2026-06-30 01:37 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/172436.shtml)
-- 2026-06-30 01:54 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/621388.shtml)
-- 2026-06-30 01:54 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/11820.shtml)
-- 2026-06-30 02:05 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/067923300.shtml)
-- 2026-06-30 02:05 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/90570626414.shtml)
-- 2026-06-30 01:54 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/78037950.shtml)
-- 2026-06-30 01:59 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/0974051957.shtml)
-- 2026-06-30 01:59 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/4406211.shtml)
-- 2026-06-30 01:50 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/6495550.shtml)
-- 2026-06-30 01:36 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/7667576.shtml)
-- 2026-06-30 01:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/969451738927.shtml)
-- 2026-06-30 01:52 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/45701949908.shtml)
-- 2026-06-30 01:38 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/89225024814.shtml)
+- 2026-06-30 02:11 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/149429551.shtml)
+- 2026-06-30 02:08 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/8469958.shtml)
+- 2026-06-30 01:42 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/4364202089.shtml)
+- 2026-06-30 02:10 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/72809.shtml)
+- 2026-06-30 02:04 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/33900.shtml)
+- 2026-06-30 02:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/24018.shtml)
+- 2026-06-30 02:00 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/1240547.shtml)
+- 2026-06-30 01:53 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/14461.shtml)
+- 2026-06-30 02:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/40688600110.shtml)
+- 2026-06-30 01:56 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/31815148.shtml)
+- 2026-06-30 02:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/03817.shtml)
+- 2026-06-30 01:55 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/33803493117.shtml)
+- 2026-06-30 02:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/21427288898.shtml)
+- 2026-06-30 02:11 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/69841617.shtml)
+- 2026-06-30 01:45 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/151554562.shtml)

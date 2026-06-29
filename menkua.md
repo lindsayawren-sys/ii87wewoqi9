@@ -1,60 +1,56 @@
-# 泰国央行维持利率不变 中东战争拖累经济前景
+# 沪港携手共建口腔生物材料创新高地
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-泰国央行维持利率不变，在连续两次降息后选择暂停调整，以此评估中东局势对本国脆弱经济的冲击。 泰国央行做出此次决议之际，地缘冲突带来的连锁反应，正危及该国自去年年末开启的微弱经济复苏势头。 受能源层面供给冲击影响，这个东南亚国家的经济前景进一步承压。泰国央行货币政策委员会全体委员一致投票，将政策利率维持在1.00%不变。 机构调查的12位经济学家均提前预判到本次按兵不动的决议。紧
+中新网上海5月28日电 (陈静 金恒)记者28日获悉，香港大学牙医学院与上海市口腔医院(复旦大学附属口腔医院)(下称：上海市口腔医院)在沪正式签署合作备忘录，标志着沪港口腔医学战略伙伴关系迈上新台阶。 第四届“沪港口腔汇·2026未来口腔生物材料前沿论坛”在沪举行。该论坛时隔三年重回上海。本届论坛以“探本归源·合鸣致新”为主题，汇聚海内外口腔医学、生物材料及临床转化领域顶尖学者
 
 ## 正文
 
-泰国央行维持利率不变，在连续两次降息后选择暂停调整，以此评估中东局势对本国脆弱经济的冲击。
+中新网上海5月28日电 (陈静 金恒)记者28日获悉，香港大学牙医学院与上海市口腔医院(复旦大学附属口腔医院)(下称：上海市口腔医院)在沪正式签署合作备忘录，标志着沪港口腔医学战略伙伴关系迈上新台阶。
 
-泰国央行做出此次决议之际，地缘冲突带来的连锁反应，正危及该国自去年年末开启的微弱经济复苏势头。
+第四届“沪港口腔汇·2026未来口腔生物材料前沿论坛”在沪举行。
 
-受能源层面供给冲击影响，这个东南亚国家的经济前景进一步承压。
+该论坛时隔三年重回上海。
 
-泰国央行货币政策委员会全体委员一致投票，将政策利率维持在1.00%不变。
+本届论坛以“探本归源·合鸣致新”为主题，汇聚海内外口腔医学、生物材料及临床转化领域顶尖学者，聚焦从源头创新到产业转化的全链条突破。
 
-机构调查的12位经济学家均提前预判到本次按兵不动的决议。
+“沪港口腔汇”由香港大学牙医学院与上海市口腔医院共同发起，正从区域性学术交流平台向具有全球影响力的战略合作高地迈进，在国际学术舞台彰显中国口腔医学的创新自信与实力。
 
-紧随其后，美联储也将公布利率决议，市场普遍预计美联储同样会维持利率不变。
+沪港合作是服务国家战略的一个重要支点。
 
-与全球各大央行一样，泰国央行需要权衡应对两大风险：地缘冲突推升通胀、同时拖累经济增长。
+香港拥有国际化科研平台和全球创新网络优势，上海则具备完整的生物医药产业链和临床转化资源。
 
-而地缘紧张局势的持续时间存在高度不确定性，进一步加大了政策调控难度。
+双方深化合作，有助于打通“基础研究-技术攻关-临床应用-产业转化”的创新链条，为中国口腔生物材料实现从“跟跑”到“领跑”的跨越提供关键支撑。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 01:54 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 02:04 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 01:42 - [刘宇宁 好听](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-30 01:51 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-30 01:37 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 02:02 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 01:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 01:55 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 01:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 01:45 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 01:37 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 01:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 01:41 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 01:46 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 02:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 02:11 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 02:00 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 01:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 01:57 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 01:55 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 02:06 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 01:48 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 02:01 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [TOP Prada](https://www.blog.minike.top/Article/details/712390375439.shtml)
-- 2026-06-30 02:03 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/5036507942.shtml)
-- 2026-06-30 01:54 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/392976504485.shtml)
-- 2026-06-30 01:41 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/99780521.shtml)
-- 2026-06-30 02:05 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/579526737.shtml)
-- 2026-06-30 01:38 - [内马尔替补](https://www.blog.minike.top/Article/details/128272.shtml)
-- 2026-06-30 01:45 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/2496033.shtml)
-- 2026-06-30 01:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/2962840.shtml)
-- 2026-06-30 01:52 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/747521.shtml)
-- 2026-06-30 01:58 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/3875874094.shtml)
-- 2026-06-30 02:03 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/94346.shtml)
-- 2026-06-30 01:53 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/142880110060.shtml)
-- 2026-06-30 01:41 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/08827516.shtml)
-- 2026-06-30 01:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/81705639.shtml)
-- 2026-06-30 01:44 - [千与千寻](http://www.share.minike.top/Article/details/0985861.shtml)
+- 2026-06-30 01:52 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/31284448398.shtml)
+- 2026-06-30 01:59 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/9453988937.shtml)
+- 2026-06-30 01:52 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/997879885.shtml)
+- 2026-06-30 01:43 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/2001697.shtml)
+- 2026-06-30 02:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/6605629506.shtml)
+- 2026-06-30 01:51 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/19223992799.shtml)
+- 2026-06-30 01:54 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/333790.shtml)
+- 2026-06-30 02:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/34835067.shtml)
+- 2026-06-30 02:07 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/91131892.shtml)
+- 2026-06-30 01:51 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/769439078885.shtml)
+- 2026-06-30 01:52 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/35884898896.shtml)
+- 2026-06-30 01:47 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/40146.shtml)
+- 2026-06-30 01:49 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/36729105860.shtml)
+- 2026-06-30 02:05 - [恋与深空 日服](https://www.blog.minike.top/Article/details/19484259.shtml)
+- 2026-06-30 01:58 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/280944230178.shtml)

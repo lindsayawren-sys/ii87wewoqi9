@@ -1,56 +1,57 @@
-# 美国债市：短期和中期国债下跌 7年期国债中标收益率略高于发行前水平
+# （台海观澜）金门旅游业者期待更多陆客赴金 盼“小三通”增加船班
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-美国盘中短期到中期国债承压走低，油价延续本周涨势，交易员密切关注霍尔木兹海峡局势。美国7年期国债中标收益率较发行前交易水平高约0.5个基点，推动中期国债收益率在午后晚些时候迈向当日高点。 纽约时间下午3点刚过，美国短期国债收益率走高多达4个基点，长债收益率基本持平，2年期-10年期国债收益率之差回落至51个基点左右，扭转了周一的趋陡势头。美国10年期国债收益率报4.35%左右，
+中新社厦门5月29日电 (吴冠标)第二十一届海峡旅游博览会29日在厦门开幕，吸引台湾地区30余家企业参展，200余名台湾旅游业界人士参会。金门县政府观光处处长许绩鑫在展会上称，欢迎更多大陆旅客到金门体验“金门味”。 许绩鑫表示，金门文旅活动精彩纷呈，浯岛城隍文化季刚刚落幕，亲子嘉年华、风狮爷文化季、中秋博饼等活动又将登场。近期上海居民赴金门自由行政策落地，金门旅游业界正准备迎接
 
 ## 正文
 
-美国盘中短期到中期国债承压走低，油价延续本周涨势，交易员密切关注霍尔木兹海峡局势。
+中新社厦门5月29日电 (吴冠标)第二十一届海峡旅游博览会29日在厦门开幕，吸引台湾地区30余家企业参展，200余名台湾旅游业界人士参会。
 
-美国7年期国债中标收益率较发行前交易水平高约0.5个基点，推动中期国债收益率在午后晚些时候迈向当日高点。
+金门县政府观光处处长许绩鑫在展会上称，欢迎更多大陆旅客到金门体验“金门味”。
 
-纽约时间下午3点刚过，美国短期国债收益率走高多达4个基点，长债收益率基本持平，2年期-10年期国债收益率之差回落至51个基点左右，扭转了周一的趋陡势头。
+许绩鑫表示，金门文旅活动精彩纷呈，浯岛城隍文化季刚刚落幕，亲子嘉年华、风狮爷文化季、中秋博饼等活动又将登场。
 
-美国10年期国债收益率报4.35%左右，日间上涨约1个基点，而欧洲债券在伦敦交易时段跑输。
+近期上海居民赴金门自由行政策落地，金门旅游业界正准备迎接好这波客流。
 
-短债的下跌伴随着市场对美联储的政策预期转鹰，OIS合约消化的年底前降息幅度约为5个基点，而周一收盘时为8个基点；同时，掉期市场也排除了明年进行一次完整降息的可能性。
+上海市文化和旅游局4月29日发布公告称，即日起，上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖的团队游和个人游。
 
-美国7年期国债中标收益率较发行前交易水平高约0.5个基点，标售后中期国债维持跌势。
+“5月初我们就到上海开展文旅对接及调研，并针对当地旅客需求规划了不同风格的旅游推荐路线。
 
-不过，标售指标表现稳健，一级交易商获配11.6%，低于之前一次；直接投标人获配增至30%，间接投标人获配降至58.4%。
+”金门县旅行商业同业公会理事长翁炳信说，随着福建、上海居民赴金门、马祖旅游陆续恢复，金门旅游业回温明显。
 
-在国债期货市场，早盘2年期和5年期国债合约的大宗卖盘加剧了走弱势头。
+数据显示，截至5月26日，今年厦门口岸两岸往来旅客量已超过百万人次，厦门边检总站高崎边检站已累计查验福建、上海居民前往金门旅游旅客近6万人次。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 01:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 01:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-30 01:45 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 02:05 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 01:43 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 01:54 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 02:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 02:00 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 02:01 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 01:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 02:01 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 01:52 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 02:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 01:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 01:52 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 02:07 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 02:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 02:08 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 01:54 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 01:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/5504374009.shtml)
-- 2026-06-30 01:51 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/92569634015.shtml)
-- 2026-06-30 01:40 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/70464.shtml)
-- 2026-06-30 01:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/72800462366.shtml)
-- 2026-06-30 01:38 - [天道](https://www.share.minike.top/Article/details/04980796136.shtml)
-- 2026-06-30 01:46 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/79585356486.shtml)
-- 2026-06-30 01:43 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/481978.shtml)
-- 2026-06-30 02:00 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/57288082.shtml)
-- 2026-06-30 01:44 - [刘宇宁 好听](https://www.share.minike.top/Article/details/276261.shtml)
-- 2026-06-30 01:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/06402781775.shtml)
-- 2026-06-30 01:54 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/69011648157.shtml)
-- 2026-06-30 01:48 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/654020961.shtml)
-- 2026-06-30 01:56 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/064335961.shtml)
-- 2026-06-30 02:05 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/92658690592.shtml)
-- 2026-06-30 01:41 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/024507.shtml)
+- 2026-06-30 02:08 - [日本16强魔咒](https://www.blog.minike.top/Article/details/23735123256.shtml)
+- 2026-06-30 02:08 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/77425974641.shtml)
+- 2026-06-30 01:45 - [恋与深空致歉](https://www.blog.minike.top/Article/details/53852418.shtml)
+- 2026-06-30 01:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/12359.shtml)
+- 2026-06-30 01:54 - [美股](https://www.share.minike.top/Article/details/390155279694.shtml)
+- 2026-06-30 02:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/988737.shtml)
+- 2026-06-30 01:46 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/98998308.shtml)
+- 2026-06-30 02:11 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/756289.shtml)
+- 2026-06-30 01:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/012965245634.shtml)
+- 2026-06-30 01:51 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/30311.shtml)
+- 2026-06-30 02:11 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/088675415452.shtml)
+- 2026-06-30 01:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/61858115751.shtml)
+- 2026-06-30 01:54 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/12931083.shtml)
+- 2026-06-30 01:50 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/0607466.shtml)
+- 2026-06-30 02:02 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/7350040.shtml)

@@ -1,57 +1,56 @@
-# 专家学者福州共探数据要素价值释放新路径
+# 山西将建工业固废全链条环境监管体系 卫星遥感排查堆场
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网福州4月28日电(叶艺琳)2026年不仅是“十五五”开局之年，更是“数据要素价值释放年”。28日下午，以“用好‘531’政策工具箱加快释放数据要素潜力”为主题的第九届数字中国建设峰会数据发展理论与实践研究主题交流活动在福州举行。来自高校、科研机构、地方政府、知名企业等单位的300余名代表参会，分享人才培养、技术标准体系建设、数据与人工智能融合应用等方面的实践经验与前瞻思考
+中新网太原5月29日电 (记者 杨杰英)针对煤矸石等大宗工业固废产生量大、治理压力大的现状，山西省今年将重点采取三项措施加强固废污染防治与监管，包括规范煤矸石生态回填、建设全链条监管体系、打击非法倾倒行为。在29日举行的2025年全省生态环境质量状况新闻发布会上，山西省生态环境厅固体废物与化学品处处长宁妍介绍，今年2月，经省政府常务会议审议通过，省生态环境厅等8部门联合印发了《
 
 ## 正文
 
-中新网福州4月28日电(叶艺琳)2026年不仅是“十五五”开局之年，更是“数据要素价值释放年”。
+中新网太原5月29日电 (记者 杨杰英)针对煤矸石等大宗工业固废产生量大、治理压力大的现状，山西省今年将重点采取三项措施加强固废污染防治与监管，包括规范煤矸石生态回填、建设全链条监管体系、打击非法倾倒行为。
 
-28日下午，以“用好‘531’政策工具箱加快释放数据要素潜力”为主题的第九届数字中国建设峰会数据发展理论与实践研究主题交流活动在福州举行。
+在29日举行的2025年全省生态环境质量状况新闻发布会上，山西省生态环境厅固体废物与化学品处处长宁妍介绍，今年2月，经省政府常务会议审议通过，省生态环境厅等8部门联合印发了《山西省煤矸石生态回填实施方案》，明确了煤矸石生态回填项目选址、技术标准、环境监管等全过程操作规范。
 
-来自高校、科研机构、地方政府、知名企业等单位的300余名代表参会，分享人才培养、技术标准体系建设、数据与人工智能融合应用等方面的实践经验与前瞻思考。
+下一步，将持续开展政策宣贯、业务培训和技术指导，加强煤矸石生态回填项目全过程环境监管和要素保障，推动全省煤矸石生态回填工作科学、规范、有序开展。
 
-国家发展改革委党组成员，国家数据局党组书记、局长刘烈宏表示，国家数据局成立以来，探索形成了“531”政策工具箱，该工具箱通过制度、设施、场景、市场、产业“5”个组合拳协同发力，技术、人才、标准“3”大基础协同保障，以及数据赋能人工智能创新发展“1”个重点工作，为破解数据要素市场化价值化难题提供实践方案与阶段性理论成果。
+在环境监管方面，山西将建立完善工业固体废物规范化管理工作制度，建设工业固废全链条环境监管体系，加强遥感监测与智能识别等科技手段应用。
 
-交流现场，数据领域的“头脑风暴”密集上演。
+“十五五”期间逐步实现工业固废全链条信息实时采集和轨迹监控、贮存处置设施及非法倾倒处置的常态化监控。
 
-国家数据专家咨询委员会主任委员、中国工程院院士邬贺铨，国家数据专家咨询委员会主任委员、中国工业经济学会名誉会长江小涓分别就“智能体互联网开新局数据流通利用赋新质”“AI驱动、场景嵌入和数据应用形态演进”作主旨发言。
+今年以来，已通过卫星遥感技术和人工核查，对工业固废堆场开展全要素、精细化排查，正在构建全省固废堆场“一张图”。
 
-来自复旦大学、蚂蚁集团研究院、华为技术有限公司、杭州趣链科技股份有限公司等学界与产业界代表，则针对低空数据资源开发、人工智能时代数据要素价值化、可信数据空间运营等前沿“蓝海”话题展开深度探讨。
+此外，今年以来，山西省生态环境厅联合省高院等8部门在全省范围内开展专项整治行动，严厉打击非法转移、非法倾倒、非法处置固体废物行为。
 
-除了思想理论的碰撞，当日还集中发布多项重磅成果，并举行系列战略合作仪式。
+在厅门户网站开设问题线索征集专栏和举报电话，广泛收集线索，对群众举报、网络舆情、卫星遥感等线索全部分类核查处理，对核实的非法倾倒点位限期整改。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 02:00 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 01:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 02:04 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 01:43 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 01:54 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 01:53 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 01:53 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 01:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 02:00 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 01:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 01:51 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 02:00 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 01:43 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 01:47 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 02:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 01:51 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 01:56 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 01:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 02:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 01:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/06032619148.shtml)
-- 2026-06-30 01:49 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/940422238.shtml)
-- 2026-06-30 02:02 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/1217662.shtml)
-- 2026-06-30 01:58 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/807781699527.shtml)
-- 2026-06-30 02:02 - [千香](http://www.share.minike.top/Article/details/28491581299.shtml)
-- 2026-06-30 02:04 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/08902.shtml)
-- 2026-06-30 01:50 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/98542750516.shtml)
-- 2026-06-30 01:42 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/47782315760.shtml)
-- 2026-06-30 02:04 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/5900339982.shtml)
-- 2026-06-30 01:59 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/3013885487.shtml)
-- 2026-06-30 02:03 - [起风了](https://www.blog.minike.top/Article/details/8830686.shtml)
-- 2026-06-30 01:42 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/621641.shtml)
-- 2026-06-30 01:50 - [爱很美味](https://www.blog.minike.top/Article/details/562367223.shtml)
-- 2026-06-30 01:42 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/79475641869.shtml)
-- 2026-06-30 01:41 - [刘念回应](http://www.share.minike.top/Article/details/33415147613.shtml)
+- 2026-06-30 02:03 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/16878873703.shtml)
+- 2026-06-30 01:44 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/97573512320.shtml)
+- 2026-06-30 02:10 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/334259828.shtml)
+- 2026-06-30 01:42 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/564263.shtml)
+- 2026-06-30 02:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/645066542037.shtml)
+- 2026-06-30 02:07 - [千与千寻](http://www.share.minike.top/Article/details/01473.shtml)
+- 2026-06-30 02:07 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/566019358.shtml)
+- 2026-06-30 01:43 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/434588.shtml)
+- 2026-06-30 01:55 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/9299908.shtml)
+- 2026-06-30 02:06 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/22011658.shtml)
+- 2026-06-30 01:52 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/651645.shtml)
+- 2026-06-30 02:10 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/81781.shtml)
+- 2026-06-30 02:05 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/85486.shtml)
+- 2026-06-30 02:02 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/83037.shtml)
+- 2026-06-30 01:55 - [逃狱兄弟](http://www.blog.minike.top/Article/details/7396657439.shtml)

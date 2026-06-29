@@ -1,60 +1,57 @@
-# 酒价内参4月29日价格发布：洋河梦之蓝M6+下跌6元
+# 欧元区四大经济体通胀超出舒适区 为欧洲央行加息提供数据支撑
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月29日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9975元，较昨日下跌13元，自近40天最高位回调。市场在三连阳后出现技术性调整，终端交投情绪整体保持平稳，但核心单品的涨跌分化依然显著。 今日白酒市场11大单品三涨六跌两平，输家占据上风。上涨方面，青花郎涨幅居前，上涨5元
+欧元区四大经济体通胀率远超2%，为欧洲央行自2023年以来首次加息提供进一步理由。 周五数据显示，因战争推动能源成本飙升，法国5月份消费者价格指数同比上涨2.8%，涨幅略低于市场预期；西班牙该指数同比上涨3.6%，意大利上涨3.3%，涨幅与预期一致。 德国通胀率虽有所放缓，但2.7%的整体通胀表现仍远超欧洲央行的舒适区。 欧元区主要经济体通胀数据密集公布，将有助于欧洲央行官员判
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月29日整体温和回落。
+欧元区四大经济体通胀率远超2%，为欧洲央行自2023年以来首次加息提供进一步理由。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9975元，较昨日下跌13元，自近40天最高位回调。
+周五数据显示，因战争推动能源成本飙升，法国5月份消费者价格指数同比上涨2.8%，涨幅略低于市场预期；西班牙该指数同比上涨3.6%，意大利上涨3.3%，涨幅与预期一致。
 
-市场在三连阳后出现技术性调整，终端交投情绪整体保持平稳，但核心单品的涨跌分化依然显著。
+德国通胀率虽有所放缓，但2.7%的整体通胀表现仍远超欧洲央行的舒适区。
 
-今日白酒市场11大单品三涨六跌两平，输家占据上风。
+欧元区主要经济体通胀数据密集公布，将有助于欧洲央行官员判断中东冲突推高通胀的程度，以及是否需要做出应对。
 
-上涨方面，青花郎涨幅居前，上涨5元/瓶，二连阳后继续固守在700元/瓶关口之上；水晶剑南春上涨3元/瓶，创下一个月来新高；国窖1573小幅上涨1元/瓶。
+这些国家通胀率普遍远高于欧洲央行2%的目标。
 
-下跌方面，古井贡古20跌幅居前，下跌9元/瓶，前一日创下近一个月最高后今天明显回调，四连涨的强势暂告终结；洋河梦之蓝M6+下跌6元/瓶；飞天茅台下跌3元/瓶；青花汾20下跌2元/瓶；精品茅台与习酒君品均小幅回落1元/瓶。
+下周公布的欧元区整体通胀数据预计将进一步走高，超过4月份达到的3%水平。
 
-浓香双雄：五粮液普五八代及五粮液1618的价格环比保持不变。
+美国总统特朗普对伊朗发动军事行动三个月以来，从鹰派的执行委员会成员Isabel Schnabel，到鸽派的首席经济学家Philip Lane，欧洲央行政策制定者在释放信号，称借贷成本很可能需要上调。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 02:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 01:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 01:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 01:40 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 01:59 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 01:53 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 01:55 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:40 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 01:59 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 01:54 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 02:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 01:59 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-30 01:36 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 02:11 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 02:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 02:07 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-30 02:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 01:50 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 01:57 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 01:58 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 02:09 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 01:54 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 01:50 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/26160384.shtml)
-- 2026-06-30 01:43 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/0535025.shtml)
-- 2026-06-30 01:48 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/434329286913.shtml)
-- 2026-06-30 01:52 - [扬名立万](http://www.share.minike.top/Article/details/6977855983.shtml)
-- 2026-06-30 01:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/56373820824.shtml)
-- 2026-06-30 02:03 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/21208483.shtml)
-- 2026-06-30 01:43 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/9128243237.shtml)
-- 2026-06-30 01:48 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/668795347062.shtml)
-- 2026-06-30 01:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/30491790.shtml)
-- 2026-06-30 01:59 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/51557511375.shtml)
-- 2026-06-30 02:03 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/771790.shtml)
-- 2026-06-30 01:52 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/3787636101.shtml)
-- 2026-06-30 01:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/583111601467.shtml)
-- 2026-06-30 01:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/305223532.shtml)
-- 2026-06-30 01:46 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/1685141.shtml)
+- 2026-06-30 01:46 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/477423751905.shtml)
+- 2026-06-30 02:06 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/04858855208.shtml)
+- 2026-06-30 01:42 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/205283769501.shtml)
+- 2026-06-30 02:05 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/3552513.shtml)
+- 2026-06-30 01:57 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/639465.shtml)
+- 2026-06-30 02:00 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/58041629.shtml)
+- 2026-06-30 02:07 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/90924.shtml)
+- 2026-06-30 01:57 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/22968.shtml)
+- 2026-06-30 01:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/990429.shtml)
+- 2026-06-30 01:59 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/31367.shtml)
+- 2026-06-30 01:53 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/26241249545.shtml)
+- 2026-06-30 01:58 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/33813387379.shtml)
+- 2026-06-30 01:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/1886067378.shtml)
+- 2026-06-30 01:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/51284111.shtml)
+- 2026-06-30 01:57 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/52953170.shtml)

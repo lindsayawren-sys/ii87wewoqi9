@@ -1,56 +1,58 @@
-# 40家上市银行金市业务扫描，年度投资收益最高增幅近130%，亦有个别账面大亏超80亿
+# 印尼盾汇率连跌五日 印尼央行出手干预
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-财联社4月29日讯（编辑 杨斌）上市银行的2025年报基本披露完毕，金融市场投资业务的情况愈发清晰。财联社最新盘点，从40家银行的报表看，尽管2025年投资收益总体仍呈现正增长，增速最高可接近130%，多为兑现浮盈的卖债操作。去年加剧的债市波动，对银行持仓的账面价值产生影响，29家银行的账面出现浮亏，公允价值变动损益为负。 债市业内人士指出，机构的金融市场业务应更加提升交易能力
+中新社雅加达5月29日电 (记者 李志全)印度尼西亚本币印尼盾持续走低，29日一度逼近1美元兑17900印尼盾水平。这也是印尼盾连续第五个交易日下跌。 根据路孚特(Refinitiv)和彭博社等机构数据，当天交易中，印尼盾波动区间位于1美元兑17800印尼盾至17885印尼盾之间，收盘报1美元兑17865印尼盾，贬值0.51%，创下印尼盾兑美元新低。 一周前，印尼央行宣布将基准
 
 ## 正文
 
-财联社4月29日讯（编辑 杨斌）上市银行的2025年报基本披露完毕，金融市场投资业务的情况愈发清晰。
+中新社雅加达5月29日电 (记者 李志全)印度尼西亚本币印尼盾持续走低，29日一度逼近1美元兑17900印尼盾水平。
 
-财联社最新盘点，从40家银行的报表看，尽管2025年投资收益总体仍呈现正增长，增速最高可接近130%，多为兑现浮盈的卖债操作。
+这也是印尼盾连续第五个交易日下跌。
 
-去年加剧的债市波动，对银行持仓的账面价值产生影响，29家银行的账面出现浮亏，公允价值变动损益为负。
+根据路孚特(Refinitiv)和彭博社等机构数据，当天交易中，印尼盾波动区间位于1美元兑17800印尼盾至17885印尼盾之间，收盘报1美元兑17865印尼盾，贬值0.51%，创下印尼盾兑美元新低。
 
-债市业内人士指出，机构的金融市场业务应更加提升交易能力，而非通过报表调节等手段调节投资收益。
+一周前，印尼央行宣布将基准利率上调50个基点至5.25%，高于市场预期。
 
-75%的银行投资收益呈正增长，卖债兑现浮盈 仅从报表中的“投资收益”科目来看，上市银行2025年的债券投资仍总体呈现正增长。
+消息公布后，印尼盾曾短暂走强。
 
-40家银行中，30家的投资收益较前一年增长，14家增速在30%以上。
+印尼央行29日在一份声明中表示，目前印尼盾汇率所面临的压力，仍持续受到中东冲突发展所引发的全球不确定性影响。
 
-国股行中，建设银行2025年实现投资收益491.44亿元，较上年增长129.46%。
+此外，在美元流入有限背景下，季节性外汇需求正在增加，其中包括偿还外债等。
 
-建行在年报中表示，主要是受市场波动和资产结构变化等因素影响，债券投资和权益投资处置收益同比增加。
+声明强调，尽管国内市场休市，但央行仍“全天候、全球范围”干预，以维护印尼盾汇率稳定。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 01:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 02:02 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 02:00 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 01:47 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 01:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 01:45 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 01:58 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 01:36 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 01:36 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 02:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 02:10 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 01:49 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 02:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 02:05 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 02:07 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 02:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 02:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 01:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 01:43 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 02:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 01:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/206150.shtml)
-- 2026-06-30 01:49 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/20458225837.shtml)
-- 2026-06-30 02:01 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/778844.shtml)
-- 2026-06-30 01:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/54660533.shtml)
-- 2026-06-30 01:53 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/6951231934.shtml)
-- 2026-06-30 01:50 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/7562941598.shtml)
-- 2026-06-30 01:55 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/64919.shtml)
-- 2026-06-30 01:52 - [刘念回应](http://www.share.kurohicncr.top/Article/details/293821792.shtml)
-- 2026-06-30 02:01 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/9172959.shtml)
-- 2026-06-30 01:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/57746.shtml)
-- 2026-06-30 01:55 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/88517209.shtml)
-- 2026-06-30 01:40 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/357345526770.shtml)
-- 2026-06-30 02:01 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/32631293315.shtml)
-- 2026-06-30 01:38 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/49151142091.shtml)
-- 2026-06-30 01:49 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/882829894590.shtml)
+- 2026-06-30 01:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/0930341322.shtml)
+- 2026-06-30 01:54 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/5576684461.shtml)
+- 2026-06-30 02:06 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/95172306.shtml)
+- 2026-06-30 02:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/5730104.shtml)
+- 2026-06-30 02:04 - [逃狱兄弟](https://www.share.minike.top/Article/details/2110811600.shtml)
+- 2026-06-30 01:56 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/56521943625.shtml)
+- 2026-06-30 02:10 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/4245873.shtml)
+- 2026-06-30 02:08 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/238825538.shtml)
+- 2026-06-30 01:51 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/251071.shtml)
+- 2026-06-30 01:56 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/33452087.shtml)
+- 2026-06-30 02:02 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/0778919.shtml)
+- 2026-06-30 01:47 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/0601511540.shtml)
+- 2026-06-30 02:07 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/28651309772.shtml)
+- 2026-06-30 01:52 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/9384539.shtml)
+- 2026-06-30 01:54 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/352966798677.shtml)

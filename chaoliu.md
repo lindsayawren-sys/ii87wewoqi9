@@ -1,61 +1,61 @@
-# “五一”假期临近 各地出台惠民举措带动文旅消费
+# 云南修订陆生野生动物保护条例 守护“动物王国”生态名片
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：“五一”假期临近，各地出台多项惠民让利举措，进一步带动文旅消费市场。 临近“五一”，在上海众多商圈与地标，体验式消费、IP联名活动、新品首发等业态接连亮相。“五一”期间，上海结合“五五购物节”，推出涵盖文商旅体展联动、数字消费创新等21项市级重点活动，16个区也将围绕“一区一主题”推出超百场特色活动。 从5月起，四川将陆续发放3000万元省级文旅消费券，
+中新网昆明5月28日电 (罗婕)28日，《云南省陆生野生动物保护条例》(下称《条例》)由云南省第十四届人民代表大会常务委员会第二十三次会议修订通过，自8月15日起施行。 云南是中国生物多样性最为丰富的省份，素有“植物王国”“动物王国”“世界花园”的美誉。 新修订的《条例》共二十九条，从全面贯彻落实《中华人民共和国生态环境法典》《中华人民共和国野生动物保护法》，正确处理野生动物保
 
 ## 正文
 
-央视网消息(新闻联播)：“五一”假期临近，各地出台多项惠民让利举措，进一步带动文旅消费市场。
+中新网昆明5月28日电 (罗婕)28日，《云南省陆生野生动物保护条例》(下称《条例》)由云南省第十四届人民代表大会常务委员会第二十三次会议修订通过，自8月15日起施行。
 
-临近“五一”，在上海众多商圈与地标，体验式消费、IP联名活动、新品首发等业态接连亮相。
+云南是中国生物多样性最为丰富的省份，素有“植物王国”“动物王国”“世界花园”的美誉。
 
-“五一”期间，上海结合“五五购物节”，推出涵盖文商旅体展联动、数字消费创新等21项市级重点活动，16个区也将围绕“一区一主题”推出超百场特色活动。
+新修订的《条例》共二十九条，从全面贯彻落实《中华人民共和国生态环境法典》《中华人民共和国野生动物保护法》，正确处理野生动物保护与维护民众生命财产安全、增进民生福祉的关系，突出云南省特色优势，切实保护陆生野生动物栖息地等方面作出修改完善。
 
-从5月起，四川将陆续发放3000万元省级文旅消费券，场景涉及酒店、民宿、研学基地等。
+《条例》指出，陆生野生动物保护工作坚持保护优先、规范利用、严格监管、公众参与的原则，加强重要生态系统保护和修复，鼓励和支持开展陆生野生动物科学研究与应用，秉持生态文明理念，推动绿色发展。
 
-“五一”期间，全省策划推出1800多场活动，全面释放文旅消费新动能。
+《条例》进一步固化云南在野生动物保护方面的实践成果，增加了采取建立食源地、种植食源植物、配置巢箱、饮水槽等多种方式，营造适宜陆生野生动物生息繁衍的环境；加强对亚洲象、滇金丝猴、高黎贡白眉长臂猿、西黑冠长臂猿、绿孔雀、双角犀鸟等珍贵、濒危的陆生野生动物实施抢救性保护，促进物种种群恢复和稳定等内容。
 
-湖北整合旅游资源，推出包括度假休闲、乡村研学等在内的十大文旅融合主题产品。
+新修订的《条例》还增加促进野生动物保护与周边社区协调发展的内容。
 
-同时，全省联动实施“一票通享”政策，游客凭高铁票、演唱会门票和赛事门票，可以享受景区和酒店住宿的优惠折扣。
+如，在不妨碍陆生野生动物生息繁衍的前提下，可以在保护小区内依法依规开展科学考察、科普教育、自然观光活动，发挥保护小区生态效益，促进与周边社区的协调发展。
 
-“五一”假期，福建福州的上百场文旅活动，突出“诗画闽江”“魅力海滨”主题，传统文化结合潮流玩法，通过游戏、互动和沉浸式体验，让游客感受古韵新风。
+此外，《条例》明确划定栖息地保护与行为禁止红线。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 01:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 01:40 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-30 01:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 01:36 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 01:44 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 01:48 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 01:44 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 01:46 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 01:58 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 01:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 02:00 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 01:36 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 01:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 01:51 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 02:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-30 02:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 01:54 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 01:53 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 02:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 02:02 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 01:49 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 02:03 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 02:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-30 02:11 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 02:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 01:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 02:08 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 01:57 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 01:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/37235.shtml)
-- 2026-06-30 01:40 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/8420043571.shtml)
-- 2026-06-30 01:45 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/064358984.shtml)
-- 2026-06-30 01:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/0981595519.shtml)
-- 2026-06-30 01:41 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/91567157.shtml)
-- 2026-06-30 01:44 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/1312876186.shtml)
-- 2026-06-30 01:43 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/96712616955.shtml)
-- 2026-06-30 01:54 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/175364093643.shtml)
-- 2026-06-30 01:58 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/79567.shtml)
-- 2026-06-30 01:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/56063.shtml)
-- 2026-06-30 01:49 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/3330057110.shtml)
-- 2026-06-30 01:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/106498.shtml)
-- 2026-06-30 01:36 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/099820.shtml)
-- 2026-06-30 01:44 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/4107638.shtml)
-- 2026-06-30 01:39 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/78809707.shtml)
+- 2026-06-30 02:06 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/185636.shtml)
+- 2026-06-30 01:50 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/686795.shtml)
+- 2026-06-30 01:58 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/29140.shtml)
+- 2026-06-30 02:01 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/75720.shtml)
+- 2026-06-30 02:00 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/56288332.shtml)
+- 2026-06-30 01:50 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/411413519.shtml)
+- 2026-06-30 01:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/280490468.shtml)
+- 2026-06-30 02:02 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/199627071906.shtml)
+- 2026-06-30 01:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/45757085366.shtml)
+- 2026-06-30 02:09 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/795920658235.shtml)
+- 2026-06-30 02:07 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/7121565.shtml)
+- 2026-06-30 02:08 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/94540417.shtml)
+- 2026-06-30 01:57 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/7613188528.shtml)
+- 2026-06-30 02:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/2941728476.shtml)
+- 2026-06-30 02:04 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/346239598573.shtml)

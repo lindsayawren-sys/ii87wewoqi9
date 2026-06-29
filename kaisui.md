@@ -1,60 +1,58 @@
-# 5.5万亿江苏银行换帅，新董事长“一人打五份工”！
+# 港股午评：恒指涨1.11% 科指涨1.66% 科网股、内房股普涨 芯片股集体回调 联想大涨逾23% 碧桂园涨超19%
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 谢美浴 编辑 | 付影 来源 | 独角金融 城商行“一哥”董事长更迭。 在江苏银行（600919.SH）深耕12年的“老将”葛仁余，近日因年龄原因辞去董事长职务，该行选举行长袁军担任第六届董事会董事长，其任职资格尚需报监管部门核准。 表面看，这是一次平稳的新老高管更迭。江苏银行2025年实现营业收
+5月29日消息，港股三大指数高开高走。截至午间收盘，恒生指数涨1.11%，报25282.84，恒生科技指数涨1.66%，国企指数涨1.28%。盘面上，科网股普涨，联想涨超23%，百度涨超8%，哔哩哔哩涨超4%，快手涨超3%；内房股普涨，碧桂园涨超19%；航空股走强，东方航空涨超6%；芯片股集体回调，澜起科技跌超9%；创想三维登陆港股，首日涨超36%。 内房股普涨，碧桂园涨超19
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月29日消息，港股三大指数高开高走。
 
-作者 | 谢美浴 编辑 | 付影 来源 | 独角金融 城商行“一哥”董事长更迭。
+截至午间收盘，恒生指数涨1.11%，报25282.84，恒生科技指数涨1.66%，国企指数涨1.28%。
 
-在江苏银行（600919.SH）深耕12年的“老将”葛仁余，近日因年龄原因辞去董事长职务，该行选举行长袁军担任第六届董事会董事长，其任职资格尚需报监管部门核准。
+盘面上，科网股普涨，联想涨超23%，百度涨超8%，哔哩哔哩涨超4%，快手涨超3%；内房股普涨，碧桂园涨超19%；航空股走强，东方航空涨超6%；芯片股集体回调，澜起科技跌超9%；创想三维登陆港股，首日涨超36%。
 
-表面看，这是一次平稳的新老高管更迭。
+内房股普涨，碧桂园涨超19%。
 
-江苏银行2025年实现营业收入879.42亿元，同比增长8.82%；归母净利润345.01亿元，同比增长8.35%。
+国务院日前印发《城市更新“十五五”规划》，明确了“十五五”时期城市更新工作的目标指标、重点任务、重大工程和政策举措。
 
-2026年一季度末，该行总资产达到5.58万亿元，较2025年末增长13.18%，继续在城商行中领跑。
+规划提出，到2030年，城市更新行动取得重要进展，城市开发建设方式转型初见成效，安全发展基础更加牢固，服务效能不断提高，人居环境明显改善，新旧动能加快转换，文化遗产有效保护，风貌特色更加彰显，治理水平大幅提高，城市成为人民群众高品质生活的空间。
 
-不过，江苏银行的归母净利润增速已然放缓，从2021年增速30.72%降至2025年的8.82%； 与此同时，银行营收仍较为依赖利息净收入，2025年利息净收入为675.18亿元，占总营收76.78%，同比增长 20.66%；净息差降至1.73%，低于1.8%的行业“警戒线”。
+中国城市规划设计研究院副院长郑德高说，规划落实“十五五”规划纲要相关目标和任务，并设定明确预期指标，“十五五”期间城镇危旧房改造50万套（间）、城中村改造4000个，完成城市地下管网改造36.5万公里，存量应急避难场所改造5万个，城镇房屋基础信息数字化率达95%以上。
 
-目前，袁军一人身兼五职，江苏银行党委书记、执行董事、行长、首席合规官，以及被新选举的董事长头衔，这场“超载”的人事安排，能否让这位“70后”在净息差收窄、盈利增速放缓的关口引领转型？
+以可量化、可考核的目标任务，为各地抓实安全韧性建设划定硬标准、明确路线图。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 01:52 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 02:03 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 02:03 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 01:48 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-30 01:36 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 01:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 01:44 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 02:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 02:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 02:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 02:02 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 02:05 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 01:53 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 01:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 02:04 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 01:47 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 01:47 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 02:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 02:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 01:44 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:11 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 01:57 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 02:06 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 01:43 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 02:04 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [一生一世](https://www.blog.minike.top/Article/details/14145.shtml)
-- 2026-06-30 01:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/13274220.shtml)
-- 2026-06-30 01:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/891357460666.shtml)
-- 2026-06-30 01:58 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/24322354.shtml)
-- 2026-06-30 01:56 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/339735915975.shtml)
-- 2026-06-30 02:04 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/5278671132.shtml)
-- 2026-06-30 02:02 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/460467186969.shtml)
-- 2026-06-30 01:37 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/35949.shtml)
-- 2026-06-30 01:51 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/4612742.shtml)
-- 2026-06-30 02:05 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/109115025.shtml)
-- 2026-06-30 01:56 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/73433669159.shtml)
-- 2026-06-30 01:49 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/43294755.shtml)
-- 2026-06-30 01:38 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/87946643702.shtml)
-- 2026-06-30 02:03 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/6407146.shtml)
-- 2026-06-30 01:41 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/24954007746.shtml)
+- 2026-06-30 01:45 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/955552.shtml)
+- 2026-06-30 01:53 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/22221627.shtml)
+- 2026-06-30 01:43 - [请回答王牌2019](https://www.share.minike.top/Article/details/73335.shtml)
+- 2026-06-30 01:47 - [世界杯](https://www.share.minike.top/Article/details/34733548.shtml)
+- 2026-06-30 01:57 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/497425724162.shtml)
+- 2026-06-30 02:00 - [金牌调解](https://www.blog.minike.top/Article/details/2081564.shtml)
+- 2026-06-30 01:50 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/352605.shtml)
+- 2026-06-30 01:56 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/76288086134.shtml)
+- 2026-06-30 02:00 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/6497171283.shtml)
+- 2026-06-30 02:03 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/25109366.shtml)
+- 2026-06-30 01:55 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/95083657.shtml)
+- 2026-06-30 02:00 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/10272993032.shtml)
+- 2026-06-30 01:51 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/98942381167.shtml)
+- 2026-06-30 02:02 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/708372.shtml)
+- 2026-06-30 02:01 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/295355.shtml)

@@ -1,52 +1,56 @@
-# 习近平向上海合作组织绿色和可持续发展论坛致贺信
+# Pinterest被指违反联邦证券法 将面临集体诉讼
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。 习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。 习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，
+Faruqi & Faruqi， LLP等多家证券律师事务所近日提醒Pinterest投资者，在证券集体诉讼中申请担任首席原告的截止日期为2026年5月29日。该诉讼指控Pinterest及其部分高管在2025年2月7日至2026年2月12日期间违反了联邦证券法。 诉讼核心指控 根据已提起的集体诉讼，在整个诉讼期间，被告作出了虚假和误导性陈述，未能向投资者披露以下关键事实：Pi
 
 ## 正文
 
-新华社北京4月29日电 4月29日，国家主席习近平向上海合作组织绿色和可持续发展论坛致贺信。
+Faruqi & Faruqi， LLP等多家证券律师事务所近日提醒Pinterest投资者，在证券集体诉讼中申请担任首席原告的截止日期为2026年5月29日。
 
-习近平指出，中国秉持绿水青山就是金山银山理念，坚定不移走生态优先、绿色发展之路，是全球生态文明建设的参与者、贡献者、引领者。
+该诉讼指控Pinterest及其部分高管在2025年2月7日至2026年2月12日期间违反了联邦证券法。
 
-习近平强调，今年是上海合作组织成立25周年，也是中国“十五五”开局之年。
+诉讼核心指控 根据已提起的集体诉讼，在整个诉讼期间，被告作出了虚假和误导性陈述，未能向投资者披露以下关键事实：Pinterest正在经历或可能经历来自其广告合作伙伴的收入减少；公司夸大了其应对美国关税对经营环境影响的能力，包括对其广告合作伙伴的可预见影响；关税对Pinterest广告收入的影响足够严重，公司面临或可能面临迫在眉睫的重组。
 
-中国愿同各方一道，弘扬“上海精神”，展现“上合担当”，加强政策对接、经验交流和项目合作，推动完善全球环境治理体系，携手共建清洁、美丽、可持续的世界。
+关键事件时间线 诉讼披露了三次导致股价暴跌的关键更正性披露： 2025年11月4日，Pinterest公布第三季度财报，第四季度营收指引中值为13.25亿美元，低于市场预期的13.4亿美元。
 
-本次论坛当日在浙江宁波开幕，主题为“践行全球治理倡议，共促上合组织绿色和可持续发展”，由上合组织睦邻友好合作委员会、生态环境部和浙江省人民政府共同主办。
+公司承认“大型美国零售商在当前环境中应对关税相关的利润压力时，面临广告支出适度放缓”。
+
+次日股价暴跌21.8%，收于25.75美元。
+
+2026年1月27日，Pinterest宣布全球重组计划，裁员比例低于15%，预计产生3500万至4500万美元重组费用。
+
+公司称此举旨在将资源重新配置到AI相关岗位和团队。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 01:49 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 01:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 01:54 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 01:58 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 02:01 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 02:00 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 02:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:53 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 01:54 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 01:37 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 02:10 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 01:56 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 02:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 01:59 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 02:08 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 01:57 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 02:01 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 01:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 01:47 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 01:49 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/9975067.shtml)
-- 2026-06-30 01:51 - [内马尔替补](http://www.share.minike.top/Article/details/3641435.shtml)
-- 2026-06-30 02:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/21737333.shtml)
-- 2026-06-30 01:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/95271.shtml)
-- 2026-06-30 01:49 - [内马尔替补](http://www.blog.minike.top/Article/details/11565764252.shtml)
-- 2026-06-30 02:05 - [一生一世](https://www.share.kurohicncr.top/Article/details/984478.shtml)
-- 2026-06-30 01:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/5228051556.shtml)
-- 2026-06-30 02:00 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/99482005.shtml)
-- 2026-06-30 01:48 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/180708.shtml)
-- 2026-06-30 01:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/106398940638.shtml)
-- 2026-06-30 01:39 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/7313138.shtml)
-- 2026-06-30 01:52 - [日本16强魔咒](http://www.blog.minike.top/Article/details/803974941783.shtml)
-- 2026-06-30 01:59 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/11002914889.shtml)
-- 2026-06-30 01:43 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/3236615758.shtml)
-- 2026-06-30 01:59 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/342910577.shtml)
+- 2026-06-30 02:01 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/982811.shtml)
+- 2026-06-30 02:03 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/2279172.shtml)
+- 2026-06-30 01:43 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/131412971740.shtml)
+- 2026-06-30 01:53 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/67437076.shtml)
+- 2026-06-30 01:52 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/04784618277.shtml)
+- 2026-06-30 02:08 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/814702.shtml)
+- 2026-06-30 01:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/112201591285.shtml)
+- 2026-06-30 02:06 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/304183.shtml)
+- 2026-06-30 02:05 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/55004365834.shtml)
+- 2026-06-30 02:05 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/7060742413.shtml)
+- 2026-06-30 02:10 - [明星大侦探第四季](http://www.share.minike.top/Article/details/98807.shtml)
+- 2026-06-30 02:11 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/88196384.shtml)
+- 2026-06-30 02:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/020118905.shtml)
+- 2026-06-30 01:49 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/19256369.shtml)
+- 2026-06-30 02:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/9680894.shtml)

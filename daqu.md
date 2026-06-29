@@ -1,56 +1,58 @@
-# 中钢协：欧盟CBAM默认值与实际值差异大、歧视性倾向明显
+# Aldeyra Therapeutics投资者迎来集体诉讼主导权申请截止日
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新社北京4月29日电 (记者 阮煜琳)今年1月起，欧盟CBAM(碳边境调节机制)正式实施。中国钢铁工业协会副会长姜维4月29日表示，经中国钢铁全产业链环境产品声明(EPD)平台核算，欧盟CBAM公布的排放默认值与中国钢铁产品实际排放水平存在巨大差距，高于中国实际值近一倍，且明显高于技术水平相近国家，歧视性倾向明显。姜维当日在北京举行的信息发布会上表示，欧盟还对非电力类商品增设
+生物制药公司Aldeyra Therapeutics近日面临证券欺诈集体诉讼，多家律所提醒投资者，申请担任首席原告的截止日期为2026年5月29日。 此次诉讼源于美国食品药品监督管理局于2026年3月17日对该公司的干眼症候选药物reproxalap新药申请发出完全回复函，正式拒绝批准。FDA在信中明确表示，该申请“缺乏由充分且控制良好的研究构成的实质性证据”，无法证明该药物在
 
 ## 正文
 
-中新社北京4月29日电 (记者 阮煜琳)今年1月起，欧盟CBAM(碳边境调节机制)正式实施。
+生物制药公司Aldeyra Therapeutics近日面临证券欺诈集体诉讼，多家律所提醒投资者，申请担任首席原告的截止日期为2026年5月29日。
 
-中国钢铁工业协会副会长姜维4月29日表示，经中国钢铁全产业链环境产品声明(EPD)平台核算，欧盟CBAM公布的排放默认值与中国钢铁产品实际排放水平存在巨大差距，高于中国实际值近一倍，且明显高于技术水平相近国家，歧视性倾向明显。
+此次诉讼源于美国食品药品监督管理局于2026年3月17日对该公司的干眼症候选药物reproxalap新药申请发出完全回复函，正式拒绝批准。
 
-姜维当日在北京举行的信息发布会上表示，欧盟还对非电力类商品增设“加价机制”，并采取逐步实施模式，2026年至2028年每年递增10%。
+FDA在信中明确表示，该申请“缺乏由充分且控制良好的研究构成的实质性证据”，无法证明该药物在拟定使用条件下具有其声称的效果。
 
-据测算，2025年，中国对欧盟出口涉税钢铁产品和制品合计约1052万吨。
+监管机构还指出，“研究结果的不一致性引发了对阳性发现可靠性和意义的严重质疑”，且“已完成临床试验的整体证据不支持该产品的有效性”。
 
-欧盟CBAM实施对中国钢铁行业短期内影响较小，但随着免费配额逐步退出，影响将越来越大。
+受此消息冲击，Aldeyra股价在2026年3月17日单日暴跌2.99美元，跌幅达70.7%，收于每股1.24美元。
 
-“此外，2028年，CBAM适用范围将向欧盟海关税则编码项下的钢铝下游产品延伸，涵盖机械、五金制品、汽车零部件、家用电器、建筑设备等多领域的180个分类产品。
+诉讼指控在2023年11月3日至2026年3月16日期间，Aldeyra及其部分高管违反了联邦证券法，就reproxalap临床试验结果作出了虚假和误导性陈述，未能披露试验数据的不一致性。
 
-”姜维表示，2025年，中国对欧盟出口相关产品货值为211亿欧元，含钢量约500万吨，若按吨钢碳排放强度默认值为4吨计算，上述对欧盟出口下游产品用钢对应的碳排放量为2000万吨。
+多家律师事务所已提起集体诉讼，其中包括最早提起诉讼的Rosen律师事务所。
 
-2028年，欧盟开始对扩围产品征收碳排放费用，按2000万吨碳排放量和近期欧盟二氧化碳排放价格71欧元/吨测算，需缴纳碳排放费用14.2亿欧元，即增加约7%的成本，将制约相关产品对欧盟出口。
+投资者可在2026年5月29日截止日期前向法院申请担任首席原告，在集体诉讼中代表其他股东参与诉讼指导。
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 01:42 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 01:56 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 01:38 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 02:02 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 01:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 02:00 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 02:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 02:01 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 01:41 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 01:52 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 01:55 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-30 01:49 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 02:00 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 01:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 01:56 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 01:51 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 01:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 02:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 01:50 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-30 02:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 01:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:55 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/6581815.shtml)
-- 2026-06-30 02:04 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/51551403.shtml)
-- 2026-06-30 01:49 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/756674875.shtml)
-- 2026-06-30 01:53 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/61049.shtml)
-- 2026-06-30 01:41 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/7585628.shtml)
-- 2026-06-30 01:44 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/765388.shtml)
-- 2026-06-30 01:53 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/401484.shtml)
-- 2026-06-30 01:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/6705717974.shtml)
-- 2026-06-30 01:54 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/95728.shtml)
-- 2026-06-30 01:48 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/5101066661.shtml)
-- 2026-06-30 01:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/53450150.shtml)
-- 2026-06-30 01:56 - [极限挑战第一季](https://www.blog.minike.top/Article/details/34022.shtml)
-- 2026-06-30 02:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/5883512938.shtml)
-- 2026-06-30 02:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/99062293340.shtml)
-- 2026-06-30 01:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/567334156.shtml)
+- 2026-06-30 01:54 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/204256440103.shtml)
+- 2026-06-30 02:03 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/491220.shtml)
+- 2026-06-30 01:58 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/31448030466.shtml)
+- 2026-06-30 01:58 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/1397503692.shtml)
+- 2026-06-30 02:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/127797698.shtml)
+- 2026-06-30 02:09 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/687317.shtml)
+- 2026-06-30 01:56 - [千香](http://www.blog.minike.top/Article/details/95112453.shtml)
+- 2026-06-30 02:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/340282776.shtml)
+- 2026-06-30 01:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/0908252358.shtml)
+- 2026-06-30 02:04 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/459191.shtml)
+- 2026-06-30 02:10 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/1088220.shtml)
+- 2026-06-30 01:48 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/5395908.shtml)
+- 2026-06-30 01:55 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/9938403.shtml)
+- 2026-06-30 01:44 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/0011318.shtml)
+- 2026-06-30 01:54 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/9087076.shtml)

@@ -1,61 +1,61 @@
-# 通用汽车上调全年盈利指引，最高法院关税裁决带来5亿美元利好
+# 尾盘：美股涨跌不一 市场关注美伊局势
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-通用汽车周二公布第一季度财报，得益于核心市场对皮卡和SUV车型的强劲需求以及美国最高法院关税裁决带来的5亿美元利好，公司净利润超预期并随即上调全年业绩指引。 关税裁决带来5亿美元“意外之财” 今年2月，美国最高法院以6比3的投票结果裁定，特朗普政府援引《国际紧急经济权力法》实施的大规模关税政策违法。根据这一裁决，通用汽车预计将获得约5亿美元的关税退款。 公司首席财务官表示，这笔
+北京时间5月29日凌晨，美股周四尾盘涨跌不一。美国4月核心PCE通胀年率达3.3%，符合预期。原油价格走低，据传美伊已达成关于延长停火协议，目前该协议正等待美国总统特朗普批准。 道指跌62.01点，跌幅为0.12%，报50582.27点；纳指涨233.30点，涨幅为0.87%，报26908.04点；标普500指数涨40.16点，涨幅为0.53%，报7560.52点。 美国Axi
 
 ## 正文
 
-通用汽车周二公布第一季度财报，得益于核心市场对皮卡和SUV车型的强劲需求以及美国最高法院关税裁决带来的5亿美元利好，公司净利润超预期并随即上调全年业绩指引。
+北京时间5月29日凌晨，美股周四尾盘涨跌不一。
 
-关税裁决带来5亿美元“意外之财” 今年2月，美国最高法院以6比3的投票结果裁定，特朗普政府援引《国际紧急经济权力法》实施的大规模关税政策违法。
+美国4月核心PCE通胀年率达3.3%，符合预期。
 
-根据这一裁决，通用汽车预计将获得约5亿美元的关税退款。
+原油价格走低，据传美伊已达成关于延长停火协议，目前该协议正等待美国总统特朗普批准。
 
-公司首席财务官表示，这笔预期退款是一个“有利调整”。
+道指跌62.01点，跌幅为0.12%，报50582.27点；纳指涨233.30点，涨幅为0.87%，报26908.04点；标普500指数涨40.16点，涨幅为0.53%，报7560.52点。
 
-虽然公司尚未实际收到退款，但已将其计入一季度业绩并据此上调全年指引。
+美国Axios新闻网报道称，美伊双方谈判代表已达成一份为期60天的谅解备忘录，旨在延长停火并就伊朗核计划问题开启谈判。
 
-通用汽车目前预计全年总关税成本将从此前的30亿至40亿美元降至25亿至35亿美元。
+该报道出炉前数小时，美国和伊朗刚刚相互对对方空军基地实施了军事打击。
 
-核心业务保持强劲 财报显示，通用汽车一季度营收436.2亿美元，净利润26亿美元，调整后每股收益3.70美元，远超市场预期的2.62美元。
+由于有报道称美国和伊朗谈判代表已达成延长停火协议，油价从周四早间高点回落。
 
-强劲表现得益于北美核心业务的稳固增长——公司在北美全尺寸皮卡市场占有42%的份额，调整后息税前利润率从上年同期的8.8%提升至10.1%。
+Axios报道称，谈判代表已达成一份为期60天的谅解备忘录，以延长停火并就伊朗核计划问题启动谈判。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-30 01:43 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 01:46 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 01:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 01:58 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 01:46 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 01:43 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 01:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 01:36 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 01:54 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-30 01:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 02:00 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 01:51 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 02:00 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 01:37 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 02:07 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 01:44 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 01:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 02:07 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 01:54 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 02:08 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-30 01:55 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 02:01 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 02:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 02:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 01:58 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 02:10 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 01:46 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 01:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 02:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/5626404.shtml)
-- 2026-06-30 01:38 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/88844240002.shtml)
-- 2026-06-30 01:38 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/79050389.shtml)
-- 2026-06-30 02:01 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/693276218886.shtml)
-- 2026-06-30 01:47 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/507935.shtml)
-- 2026-06-30 02:01 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/43837.shtml)
-- 2026-06-30 01:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/45013.shtml)
-- 2026-06-30 01:43 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/179013174158.shtml)
-- 2026-06-30 01:38 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/99807783.shtml)
-- 2026-06-30 01:39 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/36803.shtml)
-- 2026-06-30 01:43 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/841752283.shtml)
-- 2026-06-30 01:52 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/22825587.shtml)
-- 2026-06-30 02:04 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/23912663105.shtml)
-- 2026-06-30 02:00 - [绘画区你赢了](http://www.blog.minike.top/Article/details/62141.shtml)
-- 2026-06-30 01:52 - [请回答王牌2019](https://www.share.minike.top/Article/details/568729124.shtml)
+- 2026-06-30 02:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/8736400.shtml)
+- 2026-06-30 01:59 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/86848321188.shtml)
+- 2026-06-30 01:56 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/438164940.shtml)
+- 2026-06-30 01:58 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/447487.shtml)
+- 2026-06-30 02:10 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/182334422.shtml)
+- 2026-06-30 01:53 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/923851816.shtml)
+- 2026-06-30 02:10 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/8084340.shtml)
+- 2026-06-30 01:50 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/6728238.shtml)
+- 2026-06-30 01:52 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/74237.shtml)
+- 2026-06-30 01:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/34120758934.shtml)
+- 2026-06-30 01:48 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/573431.shtml)
+- 2026-06-30 01:51 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/469274.shtml)
+- 2026-06-30 02:11 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/4951639925.shtml)
+- 2026-06-30 02:11 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/4527280430.shtml)
+- 2026-06-30 02:02 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/85166165490.shtml)

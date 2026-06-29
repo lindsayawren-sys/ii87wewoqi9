@@ -1,58 +1,58 @@
-# 外出就餐需求降温，Sysco季度营收不及预期
+# 保密形式递表，睿触机器人冲刺港股“穿刺机器人第一股”
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-全球食品分销巨头Sysco周二公布第三财季财报，营收不及华尔街预期，其股价在盘前交易中下跌。由于外出就餐消费者减少，餐厅需求疲软，同时运营费用因奖金支出和战略投入而增加，对公司业绩构成压力。 营收不及预期 Sysco公布的财报显示，第三财季营收为205.2亿美元，同比增长4.7%，但低于分析师预期的205.7亿美元。调整后每股收益为94美分，同比下降2.1%，略低于市场预期的9
+来源：IPO日报 2026 年 5 月，睿触机器人正式递交港交所 IPO 申请。作为国内经皮穿刺手术机器人赛道领军企业，其核心产品 RC120 已开始商业化，但公司面临商业化的早期困境，报告期内营收近乎空白、持续亏损、现金流流出明显，产能受限。 5月27日，港交所披露信息显示，上海睿触机器人股份有限公司（下称“睿触机器人”）正式向主板递交上市申请，光大证券国际担任独家保荐人。
 
 ## 正文
 
-全球食品分销巨头Sysco周二公布第三财季财报，营收不及华尔街预期，其股价在盘前交易中下跌。
+来源：IPO日报 2026 年 5 月，睿触机器人正式递交港交所 IPO 申请。
 
-由于外出就餐消费者减少，餐厅需求疲软，同时运营费用因奖金支出和战略投入而增加，对公司业绩构成压力。
+作为国内经皮穿刺手术机器人赛道领军企业，其核心产品 RC120 已开始商业化，但公司面临商业化的早期困境，报告期内营收近乎空白、持续亏损、现金流流出明显，产能受限。
 
-营收不及预期 Sysco公布的财报显示，第三财季营收为205.2亿美元，同比增长4.7%，但低于分析师预期的205.7亿美元。
+5月27日，港交所披露信息显示，上海睿触机器人股份有限公司（下称“睿触机器人”）正式向主板递交上市申请，光大证券国际担任独家保荐人。
 
-调整后每股收益为94美分，同比下降2.1%，略低于市场预期的95美分，主要受6300万美元激励薪酬支出的拖累，这使每股收益损失约10美分。
+目前披露的招股书是睿触机器人于 2025 年 12 月 5 日以保密形式完成递表的，公司已于2026 年 5 月 22 日获得证监会境外发行上市及境内未上市股份 “全流通” 备案通知书。
 
-“堂食”需求疲软成主因 Sysco的客户包括肯德基、赛百味、汉堡王等连锁餐饮品牌。
+一旦挂牌，睿触机器人有望成为港股“经皮穿刺手术机器人第一股”。
 
-整体经济环境正在影响消费者行为。
+张力制图 保密递表（俗称 “密交”），是港交所允许符合条件的企业在提交 IPO 申请至通过上市聆讯前，不对外公开招股书（申请版本），仅由港交所、证监会与保荐人等中介机构审阅，全程处于 “非公开状态”。
 
-尽管总销量有所增长，但高管在财报电话会议上承认，餐厅整体客流量“仍然面临挑战”。
+2025 年 5 月，港交所推出“科企专线”，首次允许18A 章生物科技公司（未盈利、医疗器械 / 创新药等）、18C 章特专科技公司（高端制造、机器人、AI 等）进行保密递表，以便保护技术秘密、减少舆情干扰、灵活选择上市窗口。
 
-此外，Sysco还面临更高的激励薪酬支出和战略性销售岗位投资，这些因素共同挤压了利润空间。
+2026 年 3 月：港交所建议全面放开至所有 IPO 企业，目前尚未正式生效。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 01:53 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 01:40 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 01:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 02:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 02:02 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-30 02:05 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-30 01:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 01:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 01:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 02:02 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 01:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 01:44 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 01:45 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 01:51 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 01:51 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 01:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 01:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 01:59 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 01:54 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 02:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 02:06 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 01:50 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:53 - [扫黑风暴](https://www.blog.minike.top/Article/details/84683855061.shtml)
-- 2026-06-30 01:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/07935941.shtml)
-- 2026-06-30 01:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/634717555261.shtml)
-- 2026-06-30 02:00 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/362274098.shtml)
-- 2026-06-30 01:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/7327240.shtml)
-- 2026-06-30 01:45 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/6668470394.shtml)
-- 2026-06-30 01:52 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/849646.shtml)
-- 2026-06-30 01:53 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/96011731.shtml)
-- 2026-06-30 02:02 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/881052606.shtml)
-- 2026-06-30 02:04 - [明星大侦探第四季](http://www.share.minike.top/Article/details/168910475580.shtml)
-- 2026-06-30 01:49 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/837937.shtml)
-- 2026-06-30 01:56 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/7764095.shtml)
-- 2026-06-30 01:47 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/62459107.shtml)
-- 2026-06-30 01:43 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/35264695928.shtml)
-- 2026-06-30 01:48 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/552118528.shtml)
+- 2026-06-30 02:00 - [日本反击率先破门](https://www.blog.minike.top/Article/details/642104012.shtml)
+- 2026-06-30 01:59 - [起风了](http://www.blog.kurohicncr.top/Article/details/058264321801.shtml)
+- 2026-06-30 01:55 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/34807906.shtml)
+- 2026-06-30 01:54 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/0908157687.shtml)
+- 2026-06-30 01:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/507187297282.shtml)
+- 2026-06-30 02:03 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/731815470088.shtml)
+- 2026-06-30 01:43 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/55028442.shtml)
+- 2026-06-30 01:42 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/727807.shtml)
+- 2026-06-30 02:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/4780415705.shtml)
+- 2026-06-30 02:11 - [啊啊啊](http://www.share.minike.top/Article/details/77813.shtml)
+- 2026-06-30 01:48 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/78615.shtml)
+- 2026-06-30 01:49 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/957059.shtml)
+- 2026-06-30 01:52 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/45197565495.shtml)
+- 2026-06-30 01:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/630976.shtml)
+- 2026-06-30 02:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/19669.shtml)

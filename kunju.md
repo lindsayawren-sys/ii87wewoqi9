@@ -1,52 +1,58 @@
-# Noble获超5.5亿美元新合同，积压订单增至75亿美元
+# 鸿富诚IPO：“补流+储备资金”募资额合计占比超45%是否合规？华源证券保荐“独苗”成色待考
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-石油和天然气行业的海上钻井承包商Noble Corporation近期获得约5.65亿美元新合同，推动积压订单增至75亿美元，船队利用率从64%升至68%。 主要合同包括：Petrobras将Noble Courage延长1115天，贡献3.39亿美元积压；Woodside授予Noble Deliverer澳大利亚五井合同，价值1.21亿美元；埃克森美孚、Beacon、Plan
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月26日，深圳市鸿富诚新材料股份有限公司（以下简称“鸿富诚”）已披露了第二轮问询回复公告，继续推进创业板IPO进程，保荐券商为华源证券。 鸿富诚此次IPO拟募资12.2亿元，其中补充流动资金拟投入2.5亿元，发展与科技储备资金拟投入3亿元，二者合计
 
 ## 正文
 
-石油和天然气行业的海上钻井承包商Noble Corporation近期获得约5.65亿美元新合同，推动积压订单增至75亿美元，船队利用率从64%升至68%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-主要合同包括：Petrobras将Noble Courage延长1115天，贡献3.39亿美元积压；Woodside授予Noble Deliverer澳大利亚五井合同，价值1.21亿美元；埃克森美孚、Beacon、Planet One和Noble Viking也分别获得新单，日费在28万至43万美元区间。
+出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 5月26日，深圳市鸿富诚新材料股份有限公司（以下简称“鸿富诚”）已披露了第二轮问询回复公告，继续推进创业板IPO进程，保荐券商为华源证券。
 
-公司维持全年营收和盈利指引，但上调资本支出展望。
+鸿富诚此次IPO拟募资12.2亿元，其中补充流动资金拟投入2.5亿元，发展与科技储备资金拟投入3亿元，二者合计5.5亿元，占总募资额的比例为45%，超过30%。
 
-首席执行官表示，商业势头保持强劲，多份重要合同正按计划推进。
+问题是，发展与科技储备资金本质上是否属于补充流动资金？
 
-责任编辑：张俊 SF065
+如果属于，鸿富诚IPO募资方案则触及“30%”的不成文的“红线”。
+
+即便按照“轻资产、高研发投入”企业的认定条件评判，鸿富诚也不适用于突破“30%”限制的情况。
+
+与同行可比公司相比，鸿富诚毛利率明显偏高。
+
+高毛利率背后，公司部分供应商存在疑点，2022-2024年第一大供应商在2025年6月之前的注册地址，与鸿富诚重庆子公司相同。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 01:52 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 02:03 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 01:56 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 01:55 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 01:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 01:41 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 02:03 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 01:52 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 01:56 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 01:45 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 01:51 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 01:59 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 01:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 01:51 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 01:53 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 01:42 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 02:04 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 01:49 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 01:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 02:02 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 01:51 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 01:50 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 02:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2453304671.shtml)
-- 2026-06-30 01:52 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/32737005756.shtml)
-- 2026-06-30 01:45 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/8480968938.shtml)
-- 2026-06-30 02:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/21942854246.shtml)
-- 2026-06-30 01:56 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/544263576187.shtml)
-- 2026-06-30 02:03 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/351623.shtml)
-- 2026-06-30 01:41 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/02349473323.shtml)
-- 2026-06-30 01:45 - [流金岁月](http://www.blog.minike.top/Article/details/719320.shtml)
-- 2026-06-30 01:36 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/62910779.shtml)
-- 2026-06-30 01:51 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/737803.shtml)
-- 2026-06-30 02:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/17587910457.shtml)
-- 2026-06-30 01:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/1032907354.shtml)
-- 2026-06-30 02:03 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/8099521792.shtml)
-- 2026-06-30 01:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/803295154123.shtml)
-- 2026-06-30 01:53 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/120295243.shtml)
+- 2026-06-30 01:50 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/12082.shtml)
+- 2026-06-30 02:04 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/86523325.shtml)
+- 2026-06-30 01:44 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/305726091166.shtml)
+- 2026-06-30 01:50 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/945281.shtml)
+- 2026-06-30 01:53 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/00748.shtml)
+- 2026-06-30 01:46 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/8418444.shtml)
+- 2026-06-30 01:54 - [金刚川](http://www.blog.minike.top/Article/details/8044110.shtml)
+- 2026-06-30 01:47 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/4299931526.shtml)
+- 2026-06-30 01:48 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/858053451116.shtml)
+- 2026-06-30 02:06 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/286342.shtml)
+- 2026-06-30 02:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/90769280.shtml)
+- 2026-06-30 02:06 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/56674.shtml)
+- 2026-06-30 01:53 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/82398.shtml)
+- 2026-06-30 01:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/73727382033.shtml)
+- 2026-06-30 01:44 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/26040935.shtml)

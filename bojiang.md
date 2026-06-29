@@ -1,61 +1,58 @@
-# 韦德布什大幅上调闪迪目标价至1200美元
+# 纳指有望创2004年以来最佳两月表现 “不良广度”下涨势仍持续
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-韦德布什证券公司周三发布研报，将闪迪目标价从740美元大幅上调至1200美元，上调幅度达62%，同时维持对该股的“跑赢大盘”评级。 该机构分析师马特·布莱森在报告中指出，上调目标价主要基于两大因素：一是当前季度NAND闪存市场状况好于预期，二是第二季度的价格走势比此前的判断更为乐观。布莱森表示，通过与行业渠道的交流发现，闪迪在提升产品定价方面比整个行业更为成功，其价格上调速度领
+尽管市场广度指标持续发出警示信号，美股涨势仍在延续。纳斯达克指数有望创下自2004年以来最好的两个月表现，这一“不良广度”行情令华尔街策略师们既困惑又警惕。 据道琼斯市场数据统计，纳斯达克即将迎来自2002年11月以来最强劲的两个月上涨。与此同时，标普500指数也正朝着自2020年5月以来最佳的两个月表现迈进。就在周四，三大主要股指均凭借软件股反弹收于创纪录高位。 然而，亮眼指
 
 ## 正文
 
-韦德布什证券公司周三发布研报，将闪迪目标价从740美元大幅上调至1200美元，上调幅度达62%，同时维持对该股的“跑赢大盘”评级。
+尽管市场广度指标持续发出警示信号，美股涨势仍在延续。
 
-该机构分析师马特·布莱森在报告中指出，上调目标价主要基于两大因素：一是当前季度NAND闪存市场状况好于预期，二是第二季度的价格走势比此前的判断更为乐观。
+纳斯达克指数有望创下自2004年以来最好的两个月表现，这一“不良广度”行情令华尔街策略师们既困惑又警惕。
 
-布莱森表示，通过与行业渠道的交流发现，闪迪在提升产品定价方面比整个行业更为成功，其价格上调速度领先于市场平均水平。
+据道琼斯市场数据统计，纳斯达克即将迎来自2002年11月以来最强劲的两个月上涨。
 
-不过，布莱森也谨慎指出，相对于终端市场的整体趋势，该机构的盈利预测仍然偏于保守。
+与此同时，标普500指数也正朝着自2020年5月以来最佳的两个月表现迈进。
 
-韦德布什证券公司成立于1955年，总部位于洛杉矶，是一家知名的私人控股金融服务公司，业务涵盖财富管理、投资银行及证券研究等领域。
+就在周四，三大主要股指均凭借软件股反弹收于创纪录高位。
 
-闪迪将于周四盘后公布2026财年第三季度财报。
+然而，亮眼指数背后隐藏着市场的深层裂痕。
 
-市场普遍预期该公司将交出强劲成绩单，华尔街分析师预计当季营收约为46.9亿美元，每股收益约14.45美元。
+高盛首席美国股票策略师Ben Snider指出，若剔除少数巨型科技股，指数中位数股票仍较各自高点低约13%，这是过去25年来最悬殊的差距之一。
 
-责任编辑：张俊 SF065
+更令人担忧的是，标普500指数最近五次创纪录收盘中，有四次是在下跌股票数量多于上涨股票的情况下实现的。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 01:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 01:50 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 01:48 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 01:47 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 01:55 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-30 01:48 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 01:52 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 02:05 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 01:42 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 02:02 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 01:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 01:47 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 01:59 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 01:51 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 01:42 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 01:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 01:59 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 02:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 01:43 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 01:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 01:42 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-30 01:45 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 02:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 01:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 02:09 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 02:05 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/50894186.shtml)
-- 2026-06-30 01:47 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/26500184955.shtml)
-- 2026-06-30 02:04 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/355008356320.shtml)
-- 2026-06-30 01:51 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/73302592.shtml)
-- 2026-06-30 02:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/8931724.shtml)
-- 2026-06-30 01:59 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/431353721997.shtml)
-- 2026-06-30 01:54 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/36635880268.shtml)
-- 2026-06-30 01:41 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/027563001721.shtml)
-- 2026-06-30 01:58 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/263182343414.shtml)
-- 2026-06-30 01:39 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/516732074732.shtml)
-- 2026-06-30 01:49 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/9095785.shtml)
-- 2026-06-30 01:46 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/778915296.shtml)
-- 2026-06-30 01:36 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/873560.shtml)
-- 2026-06-30 01:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/861754296979.shtml)
-- 2026-06-30 01:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/1317656.shtml)
+- 2026-06-30 01:55 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/0944328361.shtml)
+- 2026-06-30 01:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/577072476.shtml)
+- 2026-06-30 01:42 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/94084.shtml)
+- 2026-06-30 01:47 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/738622.shtml)
+- 2026-06-30 01:52 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/0084482.shtml)
+- 2026-06-30 01:54 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/903192.shtml)
+- 2026-06-30 02:01 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/8918646.shtml)
+- 2026-06-30 01:51 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/21555594.shtml)
+- 2026-06-30 01:52 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/485354348.shtml)
+- 2026-06-30 02:02 - [点菜也要教吗](https://www.share.minike.top/Article/details/4436156305.shtml)
+- 2026-06-30 02:02 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/7889259055.shtml)
+- 2026-06-30 01:57 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/66407962.shtml)
+- 2026-06-30 01:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/167753.shtml)
+- 2026-06-30 01:53 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/500512909.shtml)
+- 2026-06-30 01:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/408178136578.shtml)

@@ -1,59 +1,56 @@
-# 埃尼与委内瑞拉签署协议重启Junin-5重油项目
+# Mistral AI CEO：拟自研芯片 同步加码基础设施建设
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-意大利能源巨头埃尼集团已与委内瑞拉碳氢化合物部及委内瑞拉国家石油公司签署协议，重启位于奥里诺科重油带的Junin-5项目石油作业。 该协议是在埃尼首席执行官与委内瑞拉代总统于加拉加斯会晤后签署的。Junin-5是一个重油项目，PDVSA持股60%，埃尼持股40%，据埃尼此前估算，该油田经认证的石油地质储量约为350亿桶。 埃尼表示，还向委内瑞拉官员介绍了其在委内瑞拉正在进行的业
+法国人工智能初创企业Mistral AI首席执行官阿瑟·门施表示，公司正考虑自研芯片，未来或将正式推出相关产品。 这是门施首次公开谈及公司在半导体领域的布局规划。此举也凸显出，在与美国行业巨头OpenAI、Anthropic展开竞争的过程中，米斯特拉尔希望进一步掌握基础设施环节的主导权。 谈及自研芯片的可能性，门施表示：“这一方向确实具备吸引力，公司并未将其排除在外。” 他称，
 
 ## 正文
 
-意大利能源巨头埃尼集团已与委内瑞拉碳氢化合物部及委内瑞拉国家石油公司签署协议，重启位于奥里诺科重油带的Junin-5项目石油作业。
+法国人工智能初创企业Mistral AI首席执行官阿瑟·门施表示，公司正考虑自研芯片，未来或将正式推出相关产品。
 
-该协议是在埃尼首席执行官与委内瑞拉代总统于加拉加斯会晤后签署的。
+这是门施首次公开谈及公司在半导体领域的布局规划。
 
-Junin-5是一个重油项目，PDVSA持股60%，埃尼持股40%，据埃尼此前估算，该油田经认证的石油地质储量约为350亿桶。
+此举也凸显出，在与美国行业巨头OpenAI、Anthropic展开竞争的过程中，米斯特拉尔希望进一步掌握基础设施环节的主导权。
 
-埃尼表示，还向委内瑞拉官员介绍了其在委内瑞拉正在进行的业务活动，并概述了未来的机会。
+谈及自研芯片的可能性，门施表示：“这一方向确实具备吸引力，公司并未将其排除在外。
 
-该公司还参与天然气开发项目，包括与Repsol联合运营的Cardón IV许可区内的Perla气田，该气田被称为拉丁美洲发现的最大海上气田。
+” 他称，定制芯片能够大幅降低AItoken的调用成本，而token是人工智能模型处理数据的基本单元。
 
-Cardón IV近期签署了一项可持续发展协议，旨在维持和增加面向国内市场的天然气产量，并为未来出口提供支持。
+“自研芯片未来大概率会提上日程，但现阶段我们仍依托英伟达开展合作，英伟达是非常优质的合作伙伴。
 
-埃尼还在PetroSucre合资企业（运营Corocoro海上油田）和Supermetanol石化公司持有股份。
+目前我们也在多方开展相关测试。
 
-该公司表示，2025年在委内瑞拉的油气产量达到每日6.4万桶油当量，主要来自Perla气田。
+”门施说道。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 02:03 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 01:57 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 01:47 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 02:03 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 02:04 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 01:38 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 02:01 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 02:00 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 02:01 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 01:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 01:58 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 01:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:01 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 01:50 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 02:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 02:00 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 02:07 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 02:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 01:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 02:02 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 01:48 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 01:44 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/2830014.shtml)
-- 2026-06-30 01:54 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/0340346347.shtml)
-- 2026-06-30 01:45 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/579386371903.shtml)
-- 2026-06-30 01:52 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/81475.shtml)
-- 2026-06-30 01:37 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/6848006.shtml)
-- 2026-06-30 02:01 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/2416350422.shtml)
-- 2026-06-30 01:43 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/302941.shtml)
-- 2026-06-30 02:04 - [一生一世](http://www.blog.kurohicncr.top/Article/details/89854505.shtml)
-- 2026-06-30 01:56 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/8614460164.shtml)
-- 2026-06-30 01:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/6625963.shtml)
-- 2026-06-30 01:48 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/881106103.shtml)
-- 2026-06-30 01:53 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/16804854745.shtml)
-- 2026-06-30 01:59 - [请回答王牌2019](http://www.share.minike.top/Article/details/82159.shtml)
-- 2026-06-30 02:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/1869068139.shtml)
-- 2026-06-30 01:53 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/2362861.shtml)
+- 2026-06-30 01:52 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/401519102964.shtml)
+- 2026-06-30 01:54 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/10081608754.shtml)
+- 2026-06-30 01:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/5782546.shtml)
+- 2026-06-30 01:44 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/531215.shtml)
+- 2026-06-30 01:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/70460332.shtml)
+- 2026-06-30 02:11 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/36356930967.shtml)
+- 2026-06-30 02:06 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/767244.shtml)
+- 2026-06-30 01:50 - [千香](https://www.blog.kurohicncr.top/Article/details/339694228378.shtml)
+- 2026-06-30 02:01 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/32137768.shtml)
+- 2026-06-30 02:11 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/13107.shtml)
+- 2026-06-30 02:06 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/31190602.shtml)
+- 2026-06-30 01:53 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/336046.shtml)
+- 2026-06-30 02:01 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/729351.shtml)
+- 2026-06-30 01:53 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/07767999219.shtml)
+- 2026-06-30 01:50 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/10537483948.shtml)

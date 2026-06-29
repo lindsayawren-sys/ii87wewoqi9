@@ -1,56 +1,57 @@
-# 美联储主席提名人沃什闯过参议院关键关卡，最终投票即将到来
+# 戴尔一季度AI服务器营收同比增长757% 股价盘后大涨超25%
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-专题：美联储议息会 鲍威尔绝唱 料仍按兵不动 美国参议院银行委员会于周三投票通过凯文·沃什的美联储主席提名，为特朗普总统提名的人选在共和党掌控的参议院进行最终确认投票扫清了障碍。 此次投票严格依照党派立场划分：13名共和党委员全部投赞成票，11名民主党委员全部投反对票。 正如预期，沃什顺利闯过这一关卡；数小时后，美联储将公布最新利率决议——这可能是现任主席鲍威尔任期内的最后一次
+戴尔公布，其营收增速创下自七年多前重新上市以来的单季最高纪录，销售额与利润均超出分析师预期。周四盘后交易中，该股涨幅一度高达26%。 以下为公司业绩与伦敦证券交易所集团（LSEG）一致预期的对比： 调整后每股收益：4.86美元（预期2.94美元） 营收：438.4亿美元（预期354.3亿美元） 财报显示，截至5月1日的财季，戴尔营收同比激增近88%。自2018年IPO（距该服务
 
 ## 正文
 
-专题：美联储议息会 鲍威尔绝唱 料仍按兵不动 美国参议院银行委员会于周三投票通过凯文·沃什的美联储主席提名，为特朗普总统提名的人选在共和党掌控的参议院进行最终确认投票扫清了障碍。
+戴尔公布，其营收增速创下自七年多前重新上市以来的单季最高纪录，销售额与利润均超出分析师预期。
 
-此次投票严格依照党派立场划分：13名共和党委员全部投赞成票，11名民主党委员全部投反对票。
+周四盘后交易中，该股涨幅一度高达26%。
 
-正如预期，沃什顺利闯过这一关卡；数小时后，美联储将公布最新利率决议——这可能是现任主席鲍威尔任期内的最后一次决议。
+以下为公司业绩与伦敦证券交易所集团（LSEG）一致预期的对比： 调整后每股收益：4.86美元（预期2.94美元） 营收：438.4亿美元（预期354.3亿美元） 财报显示，截至5月1日的财季，戴尔营收同比激增近88%。
 
-美联储可能会维持观望策略。
+自2018年IPO（距该服务器制造商私有化五年后）以来，其同比增速从未超过39%——这一纪录曾在今年1月的财季创下。
 
-通胀居高不下、劳动力市场看似稳定，加之伊朗局势引发的油价冲击，使得进一步降息的可能性渺茫。
+增长由人工智能业务驱动，戴尔组装搭载英伟达等厂商图形处理器（GPU）的服务器。
 
-美联储的谨慎态度，一直是特朗普与鲍威尔之间矛盾的主要根源。
+戴尔称，当季AI服务器营收同比增长757%，至161亿美元。
 
-特朗普不断施压，要求美联储大幅、快速降息，而鲍威尔拒绝妥协，因此遭受持续猛烈批评。
+公司目前预计全年AI营收将达600亿美元，高于2月份500亿美元的预期，增幅达144%。
 
-批评者及鲍威尔本人均表示，特朗普政府的施压行为已超出言论范畴。
+截至周四收盘，戴尔股价年内涨幅超150%，而同期标普500指数涨幅约为10%。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 01:36 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 01:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 01:48 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 01:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 01:50 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 01:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 01:47 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 01:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 02:04 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 02:11 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 02:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 01:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:01 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 01:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 01:53 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 01:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 01:48 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 02:09 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 01:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 01:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/267315986.shtml)
-- 2026-06-30 01:47 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/274317989289.shtml)
-- 2026-06-30 01:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/43831783772.shtml)
-- 2026-06-30 01:55 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/551005336.shtml)
-- 2026-06-30 01:43 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/609035.shtml)
-- 2026-06-30 01:46 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/354099543753.shtml)
-- 2026-06-30 01:56 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/992359.shtml)
-- 2026-06-30 01:38 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/375254163911.shtml)
-- 2026-06-30 01:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/25001355.shtml)
-- 2026-06-30 01:43 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/96567960358.shtml)
-- 2026-06-30 01:52 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/557340361693.shtml)
-- 2026-06-30 01:44 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/75350696.shtml)
-- 2026-06-30 02:03 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/548940.shtml)
-- 2026-06-30 01:55 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/270094.shtml)
-- 2026-06-30 02:03 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/69542.shtml)
+- 2026-06-30 01:51 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/34631414.shtml)
+- 2026-06-30 01:57 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/3464039114.shtml)
+- 2026-06-30 02:01 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/38445178.shtml)
+- 2026-06-30 01:44 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/0824944.shtml)
+- 2026-06-30 01:48 - [流金岁月](https://www.share.kurohicncr.top/Article/details/1141915.shtml)
+- 2026-06-30 02:06 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/9184554833.shtml)
+- 2026-06-30 01:45 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/54259.shtml)
+- 2026-06-30 01:49 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/1755078.shtml)
+- 2026-06-30 01:58 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/0367638.shtml)
+- 2026-06-30 02:01 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/1328021230.shtml)
+- 2026-06-30 01:49 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/31021089.shtml)
+- 2026-06-30 01:55 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/91658.shtml)
+- 2026-06-30 01:45 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/039442411449.shtml)
+- 2026-06-30 01:49 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/809810568.shtml)
+- 2026-06-30 01:44 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/83656905.shtml)

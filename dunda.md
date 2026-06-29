@@ -1,58 +1,60 @@
-# 郑庆华：“难险脏繁杂情”六大场景是未来智能工程重点突破方向
+# 旅游业应跳出“走马观花”模式
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网福州4月29日电 (叶艺琳)“过去工具只是改变怎么做，今天人工智能正在参与并回答做什么，以及为何重要的问题。”29日，在福建福州开幕的第九届数字中国建设峰会主论坛上，中国工程院院士、同济大学党委书记郑庆华指出，人工智能赋能工程应用，当前最应聚焦“难、险、脏、繁、杂、情”六大人类不适宜场景，这些应用场景的突破将从根本上支撑生产力的革命性跃升和生产关系的重塑。郑庆华表示，人工
+据文化和旅游部数据中心测算，今年一季度，全国乡村旅游接待总人次为7.93亿，同比增长12.2%。中国社会科学院旅游研究中心此前发布的《旅游绿皮书：2025～2026年中国旅游发展分析与预测》指出，2025年以来，文旅融合、数智赋能、赛事经济、入境旅游成为释放旅游发展潜力的重要支点。随着游客群体代际更迭和消费心理变化，旅游已升级为融合文化认知、情感共鸣与价值认同的复合型体验活动。
 
 ## 正文
 
-中新网福州4月29日电 (叶艺琳)“过去工具只是改变怎么做，今天人工智能正在参与并回答做什么，以及为何重要的问题。
+据文化和旅游部数据中心测算，今年一季度，全国乡村旅游接待总人次为7.93亿，同比增长12.2%。
 
-”29日，在福建福州开幕的第九届数字中国建设峰会主论坛上，中国工程院院士、同济大学党委书记郑庆华指出，人工智能赋能工程应用，当前最应聚焦“难、险、脏、繁、杂、情”六大人类不适宜场景，这些应用场景的突破将从根本上支撑生产力的革命性跃升和生产关系的重塑。
+中国社会科学院旅游研究中心此前发布的《旅游绿皮书：2025～2026年中国旅游发展分析与预测》指出，2025年以来，文旅融合、数智赋能、赛事经济、入境旅游成为释放旅游发展潜力的重要支点。
 
-郑庆华表示，人工智能既是“工具的革命”也是“革命的工具”，既改变生产力也改变生产关系，推动形成人类智能与机器智能“双螺旋”发展。
+随着游客群体代际更迭和消费心理变化，旅游已升级为融合文化认知、情感共鸣与价值认同的复合型体验活动。
 
-他指出，当前以大模型为代表的主要技术仍面临过拟合、幻觉、灾难性遗忘等局限，难以完全满足实际工程应用的可信、可靠、可控的需求。
+旅游是现代服务业的重要组成部分，涉及吃、住、行、游、购、娱等多个产业。
 
-为此，郑庆华详细分析未来工程智能的重点突破方向，即六大人类不适宜的应用场景：一是“难”，面对如大规模的芯片设计、新材料发现等高维复杂系统，突破传统穷举搜索方法的计算极限，实现精准建模与高效优化；二是“险”，在数据稀缺的化工生产、地质灾害等高危场景中，突破传统依赖大量历史样本建模的方式，实现高风险事件可预测、可推演、可验证；三是“脏”，突破传统人工依赖与刚性自动化局限，替代人类在高污染、强腐蚀、视野受限等恶劣环境中作业，实现智能系统长期稳定运行与安全作业；四是“繁”，承接高度重复、极易导致疲劳倦怠的监控、巡检等不适合人类长期值守的任务；五是“杂”，应对交通管制调度等涉及多类信息源、多任务线的复杂统筹；六是“情”，研究灾后心理援助、客户服务等持续高密度人际互动场景的智能共情与情感交互系统，减轻人类情感消耗和心理创伤。
+近年来，我国旅游业成为经济社会发展的一大亮点，成为各地增长速度快、市场潜力大、发展前景好的新兴产业，在促进消费、拉动内需方面发挥了巨大作用。
 
-郑庆华强调，除六大场景外，在开放复杂环境领域下，上述场景还常常相互叠加、耦合关联，须突破传统静态建模和局部优化方法，实现跨尺度、跨系统的全局协调与实时控制。
+随着民众生活水平的提高，对旅游产品和旅游服务的需求也不断提升。
 
-“总之，人类已经进入智能时代。
+人们的游客心态发生了转变，不再把旅游当作日常生活的短暂逃离，而将其视为日常生活的延伸。
 
-我认为，未来将是人有人智、机有机智、各智其智、智智与共的美好时代。
+人们希望在旅途中继续原有的兴趣和生活方式，追求深度参与和情感连接，而非简单的景点打卡。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 02:01 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 01:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 02:06 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 01:54 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 02:01 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 01:56 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 01:45 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 01:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 01:56 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 01:53 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 02:04 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 02:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 01:45 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 02:00 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 02:07 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 01:58 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 01:44 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 02:08 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 02:11 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 01:58 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 02:02 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 02:01 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 01:57 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 01:56 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [一生一世](http://www.share.kurohicncr.top/Article/details/50173546.shtml)
-- 2026-06-30 01:36 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/9871720.shtml)
-- 2026-06-30 01:45 - [恋与深空 日服](http://www.share.minike.top/Article/details/401689.shtml)
-- 2026-06-30 01:45 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/7832261718.shtml)
-- 2026-06-30 02:03 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/9986324.shtml)
-- 2026-06-30 01:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/771886.shtml)
-- 2026-06-30 01:51 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/688839060507.shtml)
-- 2026-06-30 01:50 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/61893067.shtml)
-- 2026-06-30 01:49 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/23658167.shtml)
-- 2026-06-30 02:02 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/86678269.shtml)
-- 2026-06-30 01:47 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/64366272157.shtml)
-- 2026-06-30 02:04 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/61952.shtml)
-- 2026-06-30 01:48 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/455586934378.shtml)
-- 2026-06-30 01:40 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/77502898.shtml)
-- 2026-06-30 01:36 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/688761600928.shtml)
+- 2026-06-30 01:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/52539160.shtml)
+- 2026-06-30 01:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/1656882845.shtml)
+- 2026-06-30 02:05 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/6698820.shtml)
+- 2026-06-30 01:44 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/3753308897.shtml)
+- 2026-06-30 01:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/38709762281.shtml)
+- 2026-06-30 01:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/981906302.shtml)
+- 2026-06-30 02:01 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/07318106324.shtml)
+- 2026-06-30 01:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/110523.shtml)
+- 2026-06-30 01:51 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/82377366.shtml)
+- 2026-06-30 01:47 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/56315.shtml)
+- 2026-06-30 02:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/536805075.shtml)
+- 2026-06-30 01:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/26017274.shtml)
+- 2026-06-30 01:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/02402548934.shtml)
+- 2026-06-30 01:47 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/62983616155.shtml)
+- 2026-06-30 01:55 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/076021.shtml)

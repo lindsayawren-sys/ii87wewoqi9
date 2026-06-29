@@ -1,58 +1,59 @@
-# 政策明确稳地产信号！绿地控股涨停！全市场唯一地产ETF（159707）放量涨超2%，资金涌入1800万份
+# 国务院办公厅关于开展第三次全国残疾人抽样调查的通知
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月29日，截至9时47分，龙头地产板块表现强劲，中证800地产指数上涨1.52%，成份股方面，绿地控股涨停，衢州发展上涨2.92%，万科A上涨2.40%。 热门ETF方面，全市场唯一跟踪中证800地产指数的地产ETF华宝（159707）场内价格张超2%，放量成交超4200万元，资金实时净申购1800万份。 消息面上，4月28日重磅会议明确提出要努力稳定房地产市场，扎实推进城市
+国务院办公厅关于开展 第三次全国残疾人抽样调查的通知 国办函〔2026〕48号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《中华人民共和国残疾人保障法》、《中华人民共和国统计法》有关规定，国务院决定自2026年6月起开展第三次全国残疾人抽样调查。现将有关事项通知如下： 一、总体要求 以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精
 
 ## 正文
 
-4月29日，截至9时47分，龙头地产板块表现强劲，中证800地产指数上涨1.52%，成份股方面，绿地控股涨停，衢州发展上涨2.92%，万科A上涨2.40%。
+国务院办公厅关于开展 第三次全国残疾人抽样调查的通知 国办函〔2026〕48号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：根据《中华人民共和国残疾人保障法》、《中华人民共和国统计法》有关规定，国务院决定自2026年6月起开展第三次全国残疾人抽样调查。
 
-热门ETF方面，全市场唯一跟踪中证800地产指数的地产ETF华宝（159707）场内价格张超2%，放量成交超4200万元，资金实时净申购1800万份。
+现将有关事项通知如下： 一、总体要求 以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，认真落实党中央、国务院决策部署，坚持依法实施、科学调查、周密部署、务实创新，全面客观反映我国残疾人及其家庭基本情况和残疾人残疾状况及生活、发展状况等，为完善相关法律、法规和政策，促进人口高质量发展，提供准确的统计信息支持。
 
-消息面上，4月28日重磅会议明确提出要努力稳定房地产市场，扎实推进城市更新，彰显了房地产行业在经济发展中的重要性，预计后续各地将以因城施策为主旋律，落实优化公积金政策、发放购房补贴、支持住房“以旧换新”、完善“好房子”建设配套政策等举措。
+二、调查对象和范围 调查对象为我国境内抽取调查小区的全部常住人口，全国共抽取约280万人。
 
-东方证券认为，京沪两地有望在这轮下行周期中率先实现房价止跌回稳，并引领高能级城市的景气度修复，中性预期有望在2027年迎来周期底部。
+三、调查内容和时间 调查内容为调查对象的个人及家庭基本情况，调查对象中残疾人的残疾状况、致残原因、持有残疾人证情况(含未持证原因)、生活状况、服务状况和需求等。
 
-国际经验显示资本市场表现领先核心城市房价底3-6个月，大级别地产股行情或于2026年第四季度或2027年第一季度启动。
+此次调查从2026年6月开始，到2028年12月结束。
 
-东方证券表示，一旦确立基本面改善通道，历史包袱轻、具备现金流优势的优质房企将在beta行情基础上迎来集中度提升带来的alpha共振行情。
+四、组织实施 第三次全国残疾人抽样调查是一项重要国情调查，各地区、各部门要按照全国统一领导、部门分工协作、地方分级负责、各方共同参与的原则组织实施。
 
-布局央国企及优质房企，建议重点关注地产ETF（159707）。
+为加强对调查工作的组织领导，由中国残联会同民政部、国家卫生健康委、市场监管总局、国家统计局等有关部门和单位成立第三次全国残疾人抽样调查领导小组，负责组织调查工作，协调解决调查中的重大问题。
 
-资料显示，地产ETF（159707）跟踪中证800地产指数，汇集市场头部优质房企，在投资方向上具有明显的头部集中度优势，前十大成份股权重超9成，央国企含量高！
+领导小组办公室设在中国残联，负责调查工作的日常组织和具体协调。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 01:45 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-30 01:39 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-30 02:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 02:01 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 02:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 01:58 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 01:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 02:03 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-30 01:52 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 01:45 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 02:04 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 02:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 02:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 02:03 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-30 01:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 02:07 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 02:11 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 01:47 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 02:07 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 01:58 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 01:49 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-30 01:58 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 01:50 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 02:04 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/29553366390.shtml)
-- 2026-06-30 01:42 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/4140882.shtml)
-- 2026-06-30 01:39 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/575892073059.shtml)
-- 2026-06-30 01:40 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/20714649.shtml)
-- 2026-06-30 01:38 - [起风了](http://www.blog.minike.top/Article/details/370247.shtml)
-- 2026-06-30 01:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/67863705516.shtml)
-- 2026-06-30 01:41 - [千香](https://www.share.minike.top/Article/details/29643.shtml)
-- 2026-06-30 01:41 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/46637137946.shtml)
-- 2026-06-30 01:59 - [汪苏泷年度歌手](https://www.blog.kurohicncr.top/Article/details/16787.shtml)
-- 2026-06-30 01:48 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/3624503331.shtml)
-- 2026-06-30 01:52 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/866312.shtml)
-- 2026-06-30 01:58 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/66040729944.shtml)
-- 2026-06-30 01:38 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/72943.shtml)
-- 2026-06-30 01:57 - [急先锋](http://www.blog.kurohicncr.top/Article/details/751440129904.shtml)
-- 2026-06-30 01:54 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/3621614.shtml)
+- 2026-06-30 01:43 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/38718.shtml)
+- 2026-06-30 02:03 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/14232868.shtml)
+- 2026-06-30 02:08 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/013799339648.shtml)
+- 2026-06-30 01:59 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/96755176100.shtml)
+- 2026-06-30 01:51 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/95317493.shtml)
+- 2026-06-30 02:05 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/841963640095.shtml)
+- 2026-06-30 01:46 - [刘念回应](https://www.share.kurohicncr.top/Article/details/7079225763.shtml)
+- 2026-06-30 01:50 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/504387239575.shtml)
+- 2026-06-30 02:11 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/401022238.shtml)
+- 2026-06-30 02:09 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/427687.shtml)
+- 2026-06-30 02:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/132688015118.shtml)
+- 2026-06-30 02:09 - [小娘惹](http://www.share.kurohicncr.top/Article/details/086363550803.shtml)
+- 2026-06-30 01:48 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/76009727777.shtml)
+- 2026-06-30 01:47 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/86938255.shtml)
+- 2026-06-30 02:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/5536487277.shtml)

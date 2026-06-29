@@ -1,57 +1,60 @@
-# 苏州银行：2025年实现归母净利润53.48亿元，同比增长5.53%
+# 中信证券大股东拟增资160亿，五大看点
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月28日金融一线消息，苏州银行发布2025年年度报告。数据显示，截至报告期末，集团资产总额7，894.21亿元，较上年末增加957.07亿元，增幅13.80%；各项存款4，705.78亿元，较上年末增加536.13亿元，增幅12.86%；各项贷款3，734.33亿元，较上年末增加400.75亿元，增幅12.02%。 报告期内，集团实现营业收入123.56亿元，比上年同期增长1
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 中信证券迎来大股东160亿元真金白银的加持。 大股东160亿投中信证券。 5月28日，中信证券发布公告，拟向大股东中信金控定向发行7.94亿H股，发行价格为每股23.13港元，募集资金总额为人民币160亿元，全部用于发展公司国际化业务。由于中信金控是中信集团综合金融服务板块发展的平台和主体，因
 
 ## 正文
 
-4月28日金融一线消息，苏州银行发布2025年年度报告。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-数据显示，截至报告期末，集团资产总额7，894.21亿元，较上年末增加957.07亿元，增幅13.80%；各项存款4，705.78亿元，较上年末增加536.13亿元，增幅12.86%；各项贷款3，734.33亿元，较上年末增加400.75亿元，增幅12.02%。
+来源：财联社 中信证券迎来大股东160亿元真金白银的加持。
 
-报告期内，集团实现营业收入123.56亿元，比上年同期增长1.32亿元，增幅1.08%；实现净利润55.78亿元，比上年同期增长3.05亿元，增幅5.79%；实现归属于母公司股东的净利润53.48亿元，比上年同期增长2.80亿元，增幅5.53%；基本每股收益1.14元/股。
+大股东160亿投中信证券。
 
-截至报告期末，集团不良贷款率0.82%，较年初下降0.01个百分点；拨备覆盖率418.60%，拨贷比3.45%。
+5月28日，中信证券发布公告，拟向大股东中信金控定向发行7.94亿H股，发行价格为每股23.13港元，募集资金总额为人民币160亿元，全部用于发展公司国际化业务。
 
-苏州银行年度分红方案为对全体股东10派1.5元。
+由于中信金控是中信集团综合金融服务板块发展的平台和主体，因此可以理解为，中信证券将获得中信集团160亿元增资。
 
-责任编辑：王馨茹
+财联社梳理本次定增的五大看点，也是核心内容： 看点一：定增释放什么信号？
+
+在当前跨境金融业务竞争加剧、行业资本制约显现的背景下，第一大股东执掌的巨额资本金注入，直接指向了中信证券的境外实体与国际化版图。
+
+此次定向发行充分展示了中信集团、中信金控对中信证券发展前景的长期看好，将进一步强化中信集团、中信金控与中信证券的战略协同，深化资源整合与业务联动，以实际行动坚定支持中信证券的国际化发展。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 02:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 01:43 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 02:02 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 01:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 01:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 02:00 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 01:56 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:50 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 01:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 01:57 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 02:03 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 01:36 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 01:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 01:39 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 01:46 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 01:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 01:53 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 01:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 01:59 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 02:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 02:10 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 02:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 02:09 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 01:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 02:00 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 02:10 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 01:56 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 02:06 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/3894522.shtml)
-- 2026-06-30 01:57 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/83806748.shtml)
-- 2026-06-30 01:57 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/114208644211.shtml)
-- 2026-06-30 01:40 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/287601424.shtml)
-- 2026-06-30 01:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/55485.shtml)
-- 2026-06-30 02:05 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/5567227.shtml)
-- 2026-06-30 01:50 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/589858190.shtml)
-- 2026-06-30 01:46 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/73948356.shtml)
-- 2026-06-30 01:38 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/07424973258.shtml)
-- 2026-06-30 02:04 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/72619.shtml)
-- 2026-06-30 01:45 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/781234251154.shtml)
-- 2026-06-30 01:47 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/786345418.shtml)
-- 2026-06-30 02:03 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/14696.shtml)
-- 2026-06-30 02:05 - [千与千寻](https://www.share.kurohicncr.top/Article/details/830795.shtml)
-- 2026-06-30 01:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/469072076047.shtml)
+- 2026-06-30 02:06 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/0511815.shtml)
+- 2026-06-30 02:08 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/47627462.shtml)
+- 2026-06-30 01:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/8772184.shtml)
+- 2026-06-30 02:04 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/32754255.shtml)
+- 2026-06-30 02:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/59403675.shtml)
+- 2026-06-30 01:45 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/219394904536.shtml)
+- 2026-06-30 02:02 - [流金岁月](https://www.share.minike.top/Article/details/763642421526.shtml)
+- 2026-06-30 01:51 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/85456.shtml)
+- 2026-06-30 01:53 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/28055901.shtml)
+- 2026-06-30 02:03 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/549223.shtml)
+- 2026-06-30 01:46 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/14502983.shtml)
+- 2026-06-30 02:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/23008.shtml)
+- 2026-06-30 01:42 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/62531.shtml)
+- 2026-06-30 01:56 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/21399.shtml)
+- 2026-06-30 02:07 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/094196.shtml)

@@ -1,59 +1,61 @@
-# “兜里”揣3200亿现金，“宁王”为何还“伸手要”340亿？
+# 河南将打造更多“胖东来”“蜜雪冰城”式消费IP
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 姚悦 编辑丨于婞 配售消息一出，宁德时代港股股价随即震荡。 继2025年港股上市募资约410亿港元后，宁德时代（300750.SZ；3750.HK）于4月28日再抛巨额募资计划。 此次，宁德时代拟通过港股配售募集约341.83亿元。消息一经公布，其港股应声震荡，单日低开6.74
+中新网郑州5月28日电 (记者 韩章云 阚力)5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会通报称，未来五年，该省计划打造更多“胖东来”“蜜雪冰城”式消费IP，以激发消费活力，拓展投资空间。 起步于河南许昌的商超胖东来，凭借货真价实的商品、精益求精的服务赢得广大消费者的口碑，被网友称为“没有淡季的6A级景区”。从郑
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网郑州5月28日电 (记者 韩章云 阚力)5月28日，河南省政府新闻办举行“开局起步‘十五五’——奋力谱写中原大地推进中国式现代化新篇章”专题新闻发布会通报称，未来五年，该省计划打造更多“胖东来”“蜜雪冰城”式消费IP，以激发消费活力，拓展投资空间。
 
-来源 | 野马财经 作者 | 姚悦 编辑丨于婞 配售消息一出，宁德时代港股股价随即震荡。
+起步于河南许昌的商超胖东来，凭借货真价实的商品、精益求精的服务赢得广大消费者的口碑，被网友称为“没有淡季的6A级景区”。
 
-继2025年港股上市募资约410亿港元后，宁德时代（300750.SZ；3750.HK）于4月28日再抛巨额募资计划。
+从郑州成长起来的茶饮品牌蜜雪冰城，如今已是年轻人心中的潮流品牌，其总部旗舰店门口，常年可见年轻人排长队购买新款冰淇淋、文创潮玩。
 
-此次，宁德时代拟通过港股配售募集约341.83亿元。
+消费、投资是拉动经济增长的动力。
 
-消息一经公布，其港股应声震荡，单日低开6.74%，收盘市值蒸发近2100亿港元，核心源于市场对股权稀释、收益摊薄的担忧及赛道增速分歧。
+河南是经济大省、人口大省，拥有1亿人口、2200多万中等收入群体、1100多万户经营主体，消费潜力巨大、投资空间广阔。
 
-宁德时代表示，此次募资将用于全球新能源项目、零碳布局、技术研发及补充营运资金。
+“可以说，内需是我们的巨大优势，也是沿着高质量发展这条最优曲线、最佳路径阔步前行的底气所在。
 
-但值得注意的是，截至一季度末，宁德时代现金余额超3200亿元，债务规模可控，而且不久前刚宣布“豪掷”315亿元分红。
+”河南省发展和改革委员会主任马健介绍，“十五五”时期，河南将牢牢锚定扩大内需这个战略基点，促进消费和投资、供给和需求良性互动，持续释放源源不断的强劲动能，增强在全国统一大市场中的循环放大效应。
 
-千亿现金在手仍对外募资百亿，这一看似矛盾的操作，背后究竟是何用意？
+如何让民众能消费、敢消费？
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 01:51 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 01:44 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 02:05 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 02:04 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 01:58 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-30 01:47 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 01:56 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 01:59 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 02:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 01:47 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 01:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 01:47 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 01:56 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 02:09 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 02:08 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 01:43 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 02:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:05 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 01:57 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-30 02:01 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 02:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 02:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 02:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 02:10 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 01:49 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 01:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 02:07 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/715248.shtml)
-- 2026-06-30 02:03 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/43354659402.shtml)
-- 2026-06-30 01:40 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/39484752272.shtml)
-- 2026-06-30 01:57 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/96107.shtml)
-- 2026-06-30 01:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/98022492.shtml)
-- 2026-06-30 01:43 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/76987926.shtml)
-- 2026-06-30 02:00 - [日本16强魔咒](http://www.share.minike.top/Article/details/31954989715.shtml)
-- 2026-06-30 01:52 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/2818906293.shtml)
-- 2026-06-30 01:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/035574022.shtml)
-- 2026-06-30 01:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/869249.shtml)
-- 2026-06-30 02:02 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/0629475.shtml)
-- 2026-06-30 01:46 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/326120555.shtml)
-- 2026-06-30 01:36 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/199593381856.shtml)
-- 2026-06-30 01:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/13606757.shtml)
-- 2026-06-30 01:42 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/3531851521.shtml)
+- 2026-06-30 01:50 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/349980.shtml)
+- 2026-06-30 02:04 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/869656.shtml)
+- 2026-06-30 01:58 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/312318.shtml)
+- 2026-06-30 02:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/7976457520.shtml)
+- 2026-06-30 01:50 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/70746.shtml)
+- 2026-06-30 01:50 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/335935.shtml)
+- 2026-06-30 01:52 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/5423266471.shtml)
+- 2026-06-30 01:56 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/08061103.shtml)
+- 2026-06-30 01:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/54440519570.shtml)
+- 2026-06-30 02:04 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/8776994841.shtml)
+- 2026-06-30 01:51 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/9209018.shtml)
+- 2026-06-30 01:57 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/9961195250.shtml)
+- 2026-06-30 02:00 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/092529458726.shtml)
+- 2026-06-30 01:54 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/28609185.shtml)
+- 2026-06-30 01:44 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/966227532813.shtml)

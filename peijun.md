@@ -1,57 +1,58 @@
-# “两新”政策实施以来北京消费品以旧换新累计带动销售额超1100亿元
+# 重庆邮电大学揭牌“诺贝尔奖工作站” 罗伯特·默顿教授领衔
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电 (记者 吕少威)记者今天从北京市发改委获悉，大规模设备更新和消费品以旧换新政策实施以来，北京共支持个人乘用车更新、老旧客货车报废更新、高效能家电累计带动销售额超过1100亿元。 设备更新方面，自“两新”政策实施以来，北京完成超万台住宅老旧电梯更新，切实消除电梯使用安全隐患；完成千余条道路15万余套路灯节能低碳改造，照度均匀度平均提升约7%，平均照明节电率
+中新网重庆5月29日电 (梁钦卿)重庆邮电大学29日揭牌“诺贝尔奖工作站”，该工作站由1997年诺贝尔经济学奖得主罗伯特·默顿领衔。 罗伯特·默顿为现代金融学奠基人、美国国家科学院院士、麻省理工学院教授，被誉为“期权之父”。他在金融经济学领域取得的一系列开创性研究成果，为金融衍生品市场奠定了理论基础。 此次共建的“诺贝尔奖工作站”采用“高校+政府+企业”模式，由重庆人工智能学院
 
 ## 正文
 
-中新网北京4月29日电 (记者 吕少威)记者今天从北京市发改委获悉，大规模设备更新和消费品以旧换新政策实施以来，北京共支持个人乘用车更新、老旧客货车报废更新、高效能家电累计带动销售额超过1100亿元。
+中新网重庆5月29日电 (梁钦卿)重庆邮电大学29日揭牌“诺贝尔奖工作站”，该工作站由1997年诺贝尔经济学奖得主罗伯特·默顿领衔。
 
-设备更新方面，自“两新”政策实施以来，北京完成超万台住宅老旧电梯更新，切实消除电梯使用安全隐患；完成千余条道路15万余套路灯节能低碳改造，照度均匀度平均提升约7%，平均照明节电率约42%；完成多条地铁线路老旧车辆更新，提升了核心线路运营保障能力，让市民通勤更安全、更舒心。
+罗伯特·默顿为现代金融学奠基人、美国国家科学院院士、麻省理工学院教授，被誉为“期权之父”。
 
-消费品以旧换新方面，北京共支持个人乘用车更新、老旧客货车报废更新、高效能家电累计带动销售额超过1100亿元，政策资金总体实现近10倍的放大效应，带动全市小汽车“油换电”超33万辆，有力支撑空气质量改善；支持电动自行车以旧换新35.6万辆，降低了老旧锂离子电池带来的安全风险。
+他在金融经济学领域取得的一系列开创性研究成果，为金融衍生品市场奠定了理论基础。
 
-2024年和2025年，政策分别带动北京新能源汽车零售额同比增长22.6%、13.2%，家用电器和音响器材类商品零售额同比增长9.5%、9.9%。
+此次共建的“诺贝尔奖工作站”采用“高校+政府+企业”模式，由重庆人工智能学院、重庆邮电大学等多方参与，默顿教授担任名誉主任，研发场地设在重庆邮电大学校内，将组建30人以上跨学科科研团队，建设金融超算中心、金融大模型训练平台等科研载体。
 
-2026年，北京消费品以旧换新补贴政策扩大线下实体零售支持范围，目前，在高德地图、大众点评搜索中输入“北京国补”关键词，即可找到身边的政策参与门店，并实现一键导航到店，为消费者提供更丰富的线下国补门店查询选择。
+工作站依托罗伯特·默顿金融理论成果，结合重庆邮电大学粒球计算、量子人工智能、多粒度认知计算等特色优势，聚焦四大核心方向开展攻关：开发可解释性AI金融决策模型，破解AI在金融应用中的“黑箱”难题；推进AI数智化赋能普惠金融，筑牢金融安全防线；开展智能养老金融与负债驱动投资研究，服务长寿风险管理与养老金资产管理；探索复杂衍生品定价与风险管理，构建“量子计算+金融”技术底座。
 
-(完)
+“我一直致力于把理论转为实践。
+
+”罗伯特·默顿表示，多年前他曾来过重庆，如今重游故地，欣喜地看到重庆在普惠金融领域取得的长足进步。
+
+他十分乐意助力中国西部地区金融发展，也期待推动金融与科技深度融合，以此解决各类现实问题。
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 01:57 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 01:55 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:40 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 02:01 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 01:41 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 01:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 01:43 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 01:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 01:51 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 02:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 01:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 01:48 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 01:49 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 01:59 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 01:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 01:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 01:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 02:02 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 01:50 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 01:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 02:00 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 01:47 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 01:50 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 01:47 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 01:54 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 01:46 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/1202761.shtml)
-- 2026-06-30 01:56 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/328237437.shtml)
-- 2026-06-30 01:56 - [美人鱼](http://www.share.minike.top/Article/details/847685510.shtml)
-- 2026-06-30 01:42 - [恋与深空致歉](http://www.blog.minike.top/Article/details/24543.shtml)
-- 2026-06-30 01:41 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/370358475621.shtml)
-- 2026-06-30 01:38 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/99256743.shtml)
-- 2026-06-30 01:38 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/269031858.shtml)
-- 2026-06-30 01:56 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/233991947.shtml)
-- 2026-06-30 01:38 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/91514146.shtml)
-- 2026-06-30 01:54 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/156820570.shtml)
-- 2026-06-30 02:03 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/82748610517.shtml)
-- 2026-06-30 01:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/66162024028.shtml)
-- 2026-06-30 01:43 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/13392.shtml)
-- 2026-06-30 01:56 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/45769.shtml)
-- 2026-06-30 02:00 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/737659106963.shtml)
+- 2026-06-30 02:05 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/29058.shtml)
+- 2026-06-30 01:50 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/3338580.shtml)
+- 2026-06-30 01:47 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/15499188.shtml)
+- 2026-06-30 02:06 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/015098159.shtml)
+- 2026-06-30 01:42 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/801128887.shtml)
+- 2026-06-30 02:10 - [逃狱兄弟](http://www.blog.minike.top/Article/details/509555677.shtml)
+- 2026-06-30 02:02 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/937661487871.shtml)
+- 2026-06-30 01:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/3844884815.shtml)
+- 2026-06-30 01:43 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/8734885.shtml)
+- 2026-06-30 01:59 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/53789622351.shtml)
+- 2026-06-30 01:48 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/50299.shtml)
+- 2026-06-30 01:53 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/27505854.shtml)
+- 2026-06-30 02:11 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/19786316636.shtml)
+- 2026-06-30 02:04 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/0744362.shtml)
+- 2026-06-30 01:51 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/6369575851.shtml)

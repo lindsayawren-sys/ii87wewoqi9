@@ -1,60 +1,59 @@
-# 涉企负面信息严禁付费投流 ，中央网信办出手
+# 花旗：小米集团-W重申“买入”评级 维持目标价37港元
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-作者|李博 编辑|王峰 中央网信办（国家网信办）副主任牛一兵在发布会上表示，优化营商网络环境是优化营商环境的重要内容，也是网信部门的重要职责。近年来，中央网信办深入贯彻党中央决策部署，聚焦网上破坏营商环境、损害企业和企业家合法权益的典型问题、突出问题，重点开展了三方面工作。 （发布会现场，摄影：李博） 一是开展专项整治。连续3年组织开展“清朗·优化营商网络环境”系列专项行动，集
+花旗发布研报称，小米集团-W（01810）永久下调其“MiMo-V2.5”系列大语言模型（LLM）的API价格高达99%发表看法此项激进的降价举措于5月27日生效并在全球范围内实施，目的是与竞争对手保持一致。该行重申对其“买入”评级，维持目标价37港元。 此前，DeepSeek已于四天前永久下调其V4 Pro API价格达75%。小米管理层在5月26日的业绩简报会中曾透露，其A
 
 ## 正文
 
-作者|李博 编辑|王峰 中央网信办（国家网信办）副主任牛一兵在发布会上表示，优化营商网络环境是优化营商环境的重要内容，也是网信部门的重要职责。
+花旗发布研报称，小米集团-W（01810）永久下调其“MiMo-V2.5”系列大语言模型（LLM）的API价格高达99%发表看法此项激进的降价举措于5月27日生效并在全球范围内实施，目的是与竞争对手保持一致。
 
-近年来，中央网信办深入贯彻党中央决策部署，聚焦网上破坏营商环境、损害企业和企业家合法权益的典型问题、突出问题，重点开展了三方面工作。
+该行重申对其“买入”评级，维持目标价37港元。
 
-（发布会现场，摄影：李博） 一是开展专项整治。
+此前，DeepSeek已于四天前永久下调其V4 Pro API价格达75%。
 
-连续3年组织开展“清朗·优化营商网络环境”系列专项行动，集中整治恶意抹黑诋毁企业、以“舆论监督”为名牟取不正当利益等问题。
+小米管理层在5月26日的业绩简报会中曾透露，其AI收入大部分来自词元（token），其中MiMo的Pro和Max版本占token使用量超过50%，有逾50%的token使用量来自海外，付费用户占比超30%且留存率高。
 
-去年联合五个部门开展“汽车行业网络乱象专项整治”行动。
+花旗认为，小米MiMo大模型不仅限于内部使用，此次激进的定价策略将推动token使用量激增，同时也有助于训练并提升其大语言模型的性能。
 
-通过一系列专项行动，共清理了涉企侵权信息92.7万余条，处置违法违规账号8.98万余个，关闭了一批情节严重、影响恶劣的账号，并将部分问题线索移送公安机关追究刑事责任。
+该行看好小米在智能体（agentic）或Miclaw功能等方面的变现潜力，尽管目前尚未有明确的时间表，但预期升级版本将于今年稍后推出。
 
-二是压实主体责任。
-
-通过工作部署会、现场检查、约谈企业负责人、行政处罚等形式，压紧压实网站平台主体责任，指导督促各平台加强涉企热搜热榜的管理，着力维护企业合法权益。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 01:39 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 01:38 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 01:48 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 01:44 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 02:01 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 01:51 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 01:40 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-30 01:56 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 01:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 01:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 01:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 02:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 01:41 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 01:51 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 01:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 01:49 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 02:08 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 01:50 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 01:49 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 01:50 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 02:11 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 01:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 01:47 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 01:58 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 01:46 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 01:43 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 02:11 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 02:08 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/181157.shtml)
-- 2026-06-30 01:40 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/208502.shtml)
-- 2026-06-30 02:04 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/844438306486.shtml)
-- 2026-06-30 01:43 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/76485792943.shtml)
-- 2026-06-30 01:45 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/31467.shtml)
-- 2026-06-30 02:05 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/6772818.shtml)
-- 2026-06-30 01:53 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/708984.shtml)
-- 2026-06-30 01:37 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/79295.shtml)
-- 2026-06-30 01:53 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/132088827.shtml)
-- 2026-06-30 02:01 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/2581259595.shtml)
-- 2026-06-30 01:57 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/8332617509.shtml)
-- 2026-06-30 01:59 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/2835540270.shtml)
-- 2026-06-30 01:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/873645.shtml)
-- 2026-06-30 01:48 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/79170862396.shtml)
-- 2026-06-30 02:01 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3077736.shtml)
+- 2026-06-30 02:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/9054292089.shtml)
+- 2026-06-30 01:59 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/070775.shtml)
+- 2026-06-30 01:51 - [千与千寻](https://www.share.kurohicncr.top/Article/details/7022855.shtml)
+- 2026-06-30 02:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/60908220.shtml)
+- 2026-06-30 01:59 - [恋与深空致歉](https://www.share.minike.top/Article/details/73101236603.shtml)
+- 2026-06-30 02:01 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/342299859287.shtml)
+- 2026-06-30 01:46 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/3087757.shtml)
+- 2026-06-30 01:58 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/32840227505.shtml)
+- 2026-06-30 01:58 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/585002962.shtml)
+- 2026-06-30 02:07 - [我们的少年时代2](https://www.blog.minike.top/Article/details/883352333.shtml)
+- 2026-06-30 02:10 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/4826265413.shtml)
+- 2026-06-30 02:03 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/72731.shtml)
+- 2026-06-30 02:05 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/12805452.shtml)
+- 2026-06-30 01:45 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/474893443.shtml)
+- 2026-06-30 01:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/48793755862.shtml)

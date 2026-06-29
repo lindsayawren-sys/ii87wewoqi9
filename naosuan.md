@@ -1,57 +1,61 @@
-# 阿迪达斯季度业绩亮眼 股价大涨
+# 北海海关2026年6月份“关领导接待日”公告
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 公司维持 2026 年固定汇率销售额高个位数增长预期，营业利润约 23 亿欧元 阿迪达斯首席执行官表示，借助第二季度世界杯赛事，品牌曝光度有望进一步提升。 德国运动服饰集团阿迪达斯一季度销售额大增，并维持全年业绩指引，给投资者吃下定心丸，市场避险情绪有所缓解，股价应声走高。 公司于周三公布，一季度名义净销售额同比增长 7.1%，至 65.9
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就北海海关2026年6月份关领导接待日有关事项预告如下： 一、接待时间：2026年6月4日(星期四下午14:30-17:30)。 二、当值领导：北海海关党委委员、副关长孔祥军。 三、接待地点：北海海关西南大道办公楼。四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 公司维持 2026 年固定汇率销售额高个位数增长预期，营业利润约 23 亿欧元 阿迪达斯首席执行官表示，借助第二季度世界杯赛事，品牌曝光度有望进一步提升。
+为了解社会各界的建议和意见，并切实解决实际问题和困难，现就北海海关2026年6月份关领导接待日有关事项预告如下： 一、接待时间：2026年6月4日(星期四下午14:30-17:30)。
 
-德国运动服饰集团阿迪达斯一季度销售额大增，并维持全年业绩指引，给投资者吃下定心丸，市场避险情绪有所缓解，股价应声走高。
+二、当值领导：北海海关党委委员、副关长孔祥军。
 
-公司于周三公布，一季度名义净销售额同比增长 7.1%，至 65.9 亿欧元（折合 77.2 亿美元）。
+三、接待地点：北海海关西南大道办公楼。
 
-剔除汇率波动影响后，销售额大涨 14%，远高于市场分析师预期的 8.3%。
+四、有关要求： (一)为做好接待工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的、如反映问题、咨询业务、提供工作建议等； 3.其他需要预约的事项。
 
-德意志银行分析师评价称，阿迪达斯再度交出亮眼季度财报。
+(二)预约来访人员需落实北海海关相关来访要求，在配合门岗人员进行来访登记等情况下，方可进入办公楼接待区域。
 
-其在研报中表示：“我们认为阿迪达斯本季表现强劲，在多个核心品类实现市场领跑。
+(三)来访者可通过拨打电话(0779-3235980)告知相关预约信息，也可以填写预约表(详见附件)发至传真(0779-2038559)或者邮箱(bhhg_bgs@customs.gov.cn)进行预约。
 
-” 阿迪达斯法兰克福盘中股价涨幅超 7%；不过年内该股仍累计下跌超 10%，投资者持续评估地缘政治紧张局势与关税政策，对运动服饰消费需求带来的潜在冲击。
+(注：若您选择电子邮箱发送，务必请您在发送邮件后拨打电话与我们确认您的邮件是否发送成功。
 
-首席执行官比约恩・古尔登坦言，当前市场波动剧烈，尤其生活方式鞋履板块尤为明显。
+)预约截止时间：2026年6月2日12:00。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 02:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 01:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 01:43 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 02:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-30 01:37 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 01:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 01:43 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 01:42 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 01:37 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 02:02 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 01:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 01:55 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 02:11 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 02:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 01:51 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 01:50 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 02:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 02:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:08 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 02:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 02:02 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 02:06 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 01:53 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 02:11 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:49 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/186777096515.shtml)
-- 2026-06-30 01:57 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/397974288.shtml)
-- 2026-06-30 01:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/925375767.shtml)
-- 2026-06-30 01:57 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/975690.shtml)
-- 2026-06-30 01:52 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/58283.shtml)
-- 2026-06-30 01:41 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/642335.shtml)
-- 2026-06-30 01:54 - [送你一朵小红花](https://www.share.minike.top/Article/details/4209710.shtml)
-- 2026-06-30 01:59 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/5575511.shtml)
-- 2026-06-30 01:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/5758676.shtml)
-- 2026-06-30 01:53 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/285407164.shtml)
-- 2026-06-30 02:04 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/93273.shtml)
-- 2026-06-30 02:02 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/19214.shtml)
-- 2026-06-30 01:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/020423807571.shtml)
-- 2026-06-30 01:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/8430049.shtml)
-- 2026-06-30 01:48 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/0178371.shtml)
+- 2026-06-30 01:42 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/738707959091.shtml)
+- 2026-06-30 01:48 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/339163727.shtml)
+- 2026-06-30 01:53 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/50916.shtml)
+- 2026-06-30 02:07 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/134771071.shtml)
+- 2026-06-30 01:57 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/62965.shtml)
+- 2026-06-30 02:08 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/18293.shtml)
+- 2026-06-30 02:10 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/218267.shtml)
+- 2026-06-30 01:43 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/866752.shtml)
+- 2026-06-30 01:51 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/51914873425.shtml)
+- 2026-06-30 01:47 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/6395280911.shtml)
+- 2026-06-30 01:44 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/20021997169.shtml)
+- 2026-06-30 01:48 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/135127075215.shtml)
+- 2026-06-30 01:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/7478236021.shtml)
+- 2026-06-30 02:01 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/072062247656.shtml)
+- 2026-06-30 02:00 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/0333083.shtml)

@@ -1,56 +1,61 @@
-# 没有摄像、没有演员，一部AI生成短剧是如何诞生的？
+# 老牌联想靠啥闷声发财？股价月度涨幅超100％，AI改写估值剧本
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-今年以来，纯AI生成短剧以“低成本、高效率、轻量化”的优势，打破传统影视制作的重资产壁垒，实现了“小团队高产出”。不同于真人短剧依赖实景拍摄、演员演绎、线下调度的制作逻辑，AI短剧依托大模型与多模态生成技术，构建起“剧本立项—AI解析—人设生成—抽卡生视频—后期精修”的标准化制作“流水线”。一部AI短剧究竟是如何炼成的？一起揭秘。纯AI短剧的诞生，始于精准的市场立项与剧本打磨。
+来源：@华夏时报微博华夏时报记者 石飞月 北京报道联想集团正在被资本市场重新“称重”。5月29日，该公司股价涨超20%，再次刷新历史新高。过去两周，其股价持续攀升，月度累计涨幅超100%，而点燃这轮行情的，是联想集团成立40多年来最强劲的一份年度成绩单——过去一个财年，其营收首次突破800亿美元。但业绩之下，真正让火焰燎原的是资本市场终于松动了那个根深蒂固的旧标签——PC制造商
 
 ## 正文
 
-今年以来，纯AI生成短剧以“低成本、高效率、轻量化”的优势，打破传统影视制作的重资产壁垒，实现了“小团队高产出”。
+来源：@华夏时报微博华夏时报记者 石飞月 北京报道联想集团正在被资本市场重新“称重”。
 
-不同于真人短剧依赖实景拍摄、演员演绎、线下调度的制作逻辑，AI短剧依托大模型与多模态生成技术，构建起“剧本立项—AI解析—人设生成—抽卡生视频—后期精修”的标准化制作“流水线”。
+5月29日，该公司股价涨超20%，再次刷新历史新高。
 
-一部AI短剧究竟是如何炼成的？
+过去两周，其股价持续攀升，月度累计涨幅超100%，而点燃这轮行情的，是联想集团成立40多年来最强劲的一份年度成绩单——过去一个财年，其营收首次突破800亿美元。
 
-一起揭秘。
+但业绩之下，真正让火焰燎原的是资本市场终于松动了那个根深蒂固的旧标签——PC制造商。
 
-纯AI短剧的诞生，始于精准的市场立项与剧本打磨。
+一场围绕“AI估值”的重新定价，正在轰轰烈烈地展开。
 
-目前，网络爆款小说及平台掌握的优质IP资源已非常成熟，不少年初从传统影视行业转型做AI短剧的承制公司有了更多的机会。
+只是，蜕变从来不止于叙事，联想集团仍需回答一个朴素却锋利的问题：毛利率水平是否足以承载AI时代的新期待？
 
-某影视公司AI事业部负责人郑杰艺介绍，AI短剧的剧本其实不是AI生成。
+营收突破800亿美元5月29日，联想集团股价最高涨近30%，市值超3000亿港元，截至收盘涨幅回落至21.95%，收盘价为24港元/股，市值回落至2977亿港元。
 
-郑杰艺：同行之间在平台上拿到一些本子，大家会分享。
+而在过去半个月的时间里，该公司股价几乎实现翻番，本周股价涨幅达到52.38%。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 01:38 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 01:59 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 02:04 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 01:57 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-30 01:58 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 01:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 01:43 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 02:01 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 01:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 02:08 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 01:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 02:09 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 02:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 02:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 01:54 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 02:05 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 01:43 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 01:59 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 01:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 02:11 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 01:46 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-30 01:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 01:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 01:49 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/493886761427.shtml)
-- 2026-06-30 01:38 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/110871.shtml)
-- 2026-06-30 01:55 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/01485.shtml)
-- 2026-06-30 01:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/042134402.shtml)
-- 2026-06-30 01:58 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/18157580.shtml)
-- 2026-06-30 01:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/3498550226.shtml)
-- 2026-06-30 01:53 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/70822018112.shtml)
-- 2026-06-30 01:45 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/3239414697.shtml)
-- 2026-06-30 01:56 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/71927.shtml)
-- 2026-06-30 01:43 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/65410016.shtml)
-- 2026-06-30 01:58 - [恋与深空致歉](http://www.share.minike.top/Article/details/57444.shtml)
-- 2026-06-30 01:46 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/8111725860.shtml)
-- 2026-06-30 02:04 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/842556.shtml)
-- 2026-06-30 01:49 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/111657123919.shtml)
-- 2026-06-30 01:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/13309799.shtml)
+- 2026-06-30 01:58 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/12861.shtml)
+- 2026-06-30 02:06 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/6077083.shtml)
+- 2026-06-30 02:04 - [流金岁月](http://www.share.kurohicncr.top/Article/details/272206.shtml)
+- 2026-06-30 01:42 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/28261712520.shtml)
+- 2026-06-30 02:03 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/6122749841.shtml)
+- 2026-06-30 01:50 - [周生如故](https://www.share.kurohicncr.top/Article/details/73344.shtml)
+- 2026-06-30 02:03 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/906126183261.shtml)
+- 2026-06-30 01:50 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/0752157.shtml)
+- 2026-06-30 02:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/75281652041.shtml)
+- 2026-06-30 01:46 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/62170136836.shtml)
+- 2026-06-30 02:01 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/22131523.shtml)
+- 2026-06-30 02:07 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/33383888274.shtml)
+- 2026-06-30 01:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/721107176947.shtml)
+- 2026-06-30 01:45 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/218411859512.shtml)
+- 2026-06-30 01:56 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/5854159.shtml)

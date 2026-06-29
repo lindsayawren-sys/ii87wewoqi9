@@ -1,56 +1,57 @@
-# 韩正分别会见第80届联合国大会主席贝尔伯克、澳大利亚外长黄英贤
+# 云南楚雄力争2030年绿色能源与先进制造产值突破1500亿元
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-新华社北京4月29日电 4月29日，国家副主席韩正在北京分别会见第80届联合国大会主席贝尔伯克、澳大利亚外长黄英贤。 在会见贝尔伯克时，韩正表示，当前国际形势变乱交织，以联合国为核心的国际体系遭受严重冲击。去年9月，习近平主席提出全球治理倡议，发出坚定捍卫联合国权威和核心地位的明确信号，得到国际社会广泛支持。中方愿以落实倡议为契机，持续深化同联合国合作，支持联合国大会坚持真正的
+中新网楚雄5月29日电 (陆希成)29日，云南省“开局起步‘十五五’”主题系列新闻发布会·楚雄专场在昆明举行。会上发布，“十五五”时期，楚雄彝族自治州将依托绿电优势主攻工业，发展“绿电+先进制造”，力争到2030年绿色能源与先进制造产值突破1500亿元(人民币，下同)。 楚雄州地处云南省中部，素有“省垣门户、迤西咽喉”之称，是全国30个民族自治州之一。“十四五”时期，当地经济总
 
 ## 正文
 
-新华社北京4月29日电 4月29日，国家副主席韩正在北京分别会见第80届联合国大会主席贝尔伯克、澳大利亚外长黄英贤。
+中新网楚雄5月29日电 (陆希成)29日，云南省“开局起步‘十五五’”主题系列新闻发布会·楚雄专场在昆明举行。
 
-在会见贝尔伯克时，韩正表示，当前国际形势变乱交织，以联合国为核心的国际体系遭受严重冲击。
+会上发布，“十五五”时期，楚雄彝族自治州将依托绿电优势主攻工业，发展“绿电+先进制造”，力争到2030年绿色能源与先进制造产值突破1500亿元(人民币，下同)。
 
-去年9月，习近平主席提出全球治理倡议，发出坚定捍卫联合国权威和核心地位的明确信号，得到国际社会广泛支持。
+楚雄州地处云南省中部，素有“省垣门户、迤西咽喉”之称，是全国30个民族自治州之一。
 
-中方愿以落实倡议为契机，持续深化同联合国合作，支持联合国大会坚持真正的多边主义、坚持发展优先和守正创新，共同维护世界和平安全、促进发展繁荣。
+“十四五”时期，当地经济总量突破2000亿元、年均增长5.6%，重点产业增加值突破1200亿元。
 
-贝尔伯克表示，中国是联合国关键合作伙伴和多边主义重要支柱。
+中共楚雄州委副书记、楚雄州人民政府州长罗景锋介绍，依托风光绿电资源，楚雄已建成全球最大海绵钛、亚洲最大钛白粉生产基地，拥有全省最完整的新能源产业链，新能源装机和储能规模均居全省第一，形成“源头强能源、中端抓制造、末端畅循环”的产业内循环。
 
-我赞赏习近平主席提出的重要倡议，愿同中方深化合作，重振多边主义，共同促进全球和平发展。
+“十五五”时期，将做强绿色钛、绿色铜、绿色钒、稀贵金属等产业链，并培育“绿电+智算”、氢能、低空经济等未来产业。
 
-在会见黄英贤时，韩正表示，中澳关系10多年来取得长足发展，也经历过波折。
+工业之外，扩大开放、守护生态、巩固民族团结、改善民生等，同样是该州“十五五”的着力方向。
 
-近年来，习近平主席同阿尔巴尼斯总理多次会晤，达成重要共识，为中澳关系继续向前发展作出战略引领，推动两国各领域交流合作取得实在成果。
+今年一季度，该州外贸进出口增长51.7%。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 01:47 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 01:41 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 02:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 01:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 01:52 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 01:47 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 01:41 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 01:59 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 01:52 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-30 01:52 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-30 01:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 01:57 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:52 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 01:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 02:05 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 01:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 01:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 02:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 01:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 01:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/1138603.shtml)
-- 2026-06-30 02:01 - [我们的少年时代2](https://www.share.minike.top/Article/details/83284027.shtml)
-- 2026-06-30 01:44 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/821056939.shtml)
-- 2026-06-30 01:53 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/2610372.shtml)
-- 2026-06-30 01:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/80284.shtml)
-- 2026-06-30 01:39 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/052556185.shtml)
-- 2026-06-30 01:46 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/572243.shtml)
-- 2026-06-30 01:41 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/1221332.shtml)
-- 2026-06-30 01:59 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/167466470501.shtml)
-- 2026-06-30 01:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/3833473.shtml)
-- 2026-06-30 01:53 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/148968547.shtml)
-- 2026-06-30 01:42 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/827708752.shtml)
-- 2026-06-30 01:48 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/349693.shtml)
-- 2026-06-30 01:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/9513849.shtml)
-- 2026-06-30 01:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/108109439579.shtml)
+- 2026-06-30 01:59 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/0451001.shtml)
+- 2026-06-30 01:48 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/516138613.shtml)
+- 2026-06-30 01:56 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/32144.shtml)
+- 2026-06-30 01:45 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/63776.shtml)
+- 2026-06-30 01:51 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/613699.shtml)
+- 2026-06-30 01:46 - [毒液2](https://www.share.minike.top/Article/details/26011.shtml)
+- 2026-06-30 02:00 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/456580.shtml)
+- 2026-06-30 02:03 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/543656191377.shtml)
+- 2026-06-30 01:49 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/8414857.shtml)
+- 2026-06-30 01:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/54967380176.shtml)
+- 2026-06-30 01:48 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/9270883567.shtml)
+- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/513850756899.shtml)
+- 2026-06-30 02:01 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/2932224394.shtml)
+- 2026-06-30 02:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/921242197.shtml)
+- 2026-06-30 02:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/472138778589.shtml)

@@ -1,57 +1,59 @@
-# 六大行一季度合计净赚3569.36亿元，营收、归母净利均实现“双增”
+# Anthropic计划几周内广泛发布可与Mythos媲美的人工智能模型
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-来源：北京商报 北京商报讯（记者 孟凡霞 周义力）4月29日，工商银行、农业银行、中国银行、建设银行、交通银行、邮储银行六家国有大行发布2026年一季度报告。数据显示，一季度，六家国有大行合计实现营业收入9925.07亿元，同比增长9.04%；归母净利润合计3569.36亿元，同比增长3.63%；总资产合计约229.31万亿元，较上年末增长4%。 从一季度营业收入及归母净利润指
+Anthropic PBC计划在几周内广泛发布新的人工智能模型，网络安全能力可与Mythos相媲美。 Anthropic此前曾表示，Mythos过于危险，不适合向公众开放。 该公司周四称，在开发“更强安全防护措施”方面取得“快速进展”，因此得以向所有客户发布具备Mythos级别能力的AI模型。Anthropic同时还发布了一款更擅长执行编程任务的，名为Opus 4.8的新模型。
 
 ## 正文
 
-来源：北京商报 北京商报讯（记者 孟凡霞 周义力）4月29日，工商银行、农业银行、中国银行、建设银行、交通银行、邮储银行六家国有大行发布2026年一季度报告。
+Anthropic PBC计划在几周内广泛发布新的人工智能模型，网络安全能力可与Mythos相媲美。
 
-数据显示，一季度，六家国有大行合计实现营业收入9925.07亿元，同比增长9.04%；归母净利润合计3569.36亿元，同比增长3.63%；总资产合计约229.31万亿元，较上年末增长4%。
+Anthropic此前曾表示，Mythos过于危险，不适合向公众开放。
 
-从一季度营业收入及归母净利润指标来看，国有六大银行均实现“双增”。
+该公司周四称，在开发“更强安全防护措施”方面取得“快速进展”，因此得以向所有客户发布具备Mythos级别能力的AI模型。
 
-其中，工商银行实现营业收入2303.70亿元，同比增长8.27%；实现归母净利润869.41亿元，同比增长3.31%；总资产55.77万亿元，比上年末增加2.29万亿元，增长4.29%。
+Anthropic同时还发布了一款更擅长执行编程任务的，名为Opus 4.8的新模型。
 
-建设银行实现营业收入2112.56亿元，同比增长11.15%；归母净利润862.91亿元，同比增长3.53%。
+Anthropic此前表示，Mythos能够“在用户指示下，识别并利用所有主要操作系统和主流网络浏览器中的漏洞”。
 
-资产总额47.13万亿元，较上年末增加1.50万亿元，增长3.29%。
+今年4月，鉴于全球担心Mythos可能对关键系统构成新威胁，Anthropic通过名为Project Glasswing的计划，将Mythos的用户范围限制在少数大型科技公司和华尔街企业。
 
-农业银行实现营业收入2063亿元，同比增长10.5%；拨备前利润1524亿元，同比增长13.1%；归母净利润751.85亿元，同比增长4.52%。
+Anthropic周五表示，计划与美国及其盟友政府合作，将Project Glasswing扩展至更多合作伙伴。
 
-总资产突破50万亿元，达51.0万亿元，新增2.24万亿元，较上年增速4.60%。
+公司还表示，打算更广泛地开放类似Mythos的模型，但未透露具体时间表。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 01:50 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 01:54 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 01:53 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 02:00 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 01:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 01:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 02:01 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 01:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 01:51 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 01:49 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 01:43 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 01:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 01:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 01:45 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 01:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-30 01:47 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-30 01:54 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 01:57 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 01:44 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 02:11 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 02:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 02:09 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-30 01:52 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/85664892.shtml)
-- 2026-06-30 01:41 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/55746538.shtml)
-- 2026-06-30 01:43 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/73164.shtml)
-- 2026-06-30 01:51 - [送你一朵小红花](http://www.blog.minike.top/Article/details/29265620708.shtml)
-- 2026-06-30 01:42 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/0781392841.shtml)
-- 2026-06-30 02:02 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/401375.shtml)
-- 2026-06-30 01:54 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/00265468.shtml)
-- 2026-06-30 01:58 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/8942663.shtml)
-- 2026-06-30 01:49 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/4910523.shtml)
-- 2026-06-30 01:58 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/34981509.shtml)
-- 2026-06-30 01:40 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/283373338.shtml)
-- 2026-06-30 01:47 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/9481520.shtml)
-- 2026-06-30 01:49 - [周生如故](https://www.blog.kurohicncr.top/Article/details/07141.shtml)
-- 2026-06-30 01:48 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/69513938.shtml)
-- 2026-06-30 01:58 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/84208.shtml)
+- 2026-06-30 01:45 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/295129121.shtml)
+- 2026-06-30 01:59 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/41178.shtml)
+- 2026-06-30 01:57 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/2502656.shtml)
+- 2026-06-30 01:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/727583.shtml)
+- 2026-06-30 01:57 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/28819675.shtml)
+- 2026-06-30 02:06 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/53883.shtml)
+- 2026-06-30 01:46 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/783966802829.shtml)
+- 2026-06-30 01:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/0613955619.shtml)
+- 2026-06-30 01:54 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/6443205679.shtml)
+- 2026-06-30 01:43 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/05973574085.shtml)
+- 2026-06-30 02:01 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/645325.shtml)
+- 2026-06-30 02:03 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/217575.shtml)
+- 2026-06-30 02:06 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/196384836.shtml)
+- 2026-06-30 01:55 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/1733678.shtml)
+- 2026-06-30 01:57 - [周生如故](http://www.share.kurohicncr.top/Article/details/3933828.shtml)

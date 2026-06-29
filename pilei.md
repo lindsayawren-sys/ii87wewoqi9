@@ -1,56 +1,59 @@
-# 菲律宾能源部：新建燃煤电站禁令维持不变
+# 成都一小学嘉年华“AI+阅读”上新：孩子们在书香中追逐科技之光
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网马尼拉4月28日电 (记者 张兴龙)据菲律宾媒体28日报道，菲能源部表示，政府对新建燃煤电站项目实施的禁令将继续维持，目前没有解除该禁令的计划。 针对外界有关菲能源部正推动取消燃煤电站建设禁令的说法，该机构强调“禁令没有被解除，也不会被解除”。 菲能源部指出，根据现行政策，若燃煤电站项目在2019年前已获得许可，即便尚未动工，仍可继续推进建设；但新的燃煤项目将无法再获得许
+从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如何影响我国后续天气形势？中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？武契奇品尝的嘉兴原汤粽有多鲜？利润暴跌，日系车巨头集体失速倒计时10天！今年高考有哪些新
 
 ## 正文
 
-中新网马尼拉4月28日电 (记者 张兴龙)据菲律宾媒体28日报道，菲能源部表示，政府对新建燃煤电站项目实施的禁令将继续维持，目前没有解除该禁令的计划。
+从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
 
-针对外界有关菲能源部正推动取消燃煤电站建设禁令的说法，该机构强调“禁令没有被解除，也不会被解除”。
+厄尔尼诺将如何影响我国后续天气形势？
 
-菲能源部指出，根据现行政策，若燃煤电站项目在2019年前已获得许可，即便尚未动工，仍可继续推进建设；但新的燃煤项目将无法再获得许可审批。
+中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
 
-菲能源部表示，政府当前重点并非新增燃煤项目，而是推动现有电站提升发电能力，以增加电力供应。
+武契奇品尝的嘉兴原汤粽有多鲜？
 
-与此同时，菲能源部正对已在2019年前获得许可的项目进行评估，并要求具备条件的项目尽快动工，以缓解电力成本压力。
+利润暴跌，日系车巨头集体失速倒计时10天！
 
-菲律宾政府于2020年宣布暂停审批新的燃煤电站项目，旨在推动能源结构向更清洁、可持续方向转型。
+今年高考有哪些新变化？
 
-(完)
+林志玲辞任董事的台湾“文策院”，是个什么机构？
+
+国家首次专门发文，解决未落户常住人口急难愁盼英法加澳频繁介入西太平洋局势，“刷存在感”背后安全格局生变？
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 02:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-30 01:54 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 01:49 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 01:40 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 01:44 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 01:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 01:56 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 01:53 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 01:57 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 01:44 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 01:52 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 01:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 01:49 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 02:02 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 01:57 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 02:07 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 01:53 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 02:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 01:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 02:11 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 01:55 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 01:56 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 01:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 02:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/0141057733.shtml)
-- 2026-06-30 02:00 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/17946.shtml)
-- 2026-06-30 01:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/2613818751.shtml)
-- 2026-06-30 01:46 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/79958006285.shtml)
-- 2026-06-30 01:49 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/33901073.shtml)
-- 2026-06-30 01:46 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/2417017.shtml)
-- 2026-06-30 02:01 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/58691746.shtml)
-- 2026-06-30 02:05 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/222076.shtml)
-- 2026-06-30 01:40 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/761607.shtml)
-- 2026-06-30 01:56 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/825201977220.shtml)
-- 2026-06-30 01:55 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/08455303054.shtml)
-- 2026-06-30 01:57 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/3306817614.shtml)
-- 2026-06-30 01:54 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/390544917374.shtml)
-- 2026-06-30 01:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/017717.shtml)
-- 2026-06-30 01:49 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/338937.shtml)
+- 2026-06-30 02:01 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/1134507315.shtml)
+- 2026-06-30 01:44 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/23977.shtml)
+- 2026-06-30 01:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/87890.shtml)
+- 2026-06-30 01:54 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/6186474306.shtml)
+- 2026-06-30 01:51 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/33205024773.shtml)
+- 2026-06-30 01:51 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/36154499299.shtml)
+- 2026-06-30 01:46 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/216934820.shtml)
+- 2026-06-30 01:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/22029.shtml)
+- 2026-06-30 02:08 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/246639010.shtml)
+- 2026-06-30 02:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/3172190.shtml)
+- 2026-06-30 02:11 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/7939479.shtml)
+- 2026-06-30 02:09 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/613334117.shtml)
+- 2026-06-30 01:46 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/950618.shtml)
+- 2026-06-30 01:45 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/4646765957.shtml)
+- 2026-06-30 02:03 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/73630723.shtml)

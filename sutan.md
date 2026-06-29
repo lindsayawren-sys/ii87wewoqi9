@@ -1,59 +1,60 @@
-# 千年晋祠难老泉高位复流 带动周边产业焕新生
+# 芯片企业借力光技术，攻克人工智能核心瓶颈
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网太原4月28日电 题：千年晋祠难老泉高位复流 带动周边产业焕新生 作者 杨杰英 杨润德 崔莉霞 春日晋祠，泉水潺潺。历经多年系统治理与生态涵养，难老泉实现高位复流。清泉顺着智伯渠流淌，带活了周边产业与百姓生活。 一泉引客来：晋水巷里文旅兴 顺着泉水流淌的方向，来到晋祠公园迎曦门对面的晋水巷，这里早已是商铺林立，酒店、民宿、小吃店、文创铺等上百个摊位一家挨着一家。今年春节，
+核心要点 人工智能热潮在诸多方面都掀起了前所未有的行业浪潮。虽说它与上世纪 90 年代末的互联网泡沫、21 世纪初的移动互联网变革有相似之处，但从资本投入规模，以及其将深刻重塑社会的乐观预判来看，人工智能热潮的影响力更胜一筹。 行业飞速发展的背后，难题也接踵而至。AI 从业者正面临多重制约：大型数据中心的电力供给紧张、存储芯片短缺，而AI 芯片与系统之间的数据传输效率偏低，也逐
 
 ## 正文
 
-中新网太原4月28日电 题：千年晋祠难老泉高位复流 带动周边产业焕新生 作者 杨杰英 杨润德 崔莉霞 春日晋祠，泉水潺潺。
+核心要点 人工智能热潮在诸多方面都掀起了前所未有的行业浪潮。
 
-历经多年系统治理与生态涵养，难老泉实现高位复流。
+虽说它与上世纪 90 年代末的互联网泡沫、21 世纪初的移动互联网变革有相似之处，但从资本投入规模，以及其将深刻重塑社会的乐观预判来看，人工智能热潮的影响力更胜一筹。
 
-清泉顺着智伯渠流淌，带活了周边产业与百姓生活。
+行业飞速发展的背后，难题也接踵而至。
 
-一泉引客来：晋水巷里文旅兴 顺着泉水流淌的方向，来到晋祠公园迎曦门对面的晋水巷，这里早已是商铺林立，酒店、民宿、小吃店、文创铺等上百个摊位一家挨着一家。
+AI 从业者正面临多重制约：大型数据中心的电力供给紧张、存储芯片短缺，而AI 芯片与系统之间的数据传输效率偏低，也逐渐成为突出问题。
 
-今年春节，晋祠博物馆累计接待游客17.57万人次，省外游客占比64%。
+光子技术作为一项新兴技术，为破解上述传输难题提供了新思路。
 
-由周边村民成立的“晋之胜”旅游服务公司，260余名导游讲解客单不断。
+光子技术应用于 AI 基础设施时，依靠光信号在图形处理器、内存、网络芯片、服务器及数据中心之间传输数据，摆脱了对铜缆电信号的依赖。
 
-栖迟小筑轰趴馆老板刘金娥把一层改成茶社，用古泉泡茶，开张即火爆。
+目前光纤通信等部分光子技术已投入实际使用。
 
-“难老泉复流后，游客一天比一天多，大家想坐下来喝杯茶，看看泉。
+但现阶段，AI 服务器及机柜内部的大部分数据传输仍依靠铜线，不仅限制传输速率，还推高了能耗。
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 01:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 01:53 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 01:52 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 01:55 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 01:55 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 02:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-30 01:53 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 02:05 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 02:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 01:45 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 02:00 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 02:09 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 02:05 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 01:43 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 02:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 01:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 01:46 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 02:06 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 01:43 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 02:04 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 02:08 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-30 01:52 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 01:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 01:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/405516848956.shtml)
-- 2026-06-30 01:46 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/38965834.shtml)
-- 2026-06-30 01:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/9588762205.shtml)
-- 2026-06-30 01:41 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/62227705313.shtml)
-- 2026-06-30 01:37 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/0013400.shtml)
-- 2026-06-30 01:41 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/36382.shtml)
-- 2026-06-30 01:37 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/4117489.shtml)
-- 2026-06-30 01:39 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/79817.shtml)
-- 2026-06-30 01:49 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/5904350304.shtml)
-- 2026-06-30 02:03 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/4121347931.shtml)
-- 2026-06-30 02:05 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/31105256678.shtml)
-- 2026-06-30 01:51 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/6068429240.shtml)
-- 2026-06-30 01:47 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/37990.shtml)
-- 2026-06-30 01:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/925178.shtml)
-- 2026-06-30 01:46 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/3741434.shtml)
+- 2026-06-30 02:00 - [斗破苍穹](http://www.share.minike.top/Article/details/55139.shtml)
+- 2026-06-30 02:06 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/131587306.shtml)
+- 2026-06-30 02:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/62907.shtml)
+- 2026-06-30 01:51 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/98542003.shtml)
+- 2026-06-30 01:50 - [千与千寻](http://www.share.minike.top/Article/details/80886215.shtml)
+- 2026-06-30 02:10 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/579240.shtml)
+- 2026-06-30 01:46 - [月亮](https://www.share.kurohicncr.top/Article/details/93086032.shtml)
+- 2026-06-30 01:43 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/099934067.shtml)
+- 2026-06-30 01:49 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/4966832.shtml)
+- 2026-06-30 02:08 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/121137.shtml)
+- 2026-06-30 01:53 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/31725.shtml)
+- 2026-06-30 01:51 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/243738162.shtml)
+- 2026-06-30 01:45 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/76964878.shtml)
+- 2026-06-30 02:02 - [毒液2](http://www.share.minike.top/Article/details/5870542848.shtml)
+- 2026-06-30 02:08 - [恋与深空 日服](http://www.blog.minike.top/Article/details/9049410.shtml)

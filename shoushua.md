@@ -1,45 +1,56 @@
-# 谷歌员工反对将AI用于机密任务
+# 浙商证券王大霁：复盘A股七轮共识行情，从“五朵金花”到AI算力，当下无需猜顶
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-数百名Alphabet员工敦促首席执行官桑达尔-皮查伊拒绝美国国防部将公司AI用于机密工作负载的要求，理由是对其潜在用途的伦理担忧。责任编辑：张俊 SF065
+A股自2003年以来，已先后经历七轮清晰可辨的板块共识行情，从早期的周期“五朵金花”，到互联网、消费、新能源、红利资产，再到当下如火如荼的AI算力主线，每一轮都以相似的逻辑萌芽、发酵、高潮与落幕。5月29日，浙商证券策略首席分析师王大霁做客新浪证券直播间，通过复盘历史规律，定位当前AI行情所处阶段。视频直播>> 2003—2007年：周期“五朵金花”，重工业化共识 核心驱动来自
 
 ## 正文
 
-数百名Alphabet员工敦促首席执行官桑达尔-皮查伊拒绝美国国防部将公司AI用于机密工作负载的要求，理由是对其潜在用途的伦理担忧。
+A股自2003年以来，已先后经历七轮清晰可辨的板块共识行情，从早期的周期“五朵金花”，到互联网、消费、新能源、红利资产，再到当下如火如荼的AI算力主线，每一轮都以相似的逻辑萌芽、发酵、高潮与落幕。
 
-责任编辑：张俊 SF065
+5月29日，浙商证券策略首席分析师王大霁做客新浪证券直播间，通过复盘历史规律，定位当前AI行情所处阶段。
+
+视频直播>> 2003—2007年：周期“五朵金花”，重工业化共识 核心驱动来自中国经济高速增长与重工业化浪潮，市场最初质疑周期股高波动风险，少数派坚定看多“重工业化”长期趋势。
+
+宝钢、鞍钢等龙头业绩持续兑现，扭转市场预期，公募持仓集中度从13%升至30%，游资推升龙头连续涨停。
+
+风险钝化期，周期股被赋予成长股PE估值，估值达二三十倍仍强势。
+
+最终因次贷危机爆发、国内外流动性收紧而崩塌，板块平均跌幅约66%。
+
+2009—2012年：第一轮医药共识，医保红利与老龄化共振 驱动来自医保改革与人口老龄化双重红利，市场担忧医保降价风险，少数派提出“用量补价”逻辑，喊出医药行业“黄金十年”。
+
+龙头业绩持续超预期，公募持仓翻倍，散户资金加速入场。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 01:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 01:36 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 02:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 02:02 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 01:38 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 01:40 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 01:42 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 02:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 01:51 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-30 01:40 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 02:09 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 02:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 01:50 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 02:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 01:55 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:06 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 01:59 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 01:54 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 02:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 02:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/131901950365.shtml)
-- 2026-06-30 01:44 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/1697646.shtml)
-- 2026-06-30 01:50 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/024889.shtml)
-- 2026-06-30 01:52 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/309150.shtml)
-- 2026-06-30 02:00 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/127784.shtml)
-- 2026-06-30 01:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/063347490793.shtml)
-- 2026-06-30 01:55 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/90513.shtml)
-- 2026-06-30 02:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/884910477.shtml)
-- 2026-06-30 01:47 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/585069.shtml)
-- 2026-06-30 01:55 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/732113549.shtml)
-- 2026-06-30 01:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/519164570818.shtml)
-- 2026-06-30 01:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/70530.shtml)
-- 2026-06-30 01:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/45292.shtml)
-- 2026-06-30 01:54 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/150215863568.shtml)
-- 2026-06-30 01:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/05902.shtml)
+- 2026-06-30 02:10 - [极限挑战第一季](http://www.blog.minike.top/Article/details/071790.shtml)
+- 2026-06-30 02:05 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/4499952.shtml)
+- 2026-06-30 02:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/62828052.shtml)
+- 2026-06-30 02:02 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/4033702868.shtml)
+- 2026-06-30 01:46 - [速度与激情9](http://www.blog.minike.top/Article/details/765916.shtml)
+- 2026-06-30 02:05 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/422718222.shtml)
+- 2026-06-30 01:59 - [急先锋](http://www.blog.minike.top/Article/details/8549648.shtml)
+- 2026-06-30 01:49 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/7824378.shtml)
+- 2026-06-30 01:42 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/46187.shtml)
+- 2026-06-30 01:59 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/04517998.shtml)
+- 2026-06-30 02:09 - [刘念回应](http://www.blog.minike.top/Article/details/5180481902.shtml)
+- 2026-06-30 02:04 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/21794365.shtml)
+- 2026-06-30 02:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/752178.shtml)
+- 2026-06-30 02:10 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/0226785.shtml)
+- 2026-06-30 02:01 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/404651913.shtml)

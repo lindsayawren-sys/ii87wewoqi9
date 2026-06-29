@@ -1,57 +1,57 @@
-# CBA季后赛：广州队客场战胜广东队
+# 贵港海关信息化设备及系统驻点维护服务比选采购公告
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新社东莞4月28日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛第一轮28日晚在东莞举行。广州朗肽海本队(简称“广州队”)客场以93:76战胜广东东阳光队(简称“广东队”)，赢得晋级先机。 从历史交锋来看，两队此前共交手52次，广东队49胜3负。此前，两队在本赛季常规赛交手2次，广东队两战皆胜。本场比赛，双方均排出强阵对决。 比赛开始，两队火力全
+贵港海关需对信息化设备及系统驻点维护服务进行采购，采用比选采购的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称：贵港海关信息化设备及系统驻点维护服务。 二、报价内容：贵港海关信息化设备及系统驻点维护服务采购需求表(附件1)进行报价。(单价、总价均需报价) 三、项目预算金额(人民币)：11万元(最终结算金额根据服务合同确定)。四、报价人资格： (一)国内注册(指按
 
 ## 正文
 
-中新社东莞4月28日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛第一轮28日晚在东莞举行。
+贵港海关需对信息化设备及系统驻点维护服务进行采购，采用比选采购的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称：贵港海关信息化设备及系统驻点维护服务。
 
-广州朗肽海本队(简称“广州队”)客场以93:76战胜广东东阳光队(简称“广东队”)，赢得晋级先机。
+二、报价内容：贵港海关信息化设备及系统驻点维护服务采购需求表(附件1)进行报价。
 
-从历史交锋来看，两队此前共交手52次，广东队49胜3负。
+(单价、总价均需报价) 三、项目预算金额(人民币)：11万元(最终结算金额根据服务合同确定)。
 
-此前，两队在本赛季常规赛交手2次，广东队两战皆胜。
+四、报价人资格： (一)国内注册(指按国家有关规定要求注册的)，符合《中华人民共和国政府采购法》第二十二条资格条件，具备法人资格的供应商 (二)参加政府采购活动前三年内，在“信用中国”网站(www.creditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道未被列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及无其他不符合《中华人民共和国政府采购法》第二十二条规定条件。
 
-本场比赛，双方均排出强阵对决。
+五、报价文件要求： (一)报价文件(需提交正本一份，副本二份，见附件2)。
 
-比赛开始，两队火力全开，拼抢激烈。
+(二)报价文件复印件须加盖封面章或骑缝章。
 
-广东队奎因突破上篮得分，杜润旺跳投得分，开局以4:0领先。
+所有报价文件需按报价文件目录顺序装订成册，且须装在一个密封袋内，密封袋的封口处应加贴封条并加盖报价人单位公章以示密封。
 
-广州队袁照耀命中三分，徐昕、刘颜诚接连得分，将比分反超。
+六、协商须知： (一)报价文件必须满足贵港海关信息化设备及系统驻点维护服务采购需求表中所列具体要求(附件1)。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 01:56 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 02:03 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 02:01 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 01:42 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 01:37 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 01:42 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 01:46 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 01:46 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 01:56 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 01:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 02:09 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-30 01:51 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 01:44 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 01:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-30 02:09 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 01:42 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:51 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 01:55 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 01:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 02:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 01:50 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/09477.shtml)
-- 2026-06-30 01:55 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/009666.shtml)
-- 2026-06-30 01:45 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/299693955.shtml)
-- 2026-06-30 01:48 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/65267806.shtml)
-- 2026-06-30 01:59 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/23841.shtml)
-- 2026-06-30 01:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/01569404470.shtml)
-- 2026-06-30 01:43 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/5098689.shtml)
-- 2026-06-30 01:42 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/84174272.shtml)
-- 2026-06-30 01:41 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/540390094781.shtml)
-- 2026-06-30 01:40 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/70096816.shtml)
-- 2026-06-30 01:44 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/98657102.shtml)
-- 2026-06-30 02:00 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/8995377010.shtml)
-- 2026-06-30 02:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/3375732.shtml)
-- 2026-06-30 01:53 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/226941834763.shtml)
-- 2026-06-30 01:55 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/223784.shtml)
+- 2026-06-30 02:10 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/961602.shtml)
+- 2026-06-30 01:44 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/44183145860.shtml)
+- 2026-06-30 01:42 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/12947763123.shtml)
+- 2026-06-30 01:47 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/070908619365.shtml)
+- 2026-06-30 01:45 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/078221442.shtml)
+- 2026-06-30 02:05 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/37469365.shtml)
+- 2026-06-30 01:52 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/249846.shtml)
+- 2026-06-30 02:09 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/867081311665.shtml)
+- 2026-06-30 02:03 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/22081401026.shtml)
+- 2026-06-30 02:08 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/7116790411.shtml)
+- 2026-06-30 01:55 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/237024541701.shtml)
+- 2026-06-30 02:06 - [千与千寻](https://www.share.minike.top/Article/details/52072021623.shtml)
+- 2026-06-30 02:03 - [请回答王牌2019](http://www.share.minike.top/Article/details/42880.shtml)
+- 2026-06-30 01:48 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/518657.shtml)
+- 2026-06-30 01:45 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/794272232.shtml)

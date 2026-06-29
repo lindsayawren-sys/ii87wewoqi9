@@ -1,56 +1,60 @@
-# 领益智造2026年一季度营收创上市以来新高
+# 华夏银行中高层调整 涉及多家一级分行行长
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-本报讯(记者王镜茹)4月29日晚，广东领益智造股份有限公司(以下简称“领益智造”)披露2026年一季报。该公司一季度实现营收126.43亿元，同比增长9.99%，一季度收入连续9个季度同比增长，创上市以来新高；归母净利润3.92亿元，同比下降30.70%；扣非归母净利润2.39亿元，同比下降33.15%。扣除股权激励摊销费用后，归母净利润4.90亿元，同比下降23.51%；扣非
+来源：金融人事mini 近日，华夏银行发布公告称，杨宏因工作原因，辞去该行首席合规官职务，自2026年5月26日起生效；公告显示，杨宏将继续担任华夏银行香港分行行长。 银行人事了解到，华夏银行新任首席合规官人选已定，由重点分行行长调任；随之调整的还有多位一级分行行长。 杨宏，1967年12月出生，硕士学位。历任华夏银行国际业务部副总经理，国际业务管理部副总经理、总经理，国际化改
 
 ## 正文
 
-本报讯(记者王镜茹)4月29日晚，广东领益智造股份有限公司(以下简称“领益智造”)披露2026年一季报。
+来源：金融人事mini 近日，华夏银行发布公告称，杨宏因工作原因，辞去该行首席合规官职务，自2026年5月26日起生效；公告显示，杨宏将继续担任华夏银行香港分行行长。
 
-该公司一季度实现营收126.43亿元，同比增长9.99%，一季度收入连续9个季度同比增长，创上市以来新高；归母净利润3.92亿元，同比下降30.70%；扣非归母净利润2.39亿元，同比下降33.15%。
+银行人事了解到，华夏银行新任首席合规官人选已定，由重点分行行长调任；随之调整的还有多位一级分行行长。
 
-扣除股权激励摊销费用后，归母净利润4.90亿元，同比下降23.51%；扣非归母净利润3.38亿元，同比下降22.09%。
+杨宏，1967年12月出生，硕士学位。
 
-公告显示，该公司持续加大AI硬件新产品的研发投入力度，依托技术创新优势提升市场份额，推动整体营业收入及毛利额同比稳步增长。
+历任华夏银行国际业务部副总经理，国际业务管理部副总经理、总经理，国际化改造办公室副主任、主任，信用卡中心首席行政官、常务副总裁，贵阳分行行长，贸易金融部总经理，信用卡中心总裁。
 
-2026年第一季度该公司毛利额20.92亿元，创上市以来一季度历史新高，毛利率16.54%，同比提升1.39个百分点。
+2025年1月，杨宏任华夏银行首席合规官，他是《金融机构合规管理办法》实施后银行业首位获批的专职首席合规官，2025年其税前薪酬总额为221.86万元。
 
-同时，领益智造资产负债率有效降低，2026年一季度末公司资产负债率为55.74%，较上年末的57.94%下降2.20个百分点。
+杨宏履新的香港分行是华夏银行第一家境外分行，于2020年1月2日正式开业，是该行走向国际金融市场的关键一步。
 
-此外，公司持续加码研发投入，加速布局新兴业务。
+截至2025年，香港分行资产规模为1179.31亿元，有员工165人。
 
-2026年第一季度研发费用6.89亿元，同比增加33.09%。
+2025年，华夏银行积极整合香港分行“桥头堡”与境内分行“根据地”双重资源，推动优质客户“走出去”，助力企业跨境直接融资。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 01:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 01:54 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 02:00 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 02:03 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 01:46 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 01:47 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 01:44 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-30 01:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 01:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-30 01:49 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 01:52 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 01:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 01:56 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 01:44 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 01:58 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 01:59 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 02:05 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 02:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 02:07 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 02:04 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 01:57 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 02:10 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 02:09 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/577863474508.shtml)
-- 2026-06-30 01:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/543182293886.shtml)
-- 2026-06-30 01:40 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/601837228.shtml)
-- 2026-06-30 01:43 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/2915012343.shtml)
-- 2026-06-30 02:00 - [房价什么时候能涨](http://www.share.minike.top/Article/details/09407.shtml)
-- 2026-06-30 01:51 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/06847494396.shtml)
-- 2026-06-30 02:02 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/28752068863.shtml)
-- 2026-06-30 01:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/34855114.shtml)
-- 2026-06-30 02:00 - [日本反击率先破门](http://www.blog.minike.top/Article/details/8441586.shtml)
-- 2026-06-30 01:56 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/179627347116.shtml)
-- 2026-06-30 01:49 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/867946868.shtml)
-- 2026-06-30 01:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/4624274298.shtml)
-- 2026-06-30 01:49 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/5208500782.shtml)
-- 2026-06-30 02:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/987001522415.shtml)
-- 2026-06-30 01:55 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/34033293107.shtml)
+- 2026-06-30 02:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/527390.shtml)
+- 2026-06-30 01:48 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/812898160.shtml)
+- 2026-06-30 01:53 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/84667.shtml)
+- 2026-06-30 02:01 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/93990055.shtml)
+- 2026-06-30 01:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/004133008.shtml)
+- 2026-06-30 01:53 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/63588.shtml)
+- 2026-06-30 01:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/345603.shtml)
+- 2026-06-30 01:53 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/446897255.shtml)
+- 2026-06-30 01:46 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/801672366.shtml)
+- 2026-06-30 02:08 - [美人鱼](https://www.share.minike.top/Article/details/82827.shtml)
+- 2026-06-30 01:55 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/42401365.shtml)
+- 2026-06-30 01:59 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/44651697648.shtml)
+- 2026-06-30 01:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/24145.shtml)
+- 2026-06-30 01:50 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/11000557161.shtml)
+- 2026-06-30 01:59 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/508641.shtml)

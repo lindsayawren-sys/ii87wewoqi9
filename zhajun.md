@@ -1,56 +1,56 @@
-# 第四届全国插画扶持计划优秀作品展在广州启幕
+# 国际锐评丨中塞“铁杆”友谊如何迈向新高度？
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 郭军)“四时有梦”——第四届全国插画扶持计划(CIAC)优秀作品展开幕式暨颁奖典礼29日在广州人民艺术中心举行。来自内地及港澳地区的知名艺术家与获奖作者、插画爱好者等200余人出席。 据悉，CIAC由广州市文学艺术界联合会与广州市动漫艺术家协会共同主办，旨在挖掘和推广具有中国气韵和时代风貌的华人原创插画师。第四届CIAC大赛延续设立“无限定主题”
+“两国元首会谈取得丰硕成果”“双方签署20多项合作文件”“进一步巩固‘铁杆’友谊”“为双边合作开辟了新路径”……对于塞尔维亚总统武契奇24日至28日首次对中国进行的国事访问，国际舆论给予积极评价。25日，中国国家主席习近平同武契奇总统举行会谈，一致同意不断深化中塞全面战略伙伴关系，持续推进构建新时代中塞命运共同体。分析人士认为，这为中塞深化合作注入了新动力。在中国与他国的交往中
 
 ## 正文
 
-中新网广州4月29日电 (记者 郭军)“四时有梦”——第四届全国插画扶持计划(CIAC)优秀作品展开幕式暨颁奖典礼29日在广州人民艺术中心举行。
+“两国元首会谈取得丰硕成果”“双方签署20多项合作文件”“进一步巩固‘铁杆’友谊”“为双边合作开辟了新路径”……对于塞尔维亚总统武契奇24日至28日首次对中国进行的国事访问，国际舆论给予积极评价。
 
-来自内地及港澳地区的知名艺术家与获奖作者、插画爱好者等200余人出席。
+25日，中国国家主席习近平同武契奇总统举行会谈，一致同意不断深化中塞全面战略伙伴关系，持续推进构建新时代中塞命运共同体。
 
-据悉，CIAC由广州市文学艺术界联合会与广州市动漫艺术家协会共同主办，旨在挖掘和推广具有中国气韵和时代风貌的华人原创插画师。
+分析人士认为，这为中塞深化合作注入了新动力。
 
-第四届CIAC大赛延续设立“无限定主题”主赛道、“读懂广州”专题赛道及“动态插画”赛道，征集到来自海内外近万份投稿。
+在中国与他国的交往中，中塞“铁杆”友谊独树一帜。
 
-组委会经过多轮评审后，遴选出146组获奖作品，与10余位海内外一线插画名家，以及30余位往届大奖作者作品同台展出。
+塞尔维亚是首个同中国共同构建新时代命运共同体的欧洲国家，也是最早同中国签署共建“一带一路”合作文件的欧洲国家之一。
 
-本次展览以“春”“夏”“秋”“冬”四个篇章串联，呈现中国插画艺术的萌发、盛放、丰藏与沉淀，展陈面积近1000平方米。
+今年是中塞建立全面战略伙伴关系10周年，双边关系发展来到了一个重要历史节点。
 
-据了解，第四届CIAC大赛金奖花落“95后”国风画师阿押AYACY《五侠女》。
+在这次会谈中，习近平主席强调，双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度。
 
-该作品充满东方韵味的笔墨与现代造型色彩相结合，刻画出五位侠女的跌宕人生与精神力量。
+北京外国语大学区域与全球治理高等研究院教授崔洪建对《国际锐评》分析说，习主席的重要论述表明，中塞“铁杆”友谊既要厚植基础，也要不断升级。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 01:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 01:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 01:49 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 01:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 01:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 01:50 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 01:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-30 01:56 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 01:49 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 02:09 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 01:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 01:47 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 02:02 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 01:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 02:08 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 02:00 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 01:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 01:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 02:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/45458428211.shtml)
-- 2026-06-30 01:42 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/6133659302.shtml)
-- 2026-06-30 01:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/12816594.shtml)
-- 2026-06-30 01:57 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/725554.shtml)
-- 2026-06-30 01:59 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/0146764539.shtml)
-- 2026-06-30 02:03 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/41091.shtml)
-- 2026-06-30 01:42 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/04243.shtml)
-- 2026-06-30 01:38 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/5687413790.shtml)
-- 2026-06-30 01:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/08737821.shtml)
-- 2026-06-30 01:47 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/5488762.shtml)
-- 2026-06-30 01:57 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/7580259177.shtml)
-- 2026-06-30 02:02 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/3745522.shtml)
-- 2026-06-30 01:55 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/72125.shtml)
-- 2026-06-30 02:00 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/972759.shtml)
-- 2026-06-30 01:42 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/1115817.shtml)
+- 2026-06-30 02:05 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/6582618555.shtml)
+- 2026-06-30 01:54 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/667861632764.shtml)
+- 2026-06-30 02:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/865248441778.shtml)
+- 2026-06-30 01:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/53946008209.shtml)
+- 2026-06-30 01:51 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/58319.shtml)
+- 2026-06-30 01:49 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/279242.shtml)
+- 2026-06-30 02:08 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/693123.shtml)
+- 2026-06-30 01:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/91344761205.shtml)
+- 2026-06-30 02:06 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/6339204428.shtml)
+- 2026-06-30 02:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/28342148.shtml)
+- 2026-06-30 01:53 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/37872.shtml)
+- 2026-06-30 02:03 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/9112850574.shtml)
+- 2026-06-30 02:06 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/508788.shtml)
+- 2026-06-30 02:06 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/2134471.shtml)
+- 2026-06-30 01:49 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/335803789969.shtml)

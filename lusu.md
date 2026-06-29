@@ -1,56 +1,49 @@
-# 逆势登顶、价值领跑！吉利汽车一季度经营成效全面跃迁 锻造高质量增长样本
+# 南宁海关基础设施功能恢复项目监理服务(NNHG2026-ZZ-04)采购成交结果公告
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！ 2026年一季度，汽车行业在价格战延续、成本高位运行与市场竞争白热化的叠加冲击下，普遍承受着巨大的经营压力。在此背景下，吉利汽车凭借强韧战略定力与体系化能力实现逆势增长，一季度总销量突破70万辆，强势登顶中国品牌销量冠军，营收达838亿元、核心归母净利润45.6亿元，同比劲增31%，刷新历史同期纪录。 消
+南宁海关于2026年5月11日就南宁海关基础设施功能恢复项目监理服务项目(NNHG2026-ZZ-04)采用协商谈判方式进行采购。现将成交结果公告如下： 一、采购项目名称及编号 南宁海关基础设施功能恢复项目监理服务采购(NNHG2026-ZZ-04) 二、采购项目简要说明南宁海关基础设施功能恢复项目监理服务采购1项。 三、采购公告媒体及日期： 公告媒体：中华人民共和国南宁海关网
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+南宁海关于2026年5月11日就南宁海关基础设施功能恢复项目监理服务项目(NNHG2026-ZZ-04)采用协商谈判方式进行采购。
 
-2026年一季度，汽车行业在价格战延续、成本高位运行与市场竞争白热化的叠加冲击下，普遍承受着巨大的经营压力。
+现将成交结果公告如下： 一、采购项目名称及编号 南宁海关基础设施功能恢复项目监理服务采购(NNHG2026-ZZ-04) 二、采购项目简要说明南宁海关基础设施功能恢复项目监理服务采购1项。
 
-在此背景下，吉利汽车凭借强韧战略定力与体系化能力实现逆势增长，一季度总销量突破70万辆，强势登顶中国品牌销量冠军，营收达838亿元、核心归母净利润45.6亿元，同比劲增31%，刷新历史同期纪录。
-
-消费市场与资本市场实现“双增”的背后，是吉利以高端化、全球化、智能化战略为锚，跳出低效内卷、转向高价值创造的深刻实践。
-
-吉利正以一份强韧的财报，向市场清晰展示出通过“一个吉利”精密运营与战略聚焦，在周期波动中构筑高质量发展的新格局。
-
-从“规模领跑”向“价值领跑” 经营质量结构性跃迁 一季度行业整体盈利承压，吉利汽车交出高质量财务答卷，核心盈利指标全面向好，彻底摆脱“以价换量”的粗放模式，营收、利润、盈利质量、财务结构全方位升级，实现从“规模领跑”向“价值领跑”的跃迁。
-
-2026年一季度，吉利汽车总销量达709358辆，登顶中国品牌季度销量冠军，市占率提升至11.95%。
-
-其中，新能源销量达369059辆，同比增长9%，新能源占比达到52%，结构性增长特征日益显著。
+三、采购公告媒体及日期： 公告媒体：中华人民共和国南宁海关网(http://nanning.customs.gov.cn) 公告日期：2026年4月23日 四、评审日期及地点 评审日期：2026年5月11日 评审地点：南宁海关滨湖办公区0702室 五、成交结果信息 成交供应商名称：广西建荣工程项目管理有限公司 地址：南宁市青秀区佛子岭路18号德利·东盟国际文化广场B1栋1401、1402、1403号房 成交金额：人民币贰拾万玖仟元整(￥209,000.00) 六、公告期限 自成交结果公告发布之日起1个工作日 七、联系事项 联系人：张工 联系电话：0771-5369795 各有关当事人对成交结果有异议的，可以在成交结果公告发布期限届满之日起3个工作日内以书面形式向南宁海关提出，逾期将不再受理。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 01:46 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 02:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 01:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-30 01:55 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 02:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 01:59 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 01:55 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 01:47 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 01:39 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 01:46 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 01:45 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 01:47 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 01:53 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 01:55 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 01:53 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 01:56 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 02:04 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 02:08 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 02:08 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 01:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 01:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/2778371.shtml)
-- 2026-06-30 01:53 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/51504005589.shtml)
-- 2026-06-30 01:41 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/208295173.shtml)
-- 2026-06-30 01:59 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/93503384.shtml)
-- 2026-06-30 01:53 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/89143.shtml)
-- 2026-06-30 01:59 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/304037064766.shtml)
-- 2026-06-30 01:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/9430370.shtml)
-- 2026-06-30 01:48 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/6640785.shtml)
-- 2026-06-30 01:37 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/093968.shtml)
-- 2026-06-30 02:00 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/705787.shtml)
-- 2026-06-30 01:38 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/987494081.shtml)
-- 2026-06-30 01:47 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/15681553101.shtml)
-- 2026-06-30 02:04 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/56266062529.shtml)
-- 2026-06-30 01:45 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/628560529.shtml)
-- 2026-06-30 01:40 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/196946274165.shtml)
+- 2026-06-30 01:51 - [新官上任三把火](http://www.share.minike.top/Article/details/163399.shtml)
+- 2026-06-30 01:58 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/6760124097.shtml)
+- 2026-06-30 01:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/693926678.shtml)
+- 2026-06-30 01:49 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/891760387863.shtml)
+- 2026-06-30 02:04 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/111263823.shtml)
+- 2026-06-30 01:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/39375680.shtml)
+- 2026-06-30 01:42 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/311617748.shtml)
+- 2026-06-30 01:55 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/7233141918.shtml)
+- 2026-06-30 01:47 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/31128123557.shtml)
+- 2026-06-30 01:52 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/37272113430.shtml)
+- 2026-06-30 01:46 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/100132897406.shtml)
+- 2026-06-30 01:51 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/272556.shtml)
+- 2026-06-30 01:51 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/9227742133.shtml)
+- 2026-06-30 02:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/34314971876.shtml)
+- 2026-06-30 01:45 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/95492.shtml)

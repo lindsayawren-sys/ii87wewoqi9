@@ -1,56 +1,56 @@
-# 去世12年父亲信用卡欠款滚到2.3万 这笔钱该不该还？
+# Meta支付900万美元 了结肯塔基州社媒危害诉讼
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-近日，上海市民陶女士被银行催还父亲信用卡欠债的经历引发媒体的关注，陶女士的父亲2014年就因病去世了，她当年主动还清父亲所有信用卡欠款。但是今年1月，却不断收到银行催款短信，说她父亲还有一张未结清信用卡，欠款滚到23928.45元！时隔12年，银行为何才通知？陶女士用还这笔款项吗？父亲去世12年后 银行发短信给女儿要求还信用卡 据报道，陶女士在2014年父亲去世后，拿着父亲身份
+文件显示，Meta已同意支付900万美元，以解决肯塔基州一个学区提出的指控。该学区称，Meta的平台加剧了学生群体的心理健康危机。这是首次披露该和解协议的财务条款。 继共同被告Snap、YouTube母公司Alphabet此前达成和解后，该公司于5月21日与布雷西特县学区达成了和解，此时距离原定于6月举行的庭审仅剩几周。此前，这些和解协议的条款在法庭上均未披露。 这些公司否认了
 
 ## 正文
 
-近日，上海市民陶女士被银行催还父亲信用卡欠债的经历引发媒体的关注，陶女士的父亲2014年就因病去世了，她当年主动还清父亲所有信用卡欠款。
+文件显示，Meta已同意支付900万美元，以解决肯塔基州一个学区提出的指控。
 
-但是今年1月，却不断收到银行催款短信，说她父亲还有一张未结清信用卡，欠款滚到23928.45元！
+该学区称，Meta的平台加剧了学生群体的心理健康危机。
 
-时隔12年，银行为何才通知？
+这是首次披露该和解协议的财务条款。
 
-陶女士用还这笔款项吗？
+继共同被告Snap、YouTube母公司Alphabet此前达成和解后，该公司于5月21日与布雷西特县学区达成了和解，此时距离原定于6月举行的庭审仅剩几周。
 
-父亲去世12年后 银行发短信给女儿要求还信用卡 据报道，陶女士在2014年父亲去世后，拿着父亲身份证去涉事银行查账，银行告诉她欠款金额后，她直接就结清了。
+此前，这些和解协议的条款在法庭上均未披露。
 
-而12年后，银行说：你父亲有两张信用卡，一张还清了，还有一张没还清。
+这些公司否认了相关指控，并表示已采取广泛措施确保青少年及年轻用户在其平台上的安全。
 
-而所谓的“2.4万欠款”中，本金只有7000元，剩下的是十几年滚出来的利息，以及违约金。
+和解协议公布时，Meta、Snap和YouTube均表示已通过友好协商解决了相关索赔。
 
-华东政法大学教授 虞浔：子女是否需要替去世的父母还债，关键要看是否继承了父母的遗产。
+原告律师在公告发布后表示，他们目前将重点转向处理其他1200个学区提出的类似索赔。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 01:46 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 01:53 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 01:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 01:40 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 02:05 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-30 01:53 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 01:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 02:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 01:54 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 02:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 01:43 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 01:45 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 01:43 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 01:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 01:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 01:44 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 01:59 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 01:46 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 02:03 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/40775223354.shtml)
-- 2026-06-30 01:38 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/09676.shtml)
-- 2026-06-30 01:42 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/41021.shtml)
-- 2026-06-30 01:38 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/879514.shtml)
-- 2026-06-30 02:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/39655666794.shtml)
-- 2026-06-30 01:56 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/98547344.shtml)
-- 2026-06-30 02:00 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/53033.shtml)
-- 2026-06-30 01:54 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/238845227942.shtml)
-- 2026-06-30 02:04 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/617122016.shtml)
-- 2026-06-30 02:02 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/612792.shtml)
-- 2026-06-30 02:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/4638492.shtml)
-- 2026-06-30 01:55 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/3501742.shtml)
-- 2026-06-30 01:53 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/5502626.shtml)
-- 2026-06-30 01:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/327363936.shtml)
-- 2026-06-30 01:48 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/668344558502.shtml)
+- 2026-06-30 02:04 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/582488970023.shtml)
+- 2026-06-30 01:43 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/6624412288.shtml)
+- 2026-06-30 01:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/56653964.shtml)
+- 2026-06-30 01:57 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/08269007427.shtml)
+- 2026-06-30 01:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/69626689435.shtml)
+- 2026-06-30 01:57 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/70839703574.shtml)
+- 2026-06-30 02:00 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/061272713.shtml)
+- 2026-06-30 01:57 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/35755697106.shtml)
+- 2026-06-30 02:09 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/645898372.shtml)
+- 2026-06-30 01:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/9318870.shtml)
+- 2026-06-30 01:56 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/4542134239.shtml)
+- 2026-06-30 01:52 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/2167673754.shtml)
+- 2026-06-30 01:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/10879.shtml)
+- 2026-06-30 01:59 - [起风了](https://www.blog.minike.top/Article/details/287637292.shtml)
+- 2026-06-30 02:04 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/3083264.shtml)

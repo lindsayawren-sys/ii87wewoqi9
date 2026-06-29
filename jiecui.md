@@ -1,61 +1,59 @@
-# 东吴证券归母净利润高增50.12% 分红近18亿元创下历史记录 战略整合东海证券再添想象空间
+# 美伊停火预期削弱美元避险需求，英镑兑美元探底回升
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-2026年4月28日，东吴证券发布2025年年报，全年实现营业收入90.30亿元，同比增长27.70%（会计准则调整导致期货类收入追溯调整），实现归母净利润35.52亿元，同比增长50.12%。 据中国证券业协会数据，2025年全行业150家券商营业收入同比增长19.95%、净利润同比增长31.20%，东吴证券的成长表现远超行业整体水平。 分业务来看，东吴证券各业务实力均稳步提
+文章来源：汇通财经 英镑兑美元周五亚洲交易时段小幅走高，汇价维持在1.3450附近运行。随着美国与伊朗停火延期谈判释放积极信号，市场避险情绪出现缓和，美元需求有所下降，从而推动英镑兑美元连续第二个交易日维持反弹。 美国与伊朗已初步达成一项为期60天的停火延期协议，若协议最终落地，霍尔木兹海峡航运有望恢复稳定。根据相关安排，伊朗将在30天内清除航道中的水雷，从而降低全球能源运输风
 
 ## 正文
 
-2026年4月28日，东吴证券发布2025年年报，全年实现营业收入90.30亿元，同比增长27.70%（会计准则调整导致期货类收入追溯调整），实现归母净利润35.52亿元，同比增长50.12%。
+文章来源：汇通财经 英镑兑美元周五亚洲交易时段小幅走高，汇价维持在1.3450附近运行。
 
-据中国证券业协会数据，2025年全行业150家券商营业收入同比增长19.95%、净利润同比增长31.20%，东吴证券的成长表现远超行业整体水平。
+随着美国与伊朗停火延期谈判释放积极信号，市场避险情绪出现缓和，美元需求有所下降，从而推动英镑兑美元连续第二个交易日维持反弹。
 
-分业务来看，东吴证券各业务实力均稳步提升。
+美国与伊朗已初步达成一项为期60天的停火延期协议，若协议最终落地，霍尔木兹海峡航运有望恢复稳定。
 
-据Wind SECI数据，2025年东吴证券经纪业务、投行业务、资管业务排名分别较上年提升4名、4名、4名，其自营业务排名虽未发生变动，但该板块营收增速高达40.34%，远超同期上市券商整体增速（31.46%），位居行业前列。
+根据相关安排，伊朗将在30天内清除航道中的水雷，从而降低全球能源运输风险。
 
-在保持高质量发展的同时，东吴证券继续执行高分红政策。
+不过，市场对于相关协议仍保持谨慎态度。
 
-年报中，公司披露2025年利润分配方案，拟向全体股东每10股派发现金红利人民币2.20元（含税），叠加2025年中期已每10股派发现金红利人民币1.38元（含税），合计全年每10股派发人民币3.58元（含税），对应股息率超4%，在全部上市券商中位列第一。
+美国总统特朗普尚未正式批准协议条款，而美国副总统万斯也表示，目前双方“尚未完全达成最终协议”，但整体谈判已经接近完成。
 
-按照上述利润分配方案，公司全年现金分红总额达17.79亿元（含税），在2024年分红高基数上再度提升15%，创下东吴证券自2011年上市以来的最高分红金额纪录。
+与此同时，美国方面仍强调，必要时将继续对伊朗核计划保持强硬立场。
 
-业绩高增之余，东吴证券与东海证券战略整合工作持续推进，为公司的成长再添想象空间。
+尽管如此，市场仍普遍认为，中东局势缓和有助于降低全球市场对于能源供应中断的担忧。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 01:37 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 01:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 01:39 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 01:54 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 01:36 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 01:40 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 01:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 01:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 01:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 01:36 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 01:55 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 01:51 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 01:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-30 01:57 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 01:58 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 02:04 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 01:49 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 01:50 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 02:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 01:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 02:02 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 02:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 01:47 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 01:49 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 01:42 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 01:43 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 01:44 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/4715455147.shtml)
-- 2026-06-30 02:03 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/8777735.shtml)
-- 2026-06-30 01:37 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/463247.shtml)
-- 2026-06-30 01:47 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/856551321.shtml)
-- 2026-06-30 01:55 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/096615.shtml)
-- 2026-06-30 01:51 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/179656536.shtml)
-- 2026-06-30 01:53 - [千与千寻](https://www.blog.minike.top/Article/details/8111199.shtml)
-- 2026-06-30 01:56 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/7043979.shtml)
-- 2026-06-30 01:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/4528820262.shtml)
-- 2026-06-30 02:04 - [月亮](https://www.blog.kurohicncr.top/Article/details/48742579763.shtml)
-- 2026-06-30 01:41 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/6705608.shtml)
-- 2026-06-30 01:50 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/89024502.shtml)
-- 2026-06-30 01:36 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/84292005673.shtml)
-- 2026-06-30 01:38 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/24283961.shtml)
-- 2026-06-30 02:05 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/20156649975.shtml)
+- 2026-06-30 02:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/31780298192.shtml)
+- 2026-06-30 02:04 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/5358682072.shtml)
+- 2026-06-30 02:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/91624995.shtml)
+- 2026-06-30 02:09 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/413325.shtml)
+- 2026-06-30 02:00 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/72482320299.shtml)
+- 2026-06-30 01:52 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/6042436.shtml)
+- 2026-06-30 01:57 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/107697.shtml)
+- 2026-06-30 02:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/73410.shtml)
+- 2026-06-30 02:11 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/74242.shtml)
+- 2026-06-30 01:58 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/031520097903.shtml)
+- 2026-06-30 02:07 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/63912278.shtml)
+- 2026-06-30 01:42 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/7991641616.shtml)
+- 2026-06-30 02:05 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/0279386.shtml)
+- 2026-06-30 01:59 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/479731.shtml)
+- 2026-06-30 02:10 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/67740985.shtml)

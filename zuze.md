@@ -1,58 +1,59 @@
-# AI 世纪对决开庭，马斯克在OpenAI审判中出庭作证
+# 通车20年 青藏铁路托起西藏经济发展幸福路
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。 马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构
+中国西藏新闻网_西藏商报 记者 张雪芳 1984年 西宁至格尔木段(全长814公里)投入运营。 2006年7月1日青藏铁路格尔木至拉萨段(全长1142公里)通车运营，彻底结束了西藏没有铁路的历史。 2014年8月16日 青藏铁路的延伸线——拉日铁路(全长251公里)开通运营，进一步完善了西藏铁路网结构。 2021年6月25日 拉林铁路(全长435公里)开通运营，复兴号动车组在西
 
 ## 正文
 
-本周二，埃隆・马斯克出庭作证表示，他起诉 OpenAI 及其高管的诉讼，早已超越单一企业纠纷，直指人工智能这项足以毁灭全人类的技术未来。
+中国西藏新闻网_西藏商报 记者 张雪芳 1984年 西宁至格尔木段(全长814公里)投入运营。
 
-马斯克指控，OpenAI 首席执行官山姆・奥尔特曼、总裁格雷格・布罗克曼联手欺骗自己，背弃了 OpenAI 最初的非营利使命。
+2006年7月1日青藏铁路格尔木至拉萨段(全长1142公里)通车运营，彻底结束了西藏没有铁路的历史。
 
-目前，马斯克向美国加州北区联邦地区法院提起诉讼，要求 OpenAI 赔偿1300 亿美元损失，强制公司恢复非营利架构，并罢免奥尔特曼与布罗克曼的董事职务。
+2014年8月16日 青藏铁路的延伸线——拉日铁路(全长251公里)开通运营，进一步完善了西藏铁路网结构。
 
-自身拥有人工智能企业的马斯克在奥克兰法庭的证人席上坦言：“我对人工智能抱有极度担忧。
+2021年6月25日 拉林铁路(全长435公里)开通运营，复兴号动车组在西藏首次亮相，结束了西藏无电气化铁路的历史。
 
-” 他表示，人工智能既能让全人类走向繁荣，也可能给人类带来毁灭性后果。
+“那是一条神奇的天路，把人间的温暖送到边疆，从此山不再高路不再漫长……”这首家喻户晓的《天路》曾经红遍大江南北，代表着西藏人民的心声，也是对青藏铁路这条“交通大动脉”“人民幸福路”的最生动诠释。
 
-“我们绝不希望迎来《终结者》式的悲剧结局。
+今年是西藏和平解放75周年，也是青藏铁路通车运行20周年。
 
-” 马斯克说道。
+20年来，青藏铁路进出藏货物累计突破1亿吨，进出藏旅客量突破4100万人次。
 
-OpenAI 计划最早于今年上市，而本次诉讼或将重创这家全球顶尖 AI 企业，同时也是马斯克旗下 AI 业务最大的竞争对手。
+青藏铁路不仅串起了西藏与祖国各地的联系，而且搭建起各民族交往交流交融的连心桥，见证了西藏经济社会的沧桑巨变。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 01:36 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 02:03 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 02:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 01:41 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 01:41 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 02:03 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 01:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 01:49 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 01:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 01:43 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 01:55 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 02:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 01:58 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 02:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 02:08 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 02:07 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 01:46 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-30 01:48 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-30 01:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 01:56 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 02:03 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 01:44 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 01:43 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 02:07 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/88290925621.shtml)
-- 2026-06-30 01:38 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/112652.shtml)
-- 2026-06-30 01:42 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/2708107410.shtml)
-- 2026-06-30 01:47 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/8724950.shtml)
-- 2026-06-30 01:50 - [周生如故](https://www.share.minike.top/Article/details/92572.shtml)
-- 2026-06-30 01:38 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/126320175565.shtml)
-- 2026-06-30 01:37 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/21105.shtml)
-- 2026-06-30 01:55 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/792051981.shtml)
-- 2026-06-30 01:42 - [田曦薇没招了](http://www.share.minike.top/Article/details/783151397.shtml)
-- 2026-06-30 01:42 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/38674840406.shtml)
-- 2026-06-30 01:48 - [田曦薇没招了](https://www.share.minike.top/Article/details/596016885563.shtml)
-- 2026-06-30 02:03 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/9240654168.shtml)
-- 2026-06-30 02:05 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/537836208.shtml)
-- 2026-06-30 02:03 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/073903288.shtml)
-- 2026-06-30 01:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/897709.shtml)
+- 2026-06-30 02:07 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/927526763.shtml)
+- 2026-06-30 01:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/1594989920.shtml)
+- 2026-06-30 02:11 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/168678491636.shtml)
+- 2026-06-30 02:00 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/77506.shtml)
+- 2026-06-30 02:02 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/73079367227.shtml)
+- 2026-06-30 01:59 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/89078419328.shtml)
+- 2026-06-30 02:08 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/1837181.shtml)
+- 2026-06-30 01:50 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/62327284694.shtml)
+- 2026-06-30 02:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/0552399.shtml)
+- 2026-06-30 02:07 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/08229732.shtml)
+- 2026-06-30 01:57 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/07306645947.shtml)
+- 2026-06-30 02:06 - [美人鱼](http://www.share.kurohicncr.top/Article/details/99327059108.shtml)
+- 2026-06-30 01:57 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/03857319.shtml)
+- 2026-06-30 01:55 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/792048012.shtml)
+- 2026-06-30 01:58 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/0065595115.shtml)

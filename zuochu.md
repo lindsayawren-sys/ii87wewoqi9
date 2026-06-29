@@ -1,58 +1,59 @@
-# 苏宁一季度营收91.78亿元，2026年将加强高管绩效考核
+# 人民日报经济新方位·精准发力建好“六张网”：新型电网 更强更绿更智能
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月29日，苏宁易购（002024，ST易购）发布2026年第一季度报告，财报显示，报告期内苏宁易购实现营业收入 91.78 亿元，同比下降28.82%；归属于上市公司股东的净利润 2890.5 万元，同比增长 60.94%；基本每股收益0.0031元/股，同比上涨55.00%。继2025年全年盈利后，苏宁易购一季度延续了盈利。 但苏宁易购扣非归母净利润仍然亏损，报告期内，归属
+“十五五”时期投资5万亿元以上，推动西电东送规模超4.2亿千瓦 新型电网 更强更绿更智能（经济新方位·精准发力建好“六张网”） 本报记者 王云杉 窦 皓《人民日报》（2026年05月29日 第 02 版） 电网是连接电力生产和消费的枢纽平台，是新型电力系统的核心环节。随着新能源发电占比不断提升、产业转型升级加速，一张更坚强、更绿色、更智能的电网成为时代所需。 “十五五”时期，我
 
 ## 正文
 
-4月29日，苏宁易购（002024，ST易购）发布2026年第一季度报告，财报显示，报告期内苏宁易购实现营业收入 91.78 亿元，同比下降28.82%；归属于上市公司股东的净利润 2890.5 万元，同比增长 60.94%；基本每股收益0.0031元/股，同比上涨55.00%。
+“十五五”时期投资5万亿元以上，推动西电东送规模超4.2亿千瓦 新型电网 更强更绿更智能（经济新方位·精准发力建好“六张网”） 本报记者 王云杉 窦 皓《人民日报》（2026年05月29日 第 02 版） 电网是连接电力生产和消费的枢纽平台，是新型电力系统的核心环节。
 
-继2025年全年盈利后，苏宁易购一季度延续了盈利。
+随着新能源发电占比不断提升、产业转型升级加速，一张更坚强、更绿色、更智能的电网成为时代所需。
 
-但苏宁易购扣非归母净利润仍然亏损，报告期内，归属于上市公司股东的扣除非经常性损益的净利润为亏损8.61亿元，亏损同比扩大333.49%。
+“十五五”时期，我国着力推进新型电网建设，将投资5万亿元以上，推动西电东送规模达4.2亿千瓦以上，有力保障13.5万亿千瓦时用电需求，支撑“双碳”目标实现和能源强国建设。
 
-一季度，苏宁易购经营活动产生的现金流量净额6.78亿元，同比下降26.23%。
+适应能源结构转型，筑牢能源安全防线 浙江省余姚大发化纤有限公司厂房的屋顶上，5000千瓦的光伏板整齐排列。
 
-一季度财报背后，苏宁易购主业仍受市场竞争激烈、家电国补政策边际效应递减等因素影响，财报提到，报告期内营业收入下降主要是由于同期国补政策利好形成较高基数，以及家电国补政策边际效应递减，并受房地产市场持续低迷拖累，带来用户消费意愿不足，公司门店销售收入有所下滑。
+“屋顶光伏板发的电总体上能满足生产需要，但是存在波动性。
 
-苏宁在这份财报中表现出了向海外谋求增长的野心。
+我们仍要接入大电网，光伏大发时余电上网，出力不足时电网兜底保障。
 
-此前年报提及，2025年四季度苏宁启动了东南亚、美国市场的销售业务。
+”该公司总经理沈军耀介绍。
 
-一季度报告显示，苏宁在中国港澳台及海外市场实现销售收入同比增长43.2%，但苏宁海外收入规模较小，能否持续推进海外业务作为新增量仍有待观望。
+大规模新能源装机在助力企业绿色发展的同时，也带来挑战：光伏“看天吃饭”，阴天、下雨都会导致发电量骤降。
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 02:05 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-30 01:51 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 01:57 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 01:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 01:50 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 02:00 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 02:00 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 01:41 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 01:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 02:05 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 01:46 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 02:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 01:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 02:10 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 01:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 02:10 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:06 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 02:07 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 01:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 01:56 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 02:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 02:01 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 01:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 02:04 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/20752633725.shtml)
-- 2026-06-30 01:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/9653981150.shtml)
-- 2026-06-30 01:39 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/2160407635.shtml)
-- 2026-06-30 01:37 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/556941118929.shtml)
-- 2026-06-30 01:48 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/18868.shtml)
-- 2026-06-30 02:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/33514.shtml)
-- 2026-06-30 02:02 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/31840679661.shtml)
-- 2026-06-30 01:38 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/229415.shtml)
-- 2026-06-30 01:44 - [扬名立万](https://www.blog.minike.top/Article/details/662654.shtml)
-- 2026-06-30 01:58 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/50583.shtml)
-- 2026-06-30 01:41 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/67027237.shtml)
-- 2026-06-30 01:59 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/403711598295.shtml)
-- 2026-06-30 02:05 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/053172200.shtml)
-- 2026-06-30 01:49 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/4328559698.shtml)
-- 2026-06-30 01:46 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/5129431042.shtml)
+- 2026-06-30 01:46 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/21022075.shtml)
+- 2026-06-30 02:09 - [一见倾心](http://www.blog.minike.top/Article/details/225511.shtml)
+- 2026-06-30 02:06 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/1984916.shtml)
+- 2026-06-30 01:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/337048109003.shtml)
+- 2026-06-30 01:51 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/4080816.shtml)
+- 2026-06-30 01:45 - [点菜也要教吗](https://www.share.kurohicncr.top/Article/details/705140871553.shtml)
+- 2026-06-30 01:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/78521740439.shtml)
+- 2026-06-30 02:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/979167.shtml)
+- 2026-06-30 01:55 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/211777369974.shtml)
+- 2026-06-30 01:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/83530441895.shtml)
+- 2026-06-30 02:02 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/043958.shtml)
+- 2026-06-30 01:48 - [请回答王牌2019](https://www.share.minike.top/Article/details/38018269490.shtml)
+- 2026-06-30 01:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/977366149.shtml)
+- 2026-06-30 01:53 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/8423456353.shtml)
+- 2026-06-30 02:09 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/75029017.shtml)

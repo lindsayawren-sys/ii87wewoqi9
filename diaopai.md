@@ -1,49 +1,44 @@
-# 广州欧美同学会白云分会赴欧美同学会总会开展参访学习
+# 中国银行信用审批部原副总经理辛强接受纪律审查和监察调查
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月24日，广州欧美同学会白云分会组织留学人员参访欧美同学会(中国留学人员联谊会)会址。欧美同学会社会服务部相关负责同志，广州欧美同学会理事、白云分会执行会长林铭及白云区归国留学人员代表参加。 参访期间，学长们参观全新升级的欧美同学会会史展，系统学习欧美同学会成立113年来的发展历程与重要成就，深刻感悟一代代归国留学人员胸怀家国、矢志报国，投身强国建设的光辉事迹。 学长们纷纷表
+中央纪委国家监委网站讯 据中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委消息：中国银行信用审批部原副总经理辛强涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国银行纪检监察组纪律审查和河北省监察委员会监察调查。 （中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委）责任编辑：秦艺
 
 ## 正文
 
-4月24日，广州欧美同学会白云分会组织留学人员参访欧美同学会(中国留学人员联谊会)会址。
+中央纪委国家监委网站讯 据中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委消息：中国银行信用审批部原副总经理辛强涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国银行纪检监察组纪律审查和河北省监察委员会监察调查。
 
-欧美同学会社会服务部相关负责同志，广州欧美同学会理事、白云分会执行会长林铭及白云区归国留学人员代表参加。
-
-参访期间，学长们参观全新升级的欧美同学会会史展，系统学习欧美同学会成立113年来的发展历程与重要成就，深刻感悟一代代归国留学人员胸怀家国、矢志报国，投身强国建设的光辉事迹。
-
-学长们纷纷表示，此次参访学习让大家深受教育、倍感振奋，更加深刻理解了“留学报国”的光荣传统与精神底蕴，并进一步坚定了将个人理想追求融入国家发展大局的信念和决心。
+（中央纪委国家监委驻中国银行纪检监察组、河北省纪委监委）责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 02:05 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 01:42 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 01:52 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 01:38 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-30 02:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 02:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 02:03 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 01:52 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 01:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 02:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 02:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:53 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-30 02:08 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 01:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 02:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 01:45 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-30 01:53 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 01:50 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 02:00 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 02:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [极限挑战第一季](http://www.share.minike.top/Article/details/299826.shtml)
-- 2026-06-30 01:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/06776637.shtml)
-- 2026-06-30 01:48 - [扫黑风暴](http://www.share.minike.top/Article/details/055876749555.shtml)
-- 2026-06-30 01:43 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/480156948722.shtml)
-- 2026-06-30 02:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/0621965673.shtml)
-- 2026-06-30 01:37 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/833856883.shtml)
-- 2026-06-30 01:50 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/782332397.shtml)
-- 2026-06-30 01:46 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/438583629.shtml)
-- 2026-06-30 02:02 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/18918343.shtml)
-- 2026-06-30 02:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/7021889.shtml)
-- 2026-06-30 01:46 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/58959933.shtml)
-- 2026-06-30 01:48 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/023424664.shtml)
-- 2026-06-30 01:43 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/916998004641.shtml)
-- 2026-06-30 02:03 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/137275.shtml)
-- 2026-06-30 01:50 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/0213944.shtml)
+- 2026-06-30 01:58 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/158312301.shtml)
+- 2026-06-30 01:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/485096994.shtml)
+- 2026-06-30 02:08 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/1143228.shtml)
+- 2026-06-30 01:54 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/30348.shtml)
+- 2026-06-30 01:43 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/6144312313.shtml)
+- 2026-06-30 02:08 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/8723365.shtml)
+- 2026-06-30 02:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/559278501.shtml)
+- 2026-06-30 02:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/42569466.shtml)
+- 2026-06-30 01:52 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/20568064.shtml)
+- 2026-06-30 01:55 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/693882030.shtml)
+- 2026-06-30 01:43 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/702731.shtml)
+- 2026-06-30 01:48 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/19947.shtml)
+- 2026-06-30 01:57 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/01363.shtml)
+- 2026-06-30 01:53 - [天道](https://www.share.minike.top/Article/details/7583924368.shtml)
+- 2026-06-30 01:54 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/7754881.shtml)

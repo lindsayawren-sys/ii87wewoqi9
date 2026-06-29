@@ -1,60 +1,59 @@
-# 盛剑科技一季度亏损2612万元，张伟明质押700万股后，公司“半导体新故事”先撞上订单收缩 | 长三角资本局
+# 德国经济和能源部长：中国经济发展成果令人钦佩
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 盛剑科技的压力，已经从2025年年报延续到2026年一季报。 4月29日，盛剑科技披露2026年第一季度报告。公司一季度实现营业收入1.19亿元，同比下滑63.09%；归属于上市公司股东的净利润亏损2612万元，扣非净利润亏损2716万元。利润总额亏损3449万元，同比降幅超过220%。 这不是一个单纯的季度波动。公司给出的原因是下游市场需求疲软、行业
+视频 | 德国经济和能源部长：中国经济发展成果令人钦佩 5月27日，正在中国访问的德国联邦经济和能源部长卡特琳娜·赖歇在记者会上表示，中国经济取得的发展成果令人钦佩，德中经贸关系对世界经济意义重大，德方支持两国企业在平等互利和公平竞争的基础上共同取得进步。 卡特琳娜·赖歇： 很高兴到访世界第二大经济体中国的首都北京。近几十年来中国的发展令人印象深刻，逐步发展成为全球重要的工业、
 
 ## 正文
 
-文|新浪财经上海站 十里 盛剑科技的压力，已经从2025年年报延续到2026年一季报。
+视频 | 德国经济和能源部长：中国经济发展成果令人钦佩 5月27日，正在中国访问的德国联邦经济和能源部长卡特琳娜·赖歇在记者会上表示，中国经济取得的发展成果令人钦佩，德中经贸关系对世界经济意义重大，德方支持两国企业在平等互利和公平竞争的基础上共同取得进步。
 
-4月29日，盛剑科技披露2026年第一季度报告。
+卡特琳娜·赖歇： 很高兴到访世界第二大经济体中国的首都北京。
 
-公司一季度实现营业收入1.19亿元，同比下滑63.09%；归属于上市公司股东的净利润亏损2612万元，扣非净利润亏损2716万元。
+近几十年来中国的发展令人印象深刻，逐步发展成为全球重要的工业、科技和创新基地。
 
-利润总额亏损3449万元，同比降幅超过220%。
+中国的产业转型升级，以及技术进步的速度赢得了认可和尊重。
 
-这不是一个单纯的季度波动。
+中国作为世界第二大经济体十分自信。
 
-公司给出的原因是下游市场需求疲软、行业竞争加剧，订单规模收缩，直接拖累营收。
+中国是全球经济重要的增长引擎，而且在众多未来产业中处于国际领先地位，包括机器人与人工智能，可再生能源，以及电池等储能技术。
 
-同时，公司继续加大研发投入，研发费用同比增长14%；此前产能扩张带来的固定资产折旧摊销也在上升，进一步压缩盈利空间。
+中国还拥有将创新技术迅速大规模产业化的能力，并以此定义产品和市场。
 
-更能说明问题的是现金流。
+德国和中国之间的经济关系对世界而言意义重大，双边年贸易额超过2500亿欧元。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 01:38 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-30 01:39 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 01:53 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 01:56 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 02:04 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 02:00 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 01:56 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-30 01:37 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-30 01:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 02:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 01:46 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 01:45 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 01:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 01:55 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 01:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 02:09 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 01:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 01:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 01:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 01:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 02:04 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 01:51 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 01:57 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-30 01:50 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 01:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 01:54 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/3925745.shtml)
-- 2026-06-30 01:54 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/54341086170.shtml)
-- 2026-06-30 01:42 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/67399411.shtml)
-- 2026-06-30 01:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/88597483642.shtml)
-- 2026-06-30 01:52 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/96299.shtml)
-- 2026-06-30 01:48 - [起风了](https://www.share.minike.top/Article/details/854179491956.shtml)
-- 2026-06-30 01:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/32505630.shtml)
-- 2026-06-30 01:58 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/39855.shtml)
-- 2026-06-30 01:55 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/90620.shtml)
-- 2026-06-30 01:40 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/2746088.shtml)
-- 2026-06-30 02:00 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/5859209037.shtml)
-- 2026-06-30 01:58 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/501014.shtml)
-- 2026-06-30 02:02 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/160149351249.shtml)
-- 2026-06-30 01:47 - [恋与深空致歉](https://www.blog.minike.top/Article/details/93537847031.shtml)
-- 2026-06-30 02:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/3374329036.shtml)
+- 2026-06-30 02:06 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/033667292205.shtml)
+- 2026-06-30 01:44 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/9557990978.shtml)
+- 2026-06-30 02:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/78753.shtml)
+- 2026-06-30 01:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/94375.shtml)
+- 2026-06-30 01:51 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/426849314.shtml)
+- 2026-06-30 02:11 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/892225.shtml)
+- 2026-06-30 02:01 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/156498505.shtml)
+- 2026-06-30 02:10 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/274413622340.shtml)
+- 2026-06-30 01:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/5673125.shtml)
+- 2026-06-30 01:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/952110.shtml)
+- 2026-06-30 01:53 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/8053369.shtml)
+- 2026-06-30 02:06 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/03587719229.shtml)
+- 2026-06-30 01:42 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/6863848.shtml)
+- 2026-06-30 01:44 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/69400727866.shtml)
+- 2026-06-30 02:05 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/22814337334.shtml)

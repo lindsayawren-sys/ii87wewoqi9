@@ -1,56 +1,58 @@
-# 油价若长期高居不下 或加剧新兴市场亚洲债券的抛售
+# 星巴克转型初见成效，午后到店客流持续攀升
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-如果以史为鉴，油价长期处于高位可能会使亚洲新兴市场债券收益率加快上升。市场观察人士表示，这种风险尚未被充分反映在市场价格中。 根据对2017年以来的四种情景分析，油价冲击对区域债券的影响可能会随着时间的推移而加剧。研究表明，随着伊朗冲突进入第三个月，布伦特原油价格每上涨10%，该地区10年期国债平均收益率可能上升16个基点。 而在冲突爆发后的前两个月，油价每上涨10%，该收益率
+核心要点 星巴克内部美国市场数据显示（统计区间：2 月 15 日至 5 月 16 日），下午 2 点后的到店客流增长显著，其中下午 3 点至 5 点增速最快。 焕新饮品系列成为增长主力，目前销量仅次于浓缩咖啡，位列星巴克第二大饮品品类。 首席执行官布莱恩・尼科尔将午后时段视为重要增长机遇，发力争夺当日复购顾客，应对同行竞争。 星巴克周四表示，午后客流正成为公司新的核心增长动力，
 
 ## 正文
 
-如果以史为鉴，油价长期处于高位可能会使亚洲新兴市场债券收益率加快上升。
+核心要点 星巴克内部美国市场数据显示（统计区间：2 月 15 日至 5 月 16 日），下午 2 点后的到店客流增长显著，其中下午 3 点至 5 点增速最快。
 
-市场观察人士表示，这种风险尚未被充分反映在市场价格中。
+焕新饮品系列成为增长主力，目前销量仅次于浓缩咖啡，位列星巴克第二大饮品品类。
 
-根据对2017年以来的四种情景分析，油价冲击对区域债券的影响可能会随着时间的推移而加剧。
+首席执行官布莱恩・尼科尔将午后时段视为重要增长机遇，发力争夺当日复购顾客，应对同行竞争。
 
-研究表明，随着伊朗冲突进入第三个月，布伦特原油价格每上涨10%，该地区10年期国债平均收益率可能上升16个基点。
+星巴克周四表示，午后客流正成为公司新的核心增长动力，这也是首席执行官布莱恩・尼科尔主导的转型战略取得阶段性进展的体现。
 
-而在冲突爆发后的前两个月，油价每上涨10%，该收益率平均上涨14个基点。
+星巴克 CNBC 独家分享了近 90 天（2 月 15 日至 5 月 16 日）的美国市场数据：门店下午 2 点后的到店客群明显增多，下午 3 点至 5 点为客流增长最强时段。
 
-随着美伊和平协议陷入僵局，霍尔木兹海峡长期处于封锁状态，原油价格飙升带来的财政压力不断加剧，交易员正准备重新调整投资组合。
+星巴克一直试图摆脱过度依赖早高峰客流的现状，这一数据释放出积极信号。
 
-“市场似乎并未充分消化持久的中东冲突可能带来的基本面恶化风险，”RBC Bluebay Asset Management的高级投资组合经理Anthony Kettle表示。
+尼科尔正带领品牌重回稳定增长轨道，公司现阶段目标是提升全天复购率、延长顾客到店停留时长。
 
-除了能源领域，他还警告石化产品和化肥供应中断可能会拖累经济增长，并引发滞胀。
+星巴克全球营销及渠道发展高级副总裁艾琳・西尔沃伊表示：“越来越多消费者选择在午后进店，或是短暂休憩、饮用清爽饮品，或是在店内稍作停留。
 
 ## 相关推荐
 
-- 2026-06-30 01:50 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 01:47 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 01:44 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-30 01:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-30 01:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 01:38 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 01:37 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 02:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 01:40 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 02:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 01:43 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 02:09 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 02:11 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 01:43 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 02:09 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 02:01 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 02:08 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 01:47 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 01:45 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 01:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 02:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 01:49 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/89838539.shtml)
-- 2026-06-30 01:49 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/11084558.shtml)
-- 2026-06-30 02:03 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/76810.shtml)
-- 2026-06-30 02:01 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/50967.shtml)
-- 2026-06-30 01:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/094789140268.shtml)
-- 2026-06-30 02:01 - [周生如故](http://www.blog.kurohicncr.top/Article/details/40695.shtml)
-- 2026-06-30 01:53 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/4713494990.shtml)
-- 2026-06-30 01:48 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/8885696.shtml)
-- 2026-06-30 01:43 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/54617064600.shtml)
-- 2026-06-30 01:47 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/35027.shtml)
-- 2026-06-30 01:58 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/032907.shtml)
-- 2026-06-30 01:52 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/457682947.shtml)
-- 2026-06-30 02:04 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/9233078.shtml)
-- 2026-06-30 01:38 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/34379584339.shtml)
-- 2026-06-30 01:38 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/3851582299.shtml)
+- 2026-06-30 01:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/05224622601.shtml)
+- 2026-06-30 01:46 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/518392800159.shtml)
+- 2026-06-30 02:00 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/9002573643.shtml)
+- 2026-06-30 01:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/5723487822.shtml)
+- 2026-06-30 01:52 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/331472184.shtml)
+- 2026-06-30 01:59 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/450746264.shtml)
+- 2026-06-30 01:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/4245832.shtml)
+- 2026-06-30 01:45 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/51614.shtml)
+- 2026-06-30 02:11 - [日本进球](https://www.share.minike.top/Article/details/90760.shtml)
+- 2026-06-30 02:02 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/61245.shtml)
+- 2026-06-30 01:52 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/9816068.shtml)
+- 2026-06-30 02:02 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/323339532.shtml)
+- 2026-06-30 02:07 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/961332394176.shtml)
+- 2026-06-30 02:00 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/51366.shtml)
+- 2026-06-30 02:01 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/627657329592.shtml)

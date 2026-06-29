@@ -1,49 +1,60 @@
-# 英矽智能公布认购理财产品
+# 煤价反弹推高火电成本？厄尔尼诺加持下，电力板块连续走强，华宝基金电力ETF（159146）再创新高！
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-英矽智能（03696）发布公告，于2026年4月29日，公司及英硅智能香港（公司的全资附属公司）下达订单认购以下理财产品： （i） 公司下达订单认购由招银国际资产管理有限公司管理的招银国际美元货币市场基金，认购本金额为5000万美元； （ii） 英硅智能香港下达订单认购由JPMorgan Asset Management （Europe） S.a.r.l 管理的美元标准货币市场
+招商证券认为，今年厄尔尼诺发生概率偏高，气候整体偏热，有望支撑用电需求增长。一季度北方火电因煤价下行及电价韧性强劲业绩亮眼，但二季度起煤价反弹推高了火电成本，不过高煤价预计将支撑明年电价谈判，利好水电和核电板块，同时鉴于雅砻江流域来水偏枯，该流域电量修复弹性较大。 5月29日盘中，电力再掀涨停潮，粤电力A、晋控电力、江苏国信等6股涨停，“风光水火核”全能源布局的电力ETF华宝（
 
 ## 正文
 
-英矽智能（03696）发布公告，于2026年4月29日，公司及英硅智能香港（公司的全资附属公司）下达订单认购以下理财产品： （i） 公司下达订单认购由招银国际资产管理有限公司管理的招银国际美元货币市场基金，认购本金额为5000万美元； （ii） 英硅智能香港下达订单认购由JPMorgan Asset Management （Europe） S.a.r.l 管理的美元标准货币市场VNAV基金，认购本金额为5000万美元；及 （iii） 英硅智能香港下达订单认购由JPMorgan Chase Bank， N.A．， Hong Kong Branch发行的美元╱离岸人民币双币存款，认购本金额为500万美元。
+招商证券认为，今年厄尔尼诺发生概率偏高，气候整体偏热，有望支撑用电需求增长。
 
-于认购理财产品前，英硅智能香港已于2026年4月14日下达订单认购上述由 JPMorgan Asset Management （Europe） S.a.r.l管理的美元标准货币市场VNAV基金，认购本金额为200万美元，而其于紧接认购理财产品前的尚未赎回结余为200万美元。
+一季度北方火电因煤价下行及电价韧性强劲业绩亮眼，但二季度起煤价反弹推高了火电成本，不过高煤价预计将支撑明年电价谈判，利好水电和核电板块，同时鉴于雅砻江流域来水偏枯，该流域电量修复弹性较大。
 
-责任编辑：卢昱君
+5月29日盘中，电力再掀涨停潮，粤电力A、晋控电力、江苏国信等6股涨停，“风光水火核”全能源布局的电力ETF华宝（159146）场内午后拉升近4%继续创上市新高！
+
+热点追踪 电力行业在一季度展现出强劲的业绩韧性，主要得益于“量增价稳”与成本端的双重利好。
+
+首先，厄尔尼诺现象概率偏高导致气温升高，有效支撑了全社会用电需求的增长。
+
+其次，煤炭价格在同环比上均出现下降，使得火电企业的燃料成本大幅降低，部分火电公司在2026年第一季度实现了归母净利同比提升。
+
+尽管当前市场关注点在于火电企业面临的电价与煤价剪刀差变化，但一季度的低成本优势已为全年业绩奠定了良好基础。
+
+展望第二季度，火电企业将面临新的成本压力。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 02:03 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 01:44 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-30 01:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 02:00 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 02:02 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 02:00 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-30 01:43 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 01:58 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 02:01 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 01:53 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:39 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 01:54 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 02:09 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 01:47 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 02:00 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-30 02:10 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 02:02 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 02:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 02:03 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 01:57 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 01:52 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 01:47 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-30 02:10 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 02:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 01:49 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 01:59 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/04974556079.shtml)
-- 2026-06-30 01:50 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/30120811988.shtml)
-- 2026-06-30 02:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/04763044074.shtml)
-- 2026-06-30 01:55 - [斗破苍穹](http://www.blog.minike.top/Article/details/39659.shtml)
-- 2026-06-30 01:54 - [周生如故](http://www.share.kurohicncr.top/Article/details/292104.shtml)
-- 2026-06-30 01:56 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/822389710736.shtml)
-- 2026-06-30 01:42 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/94455818807.shtml)
-- 2026-06-30 02:00 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/3679185.shtml)
-- 2026-06-30 02:04 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/92073260.shtml)
-- 2026-06-30 01:43 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/692160646864.shtml)
-- 2026-06-30 01:47 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/387417810083.shtml)
-- 2026-06-30 01:52 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/1191657.shtml)
-- 2026-06-30 01:59 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/73938458.shtml)
-- 2026-06-30 01:40 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/7722449.shtml)
-- 2026-06-30 01:42 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/899740422.shtml)
+- 2026-06-30 02:10 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/955978.shtml)
+- 2026-06-30 02:08 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/83624211.shtml)
+- 2026-06-30 02:09 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/129638.shtml)
+- 2026-06-30 01:46 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/385168.shtml)
+- 2026-06-30 01:59 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/74787.shtml)
+- 2026-06-30 02:08 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/032696.shtml)
+- 2026-06-30 02:04 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/5252966.shtml)
+- 2026-06-30 01:59 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/03585970599.shtml)
+- 2026-06-30 01:46 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/782596523.shtml)
+- 2026-06-30 01:44 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/70974433465.shtml)
+- 2026-06-30 01:54 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/81784.shtml)
+- 2026-06-30 01:47 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/516029730.shtml)
+- 2026-06-30 01:49 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/512415284533.shtml)
+- 2026-06-30 02:10 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/829234350642.shtml)
+- 2026-06-30 01:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/987153006.shtml)

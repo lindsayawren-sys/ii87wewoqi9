@@ -1,58 +1,58 @@
-# 欧洲债市：欧债下跌 市场预期英国央行将加息三次
+# 唱词引用《诗经》篇章 河北梆子大型新编历史剧《胡服骑射》将亮相石家庄
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-欧洲债券收益率上升，其中短端收益率升幅居前，因油价上涨，接近伊朗战争以来的最高水平。 在周四英国央行和欧洲央行4月利率决议前，市场定价显示，交易员预计两大央行2026年会有更多加息。 互换合约一个月来首次显示，市场预计英国央行到年底将加息三次、每次25个基点；欧洲央行加息三次的可能性也达到100%。 2年期国债收益率方面，英国上升9个基点，意大利上升8个基点，德国上升7个基点。
+中新网石家庄5月28日电 (邢璐 苗孛)由河北省河北梆子剧院创排，聚焦战国时期赵武灵王推行“胡服骑射”军事与文化改革壮阔历程的大型新编历史剧《胡服骑射》，将于5月29日晚在石家庄亮相。 据河北梆子剧院院长赵涛介绍，《胡服骑射》最初名为《赵武灵王》，于今年1月底在石家庄首演。演出后不少观众在社交媒体平台分享观剧感受，称赞其“文武戏俱佳”、“有血性，有温度”，并期盼该剧能持续打磨，
 
 ## 正文
 
-欧洲债券收益率上升，其中短端收益率升幅居前，因油价上涨，接近伊朗战争以来的最高水平。
+中新网石家庄5月28日电 (邢璐 苗孛)由河北省河北梆子剧院创排，聚焦战国时期赵武灵王推行“胡服骑射”军事与文化改革壮阔历程的大型新编历史剧《胡服骑射》，将于5月29日晚在石家庄亮相。
 
-在周四英国央行和欧洲央行4月利率决议前，市场定价显示，交易员预计两大央行2026年会有更多加息。
+据河北梆子剧院院长赵涛介绍，《胡服骑射》最初名为《赵武灵王》，于今年1月底在石家庄首演。
 
-互换合约一个月来首次显示，市场预计英国央行到年底将加息三次、每次25个基点；欧洲央行加息三次的可能性也达到100%。
+演出后不少观众在社交媒体平台分享观剧感受，称赞其“文武戏俱佳”、“有血性，有温度”，并期盼该剧能持续打磨，开展巡演。
 
-2年期国债收益率方面，英国上升9个基点，意大利上升8个基点，德国上升7个基点。
+此后，主创团队结合专家和观众意见，认为赵武灵王故事的核心正是通过胡服骑射革故鼎新、富国强兵。
 
-基准布伦特原油一度上涨6%，突破每桶118美元。
+为了更贴近故事本身，最终将剧名调整为《胡服骑射》。
 
-随着美国和伊朗在波斯湾的封锁持续限制石油和天然气运输，市场正在消化更长期的供应冲击。
+该剧导演翟建蕊表示，主创团队在尊重史实基础上，着力挖掘赵武灵王改革精神与时代价值，并在艺术呈现上进行多重探索。
 
-市场： 德国10年期国债收益率上涨3个基点，报3.09%； 德国国债期货下跌37.00个点，报124.77%； 意大利10年期国债收益率上涨5个基点，报3.93%； 意大利与德国国债利差扩大2个基点，报84个基点； 法国10年期国债收益率上涨3个基点，报3.76%； 10年期英国国债收益率上涨5个基点，报5.05%。
+“比如道白采用半文言文，唱词引用《诗经》篇章，提升文学性。
 
-责任编辑：丁文武
+”翟建蕊说，剧中孟姚登场时所唱“泄泄其羽雄雉飞”，化自《诗经·邶风·雄雉》中的“雄雉于飞，泄泄其羽”；“上下齐音向云追”则取自同篇的“雄雉于飞，上下其音”。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 02:01 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 02:02 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 01:58 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 01:51 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 01:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 01:50 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 02:03 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 01:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 01:47 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 01:57 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-30 01:46 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 01:53 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 02:11 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 01:59 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 01:54 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 01:59 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 02:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 01:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 02:03 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 01:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 02:02 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 01:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 02:09 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/31254.shtml)
-- 2026-06-30 01:44 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/31715.shtml)
-- 2026-06-30 01:57 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/680398.shtml)
-- 2026-06-30 02:00 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/98944057404.shtml)
-- 2026-06-30 01:49 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/8102508969.shtml)
-- 2026-06-30 01:47 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/8780838596.shtml)
-- 2026-06-30 01:49 - [美股](https://www.share.minike.top/Article/details/2115241.shtml)
-- 2026-06-30 02:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/1586823.shtml)
-- 2026-06-30 01:57 - [TOP Prada](https://www.share.minike.top/Article/details/42018451513.shtml)
-- 2026-06-30 01:42 - [周生如故](https://www.blog.minike.top/Article/details/393473350.shtml)
-- 2026-06-30 01:55 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/0109276.shtml)
-- 2026-06-30 02:04 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/59771851.shtml)
-- 2026-06-30 01:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/685279954.shtml)
-- 2026-06-30 02:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/036810.shtml)
-- 2026-06-30 01:47 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/70182496.shtml)
+- 2026-06-30 01:44 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/93995779.shtml)
+- 2026-06-30 01:42 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/5827471718.shtml)
+- 2026-06-30 01:53 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/56199.shtml)
+- 2026-06-30 01:46 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/3294605666.shtml)
+- 2026-06-30 01:56 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/32289759396.shtml)
+- 2026-06-30 02:02 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/78847253.shtml)
+- 2026-06-30 01:45 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/1337039.shtml)
+- 2026-06-30 01:44 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/0609053627.shtml)
+- 2026-06-30 02:05 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/73977713.shtml)
+- 2026-06-30 02:08 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/76666.shtml)
+- 2026-06-30 02:07 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/4841890506.shtml)
+- 2026-06-30 02:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/216713717661.shtml)
+- 2026-06-30 02:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/83679.shtml)
+- 2026-06-30 02:11 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/6626280126.shtml)
+- 2026-06-30 01:58 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/265881.shtml)

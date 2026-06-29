@@ -1,56 +1,58 @@
-# 操盘必读：影响股市利好或利空消息_2026年4月30日_财经新闻
+# 东岳集团午后涨超13% 本年内股价累计涨幅已近60%
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、第九届数字中国建设峰会29日在福州开幕，中共中央政治局常委、国务院副总理丁薛祥出席开幕式并发表主旨讲话。丁薛祥表示，要多路线布局前沿技术探索，全链条推进关键核心技术攻关，不断巩固人工智能发展领先地位。 2、外交部发言人林剑昨日主持例行记者会。记者提问，有报道称，美国上周已要求多家芯片设备公司
+东岳集团（00189）盘中涨超19%，高见18.10港元，本年内股价累计涨幅已近60%。截至发稿，股价上涨13.65%，现报17.23港元，成交额17.70亿港元。 开源证券指出，欧美此前过于严苛和激进的HFCs削减计划、HFO替代品推进不及预期、国际货源以及本土库存紧张，叠加旺季需求到来，引发了本次海外制冷剂价格大幅调涨，并促使其放宽HFCs的合规期限，事实上延长了HFCs的
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 影响股市利好与利空消息 宏观新闻 1、第九届数字中国建设峰会29日在福州开幕，中共中央政治局常委、国务院副总理丁薛祥出席开幕式并发表主旨讲话。
+东岳集团（00189）盘中涨超19%，高见18.10港元，本年内股价累计涨幅已近60%。
 
-丁薛祥表示，要多路线布局前沿技术探索，全链条推进关键核心技术攻关，不断巩固人工智能发展领先地位。
+截至发稿，股价上涨13.65%，现报17.23港元，成交额17.70亿港元。
 
-2、外交部发言人林剑昨日主持例行记者会。
+开源证券指出，欧美此前过于严苛和激进的HFCs削减计划、HFO替代品推进不及预期、国际货源以及本土库存紧张，叠加旺季需求到来，引发了本次海外制冷剂价格大幅调涨，并促使其放宽HFCs的合规期限，事实上延长了HFCs的生命周期。
 
-记者提问，有报道称，美国上周已要求多家芯片设备公司停止向中国第二大芯片制造商华虹半导体发货。
+我们认为本质就是欧美高GWP的HFCs制冷剂出现供给短缺，需要从政策上放宽要求以保障国内需求。
 
-林剑强调，中方已多次表明了在美输华芯片问题上的原则立场，希望美方以实际行动维护全球产供链的稳定畅通。
+直接证明了HFCs制冷剂的需求旺盛，难以被快速替代。
 
-3、近日，国务院决定，任命刘浩凌为中国证券监督管理委员会副主席。
+需求坚挺、库存不足、价格上涨，全球制冷剂补库行情或在酝酿。
 
-中央组织部通知，刘浩凌同志任中国证券监督管理委员会党委委员。
-
-4、外汇局发布的数据显示，2026年3月，我国国际收支货物和服务贸易进出口规模49876亿元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 01:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 02:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 02:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 02:02 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 02:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 01:59 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 02:00 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-30 02:06 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 01:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 01:42 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 02:03 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-30 02:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 01:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 01:52 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 02:10 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 02:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-30 02:11 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 02:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 01:46 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 02:03 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 01:51 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 01:47 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-30 02:11 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/13991.shtml)
-- 2026-06-30 01:47 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/16889.shtml)
-- 2026-06-30 01:55 - [小娘惹](http://www.share.kurohicncr.top/Article/details/10629203.shtml)
-- 2026-06-30 02:03 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/2093931.shtml)
-- 2026-06-30 01:44 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/067587054.shtml)
-- 2026-06-30 01:47 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/586106.shtml)
-- 2026-06-30 01:37 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/38893637.shtml)
-- 2026-06-30 01:39 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/199608.shtml)
-- 2026-06-30 01:37 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/8541544466.shtml)
-- 2026-06-30 01:54 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/8403697457.shtml)
-- 2026-06-30 01:57 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/40570631.shtml)
-- 2026-06-30 01:57 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/71126319.shtml)
-- 2026-06-30 01:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/64582.shtml)
-- 2026-06-30 02:00 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/0069934.shtml)
-- 2026-06-30 01:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/0009163610.shtml)
+- 2026-06-30 01:53 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/3008924.shtml)
+- 2026-06-30 01:57 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/31951542.shtml)
+- 2026-06-30 02:10 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/7730534.shtml)
+- 2026-06-30 01:55 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/73442.shtml)
+- 2026-06-30 01:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/0177645320.shtml)
+- 2026-06-30 02:07 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/84840801.shtml)
+- 2026-06-30 01:56 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/72305711.shtml)
+- 2026-06-30 02:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/1843154623.shtml)
+- 2026-06-30 02:11 - [金牌调解](https://www.share.kurohicncr.top/Article/details/824187644356.shtml)
+- 2026-06-30 02:11 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/92558719648.shtml)
+- 2026-06-30 01:45 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/41917.shtml)
+- 2026-06-30 01:57 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/289468841.shtml)
+- 2026-06-30 02:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/5631293392.shtml)
+- 2026-06-30 01:59 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/27270262.shtml)
+- 2026-06-30 01:59 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/309148.shtml)

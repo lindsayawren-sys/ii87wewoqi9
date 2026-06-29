@@ -1,61 +1,58 @@
-# 通用汽车将获5亿美元关税退款，盈利表现超出华尔街预期
+# 深圳市工商联办跨境金融服务生态交流会 赋能企业出海
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-受益于电动汽车业务收缩带来的成本下降，以及美国最高法院驳回特朗普政府紧急关税政策后、预计到账的5亿美元关税退款，通用汽车一季度盈利大幅超出华尔街市场预期。 这家美国最大汽车制造商的营收同比降幅不足1%，表明伊朗冲突与美国汽油价格走高，目前对汽车销量的影响较为有限。通用汽车电动车销量下滑，燃油车销量则与去年基本持平。 旗下雪佛兰索罗德全尺寸皮卡销量上涨8%；同时，企业、政府等集团
+中新网深圳5月28日电(记者 索有为)由深圳市人民政府主办的第二十届深圳国际金融博览会(简称“金博会”)正在深圳会展中心(福田)举办，深圳市工商联依托金博会平台，于27日主办“智融全球·惠企同行”跨境金融服务生态交流会。 此次交流会紧扣亚太经济合作组织(APEC)主题，联动职能部门、银行机构、专业机构、商协会、代表性企业打造跨境金融服务平台，对接出海金融服务等资源。 中共深圳市
 
 ## 正文
 
-受益于电动汽车业务收缩带来的成本下降，以及美国最高法院驳回特朗普政府紧急关税政策后、预计到账的5亿美元关税退款，通用汽车一季度盈利大幅超出华尔街市场预期。
+中新网深圳5月28日电(记者 索有为)由深圳市人民政府主办的第二十届深圳国际金融博览会(简称“金博会”)正在深圳会展中心(福田)举办，深圳市工商联依托金博会平台，于27日主办“智融全球·惠企同行”跨境金融服务生态交流会。
 
-这家美国最大汽车制造商的营收同比降幅不足1%，表明伊朗冲突与美国汽油价格走高，目前对汽车销量的影响较为有限。
+此次交流会紧扣亚太经济合作组织(APEC)主题，联动职能部门、银行机构、专业机构、商协会、代表性企业打造跨境金融服务平台，对接出海金融服务等资源。
 
-通用汽车电动车销量下滑，燃油车销量则与去年基本持平。
+中共深圳市委常委、统战部部长王强，中共深圳市委统战部副部长、深圳市工商联党组书记刘俊琳，国家金融监督管理总局深圳监管局党委委员、副局长潘文波，深圳市工商联党组成员、专职副主席周建军等出席交流会。
 
-旗下雪佛兰索罗德全尺寸皮卡销量上涨8%；同时，企业、政府等集团客户采购量创下2020年以来新高。
+王强在致辞中表示，交流会是落实全省高质量发展大会关于制造业与服务业协同发展部署要求的具体行动，也是抢抓2026年APEC会议在深举办重大机遇、助力民营企业全球化布局的务实举措。
 
-首席执行官在致股东的季度信函中表示：“我们核心业务的发展势头稳健。
+希望金融机构以助力“两个毫不动摇”领航跨境金融新实践，以精准多元金融服务赋能民企出海新动能，以一流生态打造跨境服务新格局。
 
-” 据金融数据机构范达统计，通用汽车本季度调整后利润达42亿美元，远高于市场预期的30亿美元。
+中国工商银行现代金融研究院副院长、工银国际首席经济学家程实作题为《跨境金融赋能粤港澳大湾区发展：机遇、挑战与金融支持》演讲，以具体案例阐释如何通过“融资+融智”组合服务，助力企业把握区域全面经济伙伴关系协定(RCEP)与APEC双轮驱动下的区域合作红利。
 
-亮眼业绩主要得益于5亿美元关税退款，以及车企将10亿美元电动汽车业务战略调整相关支出列为特殊项目予以剔除。
+活动创新采用“银行推介+企业案例”形式，分别围绕政策性金融、跨境结算、普惠金融、科技金融等四大主题展开实战分享。
 
-通用汽车目前预计，2026年关税总成本将介于25亿至35亿美元，较此前30亿至40亿美元的初始预估有所下调。
+中国进出口银行深圳分行围绕政策性金融的稳支撑作用重点推介境外投资贷款、跨境基建融资等产品，南玻集团分享了借助进出口银行政策性金融导向成功实现中东本地化生产、规避贸易壁垒的实战经验。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 01:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 01:42 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 01:39 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 01:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 01:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 01:41 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-30 01:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-30 02:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 01:40 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 02:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 01:40 - [巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 01:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-30 01:48 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 02:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 01:59 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 01:51 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 02:10 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 02:00 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 01:51 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 02:10 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 01:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 02:01 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 02:06 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 02:08 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 01:56 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/48835917.shtml)
-- 2026-06-30 01:42 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/400141272600.shtml)
-- 2026-06-30 01:51 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/542926.shtml)
-- 2026-06-30 01:58 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/38533.shtml)
-- 2026-06-30 01:53 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/328093699.shtml)
-- 2026-06-30 01:45 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/668095902592.shtml)
-- 2026-06-30 02:04 - [刘念回应](http://www.share.kurohicncr.top/Article/details/58932877232.shtml)
-- 2026-06-30 01:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/073324069.shtml)
-- 2026-06-30 01:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/09119778051.shtml)
-- 2026-06-30 01:50 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/726723494.shtml)
-- 2026-06-30 02:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/967451630.shtml)
-- 2026-06-30 01:45 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/896710933.shtml)
-- 2026-06-30 01:45 - [极限挑战第一季](http://www.share.minike.top/Article/details/486937.shtml)
-- 2026-06-30 01:38 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/4054116.shtml)
-- 2026-06-30 01:37 - [85花告别古偶](https://www.blog.minike.top/Article/details/822798355883.shtml)
+- 2026-06-30 01:45 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/4530100.shtml)
+- 2026-06-30 02:06 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/240715320.shtml)
+- 2026-06-30 01:53 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/785409.shtml)
+- 2026-06-30 02:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/86688322.shtml)
+- 2026-06-30 02:02 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/50058834826.shtml)
+- 2026-06-30 01:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/62721273.shtml)
+- 2026-06-30 01:49 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/8273617.shtml)
+- 2026-06-30 01:50 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/169514.shtml)
+- 2026-06-30 01:46 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/13223.shtml)
+- 2026-06-30 02:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/316306125907.shtml)
+- 2026-06-30 02:06 - [田曦薇没招了](http://www.blog.minike.top/Article/details/00872513.shtml)
+- 2026-06-30 01:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/6135108860.shtml)
+- 2026-06-30 01:54 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/1308186.shtml)
+- 2026-06-30 01:53 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/035073711084.shtml)
+- 2026-06-30 01:45 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/1639316735.shtml)

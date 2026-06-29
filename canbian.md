@@ -1,47 +1,60 @@
-# 东方盛虹：2025年净利润1.34亿元 同比扭亏
+# 600396，年内大涨超602%！多股涨幅翻倍，电力股集体异动
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周，A股震荡调整，前期热门的科技股出现一定回落，北证50周跌幅超过6%，连续3周收阴，科创综指则终结了此前连续7周的上涨，跌逾3%，上证指数、深证成指等周线也小幅下挫，周成交放大至逾16万亿元。 虽然市场出现调整，但杠杆资金交易热情依然高涨，全周融资净买入逾423亿元，连续第8周加仓，融资余额历史首次突破
 
 ## 正文
 
-人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑战，原油价格呈宽幅震荡、中枢下移趋势，叠加部分下游行业需求阶段性承压，公司营业收入增长受到一定影响。
+本周，A股震荡调整，前期热门的科技股出现一定回落，北证50周跌幅超过6%，连续3周收阴，科创综指则终结了此前连续7周的上涨，跌逾3%，上证指数、深证成指等周线也小幅下挫，周成交放大至逾16万亿元。
 
-责任编辑：刘万里 SF014
+虽然市场出现调整，但杠杆资金交易热情依然高涨，全周融资净买入逾423亿元，连续第8周加仓，融资余额历史首次突破2.9万亿元。
+
+申万电子行业获得逾359亿元融资净买入，超过其他行业净买入总和，通信获得逾34亿元净买入，机械设备、电力设备均获得超20亿元净买入。
+
+计算机遭融资净卖出逾17亿元，有色金属、医药生物等也被净卖出超亿元。
+
+另据Wind数据统计，公用事业本周获得逾325亿元主力资金净流入，通信获得逾206亿元净流入，电子、电力设备均获得超百亿元净流入，商贸零售获得逾55亿元净流入，食品饮料获得逾45亿元净流入，医药生物获得逾33亿元净流入。
+
+计算机遭主力资金净流出逾167亿元，汽车净流出逾67亿元，国防军工、家用电器均净流出超50亿元。
+
+概念板块方面，华为概念本周获得逾345亿元主力资金净流入，火电、消费电子、光通信三板块均获得超200亿元净流入，CPO概念、AI手机、新质生产力等板块也获得超百亿元净流入。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 01:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 02:04 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 01:59 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 01:40 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 01:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 01:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 01:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 01:56 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 02:02 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 01:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 02:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 01:42 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 01:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 01:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 02:00 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 01:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 02:04 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 02:05 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 01:53 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 01:48 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 01:56 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 01:43 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 02:09 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 01:54 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [月亮](https://www.blog.kurohicncr.top/Article/details/4469251.shtml)
-- 2026-06-30 01:46 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/2265892.shtml)
-- 2026-06-30 01:43 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/132328.shtml)
-- 2026-06-30 02:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/82449.shtml)
-- 2026-06-30 02:03 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/88666516.shtml)
-- 2026-06-30 01:39 - [爱很美味](https://www.share.minike.top/Article/details/11716.shtml)
-- 2026-06-30 02:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/7130226.shtml)
-- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/29211409.shtml)
-- 2026-06-30 01:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/596019.shtml)
-- 2026-06-30 01:41 - [青春环游记第三季](https://www.share.minike.top/Article/details/148462658366.shtml)
-- 2026-06-30 01:49 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/37448.shtml)
-- 2026-06-30 01:40 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/130603566.shtml)
-- 2026-06-30 01:45 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/689736.shtml)
-- 2026-06-30 01:48 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/23379.shtml)
-- 2026-06-30 01:47 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/466275721.shtml)
+- 2026-06-30 01:50 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/99578743.shtml)
+- 2026-06-30 01:50 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/851619.shtml)
+- 2026-06-30 01:49 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/108581885410.shtml)
+- 2026-06-30 01:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/009478651.shtml)
+- 2026-06-30 01:45 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/8694339.shtml)
+- 2026-06-30 01:51 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/9416380.shtml)
+- 2026-06-30 02:04 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/37869285385.shtml)
+- 2026-06-30 01:49 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/50711811731.shtml)
+- 2026-06-30 01:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/91064.shtml)
+- 2026-06-30 01:42 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/28013062102.shtml)
+- 2026-06-30 01:58 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/5381198.shtml)
+- 2026-06-30 02:08 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/5719564002.shtml)
+- 2026-06-30 01:47 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/8219727935.shtml)
+- 2026-06-30 01:49 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/97960374.shtml)
+- 2026-06-30 01:55 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/555434332409.shtml)

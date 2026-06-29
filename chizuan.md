@@ -1,53 +1,60 @@
-# “债市一姐”告别华西证券，拟转任兴业证券固收首席
+# 戴尔股价大涨，受数据中心营收及美国国防部订单提振
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。（中国证券报）责任编辑：杨赐
+这家计算机硬件厂商公布数据中心人工智能服务器业务营收大幅暴涨，同时一份价值97亿美元的美军新订单细节曝光。受此影响，戴尔股价在周四盘后交易中飙升约40%，周五开盘涨幅接近34%。 戴尔发布一季度财报，当期营收达438亿美元，同比大增88%。其中，人工智能优化服务器营收为161亿美元，占总营收比重超三分之一，该项收入同比暴涨757%。戴尔在今年2月曾预估全年人工智能业务营收为50
 
 ## 正文
 
-4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。
+这家计算机硬件厂商公布数据中心人工智能服务器业务营收大幅暴涨，同时一份价值97亿美元的美军新订单细节曝光。
 
-这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。
+受此影响，戴尔股价在周四盘后交易中飙升约40%，周五开盘涨幅接近34%。
 
-记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。
+戴尔发布一季度财报，当期营收达438亿美元，同比大增88%。
 
-（中国证券报）责任编辑：杨赐
+其中，人工智能优化服务器营收为161亿美元，占总营收比重超三分之一，该项收入同比暴涨757%。
+
+戴尔在今年2月曾预估全年人工智能业务营收为500亿美元，如今已上调预期至600亿美元，同比增幅达144%。
+
+戴尔股价周四日内交易时段上涨约4%，收盘后再度大幅拉升。
+
+美国国防部表示，这份为期五年的合同于周三官宣，戴尔将获得一揽子采购协议，为国防部、美国海岸警卫队及情报机构统一提供微软软件与相关服务。
+
+该订单是美军重构软件及云端通信协作体系、在全军范围内推广人工智能工具的举措之一。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 01:55 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 01:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 01:43 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 01:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-30 01:57 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 01:47 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 01:39 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 01:57 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 01:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 01:53 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 01:56 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 01:56 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 01:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 01:59 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 01:47 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 02:11 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 01:47 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 02:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 01:52 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 02:01 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 01:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-30 01:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 02:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 01:55 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 01:45 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 02:00 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 02:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 02:09 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/2845736525.shtml)
-- 2026-06-30 01:36 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/416415339.shtml)
-- 2026-06-30 01:36 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/81654.shtml)
-- 2026-06-30 02:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/47412628.shtml)
-- 2026-06-30 01:39 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/92992573408.shtml)
-- 2026-06-30 01:42 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/5026843.shtml)
-- 2026-06-30 02:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/7529297.shtml)
-- 2026-06-30 01:56 - [美股](https://www.share.kurohicncr.top/Article/details/844203065.shtml)
-- 2026-06-30 01:57 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/732477684593.shtml)
-- 2026-06-30 01:55 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/7298758.shtml)
-- 2026-06-30 01:40 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/7278176.shtml)
-- 2026-06-30 02:04 - [急先锋](http://www.blog.kurohicncr.top/Article/details/282440.shtml)
-- 2026-06-30 01:43 - [天道](http://www.share.minike.top/Article/details/336595205828.shtml)
-- 2026-06-30 01:49 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/738993899.shtml)
-- 2026-06-30 01:37 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/84420.shtml)
+- 2026-06-30 01:53 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/41963681637.shtml)
+- 2026-06-30 02:05 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/192033.shtml)
+- 2026-06-30 01:56 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/81237891.shtml)
+- 2026-06-30 02:11 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/591891792.shtml)
+- 2026-06-30 01:59 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/87703800881.shtml)
+- 2026-06-30 02:02 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/561363661.shtml)
+- 2026-06-30 01:52 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/29129048887.shtml)
+- 2026-06-30 02:05 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/978739.shtml)
+- 2026-06-30 02:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/643478946.shtml)
+- 2026-06-30 01:49 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/308612941218.shtml)
+- 2026-06-30 02:08 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/5014347.shtml)
+- 2026-06-30 01:47 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/71267616366.shtml)
+- 2026-06-30 01:47 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/11320311298.shtml)
+- 2026-06-30 01:52 - [一生一世](http://www.blog.kurohicncr.top/Article/details/104731293826.shtml)
+- 2026-06-30 01:57 - [金刚川](https://www.share.minike.top/Article/details/3943441755.shtml)

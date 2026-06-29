@@ -1,59 +1,50 @@
-# 北京银行高管层回应去年归母净利下降：主动增提拨备51.47亿元，蓄力是为了更好前行
+# 《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案》公开征求意见
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-财联社4月29日讯（记者 彭科峰）今日下午，北京银行2025年度暨2026年一季度业绩发布会在京举行，北京银行行长戴炜、副行长毛文利、郭轶锋、徐毛毛等多位高管出席发布会，就拨备计提、信贷增长空间、科技金融等话题和财联社记者在内的诸多媒体代表、机构分析师进行了深入交流。 拨备计提是为了更好前行，今年一季度开局良好 北京银行2025年报显示，截至2025年末，全行资产总额4.94万
+为深入贯彻落实党中央、国务院关于增强社会保障制度统一性和规范性的要求，持续完善医疗服务项目医保支付管理，国家医保局拟建立国家基本医疗保险医疗服务项目目录。为此，我们研究起草了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案（征求意见稿）》，现向社会公开征求意见。公众可于2026年6月3日（星期三）17：00前提出意见和建议，以书面或电子邮件的形式向我们反馈。 电子邮箱：
 
 ## 正文
 
-财联社4月29日讯（记者 彭科峰）今日下午，北京银行2025年度暨2026年一季度业绩发布会在京举行，北京银行行长戴炜、副行长毛文利、郭轶锋、徐毛毛等多位高管出席发布会，就拨备计提、信贷增长空间、科技金融等话题和财联社记者在内的诸多媒体代表、机构分析师进行了深入交流。
+为深入贯彻落实党中央、国务院关于增强社会保障制度统一性和规范性的要求，持续完善医疗服务项目医保支付管理，国家医保局拟建立国家基本医疗保险医疗服务项目目录。
 
-拨备计提是为了更好前行，今年一季度开局良好 北京银行2025年报显示，截至2025年末，全行资产总额4.94万亿元，较年初增长17.04%。
+为此，我们研究起草了《国家基本医疗保险医疗服务项目目录（第一批）制定工作方案（征求意见稿）》，现向社会公开征求意见。
 
-其中，全年发放贷款及垫款本金总额2.40万亿元，较年初增长8.59%；实现营业收入680.36亿元，归母净利润200.86亿元；利息净收入528.75亿元，同比增长1.86%；不良贷款率1.29%，较年初下降0.02个百分点。
+公众可于2026年6月3日（星期三）17：00前提出意见和建议，以书面或电子邮件的形式向我们反馈。
 
-财联社记者注意到，在诸多指标中，北京银行去年的归母净利润相比上一年有所下降。
-
-对此，在本次发布会上，北京银行行长戴炜表示，这主要有两个原因，一是基于审慎性和一致性的原则，该行对各类资产严格进行减值准备，同比增加了51.47亿元，增幅达到25.6%。
-
-二是受到市场利率震荡上行的影响，公允价值的损益变动有所下降，从而在一定程度上影响了净利润。
-
-“整体来看，北京银行的基本盘很稳固。
-
-至于减值计提问题，与其把问题放在后面，不如主动理清家底。
+电子邮箱：YBML006@nhsa.gov.cn 通讯地址：北京市西城区月坛北小街甲2号，国家医疗保障局医药服务管理司，邮编：100830 国家医疗保障局 2026年5月28日 责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 02:01 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 01:53 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-30 01:55 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 01:58 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 01:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 01:57 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 01:54 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 01:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 01:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 02:01 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 02:00 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 01:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 01:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 01:49 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 02:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 01:43 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 02:03 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 02:00 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 01:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 01:48 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 02:05 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 01:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 01:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 01:45 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/01129009.shtml)
-- 2026-06-30 01:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/3732683935.shtml)
-- 2026-06-30 01:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/91915.shtml)
-- 2026-06-30 01:37 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/996167.shtml)
-- 2026-06-30 01:53 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/8656547.shtml)
-- 2026-06-30 01:49 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/1022177228.shtml)
-- 2026-06-30 01:57 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/95558506.shtml)
-- 2026-06-30 01:48 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/811852.shtml)
-- 2026-06-30 01:50 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/314852407.shtml)
-- 2026-06-30 02:03 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/470571520343.shtml)
-- 2026-06-30 02:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/458694.shtml)
-- 2026-06-30 01:45 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/46009068.shtml)
-- 2026-06-30 01:44 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/708719.shtml)
-- 2026-06-30 01:50 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/12530.shtml)
-- 2026-06-30 01:46 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/6154775206.shtml)
+- 2026-06-30 01:53 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/86960326.shtml)
+- 2026-06-30 02:10 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/90461.shtml)
+- 2026-06-30 01:42 - [起风了](https://www.blog.minike.top/Article/details/120735193.shtml)
+- 2026-06-30 02:01 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/56784881669.shtml)
+- 2026-06-30 01:53 - [毒液2](https://www.blog.kurohicncr.top/Article/details/20699360.shtml)
+- 2026-06-30 01:56 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/242795460434.shtml)
+- 2026-06-30 02:07 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/184700444.shtml)
+- 2026-06-30 01:45 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/944369.shtml)
+- 2026-06-30 02:03 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/098996.shtml)
+- 2026-06-30 02:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/245197.shtml)
+- 2026-06-30 01:53 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/340649.shtml)
+- 2026-06-30 02:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/433460864981.shtml)
+- 2026-06-30 01:42 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/35230.shtml)
+- 2026-06-30 01:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/7231344.shtml)
+- 2026-06-30 01:48 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/049484.shtml)

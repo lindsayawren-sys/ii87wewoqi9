@@ -1,58 +1,58 @@
-# 上百人组建“寻獭小组” 记录欧亚水獭“重回”成都
+# 山东完善海外综合服务体系建设 助力企业平稳出海
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 18:16 来源：中国新闻网 近日，在成都市高新区锦江岸边，“与獭共栖”公民科学计划项目负责人胡敏与野外调查官员余欢正沿河细致排查欧亚水獭的活动痕迹。 作为全球现存14种水獭之一，欧亚水獭曾广泛分布于欧亚大陆，是淡水生态系统的顶级捕食者，曾因栖息地破坏、河流污染在成都城市河流中几近绝迹。2024年，自然爱好者报告发现成都城区有水獭活动痕迹，市民
+中新网济南5月28日电 (吕妍)记者从山东省人民政府新闻办公室5月28日召开的发布会上获悉，该省打造“山海经”出海综合服务港，不断完善海外综合服务体系建设，助力产业链合理有序跨境布局和企业平稳出海。 据山东省商务厅副厅长张庆伟介绍，该省在全国率先出台引导产业链合理有序跨境布局政策举措，对海外综合服务体系建设作出专门安排。今年4月，印发《关于进一步完善海外综合服务体系的实施意见》
 
 ## 正文
 
-发布时间：2026年04月29日 18:16 来源：中国新闻网 近日，在成都市高新区锦江岸边，“与獭共栖”公民科学计划项目负责人胡敏与野外调查官员余欢正沿河细致排查欧亚水獭的活动痕迹。
+中新网济南5月28日电 (吕妍)记者从山东省人民政府新闻办公室5月28日召开的发布会上获悉，该省打造“山海经”出海综合服务港，不断完善海外综合服务体系建设，助力产业链合理有序跨境布局和企业平稳出海。
 
-作为全球现存14种水獭之一，欧亚水獭曾广泛分布于欧亚大陆，是淡水生态系统的顶级捕食者，曾因栖息地破坏、河流污染在成都城市河流中几近绝迹。
+据山东省商务厅副厅长张庆伟介绍，该省在全国率先出台引导产业链合理有序跨境布局政策举措，对海外综合服务体系建设作出专门安排。
 
-2024年，自然爱好者报告发现成都城区有水獭活动痕迹，市民还拍到水獭的清晰影像。
+今年4月，印发《关于进一步完善海外综合服务体系的实施意见》，提出加强公共服务资源供给、提升专业服务能力、完善海外服务网络、提升出海企业能力、强化服务保障等6个方面23条具体举措，第一时间为企业“走出去”提供政策支撑。
 
-这一发现打破了“水獭存活于自然保护区”的认知。
+张庆伟表示，山东推动公共服务属性与市场化运作相结合。
 
-2025年7月，由百余名志愿者、高校教师及科研人员组成的“寻獭小组”，正式开启对成都岷江、沱江流域欧亚水獭的系统调查。
+一方面，发挥山东自贸试验区济南片区活力优势，打造“山海经”出海综合服务港，济南片区提供1500平方米实体空间和资金支持，集成接入商务、发改等9项政务服务事项、20类专业服务事项，形成“需求一键触达、快速响应反馈、境内境外联动、专人全程服务”的闭环服务模式。
 
-广大民众是搜寻欧亚水獭重要的民间触角与生态“眼睛”。
+另一方面，发挥省属重点企业深耕海外优势，市场化开展服务港管理运营。
 
-胡敏介绍，依托目击线索与公众上报信息，截至2026年3月，10个区(市、县)已有欧亚水獭的活动记录。
+自今年2月试运行以来，服务港累计对接服务省内外企业300余家，为32家企业开展精准服务。
 
-为摸清欧亚水獭活动踪迹，团队在5个重点监测区域布设11台红外相机，累计记录超过800条有效活动影像。
+张庆伟称，山东依托“山海经”出海综合服务港，打造内外联动的在地服务。
 
 ## 相关推荐
 
-- 2026-06-30 01:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 01:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 02:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 01:46 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 01:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 01:52 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 02:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-30 01:56 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 02:00 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 02:04 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 01:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 01:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 01:43 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 01:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 01:56 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 02:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 02:01 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 01:42 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-30 01:54 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 01:58 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 01:59 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 02:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 01:54 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 02:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/502604473560.shtml)
-- 2026-06-30 01:43 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/486797.shtml)
-- 2026-06-30 02:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/3413882.shtml)
-- 2026-06-30 01:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/631617514731.shtml)
-- 2026-06-30 01:47 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/43416187.shtml)
-- 2026-06-30 01:44 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/2480250952.shtml)
-- 2026-06-30 01:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/846693107.shtml)
-- 2026-06-30 02:05 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/99836776.shtml)
-- 2026-06-30 01:51 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/44674.shtml)
-- 2026-06-30 01:39 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/997034487912.shtml)
-- 2026-06-30 01:43 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/9712200.shtml)
-- 2026-06-30 01:43 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/983689.shtml)
-- 2026-06-30 01:36 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/03717378.shtml)
-- 2026-06-30 01:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/565530620.shtml)
-- 2026-06-30 01:37 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/055037381077.shtml)
+- 2026-06-30 01:57 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/1997620.shtml)
+- 2026-06-30 01:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/060721666477.shtml)
+- 2026-06-30 02:11 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/65734037627.shtml)
+- 2026-06-30 01:52 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/637414288381.shtml)
+- 2026-06-30 01:47 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/71433411368.shtml)
+- 2026-06-30 01:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/134935.shtml)
+- 2026-06-30 01:56 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/321494.shtml)
+- 2026-06-30 01:57 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/50882.shtml)
+- 2026-06-30 01:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/07844420.shtml)
+- 2026-06-30 01:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/365056833864.shtml)
+- 2026-06-30 01:50 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/505905490780.shtml)
+- 2026-06-30 01:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/4901688.shtml)
+- 2026-06-30 02:01 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/409026.shtml)
+- 2026-06-30 01:48 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/248864228.shtml)
+- 2026-06-30 02:07 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/81166752.shtml)

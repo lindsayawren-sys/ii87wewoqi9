@@ -1,60 +1,60 @@
-# 中国代表敦促恢复中东和海湾地区稳定
+# 科普传暖意 助学暖乌蒙——江苏民盟“科学进校园”活动走进贵州
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中国常驻联合国代表傅聪28日在安理会中东问题高级别公开辩论会上发言，敦促各方争取早日恢复中东和海湾地区稳定。 他说，一段时间以来，中东局势急剧升温，影响持续扩散蔓延，严重冲击地区稳定，影响世界经济和能源安全。当前局势来到战和转换的关键阶段，中方呼吁各方抓住和平窗口，保持最大克制，拿出最大诚意，坚持政治解决方向不动摇，保持停火和谈判势头不倒退，争取早日恢复中东和海湾地区稳定。 傅
+5月18日，江苏民盟“科学进校园”活动走进贵州省毕节市，在当地举办多场科普讲座，并捐赠爱心书籍给乌蒙山区学校，以实际行动推动“地域+领域”组团式帮扶毕节工作，助力毕节基础教育发展。民盟江苏省委会专职副主委冯泉，部分民盟设区市委会主委、副主委，中国科学院南京地质古生物研究所盟员王冠群、南古所贵州籍科学家胡春林等参加活动。上午，在毕节市竹园乡羊场小学，冯泉副主委向学校赠送了由民盟盟
 
 ## 正文
 
-中国常驻联合国代表傅聪28日在安理会中东问题高级别公开辩论会上发言，敦促各方争取早日恢复中东和海湾地区稳定。
+5月18日，江苏民盟“科学进校园”活动走进贵州省毕节市，在当地举办多场科普讲座，并捐赠爱心书籍给乌蒙山区学校，以实际行动推动“地域+领域”组团式帮扶毕节工作，助力毕节基础教育发展。
 
-他说，一段时间以来，中东局势急剧升温，影响持续扩散蔓延，严重冲击地区稳定，影响世界经济和能源安全。
+民盟江苏省委会专职副主委冯泉，部分民盟设区市委会主委、副主委，中国科学院南京地质古生物研究所盟员王冠群、南古所贵州籍科学家胡春林等参加活动。
 
-当前局势来到战和转换的关键阶段，中方呼吁各方抓住和平窗口，保持最大克制，拿出最大诚意，坚持政治解决方向不动摇，保持停火和谈判势头不倒退，争取早日恢复中东和海湾地区稳定。
+上午，在毕节市竹园乡羊场小学，冯泉副主委向学校赠送了由民盟盟员、朱茂炎院士亲笔签名的科普图书《澄江动物群》，院士的科学情怀与殷切寄语，为山区孩子点亮科学梦想。
 
-傅聪说，巴勒斯坦问题始终是中东问题的核心，在任何情况下都不应被边缘化。
+南京地质古生物研究所贵州籍科学家胡春林博士为80名学生带来《从埃迪卡拉到寒武纪大爆发》科普讲座，生动讲解远古生命演化知识，现场互动踊跃，课堂氛围十分热烈。
 
-中方呼吁有关各方，特别是以色列全面遵守停火协议，实现加沙全面持久停火。
+下午，科普活动继续在七星关区两所中学开展。
 
-以色列应履行国际人道法义务，取消人道准入限制，保障人道机构开展援助。
+胡春林博士走进对坡中学，为百名学子解读生命演化奥秘；民盟江苏省委会科普工作委员会秘书长王冠群老师则在何官屯中学开设《捕龙笔记》趣味课堂，带领同学们探索恐龙世界。
 
-以色列必须立即停止非法定居点活动，切实遏制定居者暴力，并对所有袭击事件严肃问责。
+活动结束后，民盟江苏省委会向当地农家书屋捐赠科普书籍、杂志共计600余册，丰富校园与乡村阅读资源，搭建起长效科普阅读阵地。
 
-当前以色列方面不断传出反对“两国方案”的呼声，甚至扬言“扼杀巴勒斯坦建国想法”，令人关切。
+本次活动充分发挥民盟界别优势，依托科技盟员专业力量，将科普服务、文化帮扶延伸至偏远乡村。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 02:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 01:51 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 01:39 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-30 02:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 01:53 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 01:46 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 02:02 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 01:52 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 01:57 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 01:44 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 01:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 01:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 01:37 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 01:48 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 02:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 01:50 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 01:47 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 02:01 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 01:48 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 01:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 01:53 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 02:06 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 02:06 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:08 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 01:49 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 01:48 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 01:45 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/20995.shtml)
-- 2026-06-30 01:44 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/9881590.shtml)
-- 2026-06-30 01:36 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/330873104.shtml)
-- 2026-06-30 01:59 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/07710452465.shtml)
-- 2026-06-30 01:45 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/543494129.shtml)
-- 2026-06-30 01:42 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/434633.shtml)
-- 2026-06-30 01:43 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/29452872.shtml)
-- 2026-06-30 01:49 - [一生一世](http://www.blog.minike.top/Article/details/8096252405.shtml)
-- 2026-06-30 01:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/476924.shtml)
-- 2026-06-30 01:39 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/3482118.shtml)
-- 2026-06-30 01:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/5347010057.shtml)
-- 2026-06-30 02:05 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/4797435.shtml)
-- 2026-06-30 01:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/8558983.shtml)
-- 2026-06-30 01:41 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/36079589.shtml)
-- 2026-06-30 01:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/875133623.shtml)
+- 2026-06-30 01:59 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/664869.shtml)
+- 2026-06-30 01:57 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/297298.shtml)
+- 2026-06-30 01:44 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/43113131.shtml)
+- 2026-06-30 02:11 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/4876198.shtml)
+- 2026-06-30 02:07 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/685822.shtml)
+- 2026-06-30 01:42 - [千与千寻](http://www.share.kurohicncr.top/Article/details/685075.shtml)
+- 2026-06-30 01:59 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/55872692.shtml)
+- 2026-06-30 01:51 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/672358884759.shtml)
+- 2026-06-30 02:09 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/9928519.shtml)
+- 2026-06-30 02:11 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/64793185170.shtml)
+- 2026-06-30 01:49 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/663126484.shtml)
+- 2026-06-30 02:08 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/1478042405.shtml)
+- 2026-06-30 01:55 - [月亮](https://www.blog.minike.top/Article/details/01567361163.shtml)
+- 2026-06-30 01:47 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/413920418.shtml)
+- 2026-06-30 02:03 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/0804742.shtml)

@@ -1,61 +1,56 @@
-# 摩根大通成为奥运会首个全球银行合作伙伴
+# 黑龙江：近期强对流天气多发 31日部分地区有强风雹
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-国际奥委会周二宣布，摩根大通已签署协议，将成为2028年洛杉矶奥运会和2030年法国阿尔卑斯冬季奥运会的全球合作伙伴，这是奥运会历史上首家来自银行业的顶级赞助商。 创纪录的银行业首秀 根据协议，摩根大通将加入国际奥委会的“奥林匹克全球合作伙伴计划”（TOP计划），成为“资产管理、财富管理、私人银行、商业银行和投资银行”类别的官方赞助商。与此同时，该行还与洛杉矶奥组委达成协议，成
+中新网哈尔滨5月29日电(记者 姜辉)受东北冷涡等原因影响，预计未来几天黑龙江省强对流天气多发。31日，黑龙江省中西部和东北部地区以雷暴大风、冰雹等强对流天气为主，阵风8级至9级，局地可达10级至12级，黑河南部、齐齐哈尔东部、绥化、大庆、哈尔滨西部等地局地可能有龙卷风。29日，黑龙江省气象台先后发布大风预报和强对流天气预报，预计29日白天，黑龙江省大部有7级至8级阵风，其中伊
 
 ## 正文
 
-国际奥委会周二宣布，摩根大通已签署协议，将成为2028年洛杉矶奥运会和2030年法国阿尔卑斯冬季奥运会的全球合作伙伴，这是奥运会历史上首家来自银行业的顶级赞助商。
+中新网哈尔滨5月29日电(记者 姜辉)受东北冷涡等原因影响，预计未来几天黑龙江省强对流天气多发。
 
-创纪录的银行业首秀 根据协议，摩根大通将加入国际奥委会的“奥林匹克全球合作伙伴计划”（TOP计划），成为“资产管理、财富管理、私人银行、商业银行和投资银行”类别的官方赞助商。
+31日，黑龙江省中西部和东北部地区以雷暴大风、冰雹等强对流天气为主，阵风8级至9级，局地可达10级至12级，黑河南部、齐齐哈尔东部、绥化、大庆、哈尔滨西部等地局地可能有龙卷风。
 
-与此同时，该行还与洛杉矶奥组委达成协议，成为美国奥运代表团的官方银行和2028年洛杉矶奥运会的创始合作伙伴，在零售银行类别拥有独家营销权。
+29日，黑龙江省气象台先后发布大风预报和强对流天气预报，预计29日白天，黑龙江省大部有7级至8级阵风，其中伊春、哈尔滨东部、鹤岗西部、佳木斯西部、鸡西西部、牡丹江局地阵风9级至10级。
 
-摩根大通董事长兼首席执行官杰米·戴蒙表示：“奥运选手和残奥选手不仅仅是运动员——他们是我们的客户和员工，他们的梦想超越赛场。
+预计29日晚，伊春市区、南岔、铁力、大箐山、巴彦、木兰、通河、宾县、方正、延寿、尚志、五常、鹤岗市区、绥滨、佳木斯全区、双鸭山全区、七台河全区、鸡西全区、牡丹江全区有雷雨大风，阵风风力8级左右，局地可达10级，可能伴有小冰雹。
 
-我们为他们居住的社区提供银行服务，为他们训练的设施提供融资，帮助他们创业并规划未来。
+黑龙江省气象台发布的天气预报信息显示，预计受东北冷涡影响，5月30日夜间至6月1日白天、6月1日夜间至3日，黑龙江省自西向东分别有两次降雨过程，并伴有强对流天气。
 
-”这是戴蒙时隔多年再次亲自出席签约仪式，凸显这笔交易的特殊分量。
+5月30日夜间至6月1日白天，大兴安岭有中雨，局地大雨，其他大部地区有阵雨或雷阵雨。
 
-填补赞助空缺，加持东道主优势 此次合作正值国际奥委会经历顶级赞助商更替的关键时期。
+另外，31日，黑河、伊春、齐齐哈尔大部、大庆、绥化、哈尔滨、鹤岗、佳木斯西部、双鸭山西部有雷暴大风、冰雹和局地短时强降水天气，阵风8级至9级，局地10级至12级，其中黑河南部、齐齐哈尔东部、大庆、绥化、哈尔滨西部局地可能有龙卷风。
 
-在2024年巴黎奥运会后，多家日本企业以及英特尔、源讯均退出了TOP计划，导致该计划去年收入降至五年来最低水平。
+6月1日夜间至3日，大兴安岭东部、哈尔滨南部、双鸭山、七台河、鸡西、牡丹江北部有中到大雨，其他大部地区有小雨；2日白天，黑龙江省南部和东部地区降水同时伴有雷暴大风、冰雹和局地短时强降水等强对流天气，局地阵风8级至9级。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-30 01:46 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 01:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 02:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 01:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 01:38 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 02:02 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 01:40 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-30 01:53 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 01:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 01:50 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 01:46 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 01:48 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 01:45 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-30 02:05 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 01:50 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 02:01 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 01:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 02:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 01:42 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 02:11 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 01:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 02:08 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 02:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/72885929319.shtml)
-- 2026-06-30 01:41 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/67032253371.shtml)
-- 2026-06-30 01:44 - [刘念回应](https://www.share.kurohicncr.top/Article/details/41251382.shtml)
-- 2026-06-30 01:57 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/4850003913.shtml)
-- 2026-06-30 01:49 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/614159917.shtml)
-- 2026-06-30 01:37 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/261185257524.shtml)
-- 2026-06-30 01:38 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/65001.shtml)
-- 2026-06-30 01:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/6563067700.shtml)
-- 2026-06-30 01:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/537958.shtml)
-- 2026-06-30 01:44 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/6821736.shtml)
-- 2026-06-30 01:37 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/48850.shtml)
-- 2026-06-30 01:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/342274316670.shtml)
-- 2026-06-30 01:53 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/3938997.shtml)
-- 2026-06-30 01:51 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/117538481057.shtml)
-- 2026-06-30 02:04 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/346612.shtml)
+- 2026-06-30 01:50 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/77635387166.shtml)
+- 2026-06-30 01:57 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/06924960.shtml)
+- 2026-06-30 01:43 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/15457727.shtml)
+- 2026-06-30 01:56 - [扬名立万](https://www.blog.minike.top/Article/details/015343437776.shtml)
+- 2026-06-30 01:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/164391.shtml)
+- 2026-06-30 01:48 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/211739204107.shtml)
+- 2026-06-30 02:02 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/132626754.shtml)
+- 2026-06-30 01:55 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/1820421.shtml)
+- 2026-06-30 01:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/867366039041.shtml)
+- 2026-06-30 01:48 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/826979.shtml)
+- 2026-06-30 01:43 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/7236096.shtml)
+- 2026-06-30 02:02 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/250293974316.shtml)
+- 2026-06-30 01:46 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/0932039240.shtml)
+- 2026-06-30 01:49 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/22106006786.shtml)
+- 2026-06-30 01:55 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/7665121.shtml)

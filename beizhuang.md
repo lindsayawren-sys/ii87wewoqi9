@@ -1,45 +1,58 @@
-# 华勤技术第一季度归母净利润10.61亿元 同比增长25.96%
+# 美国30年期贷款利率升至6.53% 创9个月来最高值
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-华勤技术（03296）发布2026年第一季度报告，营业收入人民币407.46亿元，同比增长16.42%；归母净利润10.61亿元，同比增长25.96%；基本每股收益1.04元。责任编辑：卢昱君
+中新社华盛顿5月28日电（记者沙晗汀）美国住房金融机构房地美（Freddie Mac）当地时间28日公布数据显示，美国30年期固定抵押贷款平均利率升至6.53%，创9个月来最高值。 数据显示，美国30年期固定抵押贷款平均利率当天升至6.53%，是自去年8月28日以来的最高值。一周前该数据为6.51%，一年前该数据为6.89%。今年2月26日，该数据曾降至5.98%，为三年来的最
 
 ## 正文
 
-华勤技术（03296）发布2026年第一季度报告，营业收入人民币407.46亿元，同比增长16.42%；归母净利润10.61亿元，同比增长25.96%；基本每股收益1.04元。
+中新社华盛顿5月28日电（记者沙晗汀）美国住房金融机构房地美（Freddie Mac）当地时间28日公布数据显示，美国30年期固定抵押贷款平均利率升至6.53%，创9个月来最高值。
 
-责任编辑：卢昱君
+数据显示，美国30年期固定抵押贷款平均利率当天升至6.53%，是自去年8月28日以来的最高值。
+
+一周前该数据为6.51%，一年前该数据为6.89%。
+
+今年2月26日，该数据曾降至5.98%，为三年来的最低值。
+
+美国房贷利率受美联储联邦基金利率和美国10年期国债收益率等因素影响。
+
+美国10年期国债收益率当天降至4.46%，一周前该数据为4.57%。
+
+美媒认为，自伊朗战事以来，波斯湾石油运输受阻导致油价大涨，美国房贷利率也整体走高。
+
+分析人士认为，房贷利率的攀升将削弱潜在购房者的购买力，不利于房地产市场的复苏。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 01:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 02:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 01:53 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 02:00 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 01:44 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 01:54 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 01:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 01:56 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 01:52 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 01:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 02:06 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 01:46 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 02:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 01:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 02:10 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 01:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 01:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 01:55 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 01:50 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 01:51 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 02:04 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 01:54 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/2639522316.shtml)
-- 2026-06-30 01:43 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/712665.shtml)
-- 2026-06-30 01:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/731132.shtml)
-- 2026-06-30 01:43 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/686292.shtml)
-- 2026-06-30 01:54 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/420184177.shtml)
-- 2026-06-30 01:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/8991440.shtml)
-- 2026-06-30 01:40 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/1422406.shtml)
-- 2026-06-30 01:57 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/30277837431.shtml)
-- 2026-06-30 01:42 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/099151067169.shtml)
-- 2026-06-30 01:39 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/1214470182.shtml)
-- 2026-06-30 02:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/91323696.shtml)
-- 2026-06-30 01:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/67109265373.shtml)
-- 2026-06-30 01:47 - [一见倾心](https://www.share.minike.top/Article/details/88940851.shtml)
-- 2026-06-30 02:05 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/534359546.shtml)
-- 2026-06-30 01:57 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/7524292.shtml)
+- 2026-06-30 01:58 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/5172768222.shtml)
+- 2026-06-30 02:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/4139082629.shtml)
+- 2026-06-30 02:06 - [扫黑风暴](https://www.share.minike.top/Article/details/136075706870.shtml)
+- 2026-06-30 01:59 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/63555457.shtml)
+- 2026-06-30 01:45 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/13334011626.shtml)
+- 2026-06-30 02:00 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/6546754.shtml)
+- 2026-06-30 02:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/282322.shtml)
+- 2026-06-30 01:51 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/5514548.shtml)
+- 2026-06-30 02:03 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/28825.shtml)
+- 2026-06-30 01:56 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/6668741356.shtml)
+- 2026-06-30 01:45 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/88629480.shtml)
+- 2026-06-30 01:44 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/77325044.shtml)
+- 2026-06-30 01:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/5578822865.shtml)
+- 2026-06-30 02:09 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/0429704.shtml)
+- 2026-06-30 02:09 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/1700310270.shtml)

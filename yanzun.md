@@ -1,60 +1,56 @@
-# 为全球气候治理写下中国时尚答案 《可持续时尚系统研究》丛书在沪首发
+# 源达信息宏观策略周报：主要指数表现分化，化工、硬件设备、机械调研关注度较高
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网上海4月28日电 (王宇 许婧)4月28日，在上海气候周“以终为始，可持续时尚答未来”主题论坛现场，由东华大学出版社出版的《可持续时尚系统研究》丛书正式亮相。 这套凝聚十余年行业积淀与跨学科智慧的丛书，旨在破解全球可持续时尚领域的理论困境，为中国乃至世界纺织服装行业低碳转型提供系统知识支撑与行动指南。 作为全球最大纺织服装生产国与消费市场，中国一直面临可持续时尚领域“定义
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：河北源达信息技术股份有限公司 目录 一、本周市场回顾 3 1．主要指数表现 3 2．申万一级行业涨跌幅 3 二、本周机构调研情况 4 三、本周资讯要闻 6 四、热点行业方向 9 五、风险提示 13 图表目录 图1：申万一级行业涨跌幅情况 4 图2：近5天行业调研热度 4 图3：近30天行业调研热度 5
 
 ## 正文
 
-中新网上海4月28日电 (王宇 许婧)4月28日，在上海气候周“以终为始，可持续时尚答未来”主题论坛现场，由东华大学出版社出版的《可持续时尚系统研究》丛书正式亮相。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这套凝聚十余年行业积淀与跨学科智慧的丛书，旨在破解全球可持续时尚领域的理论困境，为中国乃至世界纺织服装行业低碳转型提供系统知识支撑与行动指南。
+来源：河北源达信息技术股份有限公司 目录 一、本周市场回顾 3 1．主要指数表现 3 2．申万一级行业涨跌幅 3 二、本周机构调研情况 4 三、本周资讯要闻 6 四、热点行业方向 9 五、风险提示 13 图表目录 图1：申万一级行业涨跌幅情况 4 图2：近5天行业调研热度 4 图3：近30天行业调研热度 5 图3：规模以上工业增加值同比增长速度（%） 7 图4：存储芯片指数3年PE Bands 10 图5：半导体设备指数3年PE Bands 10 图6：人形机器人指数3年PE Bands 11 图7：电力设备指数3年PE Bands 11 图8：储能指数3年PE Bands 12 表1：主要指数涨跌幅 3 表2：近5天机构评级家数大于10且机构调研次数TOP公司排名（2026/5/25-2026/5/29） 6 表3：近5天机构评级家数大于10且机构
 
-作为全球最大纺织服装生产国与消费市场，中国一直面临可持续时尚领域“定义模糊、理论碎片化、框架不统一”的行业痛点。
+表1：主要指数涨跌幅 代码 名称 周涨跌幅 月涨跌幅 年初至今涨跌幅 PE TTM 五年估值百分位 000001.SH 上证指数 -1.08% -1.06% 2.51% 17.44 98.69% 399001.SZ 深证成指 -0.14% 3.10% 15.16% 37.09 99.59% 399006.SZ 创业板指 2.53% 9.81% 26.06% 49.16 77.36% 000300.SH 沪深300 0.97% 1.76% 5.66% 14.56 97.37% 000016.SH 上证50 -0.08% -2.16% -3.63% 11.19 73.58% 000905.SH 中证500 -2.53% 0.12% 11.97% 37.49 97.13% 000852.SH 中证1000 -3.27% 0.32% 10.71% 55.73
 
-概念繁杂、实践零散等问题，让不少企业在绿色转型路上步履维艰，迫切需要一套立足本土、贯通全产业链的知识体系。
+图1：申万一级行业涨跌幅情况 资料来源：Wind，源达信息证券研究所 二、本周机构调研情况 1．机构调研热门行业 本周（2026/5/25-2026/5/29），申万二级行业中，按机构被调研总次数从高到低排序，化工、硬件设备、机械的关注度较高，其中机械、硬件设备、有色金属的近5天调研机构家数较多。
 
-“这套丛书以四卷内容构筑起严密完整的理论闭环，沿着时尚产业全生命周期逻辑展开系统建构，将可持续理念深度融入品牌战略、设计思维、供应链管理与材料创新四大核心维度。
+对比上周调研情况，本周机构调研热度化工机构被调研次数位居第一，有色金属调研机构家数跻身前三。
 
-”该书主编、东华大学上海国际时尚创意学院院长李峻介绍。
+图2：近5天行业调研热度 资料来源：Wind，源达信息证券研究所 近30天（2026/4/29-2026/5/29），申万二级行业中，按机构被调研总次数从高到低排序，硬件设备、机械、化工的关注度较高，其中硬件设备、半导体、电气设备的近一个月调研机构家数较多。
 
-该丛书为“十四五”国家重点出版物出版规划项目，立足环境、社会、经济三重价值底线，构建了兼具理论高度与产业实操性的完整知识框架。
+图3：近30天行业调研热度 资料来源：Wind，源达信息证券研究所 本周机构调研情况，按照近5天机构调研次数排名，调研次数较多且机构评级家数大于10家的公司为冰轮环境、沪电股份、京东方A等。
 
-与海外单一视角研究不同，这套丛书深度扎根中国产业实践，收录了鄂尔多斯可持续草原管理、安踏跑鞋全生命周期碳评价、素然“羊毛再织计划”等多个鲜活案例，将实践经验转化为可复制、可推广的路径方法，用真实场景清晰解读可持续时尚的实施路径与价值所在。
+表2：近5天机构评级家数大于10且机构调研次数TOP公司排名（2026/5/25-2026/5/29） 代码 简称 行业 机构评级家数 近5天机构调研次数 000811.SZ 冰轮环境 机械 12 4 002463.SZ 沪电股份 硬件设备 23 3 000725.SZ 京东方A 硬件设备 15 3 002142.SZ 宁波银行 银行 24 2 000776.SZ 广发证券 非银金融 19 2 688029.SH 南微医学 医疗设备与服务 13 2 002916.SZ 深南电路 硬件设备 21 1 002317.SZ 众生药业 医药生物 11 1 300979.SZ 华利集团 纺织服装Ⅱ 28 1 002003.SZ 伟星股份 纺织服装Ⅱ 19 1 资料来源：Wind，源达信息证券研究所 本周机构调研情况，按照近5天机构调研家数排名，调研机构家数较多
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 01:36 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 01:39 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-30 02:05 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 02:00 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 01:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 01:45 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 01:54 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 01:56 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 01:37 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 01:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 02:01 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 01:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-30 01:58 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 02:02 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 01:58 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 01:43 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 01:55 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 02:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 01:49 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 01:47 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 02:00 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 02:07 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 01:45 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:56 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/8471106.shtml)
-- 2026-06-30 01:36 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/204584502.shtml)
-- 2026-06-30 01:54 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/3602998273.shtml)
-- 2026-06-30 01:38 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/050978777.shtml)
-- 2026-06-30 01:47 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/01213.shtml)
-- 2026-06-30 01:50 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/712442450156.shtml)
-- 2026-06-30 02:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/67341.shtml)
-- 2026-06-30 01:47 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/1264504464.shtml)
-- 2026-06-30 01:56 - [月亮](http://www.blog.kurohicncr.top/Article/details/892754.shtml)
-- 2026-06-30 02:05 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/083689695715.shtml)
-- 2026-06-30 02:00 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/43152.shtml)
-- 2026-06-30 01:50 - [金牌调解](http://www.share.kurohicncr.top/Article/details/59858897380.shtml)
-- 2026-06-30 01:41 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/69501303324.shtml)
-- 2026-06-30 01:49 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/728207.shtml)
-- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/378368145250.shtml)
+- 2026-06-30 02:00 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/775301193.shtml)
+- 2026-06-30 01:55 - [扬名立万](http://www.blog.minike.top/Article/details/397704.shtml)
+- 2026-06-30 01:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/344393.shtml)
+- 2026-06-30 01:44 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/409336.shtml)
+- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/170940391.shtml)
+- 2026-06-30 02:06 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/51803284.shtml)
+- 2026-06-30 01:46 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/449710604.shtml)
+- 2026-06-30 01:51 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/53430.shtml)
+- 2026-06-30 02:03 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/0938621.shtml)
+- 2026-06-30 01:54 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/5187870.shtml)
+- 2026-06-30 01:43 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/006731.shtml)
+- 2026-06-30 01:59 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/481829509668.shtml)
+- 2026-06-30 02:04 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/099243778952.shtml)
+- 2026-06-30 02:04 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/643011.shtml)
+- 2026-06-30 01:57 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/39695288.shtml)

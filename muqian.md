@@ -1,46 +1,47 @@
-# 美军称在对伊朗港口的封锁行动中已要求39艘船只改道
+# 神舟二十二号载人飞船返回舱舱门打开，神舟二十一号航天员张陆、武飞、张洪章即将出舱
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据美国《华尔街日报》报道，官员表示，美国海军陆战队28日在阿拉伯海拦截了一艘商船，该船被怀疑试图违反美国的封锁令驶往伊朗。 美国中央司令部表示，第31海军陆战队远征部队的官兵在检查了悬挂非洲国家科摩罗国旗的“蓝星三号”货轮并确认该船不会停靠伊朗港口后，将其放行。 美军中央司令部还表示，自封锁开始以来，美军已要求39艘船只改道。
+新华社快讯：神舟二十二号载人飞船返回舱舱门打开，神舟二十一号航天员张陆、武飞、张洪章即将出舱。
 
 ## 正文
 
-中新网4月29日电 据美国《华尔街日报》报道，官员表示，美国海军陆战队28日在阿拉伯海拦截了一艘商船，该船被怀疑试图违反美国的封锁令驶往伊朗。
-
-美国中央司令部表示，第31海军陆战队远征部队的官兵在检查了悬挂非洲国家科摩罗国旗的“蓝星三号”货轮并确认该船不会停靠伊朗港口后，将其放行。
-
-美军中央司令部还表示，自封锁开始以来，美军已要求39艘船只改道。
+新华社快讯：神舟二十二号载人飞船返回舱舱门打开，神舟二十一号航天员张陆、武飞、张洪章即将出舱。
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 01:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 01:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 01:39 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 01:39 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 01:51 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 01:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 01:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-30 01:55 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-30 01:52 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 02:11 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 02:04 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 01:58 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 01:49 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 02:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-30 01:45 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 01:48 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 02:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 01:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 01:46 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 02:04 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 01:53 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 01:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 01:56 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 01:42 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/7075977.shtml)
-- 2026-06-30 01:48 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/315406003.shtml)
-- 2026-06-30 01:38 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/1097616513.shtml)
-- 2026-06-30 01:44 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/17015912807.shtml)
-- 2026-06-30 01:52 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/34610939269.shtml)
-- 2026-06-30 01:37 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/5782020.shtml)
-- 2026-06-30 01:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/00148.shtml)
-- 2026-06-30 01:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/591736457.shtml)
-- 2026-06-30 01:43 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/656178649.shtml)
-- 2026-06-30 01:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/52167739735.shtml)
-- 2026-06-30 01:39 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/975295710.shtml)
-- 2026-06-30 01:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/2187969.shtml)
-- 2026-06-30 01:55 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/9455229.shtml)
-- 2026-06-30 01:45 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/904824503251.shtml)
-- 2026-06-30 01:56 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/02693290285.shtml)
+- 2026-06-30 02:07 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/890718.shtml)
+- 2026-06-30 01:57 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/75387745879.shtml)
+- 2026-06-30 01:45 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/22151155.shtml)
+- 2026-06-30 02:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/964295029.shtml)
+- 2026-06-30 02:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/895804416960.shtml)
+- 2026-06-30 02:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/622519525822.shtml)
+- 2026-06-30 02:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/900009760976.shtml)
+- 2026-06-30 01:47 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/97872503744.shtml)
+- 2026-06-30 01:56 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/90108.shtml)
+- 2026-06-30 02:08 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/69582895.shtml)
+- 2026-06-30 01:47 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/353676355.shtml)
+- 2026-06-30 02:07 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/67436.shtml)
+- 2026-06-30 01:55 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/3326794171.shtml)
+- 2026-06-30 01:44 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/1560946.shtml)
+- 2026-06-30 02:06 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/18149587513.shtml)

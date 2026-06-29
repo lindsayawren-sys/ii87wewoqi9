@@ -1,47 +1,45 @@
-# 喀什至吉尔吉斯斯坦奥什国际客运航线成功首航
+# 京东物流于5月28日斥资3153.71万港元回购243.9万股
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月28日，中国喀什至吉尔吉斯斯坦奥什EU3055航班国际客运航线成功实现首航，这是国内第二条直飞奥什的国际航线，飞行时长约1小时，成为新疆南疆面向中亚开放的又一条空中便捷通道。 (总台记者 苏蒙)
+京东物流（02618）发布公告，于2026年5月28日斥资3153.71万港元回购243.9万股。责任编辑：卢昱君
 
 ## 正文
 
-4月28日，中国喀什至吉尔吉斯斯坦奥什EU3055航班国际客运航线成功实现首航，这是国内第二条直飞奥什的国际航线，飞行时长约1小时，成为新疆南疆面向中亚开放的又一条空中便捷通道。
+京东物流（02618）发布公告，于2026年5月28日斥资3153.71万港元回购243.9万股。
 
-(总台记者 苏蒙)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-30 01:43 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 01:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 02:01 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 01:53 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 01:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 01:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 02:02 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 01:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 01:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 01:39 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-30 01:51 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 01:51 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 01:52 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 01:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 01:56 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 01:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 02:11 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 01:46 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 01:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 02:03 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 02:04 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 01:45 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 01:51 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/463525471055.shtml)
-- 2026-06-30 01:56 - [张凌赫 客串](https://www.blog.minike.top/Article/details/289287076815.shtml)
-- 2026-06-30 01:57 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/7696770.shtml)
-- 2026-06-30 01:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/415761487553.shtml)
-- 2026-06-30 01:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/157605.shtml)
-- 2026-06-30 02:00 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/3205800.shtml)
-- 2026-06-30 01:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/90054.shtml)
-- 2026-06-30 01:58 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/240785812.shtml)
-- 2026-06-30 02:05 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/9128840795.shtml)
-- 2026-06-30 01:50 - [起风了](https://www.blog.minike.top/Article/details/27302.shtml)
-- 2026-06-30 02:04 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/34658497.shtml)
-- 2026-06-30 01:56 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/1114214.shtml)
-- 2026-06-30 01:55 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/871251.shtml)
-- 2026-06-30 02:01 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/2612490.shtml)
-- 2026-06-30 01:42 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/406254.shtml)
+- 2026-06-30 01:51 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/633378469.shtml)
+- 2026-06-30 02:04 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/171396.shtml)
+- 2026-06-30 01:42 - [恋与深空致歉](https://www.share.minike.top/Article/details/483229.shtml)
+- 2026-06-30 01:56 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/319374.shtml)
+- 2026-06-30 02:06 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/617541113156.shtml)
+- 2026-06-30 01:56 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/4547177491.shtml)
+- 2026-06-30 02:10 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/691690750.shtml)
+- 2026-06-30 01:49 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/38705171.shtml)
+- 2026-06-30 01:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/417321722.shtml)
+- 2026-06-30 01:58 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/34915275916.shtml)
+- 2026-06-30 02:01 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/0872777.shtml)
+- 2026-06-30 02:07 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/696987120296.shtml)
+- 2026-06-30 02:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/3863964634.shtml)
+- 2026-06-30 01:58 - [扫黑风暴](https://www.share.minike.top/Article/details/25320.shtml)
+- 2026-06-30 01:45 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/39599750.shtml)

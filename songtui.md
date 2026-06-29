@@ -1,61 +1,56 @@
-# 高盛：美元/日元若快速升至163-164 或加剧日本干预风险
+# 中国男足2026年第三期集训名单公布 武磊回归
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-专题：A股风格切换一触即发？5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
+中新社北京5月28日电(记者 国璇) 中国足球协会28日公布了关于组织国家男子足球队2026年第三期集训的通知，26人大名单中，老将武磊、蒋光太等回归国家队，在U23亚洲杯中表现出色的门将李昊首次入选。 根据中国足协公告，为扎实做好2027年亚足联沙特阿拉伯亚洲杯备战工作，经国家队教练组研究、中国足球协会批准，中国国家男子足球队定于2026年5月31日至6月17日组织年度第三期
 
 ## 正文
 
-专题：A股风格切换一触即发？
+中新社北京5月28日电(记者 国璇) 中国足球协会28日公布了关于组织国家男子足球队2026年第三期集训的通知，26人大名单中，老将武磊、蒋光太等回归国家队，在U23亚洲杯中表现出色的门将李昊首次入选。
 
-5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。
+根据中国足协公告，为扎实做好2027年亚足联沙特阿拉伯亚洲杯备战工作，经国家队教练组研究、中国足球协会批准，中国国家男子足球队定于2026年5月31日至6月17日组织年度第三期集训并参加国际热身赛。
 
-策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。
+集训期间将先后赴上海市、新加坡、浙江省金华市、辽宁省大连市组织训练及赛事活动。
 
-不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
+主教练依然为邵佳一。
 
-因此，尽管官员们的口头评论更加频繁，但立即开展行动的理由看起来“不那么令人信服”。
+本期名单中，最令人瞩目的是34岁老将武磊。
 
-在能源引发通胀冲击之际，预计日元将面临更大的贬值压力。
+作为中国男足的功勋球员，武磊已为国家队出战99场比赛，打入36个进球，是现役国脚中的头号射手。
 
-这使得日元在战术层面上成为一种颇具吸引力的套利工具。
+受伤病困扰，他上次入选国家队大名单是在2025年5月，并在集训中因伤提前离队。
 
-责任编辑：王永生
+此外，蒋光太、韩鹏飞、魏震和戴伟浚等经验丰富的球员纷纷归队。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 01:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 01:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 01:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 01:47 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 02:01 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 01:38 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 02:04 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 02:05 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 01:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 01:59 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 01:37 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 01:46 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-30 01:38 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 02:00 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-30 02:00 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-30 02:05 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-30 01:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 01:52 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 01:58 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 01:51 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 01:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 02:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 01:50 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 01:47 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/296751639134.shtml)
-- 2026-06-30 01:44 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/1923518.shtml)
-- 2026-06-30 02:04 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/229721551804.shtml)
-- 2026-06-30 01:58 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/33953.shtml)
-- 2026-06-30 02:00 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/6739908995.shtml)
-- 2026-06-30 01:53 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/36374492.shtml)
-- 2026-06-30 02:02 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/5916559315.shtml)
-- 2026-06-30 02:01 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/757109619739.shtml)
-- 2026-06-30 01:46 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/79882943879.shtml)
-- 2026-06-30 01:40 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/6513213.shtml)
-- 2026-06-30 01:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/8148265.shtml)
-- 2026-06-30 01:53 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/552118.shtml)
-- 2026-06-30 01:52 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/86063724.shtml)
-- 2026-06-30 01:38 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/214368.shtml)
-- 2026-06-30 01:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/662447.shtml)
+- 2026-06-30 01:59 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/3109462.shtml)
+- 2026-06-30 01:46 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/068926.shtml)
+- 2026-06-30 01:51 - [一生一世](http://www.share.minike.top/Article/details/8360768.shtml)
+- 2026-06-30 01:52 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/29537376731.shtml)
+- 2026-06-30 01:47 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/8803777.shtml)
+- 2026-06-30 02:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/6600886.shtml)
+- 2026-06-30 01:43 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/392497848789.shtml)
+- 2026-06-30 01:52 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/64677856.shtml)
+- 2026-06-30 02:06 - [啊啊啊](http://www.share.minike.top/Article/details/18562510.shtml)
+- 2026-06-30 02:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/518805.shtml)
+- 2026-06-30 02:07 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/82687.shtml)
+- 2026-06-30 02:01 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/833835247231.shtml)
+- 2026-06-30 01:59 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/0674624206.shtml)
+- 2026-06-30 01:59 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/840372974.shtml)
+- 2026-06-30 02:11 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/62035443.shtml)

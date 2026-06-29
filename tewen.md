@@ -1,58 +1,51 @@
-# 早盘：美股走低 纳指下跌逾200点
+# 中国车企首次突破产销量1亿大关
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。油价上涨以及OpenAI发布的疲软报告令科技股承压。阿联酋宣布退出OPEC。 道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。 据报道，OpenAI近期营收和新用户增长均低于其内
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日下午，上汽集团交付第1亿辆车，中国汽车工业史上首个累计产销量突破1亿辆的汽车集团诞生。中国首个“亿级车企”的出现，是中国汽车工业70多年从无到有、从弱到强的生动注脚，也是“中国制造”的重要里程碑。（记者：周蕊） 责任编辑：宋雅芳
 
 ## 正文
 
-北京时间4月28日晚，美股周二早盘走低，纳指下跌逾200点。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-油价上涨以及OpenAI发布的疲软报告令科技股承压。
+5月28日下午，上汽集团交付第1亿辆车，中国汽车工业史上首个累计产销量突破1亿辆的汽车集团诞生。
 
-阿联酋宣布退出OPEC。
+中国首个“亿级车企”的出现，是中国汽车工业70多年从无到有、从弱到强的生动注脚，也是“中国制造”的重要里程碑。
 
-道指跌73.03点，跌幅为0.15%，报49094.76点；纳指跌202.39点，跌幅为0.81%，报24684.71点；标普500指数跌36.66点，跌幅为0.51%，报7137.25点。
-
-据报道，OpenAI近期营收和新用户增长均低于其内部目标。
-
-报道称，首席财务官萨拉-弗里尔已向领导层表达担忧，若收入增长不够快，OpenAI未来可能无力支付算力合同。
-
-这一消息拖累科技股走低。
-
-英伟达下跌逾2%，博通下跌逾4%，AMD和英特尔分别下跌近6%和4%，甲骨文下跌逾7%。
+（记者：周蕊） 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 01:54 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 01:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 01:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 01:36 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 02:02 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 01:50 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 01:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 02:00 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 01:52 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 01:39 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 01:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 01:58 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 02:06 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 02:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 02:10 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 01:45 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 01:59 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 01:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-30 01:58 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-30 01:58 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 01:58 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 01:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 02:01 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 01:47 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/06905368.shtml)
-- 2026-06-30 01:41 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/0487381.shtml)
-- 2026-06-30 02:04 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/11361817.shtml)
-- 2026-06-30 01:46 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/046517051.shtml)
-- 2026-06-30 01:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/3642722336.shtml)
-- 2026-06-30 01:41 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/768490684590.shtml)
-- 2026-06-30 01:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/00947.shtml)
-- 2026-06-30 01:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/032322.shtml)
-- 2026-06-30 02:02 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/797111.shtml)
-- 2026-06-30 02:05 - [TOP Prada](https://www.blog.minike.top/Article/details/0812648.shtml)
-- 2026-06-30 01:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/751096348.shtml)
-- 2026-06-30 02:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/267960714316.shtml)
-- 2026-06-30 01:54 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/29678647.shtml)
-- 2026-06-30 01:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/09100728.shtml)
-- 2026-06-30 02:05 - [新官上任三把火](http://www.blog.minike.top/Article/details/332530.shtml)
+- 2026-06-30 01:47 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/52498165984.shtml)
+- 2026-06-30 01:44 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/677890033.shtml)
+- 2026-06-30 01:51 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/25075215.shtml)
+- 2026-06-30 01:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/1030064547.shtml)
+- 2026-06-30 01:58 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/61786756.shtml)
+- 2026-06-30 02:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/4436687807.shtml)
+- 2026-06-30 02:00 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/043898757980.shtml)
+- 2026-06-30 02:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/746228.shtml)
+- 2026-06-30 01:45 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/290755764.shtml)
+- 2026-06-30 01:57 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/492753664319.shtml)
+- 2026-06-30 02:06 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/21954571.shtml)
+- 2026-06-30 02:03 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/91413511922.shtml)
+- 2026-06-30 02:09 - [日本进球](https://www.blog.minike.top/Article/details/868749944533.shtml)
+- 2026-06-30 02:01 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/6822570390.shtml)
+- 2026-06-30 01:47 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/78744568.shtml)

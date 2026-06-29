@@ -1,60 +1,59 @@
-# OpenAI提前数年实现关键AI算力目标
+# 新疆经济看点丨新疆向西开放空中通道持续扩容
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-OpenAI提前数年实现在美国获取人工智能（AI）算力的关键里程碑，为这家初创公司雄心勃勃的数据中心扩张计划注入动力。 该公司周三在一篇博客文章中称，已签署了10吉瓦AI算力合同。该公司最初力争在2029年实现这一目标。 OpenAI表示，已签订合同的10吉瓦算力中，有3吉瓦是在过去90天敲定的。其中包括亚马逊提供的2吉瓦。1吉瓦的电力足以同时为约75万户美国家庭供电。 这家初
+天山网-新疆日报记者 马伊宁 风起天山云海，航架欧亚通途。凭借丝绸之路经济带核心区得天独厚的区位禀赋，新疆航空对外开放蹄疾步稳，不断注入全新发展动能。 6月1日起，中国南方航空将开通广州—乌鲁木齐—法兰克福航线，这是中国西北地区通往德国的首条直飞航线。今年以来，乌鲁木齐天山国际机场、喀什徕宁国际机场、伊犁伊宁国际机场多点发力，集中新开、加密、复航多条中西亚直飞客运航线，新疆空中
 
 ## 正文
 
-OpenAI提前数年实现在美国获取人工智能（AI）算力的关键里程碑，为这家初创公司雄心勃勃的数据中心扩张计划注入动力。
+天山网-新疆日报记者 马伊宁 风起天山云海，航架欧亚通途。
 
-该公司周三在一篇博客文章中称，已签署了10吉瓦AI算力合同。
+凭借丝绸之路经济带核心区得天独厚的区位禀赋，新疆航空对外开放蹄疾步稳，不断注入全新发展动能。
 
-该公司最初力争在2029年实现这一目标。
+6月1日起，中国南方航空将开通广州—乌鲁木齐—法兰克福航线，这是中国西北地区通往德国的首条直飞航线。
 
-OpenAI表示，已签订合同的10吉瓦算力中，有3吉瓦是在过去90天敲定的。
+今年以来，乌鲁木齐天山国际机场、喀什徕宁国际机场、伊犁伊宁国际机场多点发力，集中新开、加密、复航多条中西亚直飞客运航线，新疆空中互联互通网络越织越密，向西开放空中通道持续扩容。
 
-其中包括亚马逊提供的2吉瓦。
+4月28日，成都航空搭载C909机型，正式开通喀什至奥什直飞航线。
 
-1吉瓦的电力足以同时为约75万户美国家庭供电。
+这既是成都航空首条通往吉尔吉斯斯坦的航线，也是C909机型执飞的第二条中亚定期航线。
 
-这家初创公司称，正在物色其他选址，“未来几年将大幅提升算力”。
+以往喀什与奥什两地往来，多依赖公路客运或中转航班，路途辗转耗时漫长。
 
-责任编辑：于健 SF069
+直飞航线开通后，跨境通行迈入“小时级”便捷时代。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 01:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 01:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 01:51 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:46 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 01:43 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 01:45 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 01:56 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-30 01:53 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 01:46 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 01:53 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 01:39 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 01:39 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 01:57 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 01:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 01:46 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 01:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-30 01:43 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 01:58 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 01:50 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 01:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-30 02:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 02:01 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 02:00 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 02:06 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 02:11 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-30 01:52 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/3050487.shtml)
-- 2026-06-30 01:57 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/79543735981.shtml)
-- 2026-06-30 01:38 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/203916613.shtml)
-- 2026-06-30 01:56 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/293735559.shtml)
-- 2026-06-30 01:42 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/7877979302.shtml)
-- 2026-06-30 01:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/23061.shtml)
-- 2026-06-30 01:52 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/936620.shtml)
-- 2026-06-30 02:04 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/097253550.shtml)
-- 2026-06-30 01:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/290497668.shtml)
-- 2026-06-30 02:01 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/61776343.shtml)
-- 2026-06-30 01:39 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/45355267.shtml)
-- 2026-06-30 02:05 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/4685238.shtml)
-- 2026-06-30 02:03 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/040364.shtml)
-- 2026-06-30 01:39 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/608054.shtml)
-- 2026-06-30 01:40 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/761700.shtml)
+- 2026-06-30 02:01 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/218682.shtml)
+- 2026-06-30 01:56 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/63163221.shtml)
+- 2026-06-30 01:58 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/96526109.shtml)
+- 2026-06-30 01:51 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/65292863610.shtml)
+- 2026-06-30 01:55 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/06292.shtml)
+- 2026-06-30 01:48 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/194284078580.shtml)
+- 2026-06-30 02:00 - [恋与深空 日服](https://www.share.minike.top/Article/details/8087213915.shtml)
+- 2026-06-30 01:57 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/549148359.shtml)
+- 2026-06-30 02:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/55193594114.shtml)
+- 2026-06-30 02:00 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/91693609628.shtml)
+- 2026-06-30 02:01 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/67891912.shtml)
+- 2026-06-30 02:09 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/93011698346.shtml)
+- 2026-06-30 01:49 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/3670771636.shtml)
+- 2026-06-30 02:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/509226865855.shtml)
+- 2026-06-30 01:57 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/24334550440.shtml)

@@ -1,57 +1,56 @@
-# 比亚迪官宣涨价！港股通汽车ETF华宝（520780）放量大涨超2%，机构：今年新能源车表现有望超预期！
+# 创想三维在港交所上市：首日大涨逾80%市值近90亿，全球消费级3D打印第一股
 
-> 更新时间：2026-06-30 02:06:02 UTC+8
+> 更新时间：2026-06-30 02:12:02 UTC+8
 
 ## 摘要
 
-4月29日早盘，港股新能源汽车链走强，比亚迪、理想汽车、天齐锂业领涨超4%。热门ETF方面，聚焦港股新能源汽车的港股通汽车ETF华宝（520780）场内大涨超2%，量能放量明显。 消息面上，比亚迪官宣涨价！受全球存储硬件成本大幅上涨影响，比亚迪王朝网、海洋网、方程豹部分车型的天神之眼B激光辅助驾驶选装包，价格从9900元上调至12000元，此次选装价格调整将于2026年5月1日
+来源：独角兽IPO 作者 | 独角君 创想三维的产品及服务主要包括三大板块：3D打印机、3D打印耗材以及创想云上提供的各类服务 。 2026年5月29日，深圳市创想三维科技股份有限公司（股票代码：03388.HK，简称“创想三维”）正式在港交所主板挂牌上市，成为港股“消费级3D打印第一股”，保荐人为中金公司。 招股结果显示，公司全球发售约7342.755万股H股，每股发售价为1
 
 ## 正文
 
-4月29日早盘，港股新能源汽车链走强，比亚迪、理想汽车、天齐锂业领涨超4%。
+来源：独角兽IPO 作者 | 独角君 创想三维的产品及服务主要包括三大板块：3D打印机、3D打印耗材以及创想云上提供的各类服务 。
 
-热门ETF方面，聚焦港股新能源汽车的港股通汽车ETF华宝（520780）场内大涨超2%，量能放量明显。
+2026年5月29日，深圳市创想三维科技股份有限公司（股票代码：03388.HK，简称“创想三维”）正式在港交所主板挂牌上市，成为港股“消费级3D打印第一股”，保荐人为中金公司。
 
-消息面上，比亚迪官宣涨价！
+招股结果显示，公司全球发售约7342.755万股H股，每股发售价为18.80港元，全球发售净筹资额约12.72亿港元。
 
-受全球存储硬件成本大幅上涨影响，比亚迪王朝网、海洋网、方程豹部分车型的天神之眼B激光辅助驾驶选装包，价格从9900元上调至12000元，此次选装价格调整将于2026年5月1日正式生效。
+每手买卖单位为150股，入场费约2848.44港元。
 
-展望后市，中信建投表示，当前时点，乘用车内需景气预期及板块估值或已筑底，结构性α看好乘用车出口超预期+高端新能源车加速起量，估值空间看好物理AI重构成长新范式。
+其中香港公开发售部分获3829.42倍认购，国际发售部分获26.8倍认购，孖展认购倍数一度突破3000倍，市场热度远超预期。
 
-新能源车出海从2025年下半年开启新一轮强劲增长周期，高油价下供需两端发力导致更有持续性，2026年表现或显著超预期。
+1► 上市情况 上市首日，创想三维开盘报33.88港元，较发行价18.80港元大幅上涨80.21%，每手账面盈利约2262港元。
 
-* 布局港股通新能源汽车产业链，建议重点关注T+0交易活跃品种港股通汽车ETF华宝（520780），标的指数聚焦整车，同时覆盖汽车零部件、工业金属等细分赛道，同时受益于汽车消费高景气、智能驾驶L3-L4加速落地以及机器人红利外溢等多重利好，重仓小鹏、比亚迪、理想、吉利等稀缺港股智驾龙头。
+上市前一日暗盘交易阶段，该股收报32.08港元，较发行价上涨70.6%。
 
-数据来源：沪深交易所等。
+按发行价计算，公司上市前市值约90亿港元；首日高开后，市值接近90亿港元，巩固了其在全球消费级3D打印领域的龙头地位。
 
 ## 相关推荐
 
-- 2026-06-30 01:40 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 02:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 01:58 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:55 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 01:53 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 01:53 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 01:59 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 02:04 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 02:03 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 01:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 01:53 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 01:44 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 01:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 01:50 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 01:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 01:53 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 01:58 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 02:00 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 02:03 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 01:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 01:44 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/5765750285.shtml)
-- 2026-06-30 01:45 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/504598386.shtml)
-- 2026-06-30 02:04 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/58776077489.shtml)
-- 2026-06-30 01:41 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/967554.shtml)
-- 2026-06-30 01:52 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/614551574.shtml)
-- 2026-06-30 01:38 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/6978291.shtml)
-- 2026-06-30 01:42 - [巴西vs日本](http://www.blog.minike.top/Article/details/82632175.shtml)
-- 2026-06-30 01:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/99695.shtml)
-- 2026-06-30 01:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/51243523.shtml)
-- 2026-06-30 01:58 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/266089523.shtml)
-- 2026-06-30 01:54 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/13242681.shtml)
-- 2026-06-30 01:59 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/77906.shtml)
-- 2026-06-30 02:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/65043657.shtml)
-- 2026-06-30 01:40 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/83230.shtml)
-- 2026-06-30 01:56 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/88429.shtml)
+- 2026-06-30 01:55 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/18131.shtml)
+- 2026-06-30 02:05 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/43764639252.shtml)
+- 2026-06-30 01:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/6988109.shtml)
+- 2026-06-30 01:48 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/9027452798.shtml)
+- 2026-06-30 01:59 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/41903347.shtml)
+- 2026-06-30 02:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/1794675.shtml)
+- 2026-06-30 01:44 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/68687.shtml)
+- 2026-06-30 02:05 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/853138760.shtml)
+- 2026-06-30 02:02 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/5005532.shtml)
+- 2026-06-30 01:46 - [毒液2](http://www.blog.kurohicncr.top/Article/details/645137358085.shtml)
+- 2026-06-30 02:10 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/226253964.shtml)
+- 2026-06-30 01:57 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/68140537.shtml)
+- 2026-06-30 02:03 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/2302700.shtml)
+- 2026-06-30 02:07 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/3876651999.shtml)
+- 2026-06-30 01:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/58505996.shtml)
