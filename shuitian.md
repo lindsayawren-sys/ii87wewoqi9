@@ -1,58 +1,59 @@
-# 韩国总统提名新一任国务总理
+# 中国科学家领衔国际研究：全球海洋“神经系统”非常脆弱
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新社首尔6月7日电(记者 金旭)韩国总统李在明7日提名现任韩国中小风险企业部长官韩圣淑为新一任国务总理。 韩国总统秘书室室长姜勋植当天在记者会上发布上述消息。青瓦台方面表示，韩圣淑是“引领人工智能大转型和实现全民共同成长的合适人选”。 韩圣淑1967年出生于京畿道，毕业于韩国淑明女子大学英文系。2025年被任命为中小风险企业部长官，在一线指挥以中小企业、工商个体户为中心的民生
+中新网北京5月22日电 (记者 孙自法)占地球面积71%的海洋对人类社会发展影响巨大而深远。被科学家们形象称为全球海洋“神经系统”的全球海洋观测系统(GOOS)，就像一张铺在全球海洋中的大网，其一举一动备受关注。 不过，由中国科学家领衔开展的一项最新国际合作研究却对此敲响了警钟：全球海洋“神经系统”这张人类离不开的网，目前的脆弱程度远超想象。 首次定量算出观测网“破洞”冲击 5
 
 ## 正文
 
-中新社首尔6月7日电(记者 金旭)韩国总统李在明7日提名现任韩国中小风险企业部长官韩圣淑为新一任国务总理。
+中新网北京5月22日电 (记者 孙自法)占地球面积71%的海洋对人类社会发展影响巨大而深远。
 
-韩国总统秘书室室长姜勋植当天在记者会上发布上述消息。
+被科学家们形象称为全球海洋“神经系统”的全球海洋观测系统(GOOS)，就像一张铺在全球海洋中的大网，其一举一动备受关注。
 
-青瓦台方面表示，韩圣淑是“引领人工智能大转型和实现全民共同成长的合适人选”。
+不过，由中国科学家领衔开展的一项最新国际合作研究却对此敲响了警钟：全球海洋“神经系统”这张人类离不开的网，目前的脆弱程度远超想象。
 
-韩圣淑1967年出生于京畿道，毕业于韩国淑明女子大学英文系。
+首次定量算出观测网“破洞”冲击 5月22日，中国科学院大气物理研究所(大气所)成里京研究员联合法国、美国等高校及研究机构的合作者，在国际专业学术期刊《自然-气候变化》(Nature Climate Change)发表研究论文，首次定量算出这张观测网一旦“破洞”会给全球海洋增暖测算的准确性带来多大的冲击。
 
-2025年被任命为中小风险企业部长官，在一线指挥以中小企业、工商个体户为中心的民生政策。
+论文第一作者、中国科学院大气所博士生朱雨静介绍说，海洋是地球的热库，储存了全球增暖90%以上的净能量盈余。
 
-据韩联社分析，此次最终提名韩圣淑为国务总理，可被解读为李在明视“将半导体超级周期带来的经济回暖势头扩至国家整体经济，消除两极分化”为重要课题，因而作出如此决定。
+温暖的海水会给台风、强风暴提供能量，鱼群的迁徙路线会跟着海水温度变化，就连让珊瑚白化的海洋热浪，也得靠海洋观测数据才能提前发现并预警。
 
-按程序，国务总理提名需经韩国国会投票通过。
+同时，台风登陆预报、渔船出海前海况判断、厄尔尼诺预测预警……依靠Argo浮标(一种可在海中自动下潜、上浮并传回温盐数据的观测设备)、科考船、锚系浮标等无数“眼睛”，全球海洋观测系统紧盯海洋温度、盐度等基本要素，为天气气候预测、灾害预警托底。
 
-若最终获国会投票通过，韩圣淑将成为继前总理韩明淑之后韩国第二位女性国务总理。
+为定量测算观测数据缺失造成的影响，本项研究进行一系列模拟实验发现，随机减少20%的观测数据，全球海洋增暖速率的估算误差会增加33%；随机减少80%的观测数据，误差会增加97%。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 22:13 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 22:02 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 22:27 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 22:11 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 22:07 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 22:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 22:27 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 22:20 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 22:20 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 22:10 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 22:13 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 22:15 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 22:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 22:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 22:12 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 22:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 22:20 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 22:30 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 22:18 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 22:16 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 22:24 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 22:20 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 22:06 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 22:30 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/9399879.shtml)
-- 2026-06-29 22:18 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/967471933143.shtml)
-- 2026-06-29 22:15 - [济南航空航天全面起势](http://www.blog.minike.top/Article/details/0873925646.shtml)
-- 2026-06-29 22:06 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/2479338713.shtml)
-- 2026-06-29 22:04 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/1382583.shtml)
-- 2026-06-29 22:14 - [千与千寻](https://www.share.kurohicncr.top/Article/details/00239860412.shtml)
-- 2026-06-29 22:29 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/927002945928.shtml)
-- 2026-06-29 22:25 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/5776233.shtml)
-- 2026-06-29 22:20 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/2446333.shtml)
-- 2026-06-29 22:25 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/38955144987.shtml)
-- 2026-06-29 22:04 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/7602289986.shtml)
-- 2026-06-29 22:25 - [我和我的家乡](http://www.blog.minike.top/Article/details/51183.shtml)
-- 2026-06-29 22:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/35111.shtml)
-- 2026-06-29 22:20 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/06455671.shtml)
-- 2026-06-29 22:13 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/07732.shtml)
+- 2026-06-29 22:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/92818.shtml)
+- 2026-06-29 22:25 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/6018450.shtml)
+- 2026-06-29 22:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/50438.shtml)
+- 2026-06-29 22:18 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/5029124.shtml)
+- 2026-06-29 22:13 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/10393797711.shtml)
+- 2026-06-29 22:11 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/823568.shtml)
+- 2026-06-29 22:28 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/06388047974.shtml)
+- 2026-06-29 22:23 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/3100699612.shtml)
+- 2026-06-29 22:18 - [TOP Prada](https://www.blog.minike.top/Article/details/79295822.shtml)
+- 2026-06-29 22:18 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/701519.shtml)
+- 2026-06-29 22:10 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/0649926342.shtml)
+- 2026-06-29 22:27 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/80781.shtml)
+- 2026-06-29 22:23 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/79804575.shtml)
+- 2026-06-29 22:28 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/1576963.shtml)
+- 2026-06-29 22:33 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/7400055.shtml)

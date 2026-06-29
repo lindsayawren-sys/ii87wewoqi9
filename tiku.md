@@ -1,57 +1,58 @@
-# 开智驾如同开盲盒？多起追尾事故暴露L2安全漏洞
+# 永辉超市38亿仲裁进入强制执行 王健林等面临司法追偿
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-普通消费者难以辨别产品优劣，仅凭车辆标注的L2级辅助驾驶配置，盲目在各类路况启用、甚至过度依赖该功能，如同开启一款性能未知的“智驾盲盒”。 近期，国内多起智能汽车辅助驾驶事故，持续暴露L2级智驾普及过程中的安全漏洞。 某品牌车型在高速开启L2辅助驾驶后，未能有效识别前方停驶的工程车辆，最终酿成追尾事故；另一款车型在阴雨天气下，系统未能识别路面静止障碍物，导致车辆径直撞上；还有车
+5月21日晚间，永辉超市（601933.SH）发布公告称，公司于近日收到法院出具的《受理案件通知书》，公司与大连御锦贸易有限公司（以下简称“大连御锦”）、王健林、孙喜双、大连一方集团有限公司（以下简称“一方集团”）仲裁裁决一案，上海国际经济贸易仲裁委员会作出的上国仲（2024）第3170号仲裁裁决文书已发生法律效力。经公司向法院申请执行，法院决定立案执行。 从仲裁到执行：两年追
 
 ## 正文
 
-普通消费者难以辨别产品优劣，仅凭车辆标注的L2级辅助驾驶配置，盲目在各类路况启用、甚至过度依赖该功能，如同开启一款性能未知的“智驾盲盒”。
+5月21日晚间，永辉超市（601933.SH）发布公告称，公司于近日收到法院出具的《受理案件通知书》，公司与大连御锦贸易有限公司（以下简称“大连御锦”）、王健林、孙喜双、大连一方集团有限公司（以下简称“一方集团”）仲裁裁决一案，上海国际经济贸易仲裁委员会作出的上国仲（2024）第3170号仲裁裁决文书已发生法律效力。
 
-近期，国内多起智能汽车辅助驾驶事故，持续暴露L2级智驾普及过程中的安全漏洞。
+经公司向法院申请执行，法院决定立案执行。
 
-某品牌车型在高速开启L2辅助驾驶后，未能有效识别前方停驶的工程车辆，最终酿成追尾事故；另一款车型在阴雨天气下，系统未能识别路面静止障碍物，导致车辆径直撞上；还有车型在开启智驾功能后失控变道，险些引发多车连环相撞。
+从仲裁到执行：两年追债终入司法强制程序 这起备受市场关注的巨额股权纠纷，始于2023年末永辉超市为盘活存量资产、回笼资金而作出的战略决策。
 
-上述涉事车辆均搭载L2级辅助驾驶系统。
+2023年12月8日，永辉超市与大连御锦签订股份转让协议，向后者出售所持有的3.89亿股万达商管股份（对应万达商管于2023年8月25日增资扩股前的6478.33万股持股），标的股份转让价款约为45.3亿元，由大连御锦分八期支付。
 
-事故发生后，涉事车企以车辆用户手册约定为依据进行免责，事故最终定责大多指向车主，判定车主因未履行全程瞭望义务、未及时人工采取避让措施，承担事故主要责任。
+然而，交易推进并不顺利。
 
-目前国内所有在售智能汽车，其智驾产品均归属L2级组合驾驶辅助范畴，并未达到自动驾驶级别，法规明确要求驾驶员全程掌控车辆、承担行车主体责任。
+2024年4月至7月，大连御锦第二期、第三期转让款连续逾期。
 
-但行业长期存在显著的产品差距，不同车型的智驾成本、算法实力悬殊，智驾性能参差不齐。
+2024年7月26日，各方签订《补充协议》，将剩余未付的38.39亿元重新分为八期支付，付款期限延至2026年3月31日，王健林、孙喜双、一方集团为全部剩余款项提供连带保证。
 
-普通消费者难以辨别产品优劣，仅凭车辆标注的L2级辅助驾驶配置，盲目在各类路况启用、甚至过度依赖该功能，如同开启一款性能未知的“智驾盲盒”，一旦遭遇系统识别失效场景，极易造成重大车损与人身伤害事故。
+但增信措施未能扭转违约局面。
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 22:13 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 22:21 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 22:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 22:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 22:06 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 22:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 22:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 22:28 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 22:21 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 22:06 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 22:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 22:34 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 22:33 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 22:35 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 22:35 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 22:11 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 22:28 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 22:15 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 22:09 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 22:23 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 22:06 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 22:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/59227998.shtml)
-- 2026-06-29 22:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/8934330.shtml)
-- 2026-06-29 22:14 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/974596.shtml)
-- 2026-06-29 22:06 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/504745329432.shtml)
-- 2026-06-29 22:27 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/92447923.shtml)
-- 2026-06-29 22:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/05724756.shtml)
-- 2026-06-29 22:21 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/14507401.shtml)
-- 2026-06-29 22:11 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/0335207.shtml)
-- 2026-06-29 22:02 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/5550367004.shtml)
-- 2026-06-29 22:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/10064562317.shtml)
-- 2026-06-29 22:24 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/1721916.shtml)
-- 2026-06-29 22:20 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/936937874404.shtml)
-- 2026-06-29 22:26 - [金刚川](http://www.share.minike.top/Article/details/3226832847.shtml)
-- 2026-06-29 22:01 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/351417923944.shtml)
-- 2026-06-29 22:07 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/21104.shtml)
+- 2026-06-29 22:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/3307395474.shtml)
+- 2026-06-29 22:15 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/411363.shtml)
+- 2026-06-29 22:14 - [第一炉香](https://www.blog.minike.top/Article/details/1052630.shtml)
+- 2026-06-29 22:28 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/4363161266.shtml)
+- 2026-06-29 22:27 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/971518.shtml)
+- 2026-06-29 22:15 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/0405297796.shtml)
+- 2026-06-29 22:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/1961105485.shtml)
+- 2026-06-29 22:07 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/77946547022.shtml)
+- 2026-06-29 22:28 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/03663.shtml)
+- 2026-06-29 22:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/85863.shtml)
+- 2026-06-29 22:15 - [请回答王牌2019](https://www.blog.minike.top/Article/details/50121004537.shtml)
+- 2026-06-29 22:25 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/0618906477.shtml)
+- 2026-06-29 22:29 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/318354.shtml)
+- 2026-06-29 22:23 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/4389935.shtml)
+- 2026-06-29 22:17 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/630242932.shtml)

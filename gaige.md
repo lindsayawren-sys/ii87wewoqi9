@@ -1,57 +1,57 @@
-# 2026中俄成人足球对抗赛哈尔滨开赛 深化两国体育文化互鉴
+# 迪瑞医疗会计差错更正，受损股民可预登记索赔
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月6日电 (记者 王晓丹 刘锡菊)6日，2026年上合冰雪体育示范区国际体育交流年一中俄体育文化系列活动之2026中俄成人足球对抗赛在哈尔滨开赛。来自中国、俄罗斯的4支代表队、约50名运动员参赛。赛事以足球为纽带，深化中俄体育文化互鉴，推动上合框架下冰雪体育合作，助力两国民间友好交流。 本次赛事是哈尔滨市2026年中俄体育交流系列赛事之一，也是上合组织国家体育合作
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！根据最新消息，迪瑞医疗科技股份有限公司（以下简称“迪瑞医疗”）发布了会计差错更正公告。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月19日-2026年4月29日期间买入且有持仓，无论在2026年4月30日及之后是否卖出的投资者，可通过“新浪股民维权平台”
 
 ## 正文
 
-中新网哈尔滨6月6日电 (记者 王晓丹 刘锡菊)6日，2026年上合冰雪体育示范区国际体育交流年一中俄体育文化系列活动之2026中俄成人足球对抗赛在哈尔滨开赛。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来自中国、俄罗斯的4支代表队、约50名运动员参赛。
+根据最新消息，迪瑞医疗科技股份有限公司（以下简称“迪瑞医疗”）发布了会计差错更正公告。
 
-赛事以足球为纽带，深化中俄体育文化互鉴，推动上合框架下冰雪体育合作，助力两国民间友好交流。
+上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年4月19日-2026年4月29日期间买入且有持仓，无论在2026年4月30日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
 
-本次赛事是哈尔滨市2026年中俄体育交流系列赛事之一，也是上合组织国家体育合作的重要成果，更是中国—上海合作组织冰雪体育示范区建设的生动实践。
+回顾本案，2026年4月30日迪瑞医疗发布《关于会计差错更正及追溯调整的公告》，本次会计差错更正内容涉及调整迪瑞医疗2023年度、2024年度应收账款、存货、合同负债、营业收入、营业成本、销售费用、财务费用等项目。
 
-此次对抗赛是哈尔滨市2026年中俄体育交流系列赛事的第四场交流活动。
+信本股民索赔团队提醒，迪瑞医疗进行了会计差错更正，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
 
-据悉，自该系列赛事活动启动以来，哈尔滨持续深耕对俄体育外事交流，有序落地多场双边竞技赛事，以多元化体育载体搭建中俄互通互鉴、民心相通的友好桥梁，持续深化两国体育、文化、青年全方位交流合作。
+索赔条件： 迪瑞医疗：于2024年4月19日-2026年4月29日期间买入且有持仓，无论在2026年4月30日及之后是否卖出（具体赔付范围由法院确定） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
 
-“很高兴能来中国参赛，赛事为两国教练员交流训练方法搭建了平台。
+赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
 
-”俄罗斯符拉迪沃斯托克足球俱乐部教练阿布合金·阿勒焦姆表示。
+2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 22:25 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 22:26 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 22:20 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 22:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 22:13 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 22:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 22:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 22:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 22:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 22:23 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 22:28 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 22:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 22:20 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 22:32 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 22:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 22:22 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 22:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 22:07 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 22:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 22:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 22:16 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/83223.shtml)
-- 2026-06-29 22:20 - [扫黑风暴](http://www.blog.minike.top/Article/details/329724808063.shtml)
-- 2026-06-29 22:04 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/33141.shtml)
-- 2026-06-29 22:07 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/19773652.shtml)
-- 2026-06-29 22:09 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/2194627835.shtml)
-- 2026-06-29 22:17 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/530436859488.shtml)
-- 2026-06-29 22:04 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/696135.shtml)
-- 2026-06-29 22:17 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/00666337354.shtml)
-- 2026-06-29 22:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/7845169.shtml)
-- 2026-06-29 22:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/6005153.shtml)
-- 2026-06-29 22:23 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/84023529514.shtml)
-- 2026-06-29 22:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/15309.shtml)
-- 2026-06-29 22:15 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/328129607.shtml)
-- 2026-06-29 22:28 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/918616474.shtml)
-- 2026-06-29 22:29 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/042161.shtml)
+- 2026-06-29 22:21 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/8400620964.shtml)
+- 2026-06-29 22:17 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/7143103943.shtml)
+- 2026-06-29 22:13 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/06065.shtml)
+- 2026-06-29 22:17 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/0086593.shtml)
+- 2026-06-29 22:20 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/484879302.shtml)
+- 2026-06-29 22:20 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/073372.shtml)
+- 2026-06-29 22:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/1532259.shtml)
+- 2026-06-29 22:07 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/24476654.shtml)
+- 2026-06-29 22:09 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/53034109.shtml)
+- 2026-06-29 22:24 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/2032410.shtml)
+- 2026-06-29 22:25 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/2588717.shtml)
+- 2026-06-29 22:11 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/059320688321.shtml)
+- 2026-06-29 22:20 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/018996.shtml)
+- 2026-06-29 22:16 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/584812.shtml)
+- 2026-06-29 22:30 - [炽夏](http://www.share.kurohicncr.top/Article/details/057302880.shtml)

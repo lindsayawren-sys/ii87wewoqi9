@@ -1,57 +1,58 @@
-# 孩子高低肩、总喊腰酸背痛？这些可能是脊柱侧弯的信号
+# 湖北又将迎强降水 发布暴雨橙色省级预警
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-原标题：朝“问”健康丨孩子高低肩、总喊腰酸背痛？这些可能是脊柱侧弯的信号 每年6月是“脊柱侧弯唤醒月”，数据显示，我国中小学生脊柱侧弯整体患病率约1%，发生脊柱侧弯人数估算超过500万，每年新增确诊约30万人。脊柱侧弯继近视、肥胖后，已成为我国青少年第三大高发慢性病，今年刚纳入了国家确定的儿童青少年“五健”促进行动中专项防控，搭建筛查、干预、诊疗全链条防护网。 脊柱侧弯分“真假
+中新网武汉5月23日电 (记者 马芙蓉)湖北新一轮较强降水将于23日晚上线。23日下午，湖北省气象台发布暴雨橙色省级预警，湖北省气象局启动重大气象灾害(暴雨、强对流)三级应急响应。 根据预警信息，预计23日晚至24日白天，恩施、宜昌、荆门、荆州、潜江、天门、仙桃、孝感、武汉西部等地将有大雨到暴雨，部分地区大暴雨，局地特大暴雨；襄阳、十堰东部、随州南部有中到大雨，局地暴雨。 本轮
 
 ## 正文
 
-原标题：朝“问”健康丨孩子高低肩、总喊腰酸背痛？
+中新网武汉5月23日电 (记者 马芙蓉)湖北新一轮较强降水将于23日晚上线。
 
-这些可能是脊柱侧弯的信号 每年6月是“脊柱侧弯唤醒月”，数据显示，我国中小学生脊柱侧弯整体患病率约1%，发生脊柱侧弯人数估算超过500万，每年新增确诊约30万人。
+23日下午，湖北省气象台发布暴雨橙色省级预警，湖北省气象局启动重大气象灾害(暴雨、强对流)三级应急响应。
 
-脊柱侧弯继近视、肥胖后，已成为我国青少年第三大高发慢性病，今年刚纳入了国家确定的儿童青少年“五健”促进行动中专项防控，搭建筛查、干预、诊疗全链条防护网。
+根据预警信息，预计23日晚至24日白天，恩施、宜昌、荆门、荆州、潜江、天门、仙桃、孝感、武汉西部等地将有大雨到暴雨，部分地区大暴雨，局地特大暴雨；襄阳、十堰东部、随州南部有中到大雨，局地暴雨。
 
-脊柱侧弯分“真假” 成因治疗方式不同不少家长发现孩子高低肩、后背不对称，就会归咎于歪坐、趴桌看书，误以为只要纠正坐姿就能把脊柱掰回正常。
+本轮降水将持续至26日，主要降雨时段在23日夜间至25日夜间。
 
-实际上，脊柱侧弯分真性特发性脊柱侧弯和假性姿势性侧弯，二者成因、治疗方式截然不同。
+具体来看，23日晚，较强降水主要集中在湖北中西部地区；24日，强降雨区将向东推进，势力进一步加强；25日，较强降雨区域仍主要位于湖北东部，但强度略有减弱。
 
-其实临床上占青少年脊柱侧弯的大部分是真性的特发性脊柱侧弯，和坐姿坏习惯无关，也无法通过调整姿势来矫正，目前研究的结果显示可能与基因、激素分泌、神经系统等存在一定关系，但并不能确定为明确的病因。
+气象专家介绍，预计本轮降水过程中，鄂西南南部、江汉平原和鄂东地区累计雨量较大，部分地区还将伴有小时雨强在40毫米~80毫米、局地100毫米以上的短时强降水和8级~12级雷暴大风。
 
-北京大学人民医院脊柱外科主任医师、国家儿童青少年脊柱侧弯防控工作组组长 刘海鹰：特发性的侧弯是随着年龄增长，随着生长发育进入高峰出现的，这种需要早期发现，早期分步进行治疗，比如早期用特定的运动康复，中度是戴支具，如果是重一点的就得手术。
+5月16日至19日，湖北已遭遇今年以来最强区域性暴雨过程，综合强度排5月历史第2位。
 
-特发性脊柱侧弯0—20°是轻度，20—40°是中度侧弯，大于40°的是重度。
+气象专家表示，23日至26日降雨过程叠加前期降雨影响，致灾风险较高，需注意防范强降雨诱发的山洪地质灾害、中小河流洪水和城乡积涝风险。
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 22:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 22:23 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 22:01 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 22:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 22:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 22:00 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 22:15 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 22:26 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 22:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 22:24 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 22:18 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 22:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 22:23 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 22:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 22:33 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 22:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 22:10 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 22:13 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 22:29 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 22:29 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 22:35 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 22:09 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/86839063.shtml)
-- 2026-06-29 22:00 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/618206977820.shtml)
-- 2026-06-29 22:28 - [第一炉香](https://www.share.minike.top/Article/details/1276346.shtml)
-- 2026-06-29 22:16 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/121731431.shtml)
-- 2026-06-29 22:17 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/731154.shtml)
-- 2026-06-29 22:00 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/02395.shtml)
-- 2026-06-29 22:16 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/0083602.shtml)
-- 2026-06-29 22:16 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/371421.shtml)
-- 2026-06-29 22:19 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/295194286740.shtml)
-- 2026-06-29 22:23 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/271208020.shtml)
-- 2026-06-29 22:26 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/29714837444.shtml)
-- 2026-06-29 22:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/0043315307.shtml)
-- 2026-06-29 22:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/7739591.shtml)
-- 2026-06-29 22:17 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/825732.shtml)
-- 2026-06-29 22:15 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/09675949561.shtml)
+- 2026-06-29 22:23 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/54047844.shtml)
+- 2026-06-29 22:27 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/8793109380.shtml)
+- 2026-06-29 22:10 - [月亮](http://www.blog.minike.top/Article/details/156279502772.shtml)
+- 2026-06-29 22:32 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/59027.shtml)
+- 2026-06-29 22:31 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/73237298.shtml)
+- 2026-06-29 22:34 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/12291363067.shtml)
+- 2026-06-29 22:27 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/9283755.shtml)
+- 2026-06-29 22:18 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/1834298436.shtml)
+- 2026-06-29 22:09 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/16187160.shtml)
+- 2026-06-29 22:09 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/81183.shtml)
+- 2026-06-29 22:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/78450.shtml)
+- 2026-06-29 22:12 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/505189.shtml)
+- 2026-06-29 22:14 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/585273382959.shtml)
+- 2026-06-29 22:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/68136102.shtml)
+- 2026-06-29 22:17 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/73903905.shtml)

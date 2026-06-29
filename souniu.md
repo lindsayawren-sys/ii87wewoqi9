@@ -1,56 +1,60 @@
-# 香江观澜：“枢纽对枢纽” ——香港联通中亚开启合作新篇章
+# AI正重塑出版业 业界专家建言加快数智化赋能
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新社香港6月6日电 题：“枢纽对枢纽” ——香港联通中亚开启合作新篇章 中新社记者 香卢平 香港特区行政长官李家超6日完成对哈萨克斯坦、乌兹别克斯坦的访问回港。访问期间，代表团同两国签订96份合作协议和备忘录，金额逾16.5亿美元，涉及经贸、金融、创科、教育等多个领域。 此次中亚行成果丰硕，这不仅得益于香港内联外通的枢纽优势，也体现了香港在服务国家高水平对外开放中的独特作用。
+中新网深圳5月22日电 (记者 程景伟)2026文化强国建设高峰论坛出版融合发展论坛22日在深圳举办。与会业界专家指出，出版业发展处在业态分化、产业重塑的关口，要强化科技引领，找准技术革新与出版创新的结合点，加快出版业数智化赋能、信息化转型。 近年来，我国出版融合发展业务规模快速增长，涌现出一批标杆单位、精品项目、成熟模式。此次论坛通过主题演讲、专题对谈等方式，围绕出版融合发展
 
 ## 正文
 
-中新社香港6月6日电 题：“枢纽对枢纽” ——香港联通中亚开启合作新篇章 中新社记者 香卢平 香港特区行政长官李家超6日完成对哈萨克斯坦、乌兹别克斯坦的访问回港。
+中新网深圳5月22日电 (记者 程景伟)2026文化强国建设高峰论坛出版融合发展论坛22日在深圳举办。
 
-访问期间，代表团同两国签订96份合作协议和备忘录，金额逾16.5亿美元，涉及经贸、金融、创科、教育等多个领域。
+与会业界专家指出，出版业发展处在业态分化、产业重塑的关口，要强化科技引领，找准技术革新与出版创新的结合点，加快出版业数智化赋能、信息化转型。
 
-此次中亚行成果丰硕，这不仅得益于香港内联外通的枢纽优势，也体现了香港在服务国家高水平对外开放中的独特作用。
+近年来，我国出版融合发展业务规模快速增长，涌现出一批标杆单位、精品项目、成熟模式。
 
-其一，此访是“枢纽对枢纽”合作模式的创新实践。
+此次论坛通过主题演讲、专题对谈等方式，围绕出版融合发展相关的组织变革、技术赋能、人才培养、业态重塑等议题进行深度研讨。
 
-李家超在总结访问成果时说，中亚各方普遍认同“枢纽对枢纽”的合作方向，认为这将为香港和中亚带来更大合作空间。
+“当下，数智浪潮奔涌而来，人工智能与大数据正深度重塑出版业，深度融合发展已成为一道必须答好的时代命题。
 
-香港是国际金融、贸易和航运中心，是海外资金进入内地和内地企业走向世界的窗口；哈萨克斯坦和乌兹别克斯坦分别是中亚面积最大和人口最多的国家，亦为国际资本连接欧亚市场的重要节点。
+”人民教育出版社党委书记、社长孙强表示，人教社立足音像数字融合成果，推动纸数教材研究、编写、出版、发行相融相通。
 
-“枢纽对枢纽”，意味着两大区域枢纽资本、技术、人才、信息等生产要素的高效对接，并辐射各自市场腹地，实现发展机遇的双向流动与互利共赢。
+以人教版第十二套义务教育教材立体化建设为抓手，强化融合项目管理，建立“产品、内容、技术”深度绑定的协作机制，充分发挥学科编辑室内容研发优势、音数公司产品技术优势，实现纸质教材与数字资源一体规划、同步开发、精准适配，打造多模态融合出版模式，推动纸数教材从简单叠加走向深度融合。
 
-其二，中亚之行是香港和内地企业“拼船出海”的生动例证。
+“十五五”时期，人教社将全面实施数智赋能教育出版战略，纵深推进组织体系优化与业务板块整合，构建适应人工智能时代的出版协同新机制。
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 22:07 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 22:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 22:17 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 22:28 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 22:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 22:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 22:27 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 22:28 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 22:06 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 22:33 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 22:11 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 22:32 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 22:33 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 22:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 22:21 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 22:16 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 22:24 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 22:26 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 22:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 22:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 22:12 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 22:23 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 22:14 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/20807.shtml)
-- 2026-06-29 22:18 - [乔家的儿女](http://www.blog.minike.top/Article/details/692413.shtml)
-- 2026-06-29 22:00 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/19994785380.shtml)
-- 2026-06-29 22:05 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/1695551.shtml)
-- 2026-06-29 22:04 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/505467056771.shtml)
-- 2026-06-29 22:01 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/52146.shtml)
-- 2026-06-29 22:17 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/072814709.shtml)
-- 2026-06-29 22:28 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/4219560.shtml)
-- 2026-06-29 22:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/70901775251.shtml)
-- 2026-06-29 22:17 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/01819.shtml)
-- 2026-06-29 22:27 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/26723219.shtml)
-- 2026-06-29 22:11 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/84944.shtml)
-- 2026-06-29 22:19 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/15526.shtml)
-- 2026-06-29 22:19 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/67657.shtml)
-- 2026-06-29 22:09 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/51734.shtml)
+- 2026-06-29 22:27 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/95561.shtml)
+- 2026-06-29 22:17 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/35588331.shtml)
+- 2026-06-29 22:31 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/3039563312.shtml)
+- 2026-06-29 22:26 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/503793.shtml)
+- 2026-06-29 22:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/510261202.shtml)
+- 2026-06-29 22:33 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/25828.shtml)
+- 2026-06-29 22:14 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/3246502524.shtml)
+- 2026-06-29 22:18 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/8121663631.shtml)
+- 2026-06-29 22:35 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/600398199254.shtml)
+- 2026-06-29 22:24 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/86888015996.shtml)
+- 2026-06-29 22:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/79913041340.shtml)
+- 2026-06-29 22:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/2260149.shtml)
+- 2026-06-29 22:28 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/731811.shtml)
+- 2026-06-29 22:33 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/486538834.shtml)
+- 2026-06-29 22:20 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/61135004.shtml)

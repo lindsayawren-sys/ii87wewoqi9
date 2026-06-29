@@ -1,57 +1,57 @@
-# 【欧洲专线】海上“超级车库”满载中国产新能源汽车驶向欧洲
+# 上海加快培育类脑智能产业
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-【欧洲专线】海上“超级车库”满载中国产新能源汽车驶向欧洲 中新社上海6月7日电 (谢梦圆 毕佳缘)名为格罗灯塔轮(“Glovis Lighthouse”)的“海上超级车库”7日正式投入欧洲航线运营，在上海港装载4000台中国产新能源汽车，开启交付后的首趟商业航程。该船将靠泊深圳小漠港，最终满载8000余台新能源汽车驶向欧洲。 5月28日，这艘滚装巨轮在上海外高桥造船码头被正式命
+中新社上海5月24日电 (记者 郑莹莹)浦江创新论坛——2026类脑智能产业创新发展大会24日在上海举办。会上，上海集中发布一批类脑智能应用场景，涉及建筑、金融、医疗等领域。 上海市科学技术委员会主任骆大进表示，类脑智能是上海布局未来产业的核心赛道。上海已在杨浦区率先打造类脑智能未来产业集聚区，形成覆盖类脑芯片、感知算法、终端应用的全链条产业雏形。 上海首个类脑智能未来产业集聚
 
 ## 正文
 
-【欧洲专线】海上“超级车库”满载中国产新能源汽车驶向欧洲 中新社上海6月7日电 (谢梦圆 毕佳缘)名为格罗灯塔轮(“Glovis Lighthouse”)的“海上超级车库”7日正式投入欧洲航线运营，在上海港装载4000台中国产新能源汽车，开启交付后的首趟商业航程。
+中新社上海5月24日电 (记者 郑莹莹)浦江创新论坛——2026类脑智能产业创新发展大会24日在上海举办。
 
-该船将靠泊深圳小漠港，最终满载8000余台新能源汽车驶向欧洲。
+会上，上海集中发布一批类脑智能应用场景，涉及建筑、金融、医疗等领域。
 
-5月28日，这艘滚装巨轮在上海外高桥造船码头被正式命名，成为长江流域首艘万车级超大型汽车运输船。
+上海市科学技术委员会主任骆大进表示，类脑智能是上海布局未来产业的核心赛道。
 
-其最大载车量达10800车，总长230米、型宽40米，相当于16层楼高，设有14层车库甲板，其中5层为活动式甲板，可灵活装载各类新能源车及重型商用车辆，运力是常规滚装船的近两倍。
+上海已在杨浦区率先打造类脑智能未来产业集聚区，形成覆盖类脑芯片、感知算法、终端应用的全链条产业雏形。
 
-在绿色动力方面，该船采用液化天然气(LNG)和燃油双燃料推进系统，搭载国产高性能永磁轴带发电系统，碳排放较传统燃油船降低超30%。
+上海首个类脑智能未来产业集聚区于2025年4月18日在杨浦区长阳创谷启动，目前已吸引34家企业落地。
 
-上海港作为全国最大的汽车出口口岸，已形成外高桥与上海临港“双码头联动”格局。
+为何要发展类脑智能？
 
-位于外高桥港区的海通国际汽车码头，是目前全国最大的单一整车滚装码头，开通了覆盖全球135个国家和地区的12条国际滚装航线，2025年出口汽车145.7万辆，每昼夜有近4000辆汽车从这里驶向全球。
+中国信通院华东分院院长郑忠斌表示，当前大多数计算机设备与AI芯片，在本质上仍采用计算与存储分离的架构，导致海量数据在内存与处理器之间频繁搬运。
 
-(完)
+类脑智能从底层架构上模仿人脑，有高能效、高扩展性、低时延、在线学习等优势，是突破当前人工智能能效与算力瓶颈的关键路径。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 22:00 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 22:16 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 22:13 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 22:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 22:12 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 22:05 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 22:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 22:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 22:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 22:12 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 22:26 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 22:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 22:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 22:08 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 22:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 22:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 22:12 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 22:28 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 22:27 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 22:26 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/89603313.shtml)
-- 2026-06-29 22:13 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/442539.shtml)
-- 2026-06-29 22:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/422178733619.shtml)
-- 2026-06-29 22:24 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/7130768878.shtml)
-- 2026-06-29 22:20 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/493446.shtml)
-- 2026-06-29 22:28 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/2528547976.shtml)
-- 2026-06-29 22:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/375693978908.shtml)
-- 2026-06-29 22:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/659073464.shtml)
-- 2026-06-29 22:06 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/61417883082.shtml)
-- 2026-06-29 22:16 - [毒液2](http://www.share.kurohicncr.top/Article/details/579295.shtml)
-- 2026-06-29 22:21 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/912464.shtml)
-- 2026-06-29 22:03 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/8636492.shtml)
-- 2026-06-29 22:22 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/469851516.shtml)
-- 2026-06-29 22:28 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/258878.shtml)
-- 2026-06-29 22:08 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/596085343609.shtml)
+- 2026-06-29 22:11 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/56384.shtml)
+- 2026-06-29 22:20 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/676938216.shtml)
+- 2026-06-29 22:15 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/20012100.shtml)
+- 2026-06-29 22:28 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/52390.shtml)
+- 2026-06-29 22:20 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/90958946060.shtml)
+- 2026-06-29 22:06 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/057907614239.shtml)
+- 2026-06-29 22:27 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/994791.shtml)
+- 2026-06-29 22:19 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/61869715189.shtml)
+- 2026-06-29 22:21 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/02743052029.shtml)
+- 2026-06-29 22:20 - [啊啊啊](http://www.share.minike.top/Article/details/949860.shtml)
+- 2026-06-29 22:30 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/065668.shtml)
+- 2026-06-29 22:30 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/8463765.shtml)
+- 2026-06-29 22:34 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/475795263718.shtml)
+- 2026-06-29 22:06 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/9857122542.shtml)
+- 2026-06-29 22:16 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/55343253.shtml)

@@ -1,61 +1,54 @@
-# 去杠杆！保证金上调至120%，多家大行再次收紧个人贵金属延期合约风控
+# 2026年粤港澳大湾区青少年（学校）羽毛球联赛在广州收官
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 安震 随着近期黄金、白银价格波动加剧，近日，多家大行宣布将代理上海黄金交易所的个人贵金属延期合约保证金比例提高至120%。 6月4日晚间，农业银行发布通知，宣布自6月5日收盘清算时起，Au（T+D）、Ag（T+D）合约的保证金比例从100%调整为120%。 此前，工商银行和建设银行也发布公告，上调个人贵金属延期合约保证金比例。业内人士认为，保证金比例上调至12
+中新网广州5月25日电 (记者 张璐)2026年粤港澳大湾区青少年(学校)羽毛球联赛(简称“赛事”)24日在广州落下帷幕。 据悉，本次赛事以团体赛形式设置四大参赛组别，采用小组赛抽签晋级、淘汰赛逐级角逐的专业竞赛机制，共有33支队伍参加。 经过激烈的角逐，暨南大学斩获大学混合团体组冠军，东莞高级中学斩获高中男子团体组冠军，香港协恩中学斩获高中女子团体组冠军，肇庆市第一中学斩获初
 
 ## 正文
 
-界面新闻记者 | 安震 随着近期黄金、白银价格波动加剧，近日，多家大行宣布将代理上海黄金交易所的个人贵金属延期合约保证金比例提高至120%。
+中新网广州5月25日电 (记者 张璐)2026年粤港澳大湾区青少年(学校)羽毛球联赛(简称“赛事”)24日在广州落下帷幕。
 
-6月4日晚间，农业银行发布通知，宣布自6月5日收盘清算时起，Au（T+D）、Ag（T+D）合约的保证金比例从100%调整为120%。
+据悉，本次赛事以团体赛形式设置四大参赛组别，采用小组赛抽签晋级、淘汰赛逐级角逐的专业竞赛机制，共有33支队伍参加。
 
-此前，工商银行和建设银行也发布公告，上调个人贵金属延期合约保证金比例。
+经过激烈的角逐，暨南大学斩获大学混合团体组冠军，东莞高级中学斩获高中男子团体组冠军，香港协恩中学斩获高中女子团体组冠军，肇庆市第一中学斩获初中男子团体组冠军，香港福建中学斩获初中女子团体组冠军，广州市天河区先烈东小学分别斩获小学男子团体组和女子团体组冠军。
 
-业内人士认为，保证金比例上调至120%后，个人贵金属交易需要超额保证金，防止黄金行情高波动情况下对银行和个人客户产生更大的风险。
+据介绍，粤港澳大湾区青少年(学校)羽毛球联赛搭建三地校园交流桥梁，在竞技切磋中锤炼青少年意志品格，增进湾区青年情谊。
 
-杠杆作用不复存在 6月2日，工商银行和建设银行均发布公告，银行代理个人客户Au（T+D）、mAu（T+D）、Au（T+N1）、Au（T+N2）、Ag（T+D）等延期合约的标准交易保证金比例由100%调整为120%，强平保证金比例由80%调整为100%。
+未来，赛事将持续发挥文体纽带作用，弘扬体育精神，凝聚青春力量，以常态化校园体育交流助力大湾区文体事业发展，为大湾区建设注入青春动能。
 
-工行在公告中明确，上述调整将对客户保证金账户资金充足率产生直接影响。
-
-建议密切关注保证金账户余额变动情况，提前采取自行平仓等必要措施。
-
-如客户保证金账户资金不足，满足强行平仓条件，工行将适时执行强行平仓措施。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 22:08 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 22:11 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 22:05 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 22:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 22:01 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 22:07 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 22:05 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 22:00 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 22:16 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 22:18 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 22:08 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 22:15 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 22:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 22:22 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 22:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 22:19 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 22:16 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 22:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 22:19 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 22:32 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 22:23 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 22:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 22:35 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 22:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 22:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 22:24 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:13 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/08885.shtml)
-- 2026-06-29 22:23 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/8276927.shtml)
-- 2026-06-29 22:03 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/5123873.shtml)
-- 2026-06-29 22:02 - [金刚川](http://www.share.minike.top/Article/details/403647491878.shtml)
-- 2026-06-29 22:08 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/517864.shtml)
-- 2026-06-29 22:21 - [美人鱼](http://www.blog.minike.top/Article/details/17481.shtml)
-- 2026-06-29 22:12 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/883961235605.shtml)
-- 2026-06-29 22:06 - [新官上任三把火](http://www.blog.minike.top/Article/details/52866.shtml)
-- 2026-06-29 22:08 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/59445885856.shtml)
-- 2026-06-29 22:16 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/6673302.shtml)
-- 2026-06-29 22:09 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/922777877.shtml)
-- 2026-06-29 22:17 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/7669963.shtml)
-- 2026-06-29 22:07 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/41561406.shtml)
-- 2026-06-29 22:26 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/12742776.shtml)
-- 2026-06-29 22:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/0893325.shtml)
+- 2026-06-29 22:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/008080218210.shtml)
+- 2026-06-29 22:22 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/122593527.shtml)
+- 2026-06-29 22:28 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/8040019294.shtml)
+- 2026-06-29 22:31 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/266180.shtml)
+- 2026-06-29 22:21 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/85013.shtml)
+- 2026-06-29 22:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/660843355.shtml)
+- 2026-06-29 22:22 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/00709224.shtml)
+- 2026-06-29 22:23 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/444813.shtml)
+- 2026-06-29 22:35 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/099319830.shtml)
+- 2026-06-29 22:27 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/83718499.shtml)
+- 2026-06-29 22:32 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/277210706.shtml)
+- 2026-06-29 22:26 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/91657058.shtml)
+- 2026-06-29 22:19 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/47728178510.shtml)
+- 2026-06-29 22:17 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/018174169518.shtml)
+- 2026-06-29 22:15 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/0490643.shtml)

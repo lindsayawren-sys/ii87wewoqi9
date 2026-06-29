@@ -1,56 +1,58 @@
-# 高盛报告指出美股出现过热迹象 投机情绪仍低于历史极值
+# 热解读｜千磨更坚，乱云从容——习主席引用这三句诗诠释中俄关系
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-华尔街机构高盛集团日前发布最新策略报告指出，多项历史指标显示当前美国股市的乐观情绪已明显高于历史平均水平，市场出现一定程度的过热迹象，但整体投机狂热度仍低于2000年互联网泡沫和2021年的市场峰值。 高盛策略师本·斯奈德（Ben Snider）率领的团队在报告中对涵盖四大类别的九项核心市场指标进行了量化评估。结果显示，这批指标在2000年市场见顶时曾达到第100百分位，在20
+｜热解读｜5月20日，北京人民大会堂，国家主席习近平同来华进行国事访问的俄罗斯总统普京举行会谈。 “尊敬的习近平主席，亲爱的朋友，中国有句古语‘一日不见，如隔三秋’。我们非常高兴见到您。” 这是普京总统第二十五次访华。他引用中国古语真挚表达与习主席重逢的喜悦，称俄中关系已达到前所未有的高水平，堪称真正全面的伙伴关系和战略协作典范。 谈及中俄关系何以一步一个脚印走到今天的高度，习
 
 ## 正文
 
-华尔街机构高盛集团日前发布最新策略报告指出，多项历史指标显示当前美国股市的乐观情绪已明显高于历史平均水平，市场出现一定程度的过热迹象，但整体投机狂热度仍低于2000年互联网泡沫和2021年的市场峰值。
+｜热解读｜5月20日，北京人民大会堂，国家主席习近平同来华进行国事访问的俄罗斯总统普京举行会谈。
 
-高盛策略师本·斯奈德（Ben Snider）率领的团队在报告中对涵盖四大类别的九项核心市场指标进行了量化评估。
+“尊敬的习近平主席，亲爱的朋友，中国有句古语‘一日不见，如隔三秋’。
 
-结果显示，这批指标在2000年市场见顶时曾达到第100百分位，在2021年市场高位时处于第95百分位，而目前则位于第86百分位。
+我们非常高兴见到您。
 
-报告认为，虽然投机性狂热本身并不能作为精准预测市场见顶时机的绝对指标，但从历史经验来看，它始终是高估值、高集中度牛市走向终结的重要特征之一。
+” 这是普京总统第二十五次访华。
 
-报告强调，过去类似牛市结束时所伴随的诸多宏观信号，在当前市场环境中尚未完全显现，但较数月前已呈现明显的加速逼近态势。
+他引用中国古语真挚表达与习主席重逢的喜悦，称俄中关系已达到前所未有的高水平，堪称真正全面的伙伴关系和战略协作典范。
 
-这些潜在的风险信号主要包括经济增长不及预期、企业股票发行（IPO）规模异常庞大，以及美联储持续收紧货币政策等。
+谈及中俄关系何以一步一个脚印走到今天的高度，习近平主席引用三句诗深刻阐释两国关系不断发展的深层原因： ——“双方以‘千磨万击还坚劲’的毅力不断深化政治互信和战略协作”； ——“以‘更上一层楼’的精神拓展各领域合作”； ——“以‘乱云飞渡仍从容’的勇气捍卫国际公道正义、推动构建人类命运共同体”。
 
-在谈及当前牛市与历史泡沫期的结构性差异时，高盛策略师分析指出，目前美股的市场广度（Breadth）并未重现互联网泡沫时期的极端狭窄特征。
+习主席这些重要论述，融通古今、洞悉大势，既蕴含着对人类文明交流交融与历史发展规律的深邃思考，也道出了“中俄关系长期、健康、稳定、高质量发展”的内在逻辑。
 
-尽管近期市场动量行情涨势极为迅猛，但本轮上涨主要由上市公司盈利预期的实际上调所驱动，这与以往纯粹的估值炒作存在本质不同。
+中俄关系在纷繁复杂的国际风云中经受重重考验，始终坚如磐石，生动诠释了两国“千磨万击还坚劲”的政治互信。
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 22:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 22:20 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-29 22:23 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 22:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 22:18 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 22:27 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 22:11 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 22:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 22:17 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 22:32 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 22:25 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 22:35 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-29 22:08 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 22:10 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 22:20 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 22:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 22:19 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 22:31 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 22:06 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 22:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 22:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/3049822363.shtml)
-- 2026-06-29 22:06 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/19035262481.shtml)
-- 2026-06-29 22:20 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/924415753.shtml)
-- 2026-06-29 22:28 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/37392855287.shtml)
-- 2026-06-29 22:04 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/470396038447.shtml)
-- 2026-06-29 22:06 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/209356.shtml)
-- 2026-06-29 22:06 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/104081370.shtml)
-- 2026-06-29 22:20 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/9880474303.shtml)
-- 2026-06-29 22:11 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/3438403129.shtml)
-- 2026-06-29 22:19 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/231811988.shtml)
-- 2026-06-29 22:05 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/857832120.shtml)
-- 2026-06-29 22:13 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/322386506554.shtml)
-- 2026-06-29 22:00 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/87467.shtml)
-- 2026-06-29 22:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/14816864.shtml)
-- 2026-06-29 22:13 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/52096069.shtml)
+- 2026-06-29 22:22 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/55322752.shtml)
+- 2026-06-29 22:14 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/82742277761.shtml)
+- 2026-06-29 22:32 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/015121.shtml)
+- 2026-06-29 22:30 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/415323732939.shtml)
+- 2026-06-29 22:15 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/7445989538.shtml)
+- 2026-06-29 22:08 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/37707889128.shtml)
+- 2026-06-29 22:13 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/43126.shtml)
+- 2026-06-29 22:26 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/843513020489.shtml)
+- 2026-06-29 22:15 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/8605958.shtml)
+- 2026-06-29 22:12 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/8583329481.shtml)
+- 2026-06-29 22:17 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/998907596447.shtml)
+- 2026-06-29 22:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/91892831.shtml)
+- 2026-06-29 22:13 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/7234071.shtml)
+- 2026-06-29 22:19 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/65096208585.shtml)
+- 2026-06-29 22:22 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/499514.shtml)

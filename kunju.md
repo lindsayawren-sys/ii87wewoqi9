@@ -1,56 +1,47 @@
-# 美丽中国行｜来草池湾村，和朱鹮做邻居！
+# 针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-6月6日清晨，秦巴山间的薄雾还未散尽，石泉县城关镇草池湾村的稻田边早已聚满了人。“美丽中国行之探访国家公园”集中采访团来到这个“朱鹮小村”，用镜头记录下朱鹮小村的生态之美与人与自然和谐共生的动人图景。镜头里的朱鹮与青山绿水相映成趣，定格下“东方宝石”与秦巴田园的共生瞬间。“这里的生态太好了，人和鸟就像邻居一样，这种感觉太奇妙了。”来自瑞典的游客说。 瑞典友人眼中的和谐画面，是草
+新华社快讯：针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查，查清查透事故原因，查清查透属地管理、行业监管和企业责任，依法依规严厉惩处。各地区各有关方面要全面检视矿山安全“八条硬措施”落实情况，重拳出击“打非治违”，严查严惩煤矿隐蔽工作面作业、安全监控造假、下井作业人数不清、违规分包转包等问题，确保硬措施得到硬落实。
 
 ## 正文
 
-6月6日清晨，秦巴山间的薄雾还未散尽，石泉县城关镇草池湾村的稻田边早已聚满了人。
+新华社快讯：针对山西通洲集团留神峪煤矿瓦斯爆炸事故，国务院事故调查组将较真碰硬开展事故调查，查清查透事故原因，查清查透属地管理、行业监管和企业责任，依法依规严厉惩处。
 
-“美丽中国行之探访国家公园”集中采访团来到这个“朱鹮小村”，用镜头记录下朱鹮小村的生态之美与人与自然和谐共生的动人图景。
-
-镜头里的朱鹮与青山绿水相映成趣，定格下“东方宝石”与秦巴田园的共生瞬间。
-
-“这里的生态太好了，人和鸟就像邻居一样，这种感觉太奇妙了。
-
-”来自瑞典的游客说。
-
-瑞典友人眼中的和谐画面，是草池湾村坚守生态底线的成果。
-
-今年79岁的周发奎是土生土长的草池湾人，也是村里最早加入护鹮队伍的村民之一。
-
-“最早的时候，有人担心朱鹮吃田里的泥鳅、小鱼，会影响收成。
+各地区各有关方面要全面检视矿山安全“八条硬措施”落实情况，重拳出击“打非治违”，严查严惩煤矿隐蔽工作面作业、安全监控造假、下井作业人数不清、违规分包转包等问题，确保硬措施得到硬落实。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 22:21 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 22:23 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 22:25 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 22:23 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 22:22 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 22:26 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 22:26 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 22:19 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 22:08 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 22:35 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 22:22 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 22:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 22:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 22:24 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 22:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 22:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 22:30 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 22:32 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 22:15 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 22:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 22:26 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 22:24 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/487110958.shtml)
-- 2026-06-29 22:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/645101.shtml)
-- 2026-06-29 22:13 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/694939471531.shtml)
-- 2026-06-29 22:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/55044.shtml)
-- 2026-06-29 22:19 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/008388496.shtml)
-- 2026-06-29 22:16 - [一见倾心](https://www.blog.minike.top/Article/details/1762029708.shtml)
-- 2026-06-29 22:28 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/977174489.shtml)
-- 2026-06-29 22:13 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/02509884.shtml)
-- 2026-06-29 22:12 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/86359513607.shtml)
-- 2026-06-29 22:13 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/597692853687.shtml)
-- 2026-06-29 22:01 - [哈兰德玩游戏连女友都不让着](http://www.share.kurohicncr.top/Article/details/5268508.shtml)
-- 2026-06-29 22:13 - [千与千寻](https://www.blog.minike.top/Article/details/90341719166.shtml)
-- 2026-06-29 22:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/99432.shtml)
-- 2026-06-29 22:00 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/634755314.shtml)
-- 2026-06-29 22:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/2660151276.shtml)
+- 2026-06-29 22:06 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/643407.shtml)
+- 2026-06-29 22:24 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/140576.shtml)
+- 2026-06-29 22:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/6347717638.shtml)
+- 2026-06-29 22:26 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/586844797.shtml)
+- 2026-06-29 22:20 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/56177953.shtml)
+- 2026-06-29 22:22 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/009815.shtml)
+- 2026-06-29 22:22 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/5461854484.shtml)
+- 2026-06-29 22:24 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/6188443832.shtml)
+- 2026-06-29 22:06 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/8177999764.shtml)
+- 2026-06-29 22:28 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/81536.shtml)
+- 2026-06-29 22:25 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/91692222.shtml)
+- 2026-06-29 22:09 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/4589312433.shtml)
+- 2026-06-29 22:19 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/244503459275.shtml)
+- 2026-06-29 22:33 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/743317367.shtml)
+- 2026-06-29 22:17 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/760970756367.shtml)

@@ -1,57 +1,58 @@
-# 我国服务贸易持续扩能提质
+# 威海国际海水浴场成为中国首个蓝旗海滩
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：今年以来，我国服务贸易规模稳步增长，结构持续向优，服务贸易对外贸发展的支撑作用正在进一步增强。 最近一段时间，江苏苏州生物医药产业园内多家企业密集签下服务出口订单。这家创新药企业与国际制药企业达成合作，围绕12个研发项目签署全球授权协议，交易总额达105亿美元。今年前5个月，园区落地8项生物医药自主知识产权出海合作项目，累计交易总金额突破266亿美元，较
+中新网威海5月22日电 (记者 王娇妮)22日，中国首个蓝旗海滩授旗仪式在山东威海举行，中国生态环境部宣传教育中心将标志全球公认生态标签的蓝旗授予威海国际海水浴场。 蓝旗海滩是国际环境教育基金会于1987年发起的蓝旗海洋生态环境保护项目三类海洋生态认证对象之一(其他两类为码头、游船)，也是国际游客选择旅游目的地的重要参考。截至2026年4月，全球共有53个国家的4375处海滩、
 
 ## 正文
 
-央视网消息(新闻联播)：今年以来，我国服务贸易规模稳步增长，结构持续向优，服务贸易对外贸发展的支撑作用正在进一步增强。
+中新网威海5月22日电 (记者 王娇妮)22日，中国首个蓝旗海滩授旗仪式在山东威海举行，中国生态环境部宣传教育中心将标志全球公认生态标签的蓝旗授予威海国际海水浴场。
 
-最近一段时间，江苏苏州生物医药产业园内多家企业密集签下服务出口订单。
+蓝旗海滩是国际环境教育基金会于1987年发起的蓝旗海洋生态环境保护项目三类海洋生态认证对象之一(其他两类为码头、游船)，也是国际游客选择旅游目的地的重要参考。
 
-这家创新药企业与国际制药企业达成合作，围绕12个研发项目签署全球授权协议，交易总额达105亿美元。
+截至2026年4月，全球共有53个国家的4375处海滩、745个码头及160艘游船获得蓝旗认证。
 
-今年前5个月，园区落地8项生物医药自主知识产权出海合作项目，累计交易总金额突破266亿美元，较去年同比增长超5倍。
+威海国际海水浴场始建于1992年，海滩总长约2800米。
 
-知识密集型服务正成为我国服务贸易增长的重要支撑。
+此次获得蓝旗海滩认证的范围为东起沈阳路口向西至林海公园北门约1600米海岸线。
 
-商务部数据显示：今年前4个月，我国知识密集型服务进出口11041.8亿元，在服务进出口总额的比重中达到了44.4%；知识密集型服务出口增长更为明显，同比增长了11.7%。
+据悉，中国生态环境部宣传教育中心是国际环境教育基金会在中国的唯一会员与协调机构。
 
-新兴服务贸易增势迅猛的同时，传统服务贸易也保持了较快增长，1—4月，旅行服务出口、运输服务进口增速分别达到30.4%和24.9%，传统服务贸易的基本盘持续巩固。
+在该中心等单位指导下，威海国际海水浴场自2025年起对标蓝旗四类33项标准进行完善，于2026年2月通过国内验收并提交国际申请，同年4月顺利通过国际评审。
+
+业内人士认为，中国拥有丰富多样的滨海资源，保护与开发的平衡尤为重要。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 22:05 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 22:04 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 22:00 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 22:11 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 22:06 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 22:12 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 22:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 22:10 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 22:15 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 22:05 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 22:17 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 22:01 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 22:20 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 22:29 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 22:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 22:13 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 22:26 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 22:10 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 22:07 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 22:18 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 22:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 22:08 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 22:14 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 22:28 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/5967693.shtml)
-- 2026-06-29 22:28 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/083033239.shtml)
-- 2026-06-29 22:16 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/07980216651.shtml)
-- 2026-06-29 22:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/125807838596.shtml)
-- 2026-06-29 22:06 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/1342914164.shtml)
-- 2026-06-29 22:07 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/828456.shtml)
-- 2026-06-29 22:15 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/349999105.shtml)
-- 2026-06-29 22:21 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/5557776195.shtml)
-- 2026-06-29 22:06 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/740728.shtml)
-- 2026-06-29 22:07 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/2620318685.shtml)
-- 2026-06-29 22:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/6228317919.shtml)
-- 2026-06-29 22:00 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/102639.shtml)
-- 2026-06-29 22:00 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/033628293913.shtml)
-- 2026-06-29 22:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/5164779386.shtml)
-- 2026-06-29 22:25 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/8321920954.shtml)
+- 2026-06-29 22:28 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/40417296023.shtml)
+- 2026-06-29 22:08 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/32164.shtml)
+- 2026-06-29 22:32 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/7434546.shtml)
+- 2026-06-29 22:06 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/23616939.shtml)
+- 2026-06-29 22:21 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/0590468.shtml)
+- 2026-06-29 22:08 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/662763.shtml)
+- 2026-06-29 22:22 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/379830001851.shtml)
+- 2026-06-29 22:10 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/148094.shtml)
+- 2026-06-29 22:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/64706496.shtml)
+- 2026-06-29 22:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/50365920.shtml)
+- 2026-06-29 22:34 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/021687244347.shtml)
+- 2026-06-29 22:23 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/95381820698.shtml)
+- 2026-06-29 22:12 - [沙丘](https://www.share.minike.top/Article/details/380391042854.shtml)
+- 2026-06-29 22:17 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/98688505.shtml)
+- 2026-06-29 22:22 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/638196555.shtml)

@@ -1,60 +1,59 @@
-# Apogee Enterprises宣布2027财年第一季度业绩发布日期
+# 网络安全股走势超越芯片板块，CrowdStrike 、思科创历史新高
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-Apogee Enterprises周五宣布，公司将于2026年6月26日（周五）盘前发布2027财年第一季度财务业绩报告。该公司是一家领先的建筑产品及高性能镀膜材料供应商。 根据公告，公司还将于美国中部时间当日上午8点召开电话会议，讨论季度业绩。投资者可通过Apogee官网投资者关系页面观看网络直播，会议结束后不久将提供回放和文字记录。 Apogee Enterprises总
+芯片依旧是本轮牛市核心支柱，但 5 月市场焦点转向网络安全板块。芯片板块经历回调后逐步修复，网络安全股却逆势走强，股价接连创下历史新高。 第一信托纳斯达克网络安全指数 ETF 本月涨幅约 25%，表现远超安硕半导体 ETF 与科技软件板块 ETF。该指数突破去年 10 月高点后，已连续七个交易日刷新盘中纪录。 科技板块格局就此出现反转。 半导体一直是本轮牛市的中坚力量，行情驱动
 
 ## 正文
 
-Apogee Enterprises周五宣布，公司将于2026年6月26日（周五）盘前发布2027财年第一季度财务业绩报告。
+芯片依旧是本轮牛市核心支柱，但 5 月市场焦点转向网络安全板块。
 
-该公司是一家领先的建筑产品及高性能镀膜材料供应商。
+芯片板块经历回调后逐步修复，网络安全股却逆势走强，股价接连创下历史新高。
 
-根据公告，公司还将于美国中部时间当日上午8点召开电话会议，讨论季度业绩。
+第一信托纳斯达克网络安全指数 ETF 本月涨幅约 25%，表现远超安硕半导体 ETF 与科技软件板块 ETF。
 
-投资者可通过Apogee官网投资者关系页面观看网络直播，会议结束后不久将提供回放和文字记录。
+该指数突破去年 10 月高点后，已连续七个交易日刷新盘中纪录。
 
-Apogee Enterprises总部位于明尼阿波利斯，提供涵盖建筑玻璃、窗户、幕墙、店面和入口系统、集成项目管理与安装服务，以及用于防护、创新设计和增强性能的高性能镀膜等一系列行业领先产品和服务。
+科技板块格局就此出现反转。
 
-回顾此前，Apogee在2026财年第四季度展现了稳健的执行力。
+半导体一直是本轮牛市的中坚力量，行情驱动力依旧强劲。
 
-截至2026年2月28日的第四财季，公司每股收益为0.92美元，超过分析师预期的0.90美元；季度营收同比增长1.6%至3.5135亿美元，同样高于预期的3.3598亿美元。
+即便 5 月 11 日高点至 19 日低点区间回撤超 10%，半导体 ETF 年内涨幅仍接近 80%，季度涨幅超 60%。
 
-2026整个财年，公司通过运营优化和成本管控，在充满挑战的环境下持续强化了业务基础。
+资金迅速回流芯片赛道，但 5 月走势最强劲的科技细分领域当属网络安全。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 22:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 22:26 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 22:03 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 22:30 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 22:17 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 22:04 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 22:18 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 22:21 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 22:27 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 22:17 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 22:29 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 22:07 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 22:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 22:29 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 22:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 22:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 22:21 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 22:17 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 22:09 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 22:23 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 22:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 22:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 22:19 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 22:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 22:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 22:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:25 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/48614443875.shtml)
-- 2026-06-29 22:29 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/41809053.shtml)
-- 2026-06-29 22:18 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/3072410.shtml)
-- 2026-06-29 22:20 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/5139296.shtml)
-- 2026-06-29 22:25 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/7310113.shtml)
-- 2026-06-29 22:19 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/60038324.shtml)
-- 2026-06-29 22:28 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/8253032.shtml)
-- 2026-06-29 22:24 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/262891.shtml)
-- 2026-06-29 22:25 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/703653.shtml)
-- 2026-06-29 22:07 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/98042130.shtml)
-- 2026-06-29 22:04 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/0094056499.shtml)
-- 2026-06-29 22:22 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/811644746706.shtml)
-- 2026-06-29 22:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/61969682573.shtml)
-- 2026-06-29 22:08 - [恋与深空 巧合](https://www.share.minike.top/Article/details/624897.shtml)
-- 2026-06-29 22:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/7960577.shtml)
+- 2026-06-29 22:07 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/79005149206.shtml)
+- 2026-06-29 22:07 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/029758581486.shtml)
+- 2026-06-29 22:18 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/227088.shtml)
+- 2026-06-29 22:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/66279.shtml)
+- 2026-06-29 22:34 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/70740396.shtml)
+- 2026-06-29 22:13 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/354152330658.shtml)
+- 2026-06-29 22:28 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/46822205526.shtml)
+- 2026-06-29 22:20 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/2391578.shtml)
+- 2026-06-29 22:25 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/796239675058.shtml)
+- 2026-06-29 22:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/7543610.shtml)
+- 2026-06-29 22:06 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/376784.shtml)
+- 2026-06-29 22:30 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/7845530.shtml)
+- 2026-06-29 22:15 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/414626332.shtml)
+- 2026-06-29 22:33 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/5254350.shtml)
+- 2026-06-29 22:16 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/648009499199.shtml)

@@ -1,54 +1,57 @@
-# 受暴雨影响 重庆火车站停运列车26趟
+# 云英谷港股IPO：三年累亏7.7亿 毛利率仅13% 武平系独揽基石 高估值倒挂下的国产显示驱动破局路
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月7日电 (张旭 蒋远智)6月7日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，受暴雨天气影响，当日，重庆火车站共计停运列车26趟。 其中，重庆北站15趟、重庆西站6趟、重庆东站5趟，停运列车主要为重庆开往北京、上海松江、宁波、深圳、广州白云、哈尔滨、福州、惠州、秀山、达州等方向的车次。 为有效应对暴雨天气影响，重庆火车站已全面启动防汛安
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：喜乐 2026年5月，全球第五、中国大陆第一的智能手机AMOLED显示驱动芯片设计企业云英谷科技，正式启动港股全球发售。依托全栈自研技术、稳定的头部面板客户资源，公司在全球显示驱动芯片市场占据重要席位。然而，在这份光鲜之下，公司仍面临核心AMOLED芯片毛利率仅6.4%、
 
 ## 正文
 
-中新网重庆6月7日电 (张旭 蒋远智)6月7日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，受暴雨天气影响，当日，重庆火车站共计停运列车26趟。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其中，重庆北站15趟、重庆西站6趟、重庆东站5趟，停运列车主要为重庆开往北京、上海松江、宁波、深圳、广州白云、哈尔滨、福州、惠州、秀山、达州等方向的车次。
+出品：新浪财经上市公司研究院 作者：喜乐 2026年5月，全球第五、中国大陆第一的智能手机AMOLED显示驱动芯片设计企业云英谷科技，正式启动港股全球发售。
 
-为有效应对暴雨天气影响，重庆火车站已全面启动防汛安全应急保障工作机制，实时梳理列车运行变动信息，并通过站内公告屏、公示栏及时发布列车晚点、停运通知。
+依托全栈自研技术、稳定的头部面板客户资源，公司在全球显示驱动芯片市场占据重要席位。
 
-重庆北站、重庆西站、重庆东站等站点同步增设退票改签服务专窗，配备“票务引导专员”，协助旅客通过自助售票设备、12306客户端办理退票、改签等相关业务。
+然而，在这份光鲜之下，公司仍面临核心AMOLED芯片毛利率仅6.4%、三年累亏7.7亿元、客户与供应商高度集中等压力尚未缓解，叠加基石投资者高度关联武平、发行估值倒挂、市销率高于同业等争议，云英谷的后市表现仍充满挑战。
 
-(完)
+云英谷是一家全球领先的AMOLED显示驱动芯片设计企业。
+
+公司致力于为消费电子品牌公司提供可靠及高性能的显示驱动方案。
+
+公司采用Fabless业务模式，通过与核心行业伙伴如晶圆代工厂、OSAT公司及显示面板制造商的战略合作，确立领先地位，并最终提升终端用户的显示体验。
+
+根据弗若斯特沙利文的资料，按2025年收入计，公司是全球第五大、中国大陆第一大智能手机AMOLED显示驱动芯片设计企业，在中国大陆厂商中稳居首位。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 22:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 22:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 22:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 22:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 22:10 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 22:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 22:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 22:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 22:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 22:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 22:28 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 22:20 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 22:17 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 22:09 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 22:08 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 22:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 22:13 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 22:35 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 22:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 22:06 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 22:27 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 22:23 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 22:11 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 22:25 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/302470.shtml)
-- 2026-06-29 22:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/20507.shtml)
-- 2026-06-29 22:02 - [东方风云榜直播](https://www.share.minike.top/Article/details/343499853048.shtml)
-- 2026-06-29 22:11 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/3438904.shtml)
-- 2026-06-29 22:10 - [第一炉香](http://www.share.minike.top/Article/details/90299665102.shtml)
-- 2026-06-29 22:07 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/518922670.shtml)
-- 2026-06-29 22:09 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/3880030.shtml)
-- 2026-06-29 22:00 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/15158416484.shtml)
-- 2026-06-29 22:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/618032.shtml)
-- 2026-06-29 22:23 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/8684395922.shtml)
-- 2026-06-29 22:06 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/06877.shtml)
-- 2026-06-29 22:21 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/941296.shtml)
-- 2026-06-29 22:24 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/7278061.shtml)
-- 2026-06-29 22:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/4817218998.shtml)
-- 2026-06-29 22:08 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/077271629.shtml)
+- 2026-06-29 22:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/535892.shtml)
+- 2026-06-29 22:06 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/98001296981.shtml)
+- 2026-06-29 22:16 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/4638809424.shtml)
+- 2026-06-29 22:27 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/1531413.shtml)
+- 2026-06-29 22:28 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/9523911.shtml)
+- 2026-06-29 22:20 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/06815610126.shtml)
+- 2026-06-29 22:22 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/47046.shtml)
+- 2026-06-29 22:34 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/1237028.shtml)
+- 2026-06-29 22:27 - [啊啊啊](https://www.blog.minike.top/Article/details/94423965058.shtml)
+- 2026-06-29 22:13 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/78837798.shtml)
+- 2026-06-29 22:28 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/07099.shtml)
+- 2026-06-29 22:14 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/58382957.shtml)
+- 2026-06-29 22:13 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/16085219257.shtml)
+- 2026-06-29 22:21 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/1246900257.shtml)
+- 2026-06-29 22:08 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/9456523.shtml)

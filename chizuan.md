@@ -1,57 +1,56 @@
-# 打开京津冀产业协作新空间
+# 防范八种化学品流失用于制毒风险 国家禁毒办发布警示
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-迈入“十五五”，北京国际科技创新中心扩围至京津冀，新的发展命题随之浮现：如何推动都市圈“破圈”，打破行政区划限制，加强三地协同创新和产业协作？近日，由民建北京大学委员会主办的第十四届民建北大“城市发展论坛”上，多位专家学者分享了他们的观察与思考。北京产业优势在5G、人工智能、工业物联网等新技术领域，津冀优势则集中在先进制造业和传统工业领域。都市圈“破圈”，有助于三地实现产业分工
+中新网5月22日电 据国家禁毒委员会办公室微信公众号消息，为防范β-溴代苯乙烷等八种化学品流失被用于制造毒品风险，国家禁毒委员会办公室5月22日公开发布《国家禁毒委员会办公室关于防范八种化学品流入非法渠道用于制毒的警示通告》。《通告》明确了八种化学品CAS号及海关商品编号，提醒相关企业和个人在从事八种化学品经营活动时，严格按照国家禁毒办于2019年8月、2023年11月、202
 
 ## 正文
 
-迈入“十五五”，北京国际科技创新中心扩围至京津冀，新的发展命题随之浮现：如何推动都市圈“破圈”，打破行政区划限制，加强三地协同创新和产业协作？
+中新网5月22日电 据国家禁毒委员会办公室微信公众号消息，为防范β-溴代苯乙烷等八种化学品流失被用于制造毒品风险，国家禁毒委员会办公室5月22日公开发布《国家禁毒委员会办公室关于防范八种化学品流入非法渠道用于制毒的警示通告》。
 
-近日，由民建北京大学委员会主办的第十四届民建北大“城市发展论坛”上，多位专家学者分享了他们的观察与思考。
+《通告》明确了八种化学品CAS号及海关商品编号，提醒相关企业和个人在从事八种化学品经营活动时，严格按照国家禁毒办于2019年8月、2023年11月、2025年11月发布的警示通告要求，增强法律意识，开展相关经营和出口贸易活动时遵守国内国外法律法规。
 
-北京产业优势在5G、人工智能、工业物联网等新技术领域，津冀优势则集中在先进制造业和传统工业领域。
+通告全文如下： 国家禁毒委员会办公室通告 近年全球合成毒品问题持续蔓延，危害日趋严重。
 
-都市圈“破圈”，有助于三地实现产业分工、优势互补。
+跨国犯罪集团为逃避打击，更新制毒工艺，寻购非列管化学品用于制毒，已成为国际禁毒领域突出挑战。
 
-中国城市规划设计研究院雄安研究院副院长殷会良表示，可在河北雄安新区布局开放式国家级创新平台和实验室，推动科研人员向新区集聚，促进在京科研机构与津冀产业升级、新兴产业发展需求的衔接。
+鉴此，国家禁毒办2025年11月10日发布《关于防范制毒物品和非列管可制毒化学品及设备流失的通告》，提醒相关企业及个人增强法律意识，开展相关经营和出口贸易活动时严格遵守国内国外法律法规，防范法律风险。
 
-都市圈“破圈”，更体现在破除生产要素壁垒，让资金、技术在三地产业中自由流动。
+近期，国家禁毒办工作中发现，下列8种化学品存在被用于制造毒品风险，需警示防范流入非法渠道： 1、β-溴代苯乙烷，英文名称为(2-Bromoethyl)benzene，CAS号为103-63-9，海关商品编号为2903999090。
 
-2025年，北京流向津冀技术合同成交额达996.1亿元；2026年3月，近百亿元京津冀协同创新和产业协作重大示范项目发布；5月，三地工商联推动京津冀机器人产业链联盟成立…… 中国科学院地理科学与资源研究所研究员孙威分析，要进一步提升高精尖制造业与生产性服务业的关联度，支持三地高精尖产业建链、补链、强链，让更多企业共享核心技术自主可控、上下游一体化的产业生态。
+2、β-氯代苯乙烷，英文名称为(2-Chloroethyl)benzene，CAS号为622-24-2，海关商品编号为2903999090。
 
-都市圈“破圈”，关键要促进人才流动。
+3、丙酰氯，英文名称为Propionyl chloride，CAS号为79-03-8，海关商品编号为2915900016。
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 22:11 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 22:02 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 22:14 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 22:15 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 22:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 22:26 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 22:29 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 22:27 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 22:28 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 22:23 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 22:10 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 22:12 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 22:10 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 22:08 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 22:33 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 22:20 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 22:19 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 22:07 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 22:23 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 22:19 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/67677.shtml)
-- 2026-06-29 22:08 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/06679.shtml)
-- 2026-06-29 22:04 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/1942678.shtml)
-- 2026-06-29 22:01 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/728089559267.shtml)
-- 2026-06-29 22:27 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/1511207673.shtml)
-- 2026-06-29 22:20 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/8839839.shtml)
-- 2026-06-29 22:10 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/277237988691.shtml)
-- 2026-06-29 22:01 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/8405532031.shtml)
-- 2026-06-29 22:00 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/79912257300.shtml)
-- 2026-06-29 22:13 - [王安宇聪明到导演组炸了](https://www.share.kurohicncr.top/Article/details/602156444.shtml)
-- 2026-06-29 22:05 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/51369.shtml)
-- 2026-06-29 22:28 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/496484181967.shtml)
-- 2026-06-29 22:06 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/488713.shtml)
-- 2026-06-29 22:00 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/64144.shtml)
-- 2026-06-29 22:24 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/1262651806.shtml)
+- 2026-06-29 22:06 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/55914406.shtml)
+- 2026-06-29 22:14 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/2426993886.shtml)
+- 2026-06-29 22:13 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/95102.shtml)
+- 2026-06-29 22:22 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/42566437684.shtml)
+- 2026-06-29 22:25 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/35904707.shtml)
+- 2026-06-29 22:22 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/25577198.shtml)
+- 2026-06-29 22:13 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/250355.shtml)
+- 2026-06-29 22:19 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/34348229228.shtml)
+- 2026-06-29 22:26 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/753433387.shtml)
+- 2026-06-29 22:10 - [温网](http://www.blog.kurohicncr.top/Article/details/9841705.shtml)
+- 2026-06-29 22:14 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/23676.shtml)
+- 2026-06-29 22:21 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/2915207.shtml)
+- 2026-06-29 22:25 - [恋与深空致歉](http://www.share.minike.top/Article/details/2686935992.shtml)
+- 2026-06-29 22:26 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/943742.shtml)
+- 2026-06-29 22:10 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/69658.shtml)

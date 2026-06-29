@@ -1,54 +1,56 @@
-# 洛阳钼业大宗交易成交1204.18万元
+# （滇藏公路50年）中国最后一个通公路县墨脱农贸市场里的“鲜”味变迁
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-洛阳钼业6月5日大宗交易平台出现一笔成交，成交量66.20万股，成交金额1204.18万元，大宗交易成交价为18.19元。该笔交易的买方营业部为广发证券股份有限公司昆明广福路证券营业部，卖方营业部为中信证券股份有限公司总部(非营业场所)。进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1448.58万元。证券时报·数据宝统计显示，洛阳钼业今日收盘价为18.19元，
+中新社西藏墨脱5月22日电 题：中国最后一个通公路县墨脱农贸市场里的“鲜”味变迁 作者 陈静 赵朗 近日，西藏林芝市墨脱县农贸市场瓜果飘香，33岁的门巴族姑娘西洛坐在市场入口处，面前堆满辣椒、四季豆、黄瓜、番茄等蔬菜。“这是政府专门给本地菜农的摊位，不收费。”她说。 墨脱县地处边境，门巴、珞巴、藏、汉等民族在此和睦共处，全县常住人口约1.6万人，是中国最后一个通公路的县。 过去
 
 ## 正文
 
-洛阳钼业6月5日大宗交易平台出现一笔成交，成交量66.20万股，成交金额1204.18万元，大宗交易成交价为18.19元。
+中新社西藏墨脱5月22日电 题：中国最后一个通公路县墨脱农贸市场里的“鲜”味变迁 作者 陈静 赵朗 近日，西藏林芝市墨脱县农贸市场瓜果飘香，33岁的门巴族姑娘西洛坐在市场入口处，面前堆满辣椒、四季豆、黄瓜、番茄等蔬菜。
 
-该笔交易的买方营业部为广发证券股份有限公司昆明广福路证券营业部，卖方营业部为中信证券股份有限公司总部(非营业场所)。
+“这是政府专门给本地菜农的摊位，不收费。
 
-进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1448.58万元。
+”她说。
 
-证券时报·数据宝统计显示，洛阳钼业今日收盘价为18.19元，下跌2.93%，日换手率为1.26%，成交额为40.68亿元，全天主力资金净流出3.76亿元，近5日该股累计下跌1.73%，近5日资金合计净流出1.63亿元。
+墨脱县地处边境，门巴、珞巴、藏、汉等民族在此和睦共处，全县常住人口约1.6万人，是中国最后一个通公路的县。
 
-两融数据显示，该股最新融资余额为44.27亿元，近5日增加3260.08万元，增幅为0.74%。
+过去，由于地理封闭，当地各族民众多靠采集、狩猎和简单农耕维持生计，“山里有什么，锅里煮什么”。
 
-据天眼查APP显示，洛阳栾川钼业集团股份有限公司成立于1999年12月22日，注册资本427886.20352万人民币。
+2013年扎墨公路开通后，彻底改变了当地人的饮食图谱。
 
-（数据宝）6月5日洛阳钼业大宗交易一览（文章来源：证券时报网）
+“我们墨脱最有名的美食是石锅鸡。
+
+”石锅专卖店老板索朗旺姆是门巴族。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 22:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 22:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 22:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 22:28 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 22:17 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 22:04 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 22:09 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 22:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 22:15 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 22:27 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 22:06 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 22:29 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 22:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 22:10 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 22:08 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 22:24 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 22:32 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 22:22 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 22:28 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/5507100.shtml)
-- 2026-06-29 22:29 - [起风了](https://www.blog.kurohicncr.top/Article/details/830837328755.shtml)
-- 2026-06-29 22:26 - [我们的少年时代2](https://www.blog.minike.top/Article/details/82004992.shtml)
-- 2026-06-29 22:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/9248575204.shtml)
-- 2026-06-29 22:14 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/16038420983.shtml)
-- 2026-06-29 22:03 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/7730880798.shtml)
-- 2026-06-29 22:24 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/57843.shtml)
-- 2026-06-29 22:15 - [扬名立万](https://www.share.minike.top/Article/details/901231531833.shtml)
-- 2026-06-29 22:27 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/82596.shtml)
-- 2026-06-29 22:06 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/005349136093.shtml)
-- 2026-06-29 22:03 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/247001110979.shtml)
-- 2026-06-29 22:13 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/1241635.shtml)
-- 2026-06-29 22:25 - [毒液2](https://www.share.minike.top/Article/details/62341543678.shtml)
-- 2026-06-29 22:24 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/115520767.shtml)
-- 2026-06-29 22:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/511962831.shtml)
+- 2026-06-29 22:13 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/9821755.shtml)
+- 2026-06-29 22:12 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/82542628725.shtml)
+- 2026-06-29 22:25 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/3007382168.shtml)
+- 2026-06-29 22:26 - [爱很美味](https://www.share.kurohicncr.top/Article/details/690911152967.shtml)
+- 2026-06-29 22:23 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/59153281.shtml)
+- 2026-06-29 22:22 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/8604696533.shtml)
+- 2026-06-29 22:09 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/69584712.shtml)
+- 2026-06-29 22:11 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/51580636677.shtml)
+- 2026-06-29 22:32 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/10860.shtml)
+- 2026-06-29 22:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/246487472662.shtml)
+- 2026-06-29 22:29 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/005379.shtml)
+- 2026-06-29 22:29 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/05150.shtml)
+- 2026-06-29 22:35 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/26494296.shtml)
+- 2026-06-29 22:23 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/70694126.shtml)
+- 2026-06-29 22:06 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/569009950536.shtml)

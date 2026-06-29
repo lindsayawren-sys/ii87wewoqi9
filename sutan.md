@@ -1,58 +1,60 @@
-# 人民论坛网评 | 让青年入乡更愿留乡
+# 资本市场防假打假新格局加快形成
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-2026年中央一号文件提出，发展壮大乡村人才队伍，激励各类人才下乡服务和创业就业。从义乌李祖村集聚青年创客、盘活乡村文旅资源实现流量增收，到永康搭建青年乡创阵地、凝聚新业态人才，越来越多的青年带着情怀与理想奔赴乡村，为乡村产业升级、文化传承注入全新活力。各地要精准发力，搭建“引才、聚才、留才”体系，培育长效乡创生态，让青年入乡从短期热潮转化为长期深耕的常态。以情怀为桥，凝聚青年
+登录新浪财经APP 搜索【信披】查看更多考评等级 ● 本报记者 昝秀丽 近期，多家上市公司因信息披露违法违规被证监会立案，或收到行政处罚决定书。监管部门依法从严从快、全链条追诉、严肃查处一批财务造假、欺诈发行案件，凸显监管部门整肃净化市场环境的坚决态度，起到警示震慑效果。 市场人士认为，随着打击和防范上市公司财务造假专项行动深入推进，跨部门协同机制不断完善，行政、民事、刑事多重
 
 ## 正文
 
-2026年中央一号文件提出，发展壮大乡村人才队伍，激励各类人才下乡服务和创业就业。
+登录新浪财经APP 搜索【信披】查看更多考评等级 ● 本报记者 昝秀丽 近期，多家上市公司因信息披露违法违规被证监会立案，或收到行政处罚决定书。
 
-从义乌李祖村集聚青年创客、盘活乡村文旅资源实现流量增收，到永康搭建青年乡创阵地、凝聚新业态人才，越来越多的青年带着情怀与理想奔赴乡村，为乡村产业升级、文化传承注入全新活力。
+监管部门依法从严从快、全链条追诉、严肃查处一批财务造假、欺诈发行案件，凸显监管部门整肃净化市场环境的坚决态度，起到警示震慑效果。
 
-各地要精准发力，搭建“引才、聚才、留才”体系，培育长效乡创生态，让青年入乡从短期热潮转化为长期深耕的常态。
+市场人士认为，随着打击和防范上市公司财务造假专项行动深入推进，跨部门协同机制不断完善，行政、民事、刑事多重惩戒同步发力，多部门正合力围剿“造假生态圈”，“不敢造假、不能造假、不想造假”的市场生态加速形成。
 
-以情怀为桥，凝聚青年合力，夯实乡创人才根基。
+让造假者人财两空 近期，监管部门接连开出罚单，多家上市公司因财务造假被严肃追责，不仅面临巨额罚款，相关责任人也难逃市场禁入乃至刑事追责，真正让造假者“人财两空”。
 
-人才是乡村全面振兴的动能，青年群体更是乡创发展的中坚力量。
+5月22日，ST如意（维权）及相关当事人收到山东证监局下发的行政处罚决定书。
 
-青年入乡，是怀揣乡土情怀、追求自我价值的实现。
+因定期报告存在虚假记载，证监会决定对ST如意给予警告并处以700万元罚款，对其他当事人给予不同程度处罚。
 
-各地需以情怀和机遇为纽带，立足本土产业特色和资源优势，通过青年社群运营、典型案例宣讲等方式，全方位展示乡村创业机遇与发展前景，精准吸纳大学生、文创从业者、新业态创业者等青年群体。
+ST葫芦娃（维权）5月20日收到海南证监局下发的行政处罚事先告知书，因定期报告涉嫌虚假记载，海南证监局拟对ST葫芦娃给予警告，并处以700万元罚款，对其他当事人给予不同程度处罚。
 
-同时，贴合青年创业方向，精准匹配特色种养殖、乡村文旅运营、农产品直播电商等业态，让每位入乡青年都能找准定位、发挥所长。
+严惩欺诈发行，坚决阻断发行上市“带病闯关”。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 22:27 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 22:17 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 22:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 22:21 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 22:27 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 22:15 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 22:09 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 22:17 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 22:17 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 22:00 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 22:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 22:12 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 22:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 22:06 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 22:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 22:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 22:22 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 22:30 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 22:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 22:34 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 22:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 22:22 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 22:07 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 22:06 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 22:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/9463119.shtml)
-- 2026-06-29 22:07 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/547719524.shtml)
-- 2026-06-29 22:07 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/58639765.shtml)
-- 2026-06-29 22:04 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/8630085034.shtml)
-- 2026-06-29 22:28 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/374994979832.shtml)
-- 2026-06-29 22:17 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/480296.shtml)
-- 2026-06-29 22:06 - [月亮](http://www.share.kurohicncr.top/Article/details/894138.shtml)
-- 2026-06-29 22:22 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/422016.shtml)
-- 2026-06-29 22:13 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/6492139.shtml)
-- 2026-06-29 22:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/4211678411.shtml)
-- 2026-06-29 22:25 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/183341887925.shtml)
-- 2026-06-29 22:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/99603504625.shtml)
-- 2026-06-29 22:24 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/238881.shtml)
-- 2026-06-29 22:09 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/7589320.shtml)
-- 2026-06-29 22:23 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/432284094680.shtml)
+- 2026-06-29 22:09 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/917592111.shtml)
+- 2026-06-29 22:24 - [小娘惹](https://www.blog.minike.top/Article/details/210767541.shtml)
+- 2026-06-29 22:09 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/58108.shtml)
+- 2026-06-29 22:13 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/8982388295.shtml)
+- 2026-06-29 22:19 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/370948815.shtml)
+- 2026-06-29 22:15 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/7654127191.shtml)
+- 2026-06-29 22:24 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/781820014995.shtml)
+- 2026-06-29 22:25 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/459277570.shtml)
+- 2026-06-29 22:15 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/565671.shtml)
+- 2026-06-29 22:28 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/121948223.shtml)
+- 2026-06-29 22:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/55373660.shtml)
+- 2026-06-29 22:06 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/7322880148.shtml)
+- 2026-06-29 22:22 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/728546.shtml)
+- 2026-06-29 22:15 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/6160189.shtml)
+- 2026-06-29 22:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/590201.shtml)

@@ -1,61 +1,61 @@
-# 韩元大幅贬值，韩国监管部门敦促银行加强管控
+# 欧洲央行召集各家银行，着手修补人工智能模型暴露的系统漏洞
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-受中东局势持续紧张、市场押注美联储年内或将加息影响，韩元汇率跌至2009年以来最低水平。韩国监管部门随即敦促各家银行加大力度，打击其口中扰乱市场的投机行为。 韩国金融监督院于周一紧急召开会议，参会人员包括韩国央行官员，以及国民银行、新韩银行、韩亚银行、友利银行等韩国主流本土银行高管。 韩国金融监督院发布声明称，韩国央行与金融监督院将开展专项检查，一旦查实违规行为，将依法采取严厉
+欧洲央行围绕新型人工智能模型带来的网络安全风险举行会议，会后计划施压银行，提速信息系统安全加固工作。 欧洲央行执委会成员弗兰克・埃尔德松称：“多年来我们始终与银行协作处理各类网络安全问题，相关问题依旧存在。如今人工智能技术飞速发展，安全隐患必须更快处置。” 埃尔德松表示，欧洲央行将于周二的会议上，通报Claude Mythos预览等人工智能模型发现的金融系统潜在威胁，同时要求能
 
 ## 正文
 
-受中东局势持续紧张、市场押注美联储年内或将加息影响，韩元汇率跌至2009年以来最低水平。
+欧洲央行围绕新型人工智能模型带来的网络安全风险举行会议，会后计划施压银行，提速信息系统安全加固工作。
 
-韩国监管部门随即敦促各家银行加大力度，打击其口中扰乱市场的投机行为。
+欧洲央行执委会成员弗兰克・埃尔德松称：“多年来我们始终与银行协作处理各类网络安全问题，相关问题依旧存在。
 
-韩国金融监督院于周一紧急召开会议，参会人员包括韩国央行官员，以及国民银行、新韩银行、韩亚银行、友利银行等韩国主流本土银行高管。
+如今人工智能技术飞速发展，安全隐患必须更快处置。
 
-韩国金融监督院发布声明称，韩国央行与金融监督院将开展专项检查，一旦查实违规行为，将依法采取严厉管控措施。
+” 埃尔德松表示，欧洲央行将于周二的会议上，通报Claude Mythos预览等人工智能模型发现的金融系统潜在威胁，同时要求能够使用该技术的美国银行，向无法参与测试的欧洲同业共享相关研判信息。
 
-监管部门同时警告，严禁机构借韩元贬值之机进行套利操作。
+埃尔德松警示银行需及时推送软件修复补丁，人工智能可在补丁发布短短数分钟内检索出系统漏洞。
 
-金融监督院表示，与会各方探讨了密切监测境外无本金交割远期外汇交易对韩国境内外汇市场影响的必要性，并要求参会银行全力配合相关监管工作。
+他指出，欧洲银行不能以无法使用该模型为由消极应对，不法分子很快也将掌握这项技术。
 
-汇丰银行、渣打银行的韩国分行也出席了本次会议。
+这款可检测信息系统未知漏洞的神话模型，因使用权限受限，已在欧洲金融界引发普遍担忧。
 
-在出台上述稳汇率举措的数小时前，韩国监管部门已再度发声，针对无本金交割远期外汇产品领域的投机行为发出警告。
+欧盟委员会委员瓦尔迪斯·东布罗夫斯基斯5月4日表示，欧盟正与Anthropic公司磋商，安排企业与银行接受该模型的漏洞检测。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 22:07 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 22:25 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 22:20 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 22:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 22:16 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 22:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 22:24 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 22:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 22:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 22:11 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 22:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 22:27 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 22:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 22:23 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 22:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 22:17 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 22:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 22:19 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 22:21 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 22:06 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 22:27 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 22:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 22:23 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 22:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 22:22 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 22:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 22:08 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 22:16 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 22:18 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/957907.shtml)
-- 2026-06-29 22:05 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/7297726.shtml)
-- 2026-06-29 22:19 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/69224850.shtml)
-- 2026-06-29 22:08 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/0183356.shtml)
-- 2026-06-29 22:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/4121608.shtml)
-- 2026-06-29 22:03 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/0866248227.shtml)
-- 2026-06-29 22:07 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/90087219456.shtml)
-- 2026-06-29 22:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/5498519.shtml)
-- 2026-06-29 22:13 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/99056617.shtml)
-- 2026-06-29 22:03 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/8017594.shtml)
-- 2026-06-29 22:07 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/80421969.shtml)
-- 2026-06-29 22:02 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/57683248.shtml)
-- 2026-06-29 22:18 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/071080733292.shtml)
-- 2026-06-29 22:02 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/923445360.shtml)
-- 2026-06-29 22:01 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/9658774422.shtml)
+- 2026-06-29 22:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/01866.shtml)
+- 2026-06-29 22:27 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/7386383.shtml)
+- 2026-06-29 22:09 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/72712.shtml)
+- 2026-06-29 22:34 - [委内瑞拉发生余震](http://www.share.minike.top/Article/details/73351033565.shtml)
+- 2026-06-29 22:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/6737777.shtml)
+- 2026-06-29 22:15 - [温网](http://www.blog.minike.top/Article/details/30772001747.shtml)
+- 2026-06-29 22:22 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/8835719493.shtml)
+- 2026-06-29 22:33 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/184146.shtml)
+- 2026-06-29 22:22 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/729550784426.shtml)
+- 2026-06-29 22:24 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/88992.shtml)
+- 2026-06-29 22:30 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/367512356.shtml)
+- 2026-06-29 22:33 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/93584454555.shtml)
+- 2026-06-29 22:13 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/466538868.shtml)
+- 2026-06-29 22:09 - [存储三巨头被告了](https://www.share.minike.top/Article/details/10648182.shtml)
+- 2026-06-29 22:11 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/01697001712.shtml)

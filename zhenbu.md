@@ -1,61 +1,55 @@
-# 阿曼Block 50海上钻探再遭延期
+# 全国人大常委会启动旅游法执法检查
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-Masirah Oil已宣布，其位于阿曼Block 50海上Yumna油田原计划的三口开发井钻探项目启动日期将推迟公布，新的时间表将在后续另行通知。该公司未提供此次钻探活动的最新时间安排。 Masirah Oil是Block 50的运营商，持有该区块100%的权益。该公司此前曾表示钻探工作可能在2026年第一季度开始，随后将预期启动时间修订至2026年5月。 该钻探项目旨在提高
+新华社北京5月25日电 为推动旅游法有效实施，健全旅游法律法规制度政策，筑牢旅游业高质量发展的法治保障，全国人大常委会5月25日启动旅游法执法检查。 旅游法是我国旅游业第一部基础性、综合性法律，于2013年4月通过、同年10月1日起施行，2016年和2018年分别对部分条款作了修改。 记者25日从全国人大常委会执法检查组第一次全体会议上获悉，旅游法执法检查将采取赴地方检查与委托
 
 ## 正文
 
-Masirah Oil已宣布，其位于阿曼Block 50海上Yumna油田原计划的三口开发井钻探项目启动日期将推迟公布，新的时间表将在后续另行通知。
+新华社北京5月25日电 为推动旅游法有效实施，健全旅游法律法规制度政策，筑牢旅游业高质量发展的法治保障，全国人大常委会5月25日启动旅游法执法检查。
 
-该公司未提供此次钻探活动的最新时间安排。
+旅游法是我国旅游业第一部基础性、综合性法律，于2013年4月通过、同年10月1日起施行，2016年和2018年分别对部分条款作了修改。
 
-Masirah Oil是Block 50的运营商，持有该区块100%的权益。
+记者25日从全国人大常委会执法检查组第一次全体会议上获悉，旅游法执法检查将采取赴地方检查与委托省级人大常委会检查相结合等方式开展检查工作。
 
-该公司此前曾表示钻探工作可能在2026年第一季度开始，随后将预期启动时间修订至2026年5月。
+6月至9月，执法检查组将赴山西、黑龙江、福建、贵州、陕西、新疆等6个省(区)开展实地检查，并委托内蒙古、浙江、山东、江西、重庆、甘肃等6个省(区、市)人大常委会对本行政区域内旅游法贯彻实施情况进行检查。
 
-该钻探项目旨在提高Yumna油田的石油产量并延长其经济寿命。
+检查组将采取实地检查、组织座谈、典型调研、专题研究、抽查暗访等多种方式，全面准确了解法律实施情况，对带有普遍性的问题深入调查研究。
 
-项目范围保持不变，仍计划钻探三口开发井。
-
-今年早些时候，Masirah Oil的母公司Rex Oman与海上钻井承包商Northern Offshore签署了合同，将使用Energy Emerger号自升式钻井平台执行此次钻探任务。
-
-该平台曾用于该油田2024年的钻探项目。
+执法检查中，将重点检查8方面内容：制度机制建立实施情况；旅游者权益保护和行为规范情况；促进旅游业发展情况；旅游市场秩序规范情况；旅游安全保障、监管执法和纠纷处理情况；与旅游法配套的行政法规、部门规章以及地方性法规和地方政府规章的制定情况；旅游法实施中存在的其他问题，对推进法律贯彻实施的意见和建议；对旅游法修改的意见和建议。
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 22:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 22:28 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 22:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 22:27 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 22:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 22:21 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 22:09 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 22:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 22:21 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 22:04 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 22:29 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 22:14 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 22:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 22:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 22:13 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 22:26 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 22:11 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 22:12 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 22:21 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 22:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 22:30 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 22:09 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 22:29 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 22:22 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 22:25 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 22:21 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 22:22 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/29816529255.shtml)
-- 2026-06-29 22:08 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/665382.shtml)
-- 2026-06-29 22:28 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/09733199150.shtml)
-- 2026-06-29 22:29 - [东方风云榜直播](https://www.share.minike.top/Article/details/8217028.shtml)
-- 2026-06-29 22:11 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/63421502635.shtml)
-- 2026-06-29 22:20 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/23799.shtml)
-- 2026-06-29 22:27 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/182523206602.shtml)
-- 2026-06-29 22:13 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/3861057776.shtml)
-- 2026-06-29 22:19 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/16333742048.shtml)
-- 2026-06-29 22:06 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/359787345.shtml)
-- 2026-06-29 22:09 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/086803988.shtml)
-- 2026-06-29 22:19 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/51527.shtml)
-- 2026-06-29 22:02 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/841029861433.shtml)
-- 2026-06-29 22:20 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/918109590589.shtml)
-- 2026-06-29 22:25 - [扬名立万](http://www.share.minike.top/Article/details/0989049.shtml)
+- 2026-06-29 22:30 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/345191101611.shtml)
+- 2026-06-29 22:34 - [一见倾心](http://www.blog.minike.top/Article/details/2684507.shtml)
+- 2026-06-29 22:17 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/91972775470.shtml)
+- 2026-06-29 22:27 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/987241601763.shtml)
+- 2026-06-29 22:22 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/42126574.shtml)
+- 2026-06-29 22:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/18858084019.shtml)
+- 2026-06-29 22:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/212822449.shtml)
+- 2026-06-29 22:14 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/36142220.shtml)
+- 2026-06-29 22:13 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/971353757879.shtml)
+- 2026-06-29 22:07 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/170375.shtml)
+- 2026-06-29 22:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/44815.shtml)
+- 2026-06-29 22:22 - [斗破苍穹](https://www.share.minike.top/Article/details/577851212496.shtml)
+- 2026-06-29 22:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/80248645155.shtml)
+- 2026-06-29 22:19 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/961499913779.shtml)
+- 2026-06-29 22:07 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/16830135.shtml)

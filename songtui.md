@@ -1,46 +1,59 @@
-# 视频|杨德龙：美日韩股市大跌导致A股科技股回调 本轮科技牛行情并未结束
+# “山河共生”项目：基层社区探索以本土智慧应对气候危机
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-责任编辑：石秀珍 SF183
+中新网北京5月24日电 (记者 张素)在青海三江源区域的嘉塘与年保玉则，项目支持牧民成立共管委员会，利用“牛粪伴种”等本土智慧修复黑土滩2590亩；同时，扶持妇女成立合作社发展手工艺，2025年营业额突破20万元人民币…… 5月22日正值国际生物多样性日，“山河共生——气候变化适应与社区可持续发展实践项目总结会暨影像展”在北京举行。会上，来自青海玉树嘉塘社区的参会代表介绍上述情
 
 ## 正文
 
-责任编辑：石秀珍 SF183
+中新网北京5月24日电 (记者 张素)在青海三江源区域的嘉塘与年保玉则，项目支持牧民成立共管委员会，利用“牛粪伴种”等本土智慧修复黑土滩2590亩；同时，扶持妇女成立合作社发展手工艺，2025年营业额突破20万元人民币…… 5月22日正值国际生物多样性日，“山河共生——气候变化适应与社区可持续发展实践项目总结会暨影像展”在北京举行。
+
+会上，来自青海玉树嘉塘社区的参会代表介绍上述情况。
+
+据介绍，气候变化适应与社区可持续发展实践项目自2023年启动以来，在旱作农业、草原牧区、高原生态三个场景下，探索出一条“社区主导、生态修复、生计适配”的可持续发展路径。
+
+多个基层社区纷纷以本土智慧应对全球气候危机。
+
+与会专家介绍，在河北涉县王金庄与内蒙古敖汉旗，项目建立了“农民种子银行”，活态保存了270余种本土特色种质资源，并利用自然选择淘汰弱势品种，让“老种子”越种越壮。
+
+敖汉旗还通过“企业反哺+公共空间改造”，将种子收益转化为社区集体资产。
+
+针对太行山陡坡缺水难题，王金庄修缮了112处水窖与水池，并配备太阳能滴灌与远程水位监测。
+
+老乡在手机上即可随时查看水窖余量，配合无人机全域巡田，实现了585亩梯田水利全覆盖。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 22:11 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 22:13 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 22:00 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 22:14 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 22:19 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 22:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 22:19 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 22:23 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 22:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 22:05 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 22:13 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 22:15 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 22:19 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 22:11 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 22:35 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 22:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 22:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 22:19 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 22:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 22:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 22:35 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 22:24 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 22:10 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 22:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 22:17 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 22:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/503220420379.shtml)
-- 2026-06-29 22:01 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/831525053.shtml)
-- 2026-06-29 22:20 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/26483.shtml)
-- 2026-06-29 22:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/230011371152.shtml)
-- 2026-06-29 22:20 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/479834.shtml)
-- 2026-06-29 22:05 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/474573057791.shtml)
-- 2026-06-29 22:23 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/7462823.shtml)
-- 2026-06-29 22:14 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/20140218863.shtml)
-- 2026-06-29 22:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/34267006202.shtml)
-- 2026-06-29 22:08 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/403689.shtml)
-- 2026-06-29 22:24 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/893302426561.shtml)
-- 2026-06-29 22:01 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/585958281509.shtml)
-- 2026-06-29 22:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/741180272001.shtml)
-- 2026-06-29 22:15 - [女心理师](https://www.share.kurohicncr.top/Article/details/798918.shtml)
-- 2026-06-29 22:15 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/3576632.shtml)
+- 2026-06-29 22:24 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/45120804.shtml)
+- 2026-06-29 22:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/8000993994.shtml)
+- 2026-06-29 22:22 - [庆祝中国共产党成立105周年大会将举行](https://www.share.kurohicncr.top/Article/details/006358.shtml)
+- 2026-06-29 22:29 - [送你一朵小红花](http://www.share.minike.top/Article/details/437518198.shtml)
+- 2026-06-29 22:22 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/37914.shtml)
+- 2026-06-29 22:16 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/75053871.shtml)
+- 2026-06-29 22:15 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/2009733195.shtml)
+- 2026-06-29 22:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/07484.shtml)
+- 2026-06-29 22:32 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/4255489.shtml)
+- 2026-06-29 22:24 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/6271347754.shtml)
+- 2026-06-29 22:13 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/20172006905.shtml)
+- 2026-06-29 22:30 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/76864770507.shtml)
+- 2026-06-29 22:32 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/01265572054.shtml)
+- 2026-06-29 22:28 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/076232571.shtml)
+- 2026-06-29 22:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/009799266.shtml)

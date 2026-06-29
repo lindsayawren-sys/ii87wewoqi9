@@ -1,58 +1,60 @@
-# 我国已构建四级智能工厂体系 实现规模化建设智能工厂
+# 广东发布两项植物园建设相关团体标准
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-记者从工业和信息化部了解到，我国已构建四级智能工厂体系，实现规模化建设智能工厂，引导企业从数字化、网络化向智能化迈进。 目前，我国智能工厂体系分为基础级、先进级、卓越级、领航级四级。已经累计建成3.5万家基础级、8200余家先进级、500余家卓越级智能工厂，15家企业入选领航级智能工厂培育名单，探索工程机械共享制造、汽车岛式制造、家电敏捷定制等新模式新业态。智能工厂梯度培育行动
+中新网广州5月25日电 (程景伟 林荫)广东省林学会近日发布《区域植物园建设指引》与《乡土植物园建设指引》两项团体标准。两项标准立足广东生物多样性禀赋与绿美广东生态建设需求，填补区域与乡土植物园建设规范空白，为全省构建层级清晰、功能互补、覆盖广泛的植物迁地保护网络提供技术支撑，助力岭南植物保护事业高质量发展。 广东地处热带与亚热带过渡区，水热条件优越，野生植物资源丰富，是中国生
 
 ## 正文
 
-记者从工业和信息化部了解到，我国已构建四级智能工厂体系，实现规模化建设智能工厂，引导企业从数字化、网络化向智能化迈进。
+中新网广州5月25日电 (程景伟 林荫)广东省林学会近日发布《区域植物园建设指引》与《乡土植物园建设指引》两项团体标准。
 
-目前，我国智能工厂体系分为基础级、先进级、卓越级、领航级四级。
+两项标准立足广东生物多样性禀赋与绿美广东生态建设需求，填补区域与乡土植物园建设规范空白，为全省构建层级清晰、功能互补、覆盖广泛的植物迁地保护网络提供技术支撑，助力岭南植物保护事业高质量发展。
 
-已经累计建成3.5万家基础级、8200余家先进级、500余家卓越级智能工厂，15家企业入选领航级智能工厂培育名单，探索工程机械共享制造、汽车岛式制造、家电敏捷定制等新模式新业态。
+广东地处热带与亚热带过渡区，水热条件优越，野生植物资源丰富，是中国生物多样性保护的关键区域，植物园数量居全国首位。
 
-智能工厂梯度培育行动实施以来，带动产品不良率平均下降47%、产品研发周期平均缩短38%。
+目前，该省已建成14家植物园、35家树木园与种质园，布局9家区域植物园、32家乡土植物园，迁地保存高等植物15026种，其中国家重点保护野生植物662种，保育成效显著。
 
-工业和信息化部装备工业一司副司长 郝立顺：迭代完善智能工厂梯度培育体系，把人工智能技术应用水平纳入领航级、卓越级智能工厂评定标准并逐年提高门槛，打造比肩国际水平的智能制造标杆。
+《区域植物园建设指引》聚焦区域代表性、综合功能性，划分植物园、树木园、种质园、特色园四类，对面积、专类园数量、植物种类等提出量化指标。
 
-据了解，工业和信息化部将聚焦轨道交通装备、高技术船舶、新能源汽车、航空航天、钢铁、石化等重点行业，支持建设一批领航工厂和超级场景。
+该指引要求综合性植物园重点强化珍稀濒危、特有、极小种群野生植物的迁地保护、科研监测与野外回归，配套建设实验室、种质资源库、科普馆等设施，打造区域植物保护与研究核心平台。
 
-从“制”到“智” 智能工厂装备向智能体演进 今年《政府工作报告》明确提出要“拓展智能制造，新建设一批智能工厂和智慧供应链”。
+《乡土植物园建设指引》突出地方特色、便民普惠，降低建设门槛，兼顾生态保护与社区共享。
 
-如今智能工厂正推动着新一代智能制造深化发展，制造装备正向智能体演进。
+该指引明确乡土植物园以收集、展示、推广乡土植物为核心，分为四类建设类型，最小面积仅需5公顷，植物种类不少于100种，鼓励融入岭南园林文化，建设自然教育径、社区共建花园等设施，推动植物保护贴近群众、服务民生，筑牢植物迁地保护体系“最后一公里”。
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 22:16 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 22:01 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 22:23 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 22:28 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 22:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 22:22 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 22:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 22:04 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 22:14 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 22:15 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 22:03 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 22:17 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 22:11 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 22:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 22:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 22:34 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 22:19 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 22:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 22:10 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 22:07 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 22:28 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 22:09 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 22:28 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 22:35 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 22:08 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/63544.shtml)
-- 2026-06-29 22:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/54298334.shtml)
-- 2026-06-29 22:21 - [华工科技龙虎榜数据](https://www.share.minike.top/Article/details/4000639827.shtml)
-- 2026-06-29 22:15 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/4270606.shtml)
-- 2026-06-29 22:13 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/27115.shtml)
-- 2026-06-29 22:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/427483.shtml)
-- 2026-06-29 22:08 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/9982012.shtml)
-- 2026-06-29 22:06 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/717656.shtml)
-- 2026-06-29 22:29 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/967634889.shtml)
-- 2026-06-29 22:11 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/366688892.shtml)
-- 2026-06-29 22:28 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/11508.shtml)
-- 2026-06-29 22:17 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/31982.shtml)
-- 2026-06-29 22:19 - [记者：预计热火将追求小哈达威和康利](https://www.share.kurohicncr.top/Article/details/89563.shtml)
-- 2026-06-29 22:12 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/70871978176.shtml)
-- 2026-06-29 22:26 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/37833.shtml)
+- 2026-06-29 22:25 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/69648891.shtml)
+- 2026-06-29 22:29 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/446350206.shtml)
+- 2026-06-29 22:21 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/877197284776.shtml)
+- 2026-06-29 22:32 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/30452.shtml)
+- 2026-06-29 22:30 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/59579865564.shtml)
+- 2026-06-29 22:21 - [周生如故](http://www.blog.kurohicncr.top/Article/details/0415968781.shtml)
+- 2026-06-29 22:18 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/4232149359.shtml)
+- 2026-06-29 22:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/7571679504.shtml)
+- 2026-06-29 22:27 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/374805896891.shtml)
+- 2026-06-29 22:17 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/293398.shtml)
+- 2026-06-29 22:22 - [刘宇宁 好听](https://www.share.minike.top/Article/details/918294.shtml)
+- 2026-06-29 22:20 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/70904580.shtml)
+- 2026-06-29 22:26 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/10534224748.shtml)
+- 2026-06-29 22:16 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/484707367040.shtml)
+- 2026-06-29 22:14 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/566487.shtml)

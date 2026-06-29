@@ -1,46 +1,59 @@
-# 美满电子和伟创力将纳入标普500指数
+# 认知工作室|警惕日本“新型军国主义”危害东亚乃至全球安全
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-标普道琼斯指数在电邮声明中表示，美满电子和伟创力将在6月22日开盘前取代Pool Corp．和金宝汤加入标普500指数。责任编辑：丁文武
+5月15日，高市早苗执政后推动日本政府出台的首份《防卫白皮书》草案被媒体曝光，该草案预计将于7月向内阁会议报告，8月正式通过。日媒透露的《防卫白皮书》草案中，对中国军力使用了“安全威胁”“警惕”“十分担忧”等表述。这些表述，表明日本“新型军国主义”已经从挣脱战后和平体制、持续强化军事力量的阶段，升级为明确对华表露“战意”。自去年上台以来，高市将政治赌注全部押在“中美必有一战”上
 
 ## 正文
 
-标普道琼斯指数在电邮声明中表示，美满电子和伟创力将在6月22日开盘前取代Pool Corp．和金宝汤加入标普500指数。
+5月15日，高市早苗执政后推动日本政府出台的首份《防卫白皮书》草案被媒体曝光，该草案预计将于7月向内阁会议报告，8月正式通过。
 
-责任编辑：丁文武
+日媒透露的《防卫白皮书》草案中，对中国军力使用了“安全威胁”“警惕”“十分担忧”等表述。
+
+这些表述，表明日本“新型军国主义”已经从挣脱战后和平体制、持续强化军事力量的阶段，升级为明确对华表露“战意”。
+
+自去年上台以来，高市将政治赌注全部押在“中美必有一战”上，然后由日本充当美国围堵中国的“桥头堡”，从而获得美国对日军事松绑。
+
+短短7个月时间，高市让日本“新型军国主义”成为现实威胁。
+
+一方面，高市政府与所谓的盟友签署军事协议，比如与菲律宾签署《物资劳务相互提供协议》，与德国签署双边军事协议，与澳大利亚签署70亿美元军舰出口协议等；另一方面，高市政府加速在西南诸岛部署导弹，拿台湾问题作为扩军借口，甚至公开说“若台海发生紧急事态，我们必须前往营救在台湾的日本公民与美国公民。
+
+假设美军在行动中遭受攻击，日本若袖手旁观只顾撤离，日美同盟将彻底瓦解”，极力在台湾问题上将日本与美国捆绑在一起。
+
+值得注意的是，在对外透露《防卫白皮书》的同日，特朗普结束访华返回华盛顿途中，高市与其通话15分钟，之后紧急召开了记者会。
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 22:09 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-29 22:01 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 22:20 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 22:13 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 22:27 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 22:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 22:10 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 22:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 22:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 22:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 22:08 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 22:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 22:26 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 22:07 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 22:30 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 22:16 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 22:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 22:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 22:32 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 22:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 22:19 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 22:23 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 22:13 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/361622808.shtml)
-- 2026-06-29 22:24 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/79905278.shtml)
-- 2026-06-29 22:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/13704671892.shtml)
-- 2026-06-29 22:10 - [扬名立万](https://www.share.kurohicncr.top/Article/details/933006871948.shtml)
-- 2026-06-29 22:29 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/516821.shtml)
-- 2026-06-29 22:05 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/613822.shtml)
-- 2026-06-29 22:16 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/097385291.shtml)
-- 2026-06-29 22:09 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/027606879096.shtml)
-- 2026-06-29 22:09 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/08654352691.shtml)
-- 2026-06-29 22:07 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/9633867049.shtml)
-- 2026-06-29 22:14 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/722768440.shtml)
-- 2026-06-29 22:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/5940315319.shtml)
-- 2026-06-29 22:15 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/44587408602.shtml)
-- 2026-06-29 22:18 - [85花告别古偶](https://www.share.minike.top/Article/details/67504883783.shtml)
-- 2026-06-29 22:28 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/274118000025.shtml)
+- 2026-06-29 22:26 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/19042.shtml)
+- 2026-06-29 22:29 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/526309.shtml)
+- 2026-06-29 22:17 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/025749611.shtml)
+- 2026-06-29 22:31 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/255712536306.shtml)
+- 2026-06-29 22:32 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/623450404594.shtml)
+- 2026-06-29 22:09 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/22407237077.shtml)
+- 2026-06-29 22:23 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/721421539471.shtml)
+- 2026-06-29 22:06 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/36757.shtml)
+- 2026-06-29 22:19 - [一生一世](http://www.blog.kurohicncr.top/Article/details/209900692771.shtml)
+- 2026-06-29 22:23 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/418856957.shtml)
+- 2026-06-29 22:06 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/260584387.shtml)
+- 2026-06-29 22:23 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/348836962.shtml)
+- 2026-06-29 22:15 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/615492494049.shtml)
+- 2026-06-29 22:22 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/828106339486.shtml)
+- 2026-06-29 22:08 - [金刚川](http://www.blog.minike.top/Article/details/0689813220.shtml)

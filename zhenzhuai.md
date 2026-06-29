@@ -1,59 +1,61 @@
-# 中国宋庆龄基金会党组书记和老挝国家主席夫人互赠礼物
+# 成渝双城开展科技教育交流与合作 两地协同共育科创英才
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 20:22 来源：中国新闻网 6月5日，北京。老挝国家主席夫人娜丽女士参访中国宋庆龄青少年科技交流文化中心。中国宋庆龄基金会党组书记、副主席沈蓓莉和老挝国家主席夫人娜丽女士互赠礼物。中方赠送非遗白瓷雕刻，老方赠送女性手工织物。娜丽表示：我到这里来拜访印象非常深刻，特别是对于你们(如何)培养青少年，我希望把培养青少年的经验带回老挝。沈蓓莉表示：也
+中新网重庆5月23日电 (记者 钟旖)为持续深化成渝地区双城经济圈建设背景下的科技教育协同推进，促进两地交流，深化科技教育一体发展，“2026年成渝双城青少年科技教育交流与合作活动”近期在重庆顺利举办两期。 活动以“成渝融通科教 赓助英才繁茂”为主题，立足“融通共生、提质增效、共育英才”的核心目标，组织成都的92名中、小学科技辅导员，走进重庆开展沉浸式观摩、专业化研讨与深层次对
 
 ## 正文
 
-发布时间：2026年06月05日 20:22 来源：中国新闻网 6月5日，北京。
+中新网重庆5月23日电 (记者 钟旖)为持续深化成渝地区双城经济圈建设背景下的科技教育协同推进，促进两地交流，深化科技教育一体发展，“2026年成渝双城青少年科技教育交流与合作活动”近期在重庆顺利举办两期。
 
-老挝国家主席夫人娜丽女士参访中国宋庆龄青少年科技交流文化中心。
+活动以“成渝融通科教 赓助英才繁茂”为主题，立足“融通共生、提质增效、共育英才”的核心目标，组织成都的92名中、小学科技辅导员，走进重庆开展沉浸式观摩、专业化研讨与深层次对接，旨在推动两地科技教育从“单向交流”向“双向融通”升级，从“经验分享”向“协同共建”跨越，为成渝地区双城经济圈科创人才培育筑牢基础教育根基。
 
-中国宋庆龄基金会党组书记、副主席沈蓓莉和老挝国家主席夫人娜丽女士互赠礼物。
+首期活动面向小学科技辅导员。
 
-中方赠送非遗白瓷雕刻，老方赠送女性手工织物。
+46名成都教师走进重庆科学城南开小学、南岸区南坪实验小学(康德校区)、重庆两江新区星湖学校，深度观摩科创教学示范、特色课程实践与体系化育人探索。
 
-娜丽表示：我到这里来拜访印象非常深刻，特别是对于你们(如何)培养青少年，我希望把培养青少年的经验带回老挝。
+第二期活动聚焦中学科技教育，46名成都中学科技辅导员先后到访重庆巴蜀科学城中学校、重庆市第三十七中学校、重庆市第十一中学校，围绕数字赋能、科教融合、贯通式育人等主题交流互鉴。
 
-沈蓓莉表示：也特别欢迎更多老挝青少年到中国来访问，特别是到中心来。
+两期活动全程紧凑高效、内容充实，成都科技辅导员全程参与听课、说课、评课与经验分享，在座谈交流中碰撞思路、凝聚共识。
 
-(记者 官逸伦 卢晓娜 制作 田媛媛） 责任编辑：【叶攀】
+参与教师表示，将把重庆优质教学经验转化为本土实践，助力本校科技教育提质升级。
+
+该活动由成都市科学技术协会指导，成都市科技创新服务中心(成都市青少年科技活动中心)主办。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 22:24 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 22:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 22:27 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 22:16 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 22:13 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 22:12 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 22:26 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 22:18 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 22:11 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 22:18 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 22:21 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 22:04 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 22:10 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 22:12 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 22:07 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 22:28 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 22:19 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 22:35 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 22:19 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 22:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 22:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 22:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 22:07 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 22:28 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 22:35 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 22:12 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 22:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 22:35 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 22:15 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:21 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/0145836751.shtml)
-- 2026-06-29 22:18 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/77434133485.shtml)
-- 2026-06-29 22:11 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/14471944442.shtml)
-- 2026-06-29 22:18 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/627660430.shtml)
-- 2026-06-29 22:08 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/38815.shtml)
-- 2026-06-29 22:15 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/88203.shtml)
-- 2026-06-29 22:25 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/176663.shtml)
-- 2026-06-29 22:17 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/9902792364.shtml)
-- 2026-06-29 22:18 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/74781723535.shtml)
-- 2026-06-29 22:16 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/57258252.shtml)
-- 2026-06-29 22:09 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/8511995.shtml)
-- 2026-06-29 22:23 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/766904.shtml)
-- 2026-06-29 22:26 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/51874.shtml)
-- 2026-06-29 22:02 - [千与千寻](https://www.share.kurohicncr.top/Article/details/43803.shtml)
-- 2026-06-29 22:10 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/436058624171.shtml)
+- 2026-06-29 22:19 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/969365.shtml)
+- 2026-06-29 22:13 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/0604382826.shtml)
+- 2026-06-29 22:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/123833740342.shtml)
+- 2026-06-29 22:27 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/886639798505.shtml)
+- 2026-06-29 22:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/602481347.shtml)
+- 2026-06-29 22:23 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/27954178.shtml)
+- 2026-06-29 22:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/28612.shtml)
+- 2026-06-29 22:10 - [温网](http://www.blog.kurohicncr.top/Article/details/3328538844.shtml)
+- 2026-06-29 22:06 - [女心理师](http://www.share.minike.top/Article/details/47159788.shtml)
+- 2026-06-29 22:26 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/130984975.shtml)
+- 2026-06-29 22:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/68355.shtml)
+- 2026-06-29 22:33 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/08404676682.shtml)
+- 2026-06-29 22:10 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/934896455039.shtml)
+- 2026-06-29 22:27 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/06726.shtml)
+- 2026-06-29 22:24 - [周生如故](http://www.share.minike.top/Article/details/058261905173.shtml)

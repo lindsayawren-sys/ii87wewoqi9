@@ -1,58 +1,58 @@
-# 多地上线药品比价小程序！买药之前查一查→
+# 文博会首次设立跨境电商展区 打造文化出海全链路新生态
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-不同渠道药品公开比价，让“阴阳价格”无所遁形，如何用好药品比价小程序，买药不花“冤枉钱”？ 近期，国家集采药品在不同销售渠道出现高额价差的情况引发关注，部分零售药店存在“阴阳价格”：也就是同一款药，刷医保反而比付现金还贵。怎么才能判断药店的价格是否合理，这个信息差如何破解？国家医保局持续推广药品比价小程序，有望实现“掌上”轻松比价。如何用好小程序，让买药不花“冤枉钱”？ 总台中
+中新网深圳5月25日电 (记者 张璐)第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)正在深圳举行。 本届文博会首次设立的跨境电商展区，以“文化跨境·科技赋能·品牌出海”为核心理念，聚焦文化与科技深度融合的出海新趋势，集中展示中国文化产业数字化转型成果和跨境电商全产业链创新能力。 据悉，该展区打破传统展会单一展示模式，打造“展示+交易+对接+服务”四位一体的综合平
 
 ## 正文
 
-不同渠道药品公开比价，让“阴阳价格”无所遁形，如何用好药品比价小程序，买药不花“冤枉钱”？
+中新网深圳5月25日电 (记者 张璐)第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)正在深圳举行。
 
-近期，国家集采药品在不同销售渠道出现高额价差的情况引发关注，部分零售药店存在“阴阳价格”：也就是同一款药，刷医保反而比付现金还贵。
+本届文博会首次设立的跨境电商展区，以“文化跨境·科技赋能·品牌出海”为核心理念，聚焦文化与科技深度融合的出海新趋势，集中展示中国文化产业数字化转型成果和跨境电商全产业链创新能力。
 
-怎么才能判断药店的价格是否合理，这个信息差如何破解？
+据悉，该展区打破传统展会单一展示模式，打造“展示+交易+对接+服务”四位一体的综合平台，完整呈现从文化IP挖掘、产品设计研发、合规检测认证到海外营销、物流仓储、品牌运营的文化出海全路径，为中国企业搭建通往全球市场的“快车道”。
 
-国家医保局持续推广药品比价小程序，有望实现“掌上”轻松比价。
+该展区汇聚了跨境电商平台、供应链服务商、数字传媒机构、IP运营企业、潮玩文创品牌等全生态链代表企业，展示跨境电商在推动文化出海过程中的多元应用场景。
 
-如何用好小程序，让买药不花“冤枉钱”？
+深圳市跨境电子商务协会发挥行业枢纽作用，整合全球多个国家和地区的产业资源和渠道网络，为参展企业提供政策解读、市场调研、资源对接等全方位服务。
 
-总台中国之声记者 杜希萌：打开“河北智慧医保”小程序，点击“药品比价查询”，只要输入药品名称，系统便会自动按价格从低到高排序，并显示距离、库存等信息。
+J&P集团作为跨境合规服务商，聚焦税务合规、产品合规、知识产权保护等核心领域，为文化科技3C产品出海提供一站式合规解决方案。
 
-系统生成的“价格热力图”让药价一目了然，药店颜色越蓝，整体药价越便宜；颜色越红，则意味着价格越高。
+广州韬泓科技有限公司深耕非洲跨境贸易市场，建立了业内鲜有的全链路自主运营体系。
 
-河北省医保局医药价格和招标采购处处长林胜双透露，目前他们实现了药品比价小程序中医疗机构、药品品类在省域内的全覆盖。
+从源头集采、国际运输到本地清关、末端配送，该公司实现了供应链各环节的自主掌控，为中国文化和科技产品进入非洲市场提供了稳定可靠的贸易基础设施。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 22:25 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 22:22 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 22:00 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 22:06 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 22:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 22:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 22:06 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 22:03 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 22:13 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 22:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 22:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 22:21 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 22:26 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 22:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 22:24 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 22:33 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 22:06 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 22:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 22:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 22:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 22:07 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 22:07 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 22:30 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/23737205821.shtml)
-- 2026-06-29 22:21 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/739104.shtml)
-- 2026-06-29 22:16 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/702084.shtml)
-- 2026-06-29 22:22 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/4792209.shtml)
-- 2026-06-29 22:28 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/5362473707.shtml)
-- 2026-06-29 22:12 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/863787.shtml)
-- 2026-06-29 22:05 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/928786126420.shtml)
-- 2026-06-29 22:28 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/011196269002.shtml)
-- 2026-06-29 22:22 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/292576759.shtml)
-- 2026-06-29 22:18 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/3150748308.shtml)
-- 2026-06-29 22:28 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/350212316944.shtml)
-- 2026-06-29 22:05 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/484991.shtml)
-- 2026-06-29 22:03 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/21678.shtml)
-- 2026-06-29 22:05 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/151488826013.shtml)
-- 2026-06-29 22:05 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/32841989.shtml)
+- 2026-06-29 22:19 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/343442341.shtml)
+- 2026-06-29 22:15 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/378199855.shtml)
+- 2026-06-29 22:08 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/835608438796.shtml)
+- 2026-06-29 22:21 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/5907081.shtml)
+- 2026-06-29 22:10 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/8056040264.shtml)
+- 2026-06-29 22:12 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/5137660.shtml)
+- 2026-06-29 22:32 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/185987550983.shtml)
+- 2026-06-29 22:07 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/76267.shtml)
+- 2026-06-29 22:10 - [毒液2](https://www.blog.minike.top/Article/details/34643792.shtml)
+- 2026-06-29 22:34 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/314914828.shtml)
+- 2026-06-29 22:16 - [TOP Prada](https://www.share.minike.top/Article/details/5658323.shtml)
+- 2026-06-29 22:28 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/6120075110.shtml)
+- 2026-06-29 22:18 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/466262.shtml)
+- 2026-06-29 22:13 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/692170.shtml)
+- 2026-06-29 22:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/517311841263.shtml)

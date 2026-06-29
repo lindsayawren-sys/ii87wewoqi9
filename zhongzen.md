@@ -1,57 +1,56 @@
-# 住房公积金拟扩大使用范围，这9种情形可提取
+# “楚超”联赛再战 武汉主场气氛浓
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-记者从住房城乡建设部获悉，为深化住房公积金制度改革，更好满足缴存人多元化住房需求，住房城乡建设部启动了《住房公积金管理条例》修订工作。现根据工作安排，将《住房公积金管理条例(修订征求意见稿)》向社会公开征求意见。《住房公积金管理条例(修订征求意见稿)》共七章五十二条，分别是总则、机构及其职责、缴存、提取和使用、监督和管理、罚则、附则。 记者梳理现行《条例》后发现，《住房公积金管
+“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫
 
 ## 正文
 
-记者从住房城乡建设部获悉，为深化住房公积金制度改革，更好满足缴存人多元化住房需求，住房城乡建设部启动了《住房公积金管理条例》修订工作。
+“东北超”开踢，为东北全面振兴注入鲜活动能中国“离境退税2.0”为打造国际化消费环境添动力港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
 
-现根据工作安排，将《住房公积金管理条例(修订征求意见稿)》向社会公开征求意见。
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
 
-《住房公积金管理条例(修订征求意见稿)》共七章五十二条，分别是总则、机构及其职责、缴存、提取和使用、监督和管理、罚则、附则。
+618大战，为何先从手机降价开始？
 
-记者梳理现行《条例》后发现，《住房公积金管理条例(修订征求意见稿)》有以下一些新变化： 《住房公积金管理条例(修订征求意见稿)》明确： 第二十四条 职工有下列情形之一的，可以提取职工住房公积金账户内的存储余额： (一)支付房租的； (二)购买、建造、翻建、大修自住住房的； (三)偿还购房贷款本息的； (四)装修自住住房不超过一定额度的； (五)支付自住住房物业费的； (六)离休、退休的； (七)完全丧失劳动能力，并与单位终止劳动(人事)关系的； (八)出境定居的； (九)经国务院批准的其他住房消费情形。
+埃及胡夫金字塔如何抗震？
 
-第三十一条 国务院和省、自治区人民政府住房城乡建设主管部门，以及住房公积金管理中心应当加强住房公积金数字化能力建设，强化跨地区、跨部门、跨层级的业务协同，推动住房公积金互认互贷，提升管理服务效能。
+国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
 
-第四十九条 本条例第二条第二款所称单位以外的其他单位及其在职职工，可参照本条例规定执行。
+你的股票和黄金，后市怎么走？
 
-个体工商户、非全日制从业人员以及其他灵活就业人员，可自愿参加住房公积金制度，具体办法由设区城市人民政府制定。
+郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
 
-公众如有修改意见，可通过以下方式反馈： 一、电子邮件：gjjtl@mohurd.gov.cn。
+建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 22:26 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 22:28 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 22:18 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 22:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 22:07 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 22:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 22:18 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 22:09 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 22:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 22:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 22:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 22:07 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 22:26 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 22:30 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 22:34 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 22:12 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 22:26 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 22:29 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 22:11 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 22:21 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/87541310838.shtml)
-- 2026-06-29 22:01 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/3968878.shtml)
-- 2026-06-29 22:20 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/39069755.shtml)
-- 2026-06-29 22:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/7452789970.shtml)
-- 2026-06-29 22:08 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/52086.shtml)
-- 2026-06-29 22:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/47851015256.shtml)
-- 2026-06-29 22:28 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/36183058.shtml)
-- 2026-06-29 22:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/06109886.shtml)
-- 2026-06-29 22:26 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/43311.shtml)
-- 2026-06-29 22:29 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/943758.shtml)
-- 2026-06-29 22:20 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/316071774.shtml)
-- 2026-06-29 22:16 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/96949668536.shtml)
-- 2026-06-29 22:25 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/449149.shtml)
-- 2026-06-29 22:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/212102549.shtml)
-- 2026-06-29 22:06 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/2605098.shtml)
+- 2026-06-29 22:09 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/698483748.shtml)
+- 2026-06-29 22:33 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/89688.shtml)
+- 2026-06-29 22:23 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/394217576.shtml)
+- 2026-06-29 22:06 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/11680299.shtml)
+- 2026-06-29 22:26 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/06573389443.shtml)
+- 2026-06-29 22:27 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/91031.shtml)
+- 2026-06-29 22:30 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/34529970314.shtml)
+- 2026-06-29 22:08 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/49429.shtml)
+- 2026-06-29 22:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/907043910.shtml)
+- 2026-06-29 22:11 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/612496500396.shtml)
+- 2026-06-29 22:28 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/84202990684.shtml)
+- 2026-06-29 22:19 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/638975637501.shtml)
+- 2026-06-29 22:19 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/29951070.shtml)
+- 2026-06-29 22:10 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/1501290492.shtml)
+- 2026-06-29 22:10 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/394395435.shtml)

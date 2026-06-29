@@ -1,50 +1,46 @@
-# 中国企业破解智算能耗难题 创新技术赋能超高密算力发展
+# 1,2-丙二胺商品报价动态（2026-05-24）
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月07日 10:49 来源：中国新闻网 6月6日，为智算产业配套供能的算力中心高压交直流预制舱供电站“算电岛”在山东青岛发布。该产品为超高密度人工智能(AI)算力打造一体化能源枢纽解决方案。 据介绍，“算电岛”将变电站建设周期压缩至150天，其自研高压固态变压器，可实现220千伏高压直入、800伏直流输出，效率可达98.5%，并适配60千瓦至100千瓦主
+生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 （文章来源：生意社）责任编辑：陈平
 
 ## 正文
 
-发布时间：2026年06月07日 10:49 来源：中国新闻网 6月6日，为智算产业配套供能的算力中心高压交直流预制舱供电站“算电岛”在山东青岛发布。
-
-该产品为超高密度人工智能(AI)算力打造一体化能源枢纽解决方案。
-
-据介绍，“算电岛”将变电站建设周期压缩至150天，其自研高压固态变压器，可实现220千伏高压直入、800伏直流输出，效率可达98.5%，并适配60千瓦至100千瓦主流液冷算力机柜。
-
-青岛特锐德电气股份有限公司执行总裁周君表示，“算电岛”实现了高压直入、中压直转、固态变压器(SST)赋能、算电协同，同时利用AI技术，实现绿电预测、储能平抑与算力任务智能调度，降低使用成本。
-
-(王禹 辛鹏 制作 王佳琪） 责任编辑：【李季】
+生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 （文章来源：生意社）责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-29 22:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 22:23 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 22:20 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 22:23 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 22:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 22:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 22:05 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 22:01 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 22:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 22:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 22:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 22:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 22:12 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 22:07 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 22:30 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 22:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 22:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 22:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 22:08 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 22:35 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 22:21 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 22:22 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 22:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 22:17 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/169415882.shtml)
-- 2026-06-29 22:18 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/168612500290.shtml)
-- 2026-06-29 22:04 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/33984581.shtml)
-- 2026-06-29 22:25 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/47514108.shtml)
-- 2026-06-29 22:08 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/7766511624.shtml)
-- 2026-06-29 22:09 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/46248763595.shtml)
-- 2026-06-29 22:19 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/7017527.shtml)
-- 2026-06-29 22:25 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/52571.shtml)
-- 2026-06-29 22:12 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/29718628.shtml)
-- 2026-06-29 22:07 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/2472556715.shtml)
-- 2026-06-29 22:25 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/3646646.shtml)
-- 2026-06-29 22:05 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/396425796037.shtml)
-- 2026-06-29 22:25 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/093701638233.shtml)
-- 2026-06-29 22:16 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/88947.shtml)
-- 2026-06-29 22:04 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/88164114155.shtml)
+- 2026-06-29 22:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/06760523.shtml)
+- 2026-06-29 22:30 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/2436861.shtml)
+- 2026-06-29 22:21 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/492149811641.shtml)
+- 2026-06-29 22:09 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/83058847.shtml)
+- 2026-06-29 22:12 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/267229823561.shtml)
+- 2026-06-29 22:29 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/23846.shtml)
+- 2026-06-29 22:35 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/87103.shtml)
+- 2026-06-29 22:15 - [TOP Prada](http://www.share.minike.top/Article/details/75819321.shtml)
+- 2026-06-29 22:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/43586452.shtml)
+- 2026-06-29 22:08 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/531288440.shtml)
+- 2026-06-29 22:13 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/381459845.shtml)
+- 2026-06-29 22:14 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/22843737796.shtml)
+- 2026-06-29 22:20 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/9884180.shtml)
+- 2026-06-29 22:33 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/432234362401.shtml)
+- 2026-06-29 22:06 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/28910631.shtml)

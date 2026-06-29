@@ -1,61 +1,52 @@
-# 钢琴家田佳鑫“鑫乐之旅”全国巡演启动 创新文旅融合新业态
+# 万马科技：在具身智能领域，公司与机器人行业相关客户展开合作，相关业务尚处于前期阶段，收入占比较低
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新网北京6月5日电 (记者 应妮)记者从5日在京举行的新闻发布会获悉，钢琴家田佳鑫“鑫乐之旅”将于7月启程巡演八个城市，并同步推出音乐纪实微综艺《跟着音乐去旅行》。 巡演由中国对外文化集团有限公司主办。7月至10月，“鑫乐之旅”将赴北京、深圳、佛山、泉州、珠海、成都、德州、济南八个城市。演出的曲目设计独具匠心，既有莫扎特、贝多芬、肖邦、李斯特等德奥经典作品，也有《牧童短笛》《
+每经AI快讯，有投资者在投资者互动平台提问：贵司的智驾与算力是否有提供给机器人企业配套？万马科技（300698.SZ）5月22日在投资者互动平台表示，在具身智能领域，公司围绕具身智能语料的采集、处理及使用与机器人行业相关客户展开合作。当前相关业务尚处于前期阶段，收入占比较低，敬请广大投资者注意风险，理性投资。（文章来源：每日经济新闻）
 
 ## 正文
 
-中新网北京6月5日电 (记者 应妮)记者从5日在京举行的新闻发布会获悉，钢琴家田佳鑫“鑫乐之旅”将于7月启程巡演八个城市，并同步推出音乐纪实微综艺《跟着音乐去旅行》。
+每经AI快讯，有投资者在投资者互动平台提问：贵司的智驾与算力是否有提供给机器人企业配套？
 
-巡演由中国对外文化集团有限公司主办。
+万马科技（300698.SZ）5月22日在投资者互动平台表示，在具身智能领域，公司围绕具身智能语料的采集、处理及使用与机器人行业相关客户展开合作。
 
-7月至10月，“鑫乐之旅”将赴北京、深圳、佛山、泉州、珠海、成都、德州、济南八个城市。
+当前相关业务尚处于前期阶段，收入占比较低，敬请广大投资者注意风险，理性投资。
 
-演出的曲目设计独具匠心，既有莫扎特、贝多芬、肖邦、李斯特等德奥经典作品，也有《牧童短笛》《山丹丹开花红艳艳》等观众熟悉的中国作品。
-
-音乐会结合八座城市的历史底蕴和人文特质，因地制宜调整演奏处理与情绪表达，还在返场环节设置城市专属定制曲目，呈现每座城市独特的文化风采。
-
-钢琴家田佳鑫介绍了音乐会的看点，古典“鑫”声尽显古典音乐典雅技法之美；华夏“鑫”声承载中式诗意情怀，勾勒中国钢琴作品发展脉络；浪漫“鑫”声以抒情炫技曲目营造疗愈氛围。
-
-巡演部分场次将融入水墨动画、意境沙画、古典诗词等东方美学元素，构建沉浸式音画现场。
-
-每站巡演还会开展音乐大师班，她将与琴童、音乐爱好者交流，拆解演奏技巧、分享艺术成长心路。
+（文章来源：每日经济新闻）
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 22:04 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 22:12 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 22:07 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 22:09 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 22:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 22:28 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 22:28 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 22:22 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:03 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 22:28 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 22:27 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-29 22:15 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 22:08 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 22:05 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 22:15 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 22:17 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 22:29 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 22:15 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 22:31 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 22:11 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 22:21 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 22:12 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 22:13 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 22:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 22:29 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 22:18 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 22:06 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 22:24 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/43190747577.shtml)
-- 2026-06-29 22:06 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/230224433.shtml)
-- 2026-06-29 22:00 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/012181289.shtml)
-- 2026-06-29 22:23 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/86340173343.shtml)
-- 2026-06-29 22:19 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/1072538.shtml)
-- 2026-06-29 22:06 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/61387715.shtml)
-- 2026-06-29 22:13 - [田曦薇没招了](http://www.blog.minike.top/Article/details/02803550.shtml)
-- 2026-06-29 22:23 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/8072258.shtml)
-- 2026-06-29 22:13 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/25224915.shtml)
-- 2026-06-29 22:04 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/27617491.shtml)
-- 2026-06-29 22:02 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/1083008.shtml)
-- 2026-06-29 22:15 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/2822636586.shtml)
-- 2026-06-29 22:28 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/16753619.shtml)
-- 2026-06-29 22:26 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/29335997.shtml)
-- 2026-06-29 22:28 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/448280.shtml)
+- 2026-06-29 22:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/99201880.shtml)
+- 2026-06-29 22:30 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/01682.shtml)
+- 2026-06-29 22:20 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/750413528098.shtml)
+- 2026-06-29 22:24 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/50978.shtml)
+- 2026-06-29 22:08 - [85花告别古偶](http://www.share.minike.top/Article/details/096073940.shtml)
+- 2026-06-29 22:29 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/224927812458.shtml)
+- 2026-06-29 22:32 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/185522241.shtml)
+- 2026-06-29 22:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/51185.shtml)
+- 2026-06-29 22:24 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/806241.shtml)
+- 2026-06-29 22:28 - [巴黎区长紧急采购50台中国空调](http://www.share.minike.top/Article/details/3829356520.shtml)
+- 2026-06-29 22:16 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/9412797002.shtml)
+- 2026-06-29 22:16 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/6373582.shtml)
+- 2026-06-29 22:24 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/5518789204.shtml)
+- 2026-06-29 22:20 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/47043067151.shtml)
+- 2026-06-29 22:06 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/4676792658.shtml)

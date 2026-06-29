@@ -1,60 +1,49 @@
-# 六个核桃卖不动，养元饮品去赌芯片了？
+# 记者现场直击 山西煤矿事故已致90人死亡
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：市值风云 吃老本，撞大运。 作者 | 白猫 编辑 | 小白 前段时间，养元饮品（603156.SH）的走势着实有点让人侧目，股价连创新高，看到这种风骚姿态，风云君不免疑惑：难道大家突然又爱上喝六个核桃了？ （市值风云PC端） 其实，真正把这家老牌饮料公司推上历史新高的，不是货架上的易拉罐，而是公司花1
+发布时间：2026年05月23日 22:15 来源：中国新闻网 记者从山西通洲集团留神峪煤矿瓦斯爆炸事故现场了解到，事故已造成90人死亡，现场搜救仍在进行。(记者 王惠琳 陆祁国 向上 制作 王雪尔) 责任编辑：【曲克】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月23日 22:15 来源：中国新闻网 记者从山西通洲集团留神峪煤矿瓦斯爆炸事故现场了解到，事故已造成90人死亡，现场搜救仍在进行。
 
-来源：市值风云 吃老本，撞大运。
-
-作者 | 白猫 编辑 | 小白 前段时间，养元饮品（603156.SH）的走势着实有点让人侧目，股价连创新高，看到这种风骚姿态，风云君不免疑惑：难道大家突然又爱上喝六个核桃了？
-
-（市值风云PC端） 其实，真正把这家老牌饮料公司推上历史新高的，不是货架上的易拉罐，而是公司花16亿买的那张长江存储0.99%股份的“彩票”。
-
-16亿砸向长江存储 故事的引爆点要回到公司先前的一张公告上。
-
-4月25日晚，养元饮品公告掏出16亿元，通过旗下泉泓投资增资长江存储母公司长控集团，拿到了0.99%的股份。
-
-（公告编号：2025-012） 这一巴掌直接拍在了半导体存储芯片的国产替代和AI大潮上。
-
-长江存储是一家集芯片设计、生产制造、封装测试及系统解决方案于一体的存储器IDM企业，产品广泛应用于移动通信、消费数码、计算机、服务器及数据中心等领域。
+(记者 王惠琳 陆祁国 向上 制作 王雪尔) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 22:08 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 22:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 22:25 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 22:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 22:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 22:03 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 22:21 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 22:03 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 22:01 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 22:21 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 22:03 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 22:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 22:07 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 22:13 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 22:13 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 22:19 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 22:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 22:16 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 22:23 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 22:32 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 22:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 22:06 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 22:25 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 22:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 22:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 22:30 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 22:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 22:27 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/982056916036.shtml)
-- 2026-06-29 22:19 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/4903503.shtml)
-- 2026-06-29 22:10 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/54080435.shtml)
-- 2026-06-29 22:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/3933001.shtml)
-- 2026-06-29 22:13 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/358841330556.shtml)
-- 2026-06-29 22:08 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/5898909.shtml)
-- 2026-06-29 22:00 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/3792636107.shtml)
-- 2026-06-29 22:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/28850295151.shtml)
-- 2026-06-29 22:01 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/9381326009.shtml)
-- 2026-06-29 22:08 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/859261.shtml)
-- 2026-06-29 22:02 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/74819917.shtml)
-- 2026-06-29 22:14 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/95515302996.shtml)
-- 2026-06-29 22:02 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/69903240.shtml)
-- 2026-06-29 22:19 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/02167297064.shtml)
-- 2026-06-29 22:08 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/8398377.shtml)
+- 2026-06-29 22:19 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/442241.shtml)
+- 2026-06-29 22:13 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/1072841543.shtml)
+- 2026-06-29 22:32 - [85花告别古偶](http://www.blog.minike.top/Article/details/68011.shtml)
+- 2026-06-29 22:14 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/981642543.shtml)
+- 2026-06-29 22:31 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/6764255196.shtml)
+- 2026-06-29 22:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/99433086.shtml)
+- 2026-06-29 22:34 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/4160401416.shtml)
+- 2026-06-29 22:24 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/636181.shtml)
+- 2026-06-29 22:27 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/34055735.shtml)
+- 2026-06-29 22:09 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/57840.shtml)
+- 2026-06-29 22:23 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/84681364.shtml)
+- 2026-06-29 22:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/0426816211.shtml)
+- 2026-06-29 22:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/5542579.shtml)
+- 2026-06-29 22:22 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/46602587376.shtml)
+- 2026-06-29 22:19 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/38439.shtml)

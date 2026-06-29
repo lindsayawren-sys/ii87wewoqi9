@@ -1,59 +1,56 @@
-# 溢价率超150%刷新纪录 保利置业57.72亿元落子深圳南山
+# 青海格尔木官方：严禁非法穿越无人区、擅自攀登玉珠峰
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-深圳土地市场再现现象级成交。6月5日，深圳市南山区粤海街道一宗住宅用地成功出让。经过291轮竞价，保利置业集团有限公司(以下简称“保利置业”)以57.72亿元总价竞得该地块，溢价率150.74%，成交楼面价约10.86万元/平方米，刷新深圳涉宅用地楼面单价历史纪录，成为深圳新的“单价地王”。此次竞拍吸引保利置业、华润置地有限公司、招商局蛇口工业区控股股份有限公司等6家头部房企参
+中新网西宁5月24日电 (记者 孙睿)5月24日，青海省格尔木市文体旅游广电局、格尔木市公安局联合发布通告，严禁非法穿越无人区、违规探险旅游及擅自攀登玉珠峰，严守高原生态红线，保障游客生命财产安全，规范旅游旺季户外秩序。 通告依据相关法律法规制定，明确以下四类禁止行为：未经审批，严禁进入可可西里、昆仑山等自然保护区、生态红线区、无人区开展穿越、露营、科考等活动；严禁户外机构、自
 
 ## 正文
 
-深圳土地市场再现现象级成交。
+中新网西宁5月24日电 (记者 孙睿)5月24日，青海省格尔木市文体旅游广电局、格尔木市公安局联合发布通告，严禁非法穿越无人区、违规探险旅游及擅自攀登玉珠峰，严守高原生态红线，保障游客生命财产安全，规范旅游旺季户外秩序。
 
-6月5日，深圳市南山区粤海街道一宗住宅用地成功出让。
+通告依据相关法律法规制定，明确以下四类禁止行为：未经审批，严禁进入可可西里、昆仑山等自然保护区、生态红线区、无人区开展穿越、露营、科考等活动；严禁户外机构、自媒体等以营利为目的，非法组织无人区探险旅游；未经青海省体育局审批、无资质无保障，严禁擅自攀登玉珠峰等高海拔雪山；严禁车辆与人员违规进入管控区破坏生态、扰乱管理秩序。
 
-经过291轮竞价，保利置业集团有限公司(以下简称“保利置业”)以57.72亿元总价竞得该地块，溢价率150.74%，成交楼面价约10.86万元/平方米，刷新深圳涉宅用地楼面单价历史纪录，成为深圳新的“单价地王”。
+通告同时明确法律与安全责任：违规进入高风险区域，相关风险由当事人自行承担；违规者将依法予以警告、罚款、劝离、扣车等处置，情节严重者纳入信用记录；涉嫌犯罪的，追究刑事责任；因非法活动产生的公共救援、生态损毁费用，由当事人及组织者全额承担。
 
-此次竞拍吸引保利置业、华润置地有限公司、招商局蛇口工业区控股股份有限公司等6家头部房企参与。
+格尔木市官方提示，可可西里、玉珠峰等区域高寒缺氧、地形复杂、通信不畅，救援条件有限。
 
-地块起始价23.02亿元，最终成交总价较起始价增加34.7亿元，成为今年以来全国土地市场最受关注的交易之一。
+旅游旺季来临，呼吁民众与游客敬畏自然、守法出行，共同守护高原生态安全与旅游秩序。
 
-资料显示，该宗地位于南山区粤海街道科技园南区，紧邻百度大厦、深圳软件产业基地等产业载体，规划住宅面积49000平方米、可售商业1500平方米，容积率严控2.9、建筑限高100米，是科技园近十年来首度公开出让的低密度纯居住用地。
-
-中指研究院深圳分院高级分析师孙红梅向《证券日报》记者表示，该地块兼具粤海科创产业资源与优质教育、商业、医疗配套优势，土地资源极为稀缺。
-
-此次成交不仅刷新深圳住宅用地楼面价纪录，也反映出房企对于核心城区优质资产的争夺仍然激烈。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:22 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 22:23 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 22:29 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 22:14 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 22:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 22:27 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 22:07 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 22:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 22:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 22:29 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 22:00 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 22:16 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 22:10 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 22:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 22:10 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 22:07 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 22:10 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 22:35 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 22:07 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 22:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 22:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 22:35 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 22:19 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 22:27 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 22:23 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 22:16 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 22:34 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [炽夏](http://www.blog.kurohicncr.top/Article/details/140137114.shtml)
-- 2026-06-29 22:23 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/810310636.shtml)
-- 2026-06-29 22:14 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/617124771.shtml)
-- 2026-06-29 22:22 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/062301186.shtml)
-- 2026-06-29 22:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/2234025734.shtml)
-- 2026-06-29 22:03 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/4941725195.shtml)
-- 2026-06-29 22:08 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/25420129.shtml)
-- 2026-06-29 22:03 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/9474505902.shtml)
-- 2026-06-29 22:27 - [送你一朵小红花](http://www.blog.minike.top/Article/details/12937104.shtml)
-- 2026-06-29 22:16 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/25465654255.shtml)
-- 2026-06-29 22:12 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/168317.shtml)
-- 2026-06-29 22:30 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/3765317820.shtml)
-- 2026-06-29 22:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/85477680027.shtml)
-- 2026-06-29 22:18 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/021221770.shtml)
-- 2026-06-29 22:15 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/75602228217.shtml)
+- 2026-06-29 22:29 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/45725280469.shtml)
+- 2026-06-29 22:12 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/99949453119.shtml)
+- 2026-06-29 22:10 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/951951479.shtml)
+- 2026-06-29 22:09 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/08107391.shtml)
+- 2026-06-29 22:18 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/61571098.shtml)
+- 2026-06-29 22:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/55532541.shtml)
+- 2026-06-29 22:18 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/52816245019.shtml)
+- 2026-06-29 22:28 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/35066832133.shtml)
+- 2026-06-29 22:31 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/824540.shtml)
+- 2026-06-29 22:29 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/48289.shtml)
+- 2026-06-29 22:23 - [炽夏](https://www.share.kurohicncr.top/Article/details/003500864.shtml)
+- 2026-06-29 22:22 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/99885395.shtml)
+- 2026-06-29 22:33 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/27820.shtml)
+- 2026-06-29 22:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/7283380314.shtml)
+- 2026-06-29 22:06 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/701177.shtml)

@@ -1,54 +1,58 @@
-# 天生多屏！中兴云电脑解锁 AI 全场景新生活
+# 中美高校70余名师生探索城乡空间演进新路径
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-无需笨重主机，中兴云电脑实现多端无缝流转，手机、平板、笔电、自由屏一套数据通用，办公全程零切换成本。云端多重加密备份，数据远比本地设备安全。 兼顾3A游戏娱乐、孩子远程学习守护、老人健康康养，全场景适配家庭生活。轻量化终端、按需付费，让普惠算力走进千家万户，真正实现AI平权！#中兴云电脑# #AI普惠新生活#
+中新网南京5月25日电 (孙艳 徐珊珊)5月20日至6月3日，来自东南大学、宾夕法尼亚大学、浙江大学的70余名师生走进上海、南京、义乌、东阳、杭州，以“流动”为视角、“物联”为线索，聚焦全球贸易转型与数字经济背景下城乡空间的深刻演进。 本次活动由东南大学主办，东南大学建筑学院、国际合作处承办，宾夕法尼亚大学韦茨曼设计学院、浙江大学平衡建筑研究中心合办。在24日举行的开幕式上，东
 
 ## 正文
 
-无需笨重主机，中兴云电脑实现多端无缝流转，手机、平板、笔电、自由屏一套数据通用，办公全程零切换成本。
+中新网南京5月25日电 (孙艳 徐珊珊)5月20日至6月3日，来自东南大学、宾夕法尼亚大学、浙江大学的70余名师生走进上海、南京、义乌、东阳、杭州，以“流动”为视角、“物联”为线索，聚焦全球贸易转型与数字经济背景下城乡空间的深刻演进。
 
-云端多重加密备份，数据远比本地设备安全。
+本次活动由东南大学主办，东南大学建筑学院、国际合作处承办，宾夕法尼亚大学韦茨曼设计学院、浙江大学平衡建筑研究中心合办。
 
-兼顾3A游戏娱乐、孩子远程学习守护、老人健康康养，全场景适配家庭生活。
+在24日举行的开幕式上，东南大学与宾夕法尼亚大学代表共同寄语学员，希望青年学子立足全球视野，在跨文化交流与实地实践中拓宽学术眼界，为可持续、公平包容的城乡社区发展贡献力量。
 
-轻量化终端、按需付费，让普惠算力走进千家万户，真正实现AI平权！
+活动以“全球物联——在分布式流动网络中演进的城乡社区”为主题，是两校继2024年“设计结合自然”、2025年“创新性乡域景观”后，连续第三年联合举办的高端教学与学术交流品牌。
 
-#中兴云电脑# #AI普惠新生活#
+东南大学建筑学院相关负责人表示，全球批发贸易转型与全球供应链重构正持续重塑城乡空间形态与社区结构，本届暑期学校聚焦商品与产业驱动下的城乡互动规律，既是对两校百年学术合作的传承延续，也是推进国际化人才培养、助力城乡学科创新发展的重要实践。
+
+本届暑期学校围绕全球商品代谢、制造空间、跨国劳动共生、数字空间重编等议题，采用理论讲授、专题工作坊、学术研讨与多地实践调研相结合的模式。
+
+其间，中外高校知名学者将带来系列前沿学术报告，涵盖新自下而上城镇化、科技城设计迭代、全球数贸中心、物流空间创新等热点方向。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 22:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 22:05 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 22:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 22:26 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 22:16 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 22:20 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 22:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 22:02 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 22:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 22:05 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 22:09 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 22:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 22:13 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 22:21 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 22:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 22:19 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 22:17 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 22:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 22:29 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 22:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 22:12 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 22:09 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 22:17 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 22:13 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/3998783.shtml)
-- 2026-06-29 22:29 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/6271291584.shtml)
-- 2026-06-29 22:03 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/440400588941.shtml)
-- 2026-06-29 22:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/8315543.shtml)
-- 2026-06-29 22:23 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/1982744559.shtml)
-- 2026-06-29 22:05 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/051241000334.shtml)
-- 2026-06-29 22:26 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/4853846253.shtml)
-- 2026-06-29 22:27 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/82033476325.shtml)
-- 2026-06-29 22:15 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/58197247.shtml)
-- 2026-06-29 22:21 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/021772908.shtml)
-- 2026-06-29 22:01 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/90335776.shtml)
-- 2026-06-29 22:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/932765506.shtml)
-- 2026-06-29 22:17 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/64151.shtml)
-- 2026-06-29 22:11 - [第一炉香](https://www.blog.minike.top/Article/details/906036156.shtml)
-- 2026-06-29 22:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/9682065396.shtml)
+- 2026-06-29 22:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/069517172056.shtml)
+- 2026-06-29 22:33 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/317948886.shtml)
+- 2026-06-29 22:22 - [第一炉香](https://www.share.kurohicncr.top/Article/details/78015.shtml)
+- 2026-06-29 22:34 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/100150.shtml)
+- 2026-06-29 22:24 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/33019541084.shtml)
+- 2026-06-29 22:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/1448937.shtml)
+- 2026-06-29 22:17 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/16764.shtml)
+- 2026-06-29 22:10 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/8082171802.shtml)
+- 2026-06-29 22:35 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/753250.shtml)
+- 2026-06-29 22:21 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/88536994613.shtml)
+- 2026-06-29 22:18 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/71120382422.shtml)
+- 2026-06-29 22:12 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/4564279156.shtml)
+- 2026-06-29 22:31 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/131870.shtml)
+- 2026-06-29 22:32 - [女心理师](http://www.share.minike.top/Article/details/240127805.shtml)
+- 2026-06-29 22:19 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/5368414.shtml)

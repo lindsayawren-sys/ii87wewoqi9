@@ -1,57 +1,60 @@
-# 距离世界杯仅一周 美国SoFi体育场工作人员罢工要求加薪
+# 国泰君安期货黑色组 | 煤炭突发！安监风暴再起，供需格局瞬间反转
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-美国洛杉矶附近的SoFi体育场工作人员于当地时间周五投票决定举行罢工，要求提高薪资。此时距离该场馆承办美国足球队本届世界杯首战仅剩一周时间。 工会表示，因与场馆餐饮服务分包商Legends Global的合同谈判陷入僵局，场馆内联合酒店及服务业工会11号分会96%的成员投票支持罢工。双方谈判预计于周一重启。 该工会代表场馆内约2000名餐饮从业者，包括调酒师、洗碗工、厨师及售卖
+💥山西长治5.22特大矿难“黑天鹅”扰动，煤炭市场的剧本改写！ 1️⃣ 焦煤：从“宽松”秒变“紧缺”！ 预计日均减产7-12万吨，而铁水还在高位硬扛。目前盘面还贴水现货近100元/吨，估值洼地叠加期现解套需求，短期价格高看一线偏强运行。 2️⃣ 动力煤：震荡偏弱态势或将扭转！ 安监与保供并行，产能释放弹性被锁死。虽然电厂还在靠高库存观望，但夏季高温杀到，日耗表现强于预期。加上铁
 
 ## 正文
 
-美国洛杉矶附近的SoFi体育场工作人员于当地时间周五投票决定举行罢工，要求提高薪资。
+💥山西长治5.22特大矿难“黑天鹅”扰动，煤炭市场的剧本改写！
 
-此时距离该场馆承办美国足球队本届世界杯首战仅剩一周时间。
+1️⃣ 焦煤：从“宽松”秒变“紧缺”！
 
-工会表示，因与场馆餐饮服务分包商Legends Global的合同谈判陷入僵局，场馆内联合酒店及服务业工会11号分会96%的成员投票支持罢工。
+预计日均减产7-12万吨，而铁水还在高位硬扛。
 
-双方谈判预计于周一重启。
+目前盘面还贴水现货近100元/吨，估值洼地叠加期现解套需求，短期价格高看一线偏强运行。
 
-该工会代表场馆内约2000名餐饮从业者，包括调酒师、洗碗工、厨师及售卖摊位工作人员。
+2️⃣ 动力煤：震荡偏弱态势或将扭转！
 
-Legends Global发表声明称：“十余年来，我们与联合酒店及服务业工会11号分会始终保持良好合作，公司仍致力于通过诚意协商达成公平协议。
+安监与保供并行，产能释放弹性被锁死。
 
-我们期待在SoFi体育场举办的世界杯赛事期间，为球迷提供优质服务。
+虽然电厂还在靠高库存观望，但夏季高温杀到，日耗表现强于预期。
 
-” SoFi体育场是美国国家橄榄球联盟洛杉矶公羊队与洛杉矶闪电队的主场，本届世界杯共有八场赛事在此进行。
+加上铁路运费密集上调、发运倒挂，内贸煤底盘坚挺。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 22:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 22:26 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 22:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 22:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 22:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 22:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 22:26 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 22:00 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 22:24 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 22:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 22:14 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 22:28 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-29 22:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 22:11 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 22:26 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 22:13 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 22:33 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 22:15 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 22:16 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 22:13 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 22:28 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 22:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 22:16 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 22:27 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/94153.shtml)
-- 2026-06-29 22:26 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/4995385431.shtml)
-- 2026-06-29 22:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/840365475558.shtml)
-- 2026-06-29 22:02 - [金刚川](https://www.blog.kurohicncr.top/Article/details/73290240.shtml)
-- 2026-06-29 22:08 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/469853.shtml)
-- 2026-06-29 22:20 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/23262902.shtml)
-- 2026-06-29 22:12 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/9040894.shtml)
-- 2026-06-29 22:11 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/413071500.shtml)
-- 2026-06-29 22:23 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/5279876.shtml)
-- 2026-06-29 22:19 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/09895.shtml)
-- 2026-06-29 22:11 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/79433357.shtml)
-- 2026-06-29 22:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/81946229602.shtml)
-- 2026-06-29 22:23 - [毒液2](http://www.share.minike.top/Article/details/410065932.shtml)
-- 2026-06-29 22:20 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/836284035.shtml)
-- 2026-06-29 22:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/60835.shtml)
+- 2026-06-29 22:22 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/65467247689.shtml)
+- 2026-06-29 22:31 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/745704110.shtml)
+- 2026-06-29 22:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/728693956881.shtml)
+- 2026-06-29 22:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/73546397.shtml)
+- 2026-06-29 22:06 - [世界杯](http://www.share.kurohicncr.top/Article/details/74851.shtml)
+- 2026-06-29 22:22 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/369072.shtml)
+- 2026-06-29 22:17 - [世界杯](https://www.share.minike.top/Article/details/7723731549.shtml)
+- 2026-06-29 22:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/302083988.shtml)
+- 2026-06-29 22:26 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/9158533.shtml)
+- 2026-06-29 22:23 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/308569.shtml)
+- 2026-06-29 22:17 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/0267824.shtml)
+- 2026-06-29 22:30 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/08624.shtml)
+- 2026-06-29 22:15 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/0248893.shtml)
+- 2026-06-29 22:22 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/23543755.shtml)
+- 2026-06-29 22:14 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/786023793367.shtml)

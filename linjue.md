@@ -1,61 +1,57 @@
-# 2025年下半年银行理财公司竞争力排名发布：兴银理财综合居首，国有、股份、城商行前三揭晓
+# 星巴克叫停AI库存自动盘点工具：上线9个月，错误频出
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-6月8日金融一线消息，近日，《北大金融评论》、北大汇丰金融研究院资管研究中心及北大汇丰智库联合发布2025年下半年北大汇丰·银行理财公司竞争力排名。本次排名调整展示口径：公布综合竞争力第一名，并分别列示国有大型商业银行理财公司（下称国有行理财公司）、股份制商业银行理财公司（下称股份行理财公司）、城市商业银行理财公司（下称城商行理财公司）前三，合计10家机构，清晰呈现不同类型理财
+星巴克本周正式终止了其在北美地区门店使用的AI库存自动盘点工具。该系统旨在通过平板电脑拍照自动统计牛奶、糖浆等物料库存，但在上线9个月后因频繁出错而被叫停。 据悉，该AI工具由星巴克与NomadGo公司合作开发，员工只需手持平板扫描货架，AI即可自动识别并生成补货订单，号称能将盘点时间从数小时缩短至几分钟。然而，实际运行中系统经常出现混淆同类牛奶包装、漏计货品等低级错误，在星巴
 
 ## 正文
 
-6月8日金融一线消息，近日，《北大金融评论》、北大汇丰金融研究院资管研究中心及北大汇丰智库联合发布2025年下半年北大汇丰·银行理财公司竞争力排名。
+星巴克本周正式终止了其在北美地区门店使用的AI库存自动盘点工具。
 
-本次排名调整展示口径：公布综合竞争力第一名，并分别列示国有大型商业银行理财公司（下称国有行理财公司）、股份制商业银行理财公司（下称股份行理财公司）、城市商业银行理财公司（下称城商行理财公司）前三，合计10家机构，清晰呈现不同类型理财子的竞争力格局。
+该系统旨在通过平板电脑拍照自动统计牛奶、糖浆等物料库存，但在上线9个月后因频繁出错而被叫停。
 
-在信息完备的参评机构中，兴银理财获综合排名第一；国有行理财公司前三为农银理财、交银理财、工银理财；股份行理财公司前三为招银理财、光大理财、平安理财；城商行理财公司前三为宁银理财、苏银理财、杭银理财。
+据悉，该AI工具由星巴克与NomadGo公司合作开发，员工只需手持平板扫描货架，AI即可自动识别并生成补货订单，号称能将盘点时间从数小时缩短至几分钟。
 
-市场概览 2025年下半年，中国银行理财市场在监管规范与客户需求的双重驱动下持续深化转型。
+然而，实际运行中系统经常出现混淆同类牛奶包装、漏计货品等低级错误，在星巴克自家发布的宣传视频中，AI就遗漏了一瓶薄荷糖浆。
 
-据中国银行业理财登记托管中心发布的《中国银行业理财市场年度报告（2025年）》，截至2025年末，银行理财市场存续规模33.29万亿元。
+星巴克在一份内部通知中表示，自动盘点功能即日起取消，饮品配料和牛奶将与其他库存类别采用统一方式盘点。
 
-理财公司主导地位进一步强化，投资者数量稳步增长，个人投资者占比保持在98%以上。
+公司称此举是为了在大规模运营中保持一致性。
 
-从经营业绩看，头部效应愈发显著。
+员工对该决定普遍表示欢迎，有留言称：“感谢取消自动盘点！
 
-截至2025年末，共有5家银行理财公司规模突破2万亿元，分别为招银理财（2.64万亿元）、兴银理财（2.43万亿元）、信银理财（2.30万亿元）、农银理财（2.15万亿元）和工银理财（2.09万亿元）；共有6家银行理财公司净利润达到20亿元以上，分别为农银理财（37.54亿元）、招银理财（27.26亿元）、信银理财（26.64亿元）、兴银理财（25.86亿元）、中银理财（24.99亿元）、光大理财（23.36亿元）。
+想法很棒，但执行起来确实困难。
 
 ## 相关推荐
 
-- 2026-06-29 22:15 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 22:14 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 22:03 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 22:25 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 22:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 22:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 22:18 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 22:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 22:20 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 22:25 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 22:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 22:10 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 22:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 22:22 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 22:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 22:19 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 22:14 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 22:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 22:29 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 22:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 22:18 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 22:32 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 22:21 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 22:20 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 22:29 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 22:35 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:28 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/1935441.shtml)
-- 2026-06-29 22:16 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/9924782759.shtml)
-- 2026-06-29 22:27 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/0695193.shtml)
-- 2026-06-29 22:05 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/779754501.shtml)
-- 2026-06-29 22:21 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/244507.shtml)
-- 2026-06-29 22:23 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/500255335569.shtml)
-- 2026-06-29 22:15 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/43948.shtml)
-- 2026-06-29 22:04 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/846605587.shtml)
-- 2026-06-29 22:21 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/9340956.shtml)
-- 2026-06-29 22:21 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/54714854.shtml)
-- 2026-06-29 22:06 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/79834.shtml)
-- 2026-06-29 22:16 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/81844.shtml)
-- 2026-06-29 22:08 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/7210726.shtml)
-- 2026-06-29 22:02 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/339816.shtml)
-- 2026-06-29 22:29 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/26629607.shtml)
+- 2026-06-29 22:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/7581122272.shtml)
+- 2026-06-29 22:27 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/391745.shtml)
+- 2026-06-29 22:09 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/11095.shtml)
+- 2026-06-29 22:12 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/82314011.shtml)
+- 2026-06-29 22:15 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/74305402964.shtml)
+- 2026-06-29 22:20 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/5021066.shtml)
+- 2026-06-29 22:13 - [存储三巨头被告了](http://www.share.minike.top/Article/details/241797103586.shtml)
+- 2026-06-29 22:07 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/30294306761.shtml)
+- 2026-06-29 22:19 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/279453.shtml)
+- 2026-06-29 22:12 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/8660803.shtml)
+- 2026-06-29 22:06 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/2257433841.shtml)
+- 2026-06-29 22:30 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/67245929.shtml)
+- 2026-06-29 22:24 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/442524295.shtml)
+- 2026-06-29 22:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/3425157.shtml)
+- 2026-06-29 22:13 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/022358899.shtml)

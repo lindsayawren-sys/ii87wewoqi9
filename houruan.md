@@ -1,59 +1,58 @@
-# 韩正出席中国－白俄罗斯产业与投资合作论坛并致辞
+# Invesco Canada宣布多只ETF 5月月度现金分配方案
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月7日电 当地时间6月6日，中国国家副主席韩正在明斯克出席中国－白俄罗斯产业与投资合作论坛开幕式并致辞。 韩正说，习近平主席指出，中国和白俄罗斯是真朋友、好伙伴。近年来，在习近平主席和卢卡申科总统的战略引领下，两国关系持续高水平发展，经贸投资合作亮点纷呈，展现出蓬勃生机和强大活力。2025年中白双边贸易额是建交之初的近150倍。两国元首亲自关注、亲自推动的中白工业园
+Invesco Canada Ltd．于5月21日宣布了旗下多只交易所交易基金2026年5月的月度现金分配方案。根据公告，本次派息的股权登记日为5月28日，派息日为6月5日。 在固收类产品中，Invesco加拿大政府浮动利率指数ETF每单位派息0.03896加元，1至5年阶梯投资级公司债券指数ETF派息0.04779加元，长期政府债券指数ETF派息0.05196加元，美国国债浮
 
 ## 正文
 
-中新社北京6月7日电 当地时间6月6日，中国国家副主席韩正在明斯克出席中国－白俄罗斯产业与投资合作论坛开幕式并致辞。
+Invesco Canada Ltd．于5月21日宣布了旗下多只交易所交易基金2026年5月的月度现金分配方案。
 
-韩正说，习近平主席指出，中国和白俄罗斯是真朋友、好伙伴。
+根据公告，本次派息的股权登记日为5月28日，派息日为6月5日。
 
-近年来，在习近平主席和卢卡申科总统的战略引领下，两国关系持续高水平发展，经贸投资合作亮点纷呈，展现出蓬勃生机和强大活力。
+在固收类产品中，Invesco加拿大政府浮动利率指数ETF每单位派息0.03896加元，1至5年阶梯投资级公司债券指数ETF派息0.04779加元，长期政府债券指数ETF派息0.05196加元，美国国债浮动利率票据指数ETF派息0.06156美元。
 
-2025年中白双边贸易额是建交之初的近150倍。
+权益收入类产品方面，Invesco加拿大股息指数ETF每单位派息0.13174加元，S&P/TSX加拿大股息贵族ESG指数ETF派息0.06626加元，S&P美国股息贵族ESG指数ETF派息0.03339加元。
 
-两国元首亲自关注、亲自推动的中白工业园入驻企业达到178家，有力带动当地经济社会发展，成果惠及两国人民。
+数据显示，ICAE近期月度派息稳定在0.067加元附近，资产规模约1023万加元，费用率0.23%。
 
-中方愿继续同白方以诚相待、以信相交，积极落实两国元首重要共识，推动中白全天候全面战略伙伴关系高水平发展，更好惠及两国人民。
+国际产品中，S&P国际发达市场股息贵族ESG指数ETF派息0.07107加元，其历史年度股息约0.80加元，股息率约2.69%。
 
-韩正就中白合作提出三点看法。
+低波动权益类产品中，S&P 500低波动率指数ETF派息0.05710加元，S&P/TSX综合低波动率指数ETF派息0.11579加元。
 
-一是加强发展战略对接。
+等权重权益类产品S&P 500等权重收入优势ETF派息0.15547加元。
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 22:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 22:13 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 22:10 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 22:05 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 22:24 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 22:08 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 22:27 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 22:04 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 22:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 22:19 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 22:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 22:25 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 22:29 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 22:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 22:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 22:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 22:24 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 22:26 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 22:19 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 22:10 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 22:24 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 22:08 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 22:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 22:06 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/08496880.shtml)
-- 2026-06-29 22:01 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/929703.shtml)
-- 2026-06-29 22:17 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/89133430524.shtml)
-- 2026-06-29 22:08 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/4827820.shtml)
-- 2026-06-29 22:05 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/83436.shtml)
-- 2026-06-29 22:23 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/2662906.shtml)
-- 2026-06-29 22:01 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/680895.shtml)
-- 2026-06-29 22:13 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/170025212521.shtml)
-- 2026-06-29 22:16 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/19558379542.shtml)
-- 2026-06-29 22:19 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/236613616869.shtml)
-- 2026-06-29 22:06 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/941834881397.shtml)
-- 2026-06-29 22:00 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/8038824414.shtml)
-- 2026-06-29 22:11 - [世界杯](http://www.share.minike.top/Article/details/550502.shtml)
-- 2026-06-29 22:07 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/1565307.shtml)
-- 2026-06-29 22:19 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/4900405.shtml)
+- 2026-06-29 22:33 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/69585567978.shtml)
+- 2026-06-29 22:10 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/6607353.shtml)
+- 2026-06-29 22:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/116333.shtml)
+- 2026-06-29 22:07 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/63789740.shtml)
+- 2026-06-29 22:15 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/703366415664.shtml)
+- 2026-06-29 22:10 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/0025089453.shtml)
+- 2026-06-29 22:14 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/146630772166.shtml)
+- 2026-06-29 22:26 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/48667551.shtml)
+- 2026-06-29 22:25 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/6997919518.shtml)
+- 2026-06-29 22:27 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/717414371796.shtml)
+- 2026-06-29 22:27 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/8298695893.shtml)
+- 2026-06-29 22:11 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/170618887.shtml)
+- 2026-06-29 22:09 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/627381.shtml)
+- 2026-06-29 22:06 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/0824547437.shtml)
+- 2026-06-29 22:30 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/41825331330.shtml)

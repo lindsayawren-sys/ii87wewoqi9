@@ -1,59 +1,61 @@
-# 英伟达达成存储芯片协议，但SK海力士和三星股价大幅承压
+# 2026北京国际茶业展开幕 促进茶产业交流合作
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。 在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。 今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
+中新网北京5月22日电(记者 徐婧)2026北京国际茶业展、2026北京马连道国际茶文化交流会、2026贺州茶宣传推介会(简称“一展两会”)联合推介会22日在北京举办。活动全面展示中国茶产业发展成果，推动茶文化、茶产业、茶科技深度融合。 2012年以来，北京西城和中国茶叶流通协会、全国主要产茶区共同举办系列茶事活动，推动“一展两会”成为传承中华茶文化、展示茶产业发展成果、促进产
 
 ## 正文
 
-英伟达首席执行官黄仁勋刚刚与SK海力士（SK Hynix）签署了一项新的合作协议，但这并未提振该韩国存储芯片制造商的股价。
+中新网北京5月22日电(记者 徐婧)2026北京国际茶业展、2026北京马连道国际茶文化交流会、2026贺州茶宣传推介会(简称“一展两会”)联合推介会22日在北京举办。
 
-在韩国股市，SK海力士股价低开10.3%，同为存储芯片供应商的三星电子股价低开10.9%。
+活动全面展示中国茶产业发展成果，推动茶文化、茶产业、茶科技深度融合。
 
-韩国综合指数盘中一度下跌8.8%，不过这三者随后均收窄了跌幅。
+2012年以来，北京西城和中国茶叶流通协会、全国主要产茶区共同举办系列茶事活动，推动“一展两会”成为传承中华茶文化、展示茶产业发展成果、促进产销深度融合的重要平台。
 
-今年以来，SK海力士和三星电子是韩国综合指数强劲上涨的主要引擎，该指数2026年迄今已累计上涨94%。
+今年，广西贺州作为主宾城市，与西城区全方位促进茶产业交流合作。
 
-但上周五，随著人工智能（AI）交易普遍承压，韩国综合指数下跌6.2%，周一早盘交易中，该指数又下跌了6.1%。
+北京市西城区委书记刘东伟介绍，近年来，西城区围绕茶文化、茶产业、茶科技三位一体发展，不断提升马连道地区业态品质，推动传统茶叶批发市场向文化、科技、金融融合发展的现代化街区转型。
 
-SPI Asset Management执行合伙人斯蒂芬．英尼斯（Stephen Innes）在Substack的一篇文章中表示：“一天的行情构不成趋势，但当市场上最热门的AI游乐场突然变成火警演习现场时，交易人士应该会注意到。
+马连道特色街区汇聚了全国10多个产茶大省的1500余家茶商，形成了强大的茶产业集群。
 
-”他还写道：“从周一的价格走势看，韩国投资者一觉醒来发现自己的市场处于全球AI交易平仓的震中，这显然不是什么令人高兴的事。
+本次“一展两会”将持续至5月25日，除联合推介会外，还策划系列活动，形成覆盖展览展示、文化交流、产销对接、消费促进的全链条活动矩阵，为市民游客带来一场可看、可品、可参与的沉浸式茶界盛宴。
 
-” 尽管如此，英尼斯提醒道，对于韩国股市来说，目前仍处于交易日的早段。
+当天，2026北京国际茶业展在北京展览馆举办，吸引300余家茶企参展，一线品牌占比超80%。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 22:19 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 22:08 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 22:03 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 22:05 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 22:29 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 22:16 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 22:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 22:14 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 22:08 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 22:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 22:28 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 22:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 22:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 22:13 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 22:28 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 22:26 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 22:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 22:26 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 22:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 22:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 22:07 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 22:20 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 22:35 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 22:15 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 22:27 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 22:35 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 22:17 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/630290995465.shtml)
-- 2026-06-29 22:05 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/04187979685.shtml)
-- 2026-06-29 22:08 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/518122040.shtml)
-- 2026-06-29 22:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/5776978.shtml)
-- 2026-06-29 22:15 - [宜宾地震已转移安置225人](https://www.share.minike.top/Article/details/04454.shtml)
-- 2026-06-29 22:24 - [东方风云榜直播](http://www.blog.minike.top/Article/details/131639936393.shtml)
-- 2026-06-29 22:24 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/97120177116.shtml)
-- 2026-06-29 22:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/69461639.shtml)
-- 2026-06-29 22:13 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/8798471.shtml)
-- 2026-06-29 22:14 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/497559459067.shtml)
-- 2026-06-29 22:02 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/4219053.shtml)
-- 2026-06-29 22:26 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/9518821.shtml)
-- 2026-06-29 22:04 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/45463.shtml)
-- 2026-06-29 22:22 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/45300059.shtml)
-- 2026-06-29 22:19 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/45409335.shtml)
+- 2026-06-29 22:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/871858856.shtml)
+- 2026-06-29 22:22 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/480630.shtml)
+- 2026-06-29 22:18 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/571849687408.shtml)
+- 2026-06-29 22:20 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/2920755.shtml)
+- 2026-06-29 22:35 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/1061014.shtml)
+- 2026-06-29 22:11 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/3381527.shtml)
+- 2026-06-29 22:13 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/45173995542.shtml)
+- 2026-06-29 22:12 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/149120563.shtml)
+- 2026-06-29 22:21 - [东方风云榜直播](http://www.blog.minike.top/Article/details/07318.shtml)
+- 2026-06-29 22:27 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/82171885.shtml)
+- 2026-06-29 22:13 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/69123207781.shtml)
+- 2026-06-29 22:23 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/720647553.shtml)
+- 2026-06-29 22:10 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/70125373258.shtml)
+- 2026-06-29 22:14 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/48653952.shtml)
+- 2026-06-29 22:17 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/08221987.shtml)

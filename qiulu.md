@@ -1,56 +1,54 @@
-# 美股今年收于何处 宏观策略师与个股分析师眼中的市场截然不同
+# 日经指数上涨逾2% 创历史新高
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-美股数年来最强财报季即将结束，专注于个股的华尔街分析师如今罕见地乐观。 随着陆续公布的业绩持续超出预期，分析师上调股票目标价的速度创伊朗战争爆发以来最快。总体而言，他们如今认为标普500指数将从当前水平上涨18%。 与此同时，行业研究汇编的数据显示，分析师综合盈利预期表明，按当前市盈率计算，标普500指数将较周五收盘价上涨19%，年底收于8800点上方，全年涨幅将达到29%，这
+受对美伊可能达成和平协议的希望提振，日本日经225指数涨幅进一步扩大，最新上涨2.10%，报64667.42点，创历史新高。芯片和建筑类股领涨。铠侠上涨5.3%，大成建设上涨7.8%。在美国总统特朗普周日表示他不急于与伊朗达成结束战争的协议后，投资者正密切关注中东局势的发展。责任编辑：王永生
 
 ## 正文
 
-美股数年来最强财报季即将结束，专注于个股的华尔街分析师如今罕见地乐观。
+受对美伊可能达成和平协议的希望提振，日本日经225指数涨幅进一步扩大，最新上涨2.10%，报64667.42点，创历史新高。
 
-随着陆续公布的业绩持续超出预期，分析师上调股票目标价的速度创伊朗战争爆发以来最快。
+芯片和建筑类股领涨。
 
-总体而言，他们如今认为标普500指数将从当前水平上涨18%。
+铠侠上涨5.3%，大成建设上涨7.8%。
 
-与此同时，行业研究汇编的数据显示，分析师综合盈利预期表明，按当前市盈率计算，标普500指数将较周五收盘价上涨19%，年底收于8800点上方，全年涨幅将达到29%，这将是该指数自1990年代以来表现最好的一年。
+在美国总统特朗普周日表示他不急于与伊朗达成结束战争的协议后，投资者正密切关注中东局势的发展。
 
-标普500指数中只有一家公司的市场共识评级为“卖出”。
-
-但对于从更广阔视角看待股指相较于全球经济和外部风险走势的华尔街宏观市场策略师而言，情况则截然不同。
-
-在他们看来，伊朗战争、令人担忧的通胀前景以及疲软的消费者信心都是至关重要的指标，严重影响他们的预测。
-
-综合来看，他们认为标普500指数2026年料收于7625点，较周五抛售后的水平仅走高3.3%。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 22:12 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 22:07 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 22:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 22:22 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 22:04 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 22:12 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 22:18 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 22:02 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 22:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 22:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 22:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 22:07 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 22:12 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 22:33 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 22:20 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 22:19 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 22:20 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 22:35 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 22:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 22:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 22:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 22:09 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 22:22 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/55491158447.shtml)
-- 2026-06-29 22:27 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/009903922695.shtml)
-- 2026-06-29 22:17 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/740521.shtml)
-- 2026-06-29 22:00 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/4615249250.shtml)
-- 2026-06-29 22:14 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/247832239.shtml)
-- 2026-06-29 22:23 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/2448134051.shtml)
-- 2026-06-29 22:28 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/75171.shtml)
-- 2026-06-29 22:09 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/820328333.shtml)
-- 2026-06-29 22:12 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/71877771065.shtml)
-- 2026-06-29 22:11 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/57002164.shtml)
-- 2026-06-29 22:22 - [田曦薇没招了](https://www.blog.minike.top/Article/details/033844.shtml)
-- 2026-06-29 22:24 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/68540481607.shtml)
-- 2026-06-29 22:17 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/687934378.shtml)
-- 2026-06-29 22:24 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/991940448442.shtml)
-- 2026-06-29 22:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/882312.shtml)
+- 2026-06-29 22:08 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/261759.shtml)
+- 2026-06-29 22:23 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/72602083.shtml)
+- 2026-06-29 22:33 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/4035071129.shtml)
+- 2026-06-29 22:25 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/694121272.shtml)
+- 2026-06-29 22:19 - [沙丘](http://www.share.minike.top/Article/details/2470015795.shtml)
+- 2026-06-29 22:20 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/8591877760.shtml)
+- 2026-06-29 22:32 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/84510.shtml)
+- 2026-06-29 22:11 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/187559467627.shtml)
+- 2026-06-29 22:28 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/53764465.shtml)
+- 2026-06-29 22:16 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/1097075.shtml)
+- 2026-06-29 22:11 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/488022119.shtml)
+- 2026-06-29 22:06 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/591167904.shtml)
+- 2026-06-29 22:26 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/9416161243.shtml)
+- 2026-06-29 22:06 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/373671.shtml)
+- 2026-06-29 22:26 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/513871.shtml)

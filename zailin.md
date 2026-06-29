@@ -1,54 +1,61 @@
-# 上海老博会聚焦银发新机遇 业界冀跳出“养”做养老
+# 香江观澜：与国家发展同频共振 香港筑梦太空开启新篇章
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 14:42 来源：中国新闻网 6月4日至6日，2026上海国际养老、辅具及康复医疗博览会在上海新国际博览中心举行，智能养老产品备受市场关注。中国老年保健协会社区养老分会会长、上海市养老服务和老龄产业协会会长李勇在展会期间接受中新社采访时表示，对残障、老年群体的关怀是社会文明的直观体现，养老产业发展应跳出固有康养思维，当下行业产品存量充足，但欠缺
+中新社香港5月24日电 题：与国家发展同频共振 香港筑梦太空开启新篇章 中新社记者 香卢平 神舟二十三号载人飞船计划于5月24日晚发射。执行此次载人飞行任务的航天员乘组中，包括来自香港特区的载荷专家黎家盈。 近年来，香港发展蓝图深度对接国家战略，同频共振积极开拓太空经济发展潜能，实现了从“科普交流”到“地面研究”、再到“太空作业”的跨越。 2003年，完成中国首次载人航天飞行任
 
 ## 正文
 
-发布时间：2026年06月06日 14:42 来源：中国新闻网 6月4日至6日，2026上海国际养老、辅具及康复医疗博览会在上海新国际博览中心举行，智能养老产品备受市场关注。
+中新社香港5月24日电 题：与国家发展同频共振 香港筑梦太空开启新篇章 中新社记者 香卢平 神舟二十三号载人飞船计划于5月24日晚发射。
 
-中国老年保健协会社区养老分会会长、上海市养老服务和老龄产业协会会长李勇在展会期间接受中新社采访时表示，对残障、老年群体的关怀是社会文明的直观体现，养老产业发展应跳出固有康养思维，当下行业产品存量充足，但欠缺贴合老人需求、饱含人文关怀的精细化产品。
+执行此次载人飞行任务的航天员乘组中，包括来自香港特区的载荷专家黎家盈。
 
-中国老龄化具备体量庞大、增速快、未富先老的特征，银发产业依托认知、差异化需求、政策、技术四大驱动力稳步前行。
+近年来，香港发展蓝图深度对接国家战略，同频共振积极开拓太空经济发展潜能，实现了从“科普交流”到“地面研究”、再到“太空作业”的跨越。
 
-新一代老龄群体养老观念更新，催生多元养老需求；长护险等社保政策落地持续赋能行业，中国国内雄厚的制造业基础为智能养老产品研发提供技术支撑。
+2003年，完成中国首次载人航天飞行任务的航天员杨利伟来港，掀起香港全城航天热潮。
 
-依托政学研企协同落地场景化养老应用的制度与规模优势，中国养老产业潜力突出。
+此后，多名航天员接连访港，“航天热”不断升温。
 
-相较于日本和欧洲的老龄化程度较高市场，中国可立足老龄群体自身优势，搭建分层化的产品与社会保障体系，持续挖掘老龄化催生的经济新动能。
+由香港中学生设计的“太空养蚕”等3项科学实验搭乘神舟十一号载人飞船升空，在天宫二号太空实验室成功完成科学实验。
 
-(范宇斌 制作 王佳琪) 责任编辑：【卢岩】
+2023年，香港大学地质学专家团队获得嫦娥五号于2020年采集的月球土壤样品，成为首支对月壤进行研究的香港团队。
+
+今年5月11日，天舟十号货运飞船成功发射，搭载了香港科技大学牵头研制的探测载荷“天韵相机”，这是香港科研载荷首次在空间站长期运行。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 22:21 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 22:29 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 22:18 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 22:19 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 22:16 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 22:25 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 22:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 22:11 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 22:23 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 22:19 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 22:09 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 22:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 22:08 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 22:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 22:15 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 22:09 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 22:28 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 22:28 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 22:28 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 22:08 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 22:35 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 22:07 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 22:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 22:27 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/436552516942.shtml)
-- 2026-06-29 22:29 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/00713608307.shtml)
-- 2026-06-29 22:07 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/40678.shtml)
-- 2026-06-29 22:15 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/292708401457.shtml)
-- 2026-06-29 22:26 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/469797.shtml)
-- 2026-06-29 22:25 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/800895759.shtml)
-- 2026-06-29 22:28 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/5924623704.shtml)
-- 2026-06-29 22:18 - [TOP Prada](http://www.blog.minike.top/Article/details/809076685.shtml)
-- 2026-06-29 22:09 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/4923222.shtml)
-- 2026-06-29 22:14 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/1365884862.shtml)
-- 2026-06-29 22:08 - [月亮](https://www.share.kurohicncr.top/Article/details/519821763522.shtml)
-- 2026-06-29 22:28 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/1441879657.shtml)
-- 2026-06-29 22:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/385584285998.shtml)
-- 2026-06-29 22:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/45295.shtml)
-- 2026-06-29 22:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/473090627.shtml)
+- 2026-06-29 22:30 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/07013128158.shtml)
+- 2026-06-29 22:16 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/650823671.shtml)
+- 2026-06-29 22:22 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/296108.shtml)
+- 2026-06-29 22:13 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/1519577200.shtml)
+- 2026-06-29 22:18 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/501966.shtml)
+- 2026-06-29 22:13 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/301889393095.shtml)
+- 2026-06-29 22:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/160749383636.shtml)
+- 2026-06-29 22:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/09258982.shtml)
+- 2026-06-29 22:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/18980.shtml)
+- 2026-06-29 22:28 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/48333959942.shtml)
+- 2026-06-29 22:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/2297872.shtml)
+- 2026-06-29 22:13 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/521314891.shtml)
+- 2026-06-29 22:33 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/3478095.shtml)
+- 2026-06-29 22:27 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/93861.shtml)
+- 2026-06-29 22:28 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/252358.shtml)

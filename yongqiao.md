@@ -1,61 +1,57 @@
-# 美国防长赫格塞思访问法国
+# 消金公司不良贷款转让挂牌期数为何“跳号”？
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新社巴黎6月6日电 美国国防部长赫格塞思5日至6日访问法国，出席诺曼底登陆82周年相关纪念活动，并与法国国防部长沃特兰举行会谈。 赫格塞思6日未出席当天举行的诺曼底登陆82周年国际仪式，而是重点出席美军纪念活动。他在讲话期间回顾了诺曼底登陆的历史，强调“真正的盟友为共同事业承受真正的损失”，而非“空洞的口号、奢华的峰会”。 赫格塞思在讲话中再次呼吁欧洲要为自身安全承担更多责任
+在银行业信贷资产登记流转中心（简称“银登中心”）的不良贷款转让区，部分消金公司的挂牌期数出现了“断档”。 以中银消费金融为例，该公司已挂牌转让2026年第1至13期、第15期不良贷款，唯独第14期“缺席”。同样，杭银消费金融今年已挂牌第2期、第3期不良贷款，却不见第1期的踪影。 针对消失的一期，两家机构独家回应中国证券报·中证金牛座记者。中银消费金融表示，第14期不良贷款原在处
 
 ## 正文
 
-中新社巴黎6月6日电 美国国防部长赫格塞思5日至6日访问法国，出席诺曼底登陆82周年相关纪念活动，并与法国国防部长沃特兰举行会谈。
+在银行业信贷资产登记流转中心（简称“银登中心”）的不良贷款转让区，部分消金公司的挂牌期数出现了“断档”。
 
-赫格塞思6日未出席当天举行的诺曼底登陆82周年国际仪式，而是重点出席美军纪念活动。
+以中银消费金融为例，该公司已挂牌转让2026年第1至13期、第15期不良贷款，唯独第14期“缺席”。
 
-他在讲话期间回顾了诺曼底登陆的历史，强调“真正的盟友为共同事业承受真正的损失”，而非“空洞的口号、奢华的峰会”。
+同样，杭银消费金融今年已挂牌第2期、第3期不良贷款，却不见第1期的踪影。
 
-赫格塞思在讲话中再次呼吁欧洲要为自身安全承担更多责任。
+针对消失的一期，两家机构独家回应中国证券报·中证金牛座记者。
 
-他说，虽然美国“将发挥领导作用”，但有能力的盟友“在关键时刻并肩作战”。
+中银消费金融表示，第14期不良贷款原在处置计划内，经内部评估后决定暂不转让，故未挂网；杭银消费金融则称，第1期不良贷款仍在资产整理阶段，因此尚未挂牌。
 
-他未明确提及美国和以色列对伊朗发动的战争。
+事实上，期数倒挂现象并不少见。
 
-赫格塞思在讲话中还说，“船只和人员抵达西班牙、意大利、希腊和保加利亚的海滩”；“欧洲各国政府什么时候才能对这次‘入侵’采取行动？
+例如，重庆蚂蚁消费金融2026年第2期、第3期不良贷款转让项目于1月29日挂牌，第1期反而在2月5日才挂牌。
 
-亦或为时已晚？
+当前消费金融行业不良资产转让进入高频加速期。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 22:25 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 22:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 22:28 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 22:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 22:17 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 22:08 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 22:24 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 22:03 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 22:13 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 22:01 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:20 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 22:27 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 22:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 22:29 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 22:33 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 22:25 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 22:19 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 22:23 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 22:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 22:09 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 22:07 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 22:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 22:31 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 22:20 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 22:12 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:28 - [我们的少年时代2](https://www.share.minike.top/Article/details/7335461.shtml)
-- 2026-06-29 22:11 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/7627632587.shtml)
-- 2026-06-29 22:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/9670501459.shtml)
-- 2026-06-29 22:10 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/85915202265.shtml)
-- 2026-06-29 22:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/4022008.shtml)
-- 2026-06-29 22:30 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/2226459.shtml)
-- 2026-06-29 22:00 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/585661616968.shtml)
-- 2026-06-29 22:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/1807099934.shtml)
-- 2026-06-29 22:10 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/69644157579.shtml)
-- 2026-06-29 22:12 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/565508004.shtml)
-- 2026-06-29 22:20 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/665042051.shtml)
-- 2026-06-29 22:20 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/353665088.shtml)
-- 2026-06-29 22:14 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/649392.shtml)
-- 2026-06-29 22:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/3475093182.shtml)
-- 2026-06-29 22:16 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/585742830.shtml)
+- 2026-06-29 22:34 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/2681234.shtml)
+- 2026-06-29 22:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/712576408672.shtml)
+- 2026-06-29 22:21 - [时光音乐会](https://www.share.minike.top/Article/details/785967670676.shtml)
+- 2026-06-29 22:08 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/133092836.shtml)
+- 2026-06-29 22:34 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/505058.shtml)
+- 2026-06-29 22:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/626664442.shtml)
+- 2026-06-29 22:35 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/90461.shtml)
+- 2026-06-29 22:22 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/98503095.shtml)
+- 2026-06-29 22:07 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/91017402540.shtml)
+- 2026-06-29 22:20 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/1368401950.shtml)
+- 2026-06-29 22:16 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/048515474733.shtml)
+- 2026-06-29 22:21 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/430490.shtml)
+- 2026-06-29 22:16 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/696841.shtml)
+- 2026-06-29 22:16 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/02563915.shtml)
+- 2026-06-29 22:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/812925065.shtml)

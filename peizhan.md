@@ -1,55 +1,58 @@
-# 高考倒计时 北京“985路”公交车车厢里悄悄变了样
+# 文化产业版权金融大会在深圳举行
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 22:43 来源：中国新闻网 2026年高考即将开考，北京公交集团客五分公司特别打造985路“高考祝福”主题车厢，在车厢内部布置了祝福装饰，为即将奔赴考场的学子们鼓劲助威。 这条线路始发站在牌坊村东口，终点站设在到甜水园西里，全程17.5公里，途经30个站点，沿途经过北京汇文中学朝阳垂杨柳分校、北京市第八十中学睿德分校等多所学校。日复一日，98
+中新网深圳5月25日电 (记者 王坚)中国人民大学国家版权贸易基地近日在深圳与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。 第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行。其间，由深圳出版集团有限公司、中国人民大学文化科技园(国家版权贸易基地)、中国人民大学深圳研究院〔社会科学高等研究院(深圳)〕主办
 
 ## 正文
 
-发布时间：2026年06月06日 22:43 来源：中国新闻网 2026年高考即将开考，北京公交集团客五分公司特别打造985路“高考祝福”主题车厢，在车厢内部布置了祝福装饰，为即将奔赴考场的学子们鼓劲助威。
+中新网深圳5月25日电 (记者 王坚)中国人民大学国家版权贸易基地近日在深圳与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。
 
-这条线路始发站在牌坊村东口，终点站设在到甜水园西里，全程17.5公里，途经30个站点，沿途经过北京汇文中学朝阳垂杨柳分校、北京市第八十中学睿德分校等多所学校。
+第二十二届中国(深圳)国际文化产业博览交易会正在深圳举行。
 
-日复一日，985路公交穿梭于校园周边，陪伴了一届又一届学子的求学时光。
+其间，由深圳出版集团有限公司、中国人民大学文化科技园(国家版权贸易基地)、中国人民大学深圳研究院〔社会科学高等研究院(深圳)〕主办的“湾区之眼”分会场主题活动“文化产业版权金融大会”在深圳举行。
 
-“985”这个数字，承载着无数考生对理想高校的向往。
+此次活动汇聚了版权金融领域各方智慧与力量，通过政策解读、主题演讲、实践分享、项目对接等多种形式，为推动版权从“知产”向“资产”转化、共同构建版权金融新生态，以版权金融推动文化产业高质量发展提供了新思路、新路径。
 
-如今，这辆满载祝福的公交车驶上街头，用一份特别的仪式感，为2026届考生加油打气。
+活动现场，中国人民大学国家版权贸易基地与北京银行总行文化金融部、国家对外文化贸易基地(伊犁)签署战略合作协议，就推进版权金融、国际版权贸易达成合作意向。
 
-(记者刘超 制作 王佳琪 视频来源 北京公交集团客五分公司) 责任编辑：【胡寒笑】
+北方国家版权交易中心与工商银行大连分行签署战略合作协议，携手推进版权金融产品落地实施。
+
+此外，在版权融资项目路演环节，湖南漫联卡通文化传媒有限公司、深圳市创梦天地科技有限公司、大连天虹影视文化服务有限公司、大爱时光(广州)科技有限公司、魔萌动漫文化传播(深圳)有限公司、深圳华实科技文化有限公司等六家企业先后登台，分别就“虹猫蓝兔”国民IP重启、《地铁跑酷》游戏与中国文化融合、纪录电影《主场》、中国童话王国原创IP、“魔鬼猫”原创潮流IP以及“宾至通”智慧物业解决方案等优质版权融资项目进行了展示。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 22:22 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 22:11 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 22:15 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 22:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 22:11 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 22:18 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 22:26 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 22:18 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 22:24 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 22:24 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 22:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 22:10 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 22:32 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 22:22 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 22:10 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 22:20 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 22:23 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 22:22 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 22:27 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 22:27 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 22:08 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 22:35 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 22:21 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 22:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/37406.shtml)
-- 2026-06-29 22:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/835856130.shtml)
-- 2026-06-29 22:23 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/9703843.shtml)
-- 2026-06-29 22:22 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/88087537.shtml)
-- 2026-06-29 22:01 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/327560677614.shtml)
-- 2026-06-29 22:06 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/2380985.shtml)
-- 2026-06-29 22:29 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/8209637377.shtml)
-- 2026-06-29 22:23 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/9569125945.shtml)
-- 2026-06-29 22:19 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/552732.shtml)
-- 2026-06-29 22:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/54713.shtml)
-- 2026-06-29 22:15 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/4325286.shtml)
-- 2026-06-29 22:18 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/6870819.shtml)
-- 2026-06-29 22:15 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/76583.shtml)
-- 2026-06-29 22:07 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/817964564225.shtml)
-- 2026-06-29 22:06 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/031971.shtml)
+- 2026-06-29 22:10 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/602340047.shtml)
+- 2026-06-29 22:14 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/61944061672.shtml)
+- 2026-06-29 22:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/42694821132.shtml)
+- 2026-06-29 22:31 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/4937193771.shtml)
+- 2026-06-29 22:15 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/13687954.shtml)
+- 2026-06-29 22:12 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/784269891.shtml)
+- 2026-06-29 22:33 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/514732606.shtml)
+- 2026-06-29 22:28 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/1677311.shtml)
+- 2026-06-29 22:13 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/20992607701.shtml)
+- 2026-06-29 22:06 - [流金岁月](https://www.share.minike.top/Article/details/8557590.shtml)
+- 2026-06-29 22:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/097483.shtml)
+- 2026-06-29 22:20 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/3754687759.shtml)
+- 2026-06-29 22:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/640439.shtml)
+- 2026-06-29 22:22 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/718490340631.shtml)
+- 2026-06-29 22:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/26625679912.shtml)

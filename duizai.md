@@ -1,61 +1,56 @@
-# 两岸青年学者：台海形势越复杂，越需通过交往增进理解
+# 重庆探寻超大社区现代化治理新范式：“三不搞”换“一家亲”
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新社杭州6月7日电 (记者 刘大炜)7日在杭州举行的第十二届两岸青年学者论坛上，多位青年学者表示，尽管复杂严峻的台海局势使青年交流面临更多压力，但也凸显青年交流的重要性。这种时刻，更加需要通过交往交流增进两岸民间，尤其是青年间的理解。中国社科院台湾研究所助理研究员姜静雅分析近期岛内多项民调中与青年相关的数据后表示，台湾青年不是所谓的“天然独”。当两岸信息壁垒逐渐打破、岛内现实
+中新网重庆5月22日电(彭国威 郭虹) 午饭时分，重庆市长寿区菩提街道菩提社区智慧食堂前来用餐的人络绎不绝，丰富的菜品前，大家排队取餐，刷脸支付后就可坐在餐桌前品味美食。 这个投运6个多月的食堂初期由当地社区免费出场地，引入第三方投资打造并进行市场化运营，是长寿区在超大社区治理过程中，用“空间换服务”的一个典型生活场景。 “居民需要提前注册，年满60岁的老人一日三餐都能享受餐补
 
 ## 正文
 
-中新社杭州6月7日电 (记者 刘大炜)7日在杭州举行的第十二届两岸青年学者论坛上，多位青年学者表示，尽管复杂严峻的台海局势使青年交流面临更多压力，但也凸显青年交流的重要性。
+中新网重庆5月22日电(彭国威 郭虹) 午饭时分，重庆市长寿区菩提街道菩提社区智慧食堂前来用餐的人络绎不绝，丰富的菜品前，大家排队取餐，刷脸支付后就可坐在餐桌前品味美食。
 
-这种时刻，更加需要通过交往交流增进两岸民间，尤其是青年间的理解。
+这个投运6个多月的食堂初期由当地社区免费出场地，引入第三方投资打造并进行市场化运营，是长寿区在超大社区治理过程中，用“空间换服务”的一个典型生活场景。
 
-中国社科院台湾研究所助理研究员姜静雅分析近期岛内多项民调中与青年相关的数据后表示，台湾青年不是所谓的“天然独”。
+“居民需要提前注册，年满60岁的老人一日三餐都能享受餐补。
 
-当两岸信息壁垒逐渐打破、岛内现实压力持续凸显、和平发展契合台湾青年切身需求时，台湾青年认同呈现出明显的理性化与务实化转向。
+”菩提社区党委书记蒲德松告诉中新网记者，为了让“食”惠可持续，社区还多渠道帮助食堂“引流”，现在每天要接待500多人，已有少许盈利，正步入良性健康的发展轨道。
 
-这为两岸关系和平发展释放出积极信号。
+2025年10月，重庆市委社会工作部聚焦着力破解超大社区治理中的堵点、难点问题，制定《重庆市超大社区治理试点工作方案》，按照“以点带面、逐步推广”的工作思路，综合考量社区人口规模、形态结构、治理难度和居民需求等实际情况，在全市1万户以上的超大社区中，选取4个不同类型的社区开展试点，探索符合超大城市特点和规律的基层治理新路径，让社区居民从“住有所居”到“心有所属”。
 
-台湾“中国文化大学”研究生黄郁涵认为，青年世代将决定未来两岸关系走向，因此如何建立理解、降低敌意与维持沟通，具有深远意义。
+不搞“一刀切”，党建引领推行“分类治”，避免管理“鞭长莫及” “我们辖区以往商住、产业、住宅多元交织，存在社区规模偏大、多种业态混杂、服务半径过长、治理效率不高的现实难题。
 
-她表示，虽然两岸在政治制度存在差异，但青年之间在生活压力、社会发展需求上，仍具有高度共同性。
+”长寿区菩提街道党工委委员、组织委员赵青青并不避讳过往的窘状。
 
-这些共同经验，或许正是未来重新建立理解的重要起点。
+为破解传统混合型社区治理模式瓶颈，长寿区委社会工作部2025年立足实际、统筹谋划，系统推进菩提街道社区建制优化调整工作，以党建引领为核心，根据“精准划分、分类施策、便民高效”原则，通过建制调整将街道7个社区切割、重整为12个社区，精准划分为老旧小区型、产城融合型、单一住宅型、商住混合型四种社区类型，打造“一社一品”特色治理路径。
 
 ## 相关推荐
 
-- 2026-06-29 22:29 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 22:06 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 22:13 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 22:02 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 22:03 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 22:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 22:23 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 22:00 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 22:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 22:05 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 22:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 22:14 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 22:26 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 22:09 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 22:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 22:20 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 22:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 22:16 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 22:13 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 22:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 22:10 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 22:18 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 22:28 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 22:18 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 22:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/8633108496.shtml)
-- 2026-06-29 22:29 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/8535046537.shtml)
-- 2026-06-29 22:03 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/794663428.shtml)
-- 2026-06-29 22:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/437653.shtml)
-- 2026-06-29 22:25 - [急先锋](https://www.blog.minike.top/Article/details/50468.shtml)
-- 2026-06-29 22:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/489665.shtml)
-- 2026-06-29 22:12 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/42181923229.shtml)
-- 2026-06-29 22:02 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/90852547.shtml)
-- 2026-06-29 22:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/84088570805.shtml)
-- 2026-06-29 22:03 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/11493209904.shtml)
-- 2026-06-29 22:12 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/9507143.shtml)
-- 2026-06-29 22:03 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/536341149500.shtml)
-- 2026-06-29 22:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/23318591654.shtml)
-- 2026-06-29 22:13 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/8303290933.shtml)
-- 2026-06-29 22:02 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/422122042599.shtml)
+- 2026-06-29 22:25 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/981606173172.shtml)
+- 2026-06-29 22:27 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/48778500.shtml)
+- 2026-06-29 22:06 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/452594.shtml)
+- 2026-06-29 22:31 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/254524683442.shtml)
+- 2026-06-29 22:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/5795585658.shtml)
+- 2026-06-29 22:27 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/624373185462.shtml)
+- 2026-06-29 22:35 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/7931438.shtml)
+- 2026-06-29 22:19 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/7938599.shtml)
+- 2026-06-29 22:30 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/844297163755.shtml)
+- 2026-06-29 22:06 - [起风了](http://www.share.minike.top/Article/details/3978423176.shtml)
+- 2026-06-29 22:06 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/598109718.shtml)
+- 2026-06-29 22:16 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/479538212688.shtml)
+- 2026-06-29 22:28 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/161113365128.shtml)
+- 2026-06-29 22:29 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/64485.shtml)
+- 2026-06-29 22:23 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/07471389.shtml)

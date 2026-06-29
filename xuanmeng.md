@@ -1,50 +1,57 @@
-# 高三最后一课：褪去刷题重担，一场温情仪式刷新高考打开方式
+# 评台胞首获广西“最美科技工作者”：技术可对接 人心更相通
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月07日 09:31 来源：中国新闻网 6月6日，湖南长沙同升湖高级中学近千名师生家长千米列队送考，发红包、顶粽子、抛气球讨彩头。 高考前一日的最后一课没有刷题，大家卸下紧绷，不再困于一考定终身，人生赛道选择万千。学生深情致谢班主任，师生定下重逢之约。愿少年从容赴考，前程似锦。(杨华峰 李盈 游蕾) 责任编辑：【李季】
+中新网南宁5月23日电 (记者 蒋雪林)当梁洲辅的名字出现在2026年广西“最美科技工作者”名单上时，这项已经评选多年的荣誉，第一次有了台湾同胞的身影。 “台胞梁洲辅获评广西‘最美科技工作者’”这一新闻5月22日成为大陆多家媒体纷纷报道的热点信息。这位南宁师范大学环境与生命科学学院的教授，用六年的时间，在八桂大地上完成了从“外来者”到“自己人”的身份转变。他的故事，不仅关乎个人
 
 ## 正文
 
-发布时间：2026年06月07日 09:31 来源：中国新闻网 6月6日，湖南长沙同升湖高级中学近千名师生家长千米列队送考，发红包、顶粽子、抛气球讨彩头。
+中新网南宁5月23日电 (记者 蒋雪林)当梁洲辅的名字出现在2026年广西“最美科技工作者”名单上时，这项已经评选多年的荣誉，第一次有了台湾同胞的身影。
 
-高考前一日的最后一课没有刷题，大家卸下紧绷，不再困于一考定终身，人生赛道选择万千。
+“台胞梁洲辅获评广西‘最美科技工作者’”这一新闻5月22日成为大陆多家媒体纷纷报道的热点信息。
 
-学生深情致谢班主任，师生定下重逢之约。
+这位南宁师范大学环境与生命科学学院的教授，用六年的时间，在八桂大地上完成了从“外来者”到“自己人”的身份转变。
 
-愿少年从容赴考，前程似锦。
+他的故事，不仅关乎个人奋斗，更折射出两岸融合发展的生动图景。
 
-(杨华峰 李盈 游蕾) 责任编辑：【李季】
+工程领域有一个基本事实：标准不通，则合作难行。
+
+台湾地区长期沿用美国规范，大陆沿袭欧洲体系，两岸工程界看似说着同一种语言，却在技术参数上各行其是。
+
+梁洲辅敏锐地捕捉到这个痛点，主动投身于两岸共通标准的编制工作。
+
+《海峡两岸共通施工过程建筑废弃物处理温室气体排放核算与报告通则》等标准的发布，意味着两岸工程技术人员第一次有了可以共同遵循的技术语言。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 22:24 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 22:19 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 22:21 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 22:26 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 22:03 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 22:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 22:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 22:16 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 22:15 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 22:31 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 22:22 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 22:35 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 22:16 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 22:31 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 22:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 22:21 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 22:28 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 22:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 22:07 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 22:20 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/542896436850.shtml)
-- 2026-06-29 22:17 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/0293086478.shtml)
-- 2026-06-29 22:12 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/21725131.shtml)
-- 2026-06-29 22:22 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/488904648903.shtml)
-- 2026-06-29 22:25 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/69764205166.shtml)
-- 2026-06-29 22:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/1330387.shtml)
-- 2026-06-29 22:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/345595437.shtml)
-- 2026-06-29 22:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/772793942794.shtml)
-- 2026-06-29 22:09 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/11445168418.shtml)
-- 2026-06-29 22:07 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/108964794.shtml)
-- 2026-06-29 22:24 - [男子称在京东买到“同仁堂”假药](http://www.share.kurohicncr.top/Article/details/372280228080.shtml)
-- 2026-06-29 22:01 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/85033798.shtml)
-- 2026-06-29 22:07 - [一生一世](https://www.blog.kurohicncr.top/Article/details/193995.shtml)
-- 2026-06-29 22:17 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/91241.shtml)
-- 2026-06-29 22:02 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/3354461.shtml)
+- 2026-06-29 22:17 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/98839.shtml)
+- 2026-06-29 22:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/5106070504.shtml)
+- 2026-06-29 22:06 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/88282854.shtml)
+- 2026-06-29 22:09 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/6320773692.shtml)
+- 2026-06-29 22:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/214190462514.shtml)
+- 2026-06-29 22:32 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/376452887.shtml)
+- 2026-06-29 22:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/83078.shtml)
+- 2026-06-29 22:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/323705.shtml)
+- 2026-06-29 22:06 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/7086838.shtml)
+- 2026-06-29 22:07 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/06850579822.shtml)
+- 2026-06-29 22:30 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/693931332.shtml)
+- 2026-06-29 22:13 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/47225002.shtml)
+- 2026-06-29 22:23 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/415287295576.shtml)
+- 2026-06-29 22:34 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/2227085397.shtml)
+- 2026-06-29 22:28 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/3237345467.shtml)

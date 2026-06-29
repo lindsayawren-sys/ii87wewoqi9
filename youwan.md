@@ -1,60 +1,52 @@
-# Anthropic与OpenAI冲刺 IPO：抢先上市未必代表表现更佳
+# 新加坡上调2026年出口增长预测
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-Anthropic上周递交 IPO 申报文件，这家克劳德代码大模型研发企业，在与 OpenAI 的上市竞速中暂时领先。 投行与律师表示，企业抢在竞争对手之前登陆二级市场存在合理考量，尤其当企业担忧竞品上市会抢走市场关注度时。但复盘过去十年多组同业竞品上市案例可以发现，率先上市并不代表个股后续收益更优。 网约车平台 Lyft vs Uber 最典型案例是 2018 年 12 月，
+新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。此外，关税带来的拖累
 
 ## 正文
 
-Anthropic上周递交 IPO 申报文件，这家克劳德代码大模型研发企业，在与 OpenAI 的上市竞速中暂时领先。
+新加坡上调了2026年非石油国内出口的预测，理由是人工智能（AI）需求具有韧性，但同时警示了中东冲突持续和贸易摩擦可能带来的风险。
 
-投行与律师表示，企业抢在竞争对手之前登陆二级市场存在合理考量，尤其当企业担忧竞品上市会抢走市场关注度时。
+新加坡企业发展局（Enterprise Singapore）周一表示，该国今年非石油国内出口（NODX）预计将增长3.0%至5.0%，高于此前预测的2.0%至4.0%。
 
-但复盘过去十年多组同业竞品上市案例可以发现，率先上市并不代表个股后续收益更优。
+该机构将上调预测归因于强劲的AI相关需求，称这支撑了全球经济。
 
-网约车平台 Lyft vs Uber 最典型案例是 2018 年 12 月，Lyft 与优步在同一周秘密递交上市申请。
+此外，关税带来的拖累小于预期，也对贸易额构成了支持。
 
-Lyft 最终于 2019 年 3 月末率先上市，募资 23 亿美元，IPO 估值约 2400 亿美元；两个月后优步登陆美股，募资 81 亿美元，上市估值超 8000 亿美元。
-
-但抢先上市并未给 Lyft 带来投资者青睐。
-
-上市满 12 个月时，Lyft 股价较发行价暴跌约 66%；同期优步股价相对发行价跌幅约 30%。
-
-2019 年下半年，两款企业应用监控软件服务商先后上市。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 22:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 22:02 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 22:20 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 22:22 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 22:05 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 22:07 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 22:13 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 22:09 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 22:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 22:06 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 22:28 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 22:20 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 22:17 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 22:09 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 22:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 22:08 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 22:25 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 22:20 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 22:30 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 22:15 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 22:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 22:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 22:12 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 22:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 22:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/16461628.shtml)
-- 2026-06-29 22:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/156703794369.shtml)
-- 2026-06-29 22:09 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/222736634947.shtml)
-- 2026-06-29 22:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/207646608.shtml)
-- 2026-06-29 22:24 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/561487.shtml)
-- 2026-06-29 22:28 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/999961135.shtml)
-- 2026-06-29 22:11 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/97627847489.shtml)
-- 2026-06-29 22:05 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/5234453789.shtml)
-- 2026-06-29 22:18 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/06606.shtml)
-- 2026-06-29 22:08 - [一生一世](http://www.blog.minike.top/Article/details/4645970361.shtml)
-- 2026-06-29 22:18 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/4198246.shtml)
-- 2026-06-29 22:11 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/028231.shtml)
-- 2026-06-29 22:05 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/538306310344.shtml)
-- 2026-06-29 22:07 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/759250.shtml)
-- 2026-06-29 22:26 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/05100.shtml)
+- 2026-06-29 22:21 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/06595.shtml)
+- 2026-06-29 22:07 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/5247364120.shtml)
+- 2026-06-29 22:26 - [金刚川](https://www.share.kurohicncr.top/Article/details/631836648199.shtml)
+- 2026-06-29 22:19 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/067216580.shtml)
+- 2026-06-29 22:09 - [急先锋](https://www.blog.kurohicncr.top/Article/details/77644082494.shtml)
+- 2026-06-29 22:07 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/961082.shtml)
+- 2026-06-29 22:35 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/21417348.shtml)
+- 2026-06-29 22:34 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/5623710.shtml)
+- 2026-06-29 22:27 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/95194326.shtml)
+- 2026-06-29 22:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/21875.shtml)
+- 2026-06-29 22:23 - [金刚川](https://www.blog.minike.top/Article/details/92959123.shtml)
+- 2026-06-29 22:15 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/34492884.shtml)
+- 2026-06-29 22:34 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/729845530.shtml)
+- 2026-06-29 22:25 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/93426.shtml)
+- 2026-06-29 22:34 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/789793823432.shtml)

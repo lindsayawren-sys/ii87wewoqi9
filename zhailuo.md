@@ -1,48 +1,56 @@
-# 皖北煤电集团有限责任公司原党委书记龚乃勤被开除党籍
+# 粤BA常规赛第九轮东莞队大胜清远队 坐稳东区头名
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对皖北煤电集团有限责任公司原党委书记、董事长龚乃勤严重违纪违法问题进行了立案审查调查。 经查，龚乃勤丧失理想信念，背弃初心使命，对抗组织审查，搞迷信活动；违反中央八项规定精神，违规接受旅游活动安排；违背组织原则，违规为他人谋取人事利益，在组织函询时不如实说明问题；廉洁底线失守，违规收受礼品、礼金，违
+中新网东莞5月24日电 (许青青 陈沛鸿)23日晚，2026广东省城市篮球联赛(粤BA)常规赛第九轮，东莞队在主场东莞市体育中心体育馆迎来清远队的挑战。比分最终定格为116：57，东莞队获胜——八连胜入账，东区头名稳坐，季后赛门票提前落袋。 一场粤BA赛事，多重城市魅力。比赛中，本场东莞队面对背水一战的清远队，稳扎稳打、攻防兼备，首节便建立两位数领先优势，后续牢牢掌控比赛节奏，
 
 ## 正文
 
-中新网6月5日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对皖北煤电集团有限责任公司原党委书记、董事长龚乃勤严重违纪违法问题进行了立案审查调查。
+中新网东莞5月24日电 (许青青 陈沛鸿)23日晚，2026广东省城市篮球联赛(粤BA)常规赛第九轮，东莞队在主场东莞市体育中心体育馆迎来清远队的挑战。
 
-经查，龚乃勤丧失理想信念，背弃初心使命，对抗组织审查，搞迷信活动；违反中央八项规定精神，违规接受旅游活动安排；违背组织原则，违规为他人谋取人事利益，在组织函询时不如实说明问题；廉洁底线失守，违规收受礼品、礼金，违规拥有非上市公司股份，无偿借用管理和服务对象住房；利用职务便利为他人在煤炭贸易、公司经营等方面谋利，并非法收受巨额财物。
+比分最终定格为116：57，东莞队获胜——八连胜入账，东区头名稳坐，季后赛门票提前落袋。
 
-龚乃勤严重违反党的政治纪律、组织纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+一场粤BA赛事，多重城市魅力。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予龚乃勤开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+比赛中，本场东莞队面对背水一战的清远队，稳扎稳打、攻防兼备，首节便建立两位数领先优势，后续牢牢掌控比赛节奏，球员们默契配合、精准传球、犀利突破，最终以半场领先35分奠定胜局。
+
+清远队虽奋力追赶、永不言弃，展现出坚韧斗志，也赢得全场观众的热烈掌声，但最终难敌东莞队强劲实力。
+
+终场哨响，全场观众起立欢呼，掌声与呐喊声震耳欲聋。
+
+此役东莞队吕锐邦砍下全场最高24分外加12篮板1助攻1抢断，刷新个人单场得分新高，帮助球队大胜清远，豪取八连胜。
+
+但这一夜的意义不止于胜负——赛事以科技为核心脉络，从开球仪式到文艺展演，从城市礼物到互动体验，处处彰显东莞科创实力。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 22:23 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 22:02 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 22:10 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 22:08 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 22:24 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 22:08 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 22:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 22:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 22:01 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 22:32 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 22:27 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 22:36 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 22:25 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 22:33 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 22:10 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 22:16 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 22:34 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 22:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 22:24 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [扬名立万](https://www.blog.minike.top/Article/details/1431575.shtml)
-- 2026-06-29 22:07 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/58510168207.shtml)
-- 2026-06-29 22:13 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/894555307.shtml)
-- 2026-06-29 22:25 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/82547776.shtml)
-- 2026-06-29 22:00 - [女生学医适合选什么专业](http://www.blog.kurohicncr.top/Article/details/7903232.shtml)
-- 2026-06-29 22:15 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/5488065666.shtml)
-- 2026-06-29 22:08 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/920113.shtml)
-- 2026-06-29 22:15 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/0439906.shtml)
-- 2026-06-29 22:17 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/6945485.shtml)
-- 2026-06-29 22:16 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/366114631.shtml)
-- 2026-06-29 22:06 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/3372331441.shtml)
-- 2026-06-29 22:00 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/52163016603.shtml)
-- 2026-06-29 22:00 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/654563.shtml)
-- 2026-06-29 22:02 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/02285121.shtml)
-- 2026-06-29 22:14 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/887725746.shtml)
+- 2026-06-29 22:07 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/299110756749.shtml)
+- 2026-06-29 22:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/01260.shtml)
+- 2026-06-29 22:30 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/93569.shtml)
+- 2026-06-29 22:32 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/2720751493.shtml)
+- 2026-06-29 22:11 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/571714.shtml)
+- 2026-06-29 22:33 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/79447478.shtml)
+- 2026-06-29 22:33 - [金刚川](http://www.blog.minike.top/Article/details/247163514.shtml)
+- 2026-06-29 22:12 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/186134.shtml)
+- 2026-06-29 22:17 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/40200.shtml)
+- 2026-06-29 22:27 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/547764032.shtml)
+- 2026-06-29 22:08 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/5006872379.shtml)
+- 2026-06-29 22:27 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/80693.shtml)
+- 2026-06-29 22:23 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/74603.shtml)
+- 2026-06-29 22:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/248743332.shtml)
+- 2026-06-29 22:21 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/462118035654.shtml)

@@ -1,59 +1,52 @@
-# 现实版《给阿嬷的情书》！台湾“中天小姐姐”再访北京奶奶，带来妈妈亲笔信
+# 国家卫健委：调派专家会同当地组成联合救治工作组 “一人一策”加强伤员救治
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-近日，被称为“中天小姐姐”的台湾新闻主播何橞瑢再度踏上北京土地，奔赴一场跨越海峡的“祖孙之约”。 她专程看望此前在胡同采访时认识的九旬孙奶奶，并带去母亲写的亲笔信。有网友形容这是现实版《给阿嬤的情书》，“期待未完待续”。 何橞瑢日前在社交媒体上发布了和孙奶奶长达79分钟的见面视频，并在介绍中写道：“超越血缘的真情流露，是最无法反驳的血脉牵绊。” “想你了，我还能见着你啊，真想你
+2026年5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。 国家卫生健康委全力支持山西省做好伤员医疗救治和心理疏导等工作，迅速派出委分管负责同志和有关司局同志赶至现场指导应急救治调度；第一时间组织北京大学人民医院(国家创伤医学中心)和中日友好医院(国家呼吸医学中心)重症、呼吸、创伤专业专家，对收治伤员进行多学科远程会诊；调派北京
 
 ## 正文
 
-近日，被称为“中天小姐姐”的台湾新闻主播何橞瑢再度踏上北京土地，奔赴一场跨越海峡的“祖孙之约”。
+2026年5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
 
-她专程看望此前在胡同采访时认识的九旬孙奶奶，并带去母亲写的亲笔信。
+国家卫生健康委全力支持山西省做好伤员医疗救治和心理疏导等工作，迅速派出委分管负责同志和有关司局同志赶至现场指导应急救治调度；第一时间组织北京大学人民医院(国家创伤医学中心)和中日友好医院(国家呼吸医学中心)重症、呼吸、创伤专业专家，对收治伤员进行多学科远程会诊；调派北京协和医院、北京积水潭医院(国家骨科医学中心)呼吸重症、创伤、烧伤专业专家赶至伤员收治医院，会同当地组成联合救治工作组，“一人一策”全力加强伤员救治；指导山西省选派省、市心理专家，对伤员及家属开展心理疏导支持。
 
-有网友形容这是现实版《给阿嬤的情书》，“期待未完待续”。
+国家卫生健康委将持续支持山西省做好伤员医疗救治等工作，根据需要随时调派国家级医疗力量，最大程度保障伤员生命安全。
 
-何橞瑢日前在社交媒体上发布了和孙奶奶长达79分钟的见面视频，并在介绍中写道：“超越血缘的真情流露，是最无法反驳的血脉牵绊。
+同时，做好卫生健康领域安全生产风险隐患排查整治，加强值班值守，努力统筹发展和安全。
 
-” “想你了，我还能见着你啊，真想你。
-
-”镜头前，孙奶奶紧握着何橞瑢的手，两人一见面便相拥而泣。
-
-上次的合影，奶奶就放在家中显眼处，让何橞瑢非常感动。
-
-孙奶奶感慨，“两岸来来往往多好啊，这是我一生所盼的。
+(总台央视记者 文永毅 史迎春)
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 22:29 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 22:21 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 22:14 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 22:16 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 22:11 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 22:01 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 22:00 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 22:29 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 22:29 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 22:17 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 22:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 22:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 22:23 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 22:09 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 22:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 22:13 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 22:23 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 22:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 22:06 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 22:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 22:16 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 22:17 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-29 22:32 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 22:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/31079330.shtml)
-- 2026-06-29 22:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/13523881780.shtml)
-- 2026-06-29 22:19 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/0386706.shtml)
-- 2026-06-29 22:11 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/828461151.shtml)
-- 2026-06-29 22:21 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/70520640703.shtml)
-- 2026-06-29 22:10 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/633576.shtml)
-- 2026-06-29 22:27 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/762142930210.shtml)
-- 2026-06-29 22:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/44920744262.shtml)
-- 2026-06-29 22:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/02268885490.shtml)
-- 2026-06-29 22:00 - [毒液2](http://www.blog.minike.top/Article/details/10940872906.shtml)
-- 2026-06-29 22:09 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/257103243.shtml)
-- 2026-06-29 22:12 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/218488.shtml)
-- 2026-06-29 22:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/748122577204.shtml)
-- 2026-06-29 22:16 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/92443995845.shtml)
-- 2026-06-29 22:24 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/76248348.shtml)
+- 2026-06-29 22:33 - [李思潼：不会介意大家夸我运气好](https://www.blog.kurohicncr.top/Article/details/971281386872.shtml)
+- 2026-06-29 22:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/0598492500.shtml)
+- 2026-06-29 22:34 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/05606531.shtml)
+- 2026-06-29 22:22 - [时光音乐会](https://www.blog.minike.top/Article/details/98273040.shtml)
+- 2026-06-29 22:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/60321.shtml)
+- 2026-06-29 22:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/91568194.shtml)
+- 2026-06-29 22:22 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/28388194.shtml)
+- 2026-06-29 22:17 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/25192512.shtml)
+- 2026-06-29 22:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/1181617652.shtml)
+- 2026-06-29 22:28 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/29122032.shtml)
+- 2026-06-29 22:32 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/96548.shtml)
+- 2026-06-29 22:13 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/27251269896.shtml)
+- 2026-06-29 22:33 - [宜宾地震已转移安置225人](https://www.share.kurohicncr.top/Article/details/92053812.shtml)
+- 2026-06-29 22:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/13264.shtml)
+- 2026-06-29 22:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/992886438.shtml)

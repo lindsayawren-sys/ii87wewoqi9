@@ -1,56 +1,57 @@
-# 湖南省第十五届运动会9月举行 比赛场馆均已竣工验收
+# 服饰服装年报|重营销侵吞利润 锦泓集团常年拿超5成收入用作营销
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月8日电 (记者 邓霞)记者8日从新闻发布会上获悉，湖南省第十五届运动会将于9月6日至16日在益阳市举行，湖南省第十二届残疾人运动会也将于9月26日至29日在益阳举办。目前，赛事各项筹备工作正有力有序推进。 本届湖南省运会由湖南省人民政府主办，湖南省体育局、益阳市人民政府承办，以“益山益水益阳，更快更高更强”为主题口号，会歌为《相约益阳》。会徽以益阳首字母“YY”勾
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：cici 2025年，国内服饰服装行业在“弱复苏”的宏观底色下，各品牌之间的营销费用格局呈现出鲜明的分化态势。 根据最新统计的2025年服装上市公司营销费用率数据，各大品牌在营销推广上的投入力度差异显著——头部女装及中高端品牌营销费用率高居榜首，海澜之家等大众男装龙头凭借
 
 ## 正文
 
-中新网长沙6月8日电 (记者 邓霞)记者8日从新闻发布会上获悉，湖南省第十五届运动会将于9月6日至16日在益阳市举行，湖南省第十二届残疾人运动会也将于9月26日至29日在益阳举办。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-目前，赛事各项筹备工作正有力有序推进。
+出品：新浪财经上市公司研究院 作者：cici 2025年，国内服饰服装行业在“弱复苏”的宏观底色下，各品牌之间的营销费用格局呈现出鲜明的分化态势。
 
-本届湖南省运会由湖南省人民政府主办，湖南省体育局、益阳市人民政府承办，以“益山益水益阳，更快更高更强”为主题口号，会歌为《相约益阳》。
+根据最新统计的2025年服装上市公司营销费用率数据，各大品牌在营销推广上的投入力度差异显著——头部女装及中高端品牌营销费用率高居榜首，海澜之家等大众男装龙头凭借规模效应展现出极强的费用控制能力，而美邦服饰则面临“收入下滑→费用率被动飙升”的尴尬处境。
 
-会徽以益阳首字母“YY”勾勒奔跑姿态，融入绿叶、竹篾、千两茶篓工艺、朝阳等元素，展现活力多姿、热情好客的城市风貌。
+从整体来看，销售费用率（营销开支占营收比重）大致可分为三大梯队：第一梯队（40%及以上）以锦泓集团、美邦服饰、歌力思、比音勒芬、地素时尚、九牧王、报喜鸟为代表，营销投入力度最大；第二梯队（30%—40%）包括太平鸟、朗姿股份、七匹狼、三夫户外、安正时尚；第三梯队（20%—30%）则有森马服饰、探路者、海澜之家。
 
-吉祥物“竹娃”“茶宝”以翠竹、千两茶为原型，展现益阳“楠竹之乡”“黑茶之乡”的城市名片。
+这一格局背后，折射出不同品牌的渠道结构、品牌定位与经营效率差异。
 
-湖南省第十五届运动会竞赛项目设置贴合湖南体育发展实际，兼顾竞技性、群众性与普惠性，共设青少年组29个大项、成年组12个大项，届时将有14个市州和省体校共15个代表团参赛。
+从销售费用的增速来看，2025年九牧王、比音勒芬、森马服饰的销售费用增长较多，其中九牧王的销售费用为13.88亿元，同比增长24.2%；比音勒芬的销售费用为16.13亿元，同比增长22.96%；森马服饰的销售费用为37.51亿元，同比增长13.89%。
 
-湖南省第十二届残疾人运动会以“自信自强，益美益阳”为主题，设置11个大项，将有700名运动员参赛。
+锦泓集团以51.26%的营销费用率位居首位，全年销售费用达21.54亿元。
 
-赛事同步设置象棋、飞镖等群众性体育项目，推动残疾人群众体育广泛开展。
+在高投入下，公司线上渠道有所增长，元先品牌结合内容电商及达人合作带动销售规模扩大，线下云锦博物馆展厅单店年销售额突破4000万元。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 22:22 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 22:23 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 22:16 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 22:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 22:28 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 22:10 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 22:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 22:07 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 22:14 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 22:10 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 22:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 22:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 22:25 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 22:16 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 22:08 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 22:09 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 22:33 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 22:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 22:14 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 22:28 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [《贺子珍》](https://www.blog.minike.top/Article/details/74587506967.shtml)
-- 2026-06-29 22:13 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/2124782.shtml)
-- 2026-06-29 22:26 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/35610493202.shtml)
-- 2026-06-29 22:16 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/798974126.shtml)
-- 2026-06-29 22:14 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/6046793.shtml)
-- 2026-06-29 22:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/2813819614.shtml)
-- 2026-06-29 22:22 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/707223255.shtml)
-- 2026-06-29 22:13 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/24525108.shtml)
-- 2026-06-29 22:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/613048111716.shtml)
-- 2026-06-29 22:26 - [起风了](http://www.share.kurohicncr.top/Article/details/891724261888.shtml)
-- 2026-06-29 22:24 - [沙丘](http://www.share.kurohicncr.top/Article/details/588848355500.shtml)
-- 2026-06-29 22:22 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/95322760.shtml)
-- 2026-06-29 22:09 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/4996703.shtml)
-- 2026-06-29 22:28 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/163134648.shtml)
-- 2026-06-29 22:09 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/8632870896.shtml)
+- 2026-06-29 22:30 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/6717820141.shtml)
+- 2026-06-29 22:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/157488485.shtml)
+- 2026-06-29 22:23 - [我和我的家乡](https://www.share.minike.top/Article/details/628289696.shtml)
+- 2026-06-29 22:22 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/1815360708.shtml)
+- 2026-06-29 22:08 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/84491164.shtml)
+- 2026-06-29 22:35 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/41245863086.shtml)
+- 2026-06-29 22:34 - [一生一世](http://www.blog.minike.top/Article/details/26382540.shtml)
+- 2026-06-29 22:31 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/647409037.shtml)
+- 2026-06-29 22:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/62163.shtml)
+- 2026-06-29 22:15 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/6935056032.shtml)
+- 2026-06-29 22:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/718082.shtml)
+- 2026-06-29 22:23 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/19484.shtml)
+- 2026-06-29 22:19 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/053241229009.shtml)
+- 2026-06-29 22:21 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/931336119.shtml)
+- 2026-06-29 22:09 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/08932.shtml)

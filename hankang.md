@@ -1,61 +1,48 @@
-# 港股午评：恒指跌1.18% 科指跌2.4% 科网股、黄金股普跌 半导体板块继续调整 百度跌超7%
+# 美联储主席沃什：通胀可以更低 并力推改革
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-6月8日消息，港股三大指数集体下跌。截至午间收盘，恒生指数跌1.18%，报24668.39，恒生科技指数跌2.4%，国企指数跌1.01%。盘面上，科网股普跌，百度跌超7%，美团跌超4%，快手跌超3%；煤炭股逆势上涨，兖矿能源涨超2%；黄金股普跌，紫金黄金国际跌超7%；半导体板块继续调整，芯智控股跌超7%。 煤炭股逆势上涨，兖矿能源涨超2%。山西煤矿事故后，安监力度显著强化。截至
+美联储主席凯文·沃什表示，当美联储“以智慧和清晰、独立和决心”追求价格稳定和充分就业目标时，“通胀可以更低，增长可以更强，实际到手薪资可以更高，美国也可以更加繁荣”。 沃什在白宫宣誓就职仪式上发表讲话。 “为履行这一使命，我将领导一个以改革为导向的美联储，”他表示。责任编辑：何云
 
 ## 正文
 
-6月8日消息，港股三大指数集体下跌。
+美联储主席凯文·沃什表示，当美联储“以智慧和清晰、独立和决心”追求价格稳定和充分就业目标时，“通胀可以更低，增长可以更强，实际到手薪资可以更高，美国也可以更加繁荣”。
 
-截至午间收盘，恒生指数跌1.18%，报24668.39，恒生科技指数跌2.4%，国企指数跌1.01%。
+沃什在白宫宣誓就职仪式上发表讲话。
 
-盘面上，科网股普跌，百度跌超7%，美团跌超4%，快手跌超3%；煤炭股逆势上涨，兖矿能源涨超2%；黄金股普跌，紫金黄金国际跌超7%；半导体板块继续调整，芯智控股跌超7%。
+“为履行这一使命，我将领导一个以改革为导向的美联储，”他表示。
 
-煤炭股逆势上涨，兖矿能源涨超2%。
-
-山西煤矿事故后，安监力度显著强化。
-
-截至6月5日，山西累计停产135座煤矿，复产仅61座，实际复产进度缓慢。
-
-全国安监严查有望扩散，叠加6月安全生产月影响，供给预计进一步收紧。
-
-此外，印尼近期正式发布大宗商品出口管控计划细节，设定国企统一管控煤炭出口。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 22:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 22:16 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 22:08 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 22:10 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 22:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 22:07 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 22:18 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 22:14 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 22:24 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 22:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 22:17 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 22:18 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 22:10 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 22:11 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 22:12 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 22:22 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 22:18 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 22:35 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 22:10 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 22:13 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 22:08 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 22:31 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 22:21 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 22:25 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 22:06 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:23 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/21941279.shtml)
-- 2026-06-29 22:27 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/03093.shtml)
-- 2026-06-29 22:03 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/50729.shtml)
-- 2026-06-29 22:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/63769396.shtml)
-- 2026-06-29 22:09 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/125690.shtml)
-- 2026-06-29 22:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/31788990928.shtml)
-- 2026-06-29 22:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/30353488102.shtml)
-- 2026-06-29 22:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/794180734568.shtml)
-- 2026-06-29 22:28 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/6537636433.shtml)
-- 2026-06-29 22:06 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/9001521080.shtml)
-- 2026-06-29 22:28 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/39861.shtml)
-- 2026-06-29 22:24 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/686551774184.shtml)
-- 2026-06-29 22:09 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/02681759041.shtml)
-- 2026-06-29 22:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/028990995216.shtml)
-- 2026-06-29 22:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/25859451330.shtml)
+- 2026-06-29 22:34 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/3307928823.shtml)
+- 2026-06-29 22:15 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/30253.shtml)
+- 2026-06-29 22:22 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/39951561.shtml)
+- 2026-06-29 22:26 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/562386327.shtml)
+- 2026-06-29 22:13 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/0723879.shtml)
+- 2026-06-29 22:35 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/68848136133.shtml)
+- 2026-06-29 22:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/93820025129.shtml)
+- 2026-06-29 22:19 - [斛珠夫人](http://www.blog.minike.top/Article/details/950337433458.shtml)
+- 2026-06-29 22:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/32979830838.shtml)
+- 2026-06-29 22:34 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/1240819.shtml)
+- 2026-06-29 22:22 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/575035372.shtml)
+- 2026-06-29 22:11 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/08230.shtml)
+- 2026-06-29 22:28 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0811637.shtml)
+- 2026-06-29 22:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/195839.shtml)
+- 2026-06-29 22:33 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/027276686117.shtml)

@@ -1,56 +1,50 @@
-# 官方报告：2025年流域、气候等新类型案件不断涌现
+# 消息人士称，潜在协议包含伊朗承诺不再谋求核武器
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新社北京6月5日电 (记者 张素)6月5日是世界环境日。当日发布的《中国环境司法发展报告(2025年)》显示，2025年，传统环境资源案件审理成效显著，流域、气候等新类型案件不断涌现。 全国人大环境与资源保护委员会副主任委员吕忠梅在5日举行的新闻发布会上介绍上述报告。 据统计，全国法院去年依法审结环境资源一审案件22.9万件。吕忠梅说，环境民事案件数量上升，省域分布差异显著。
+知情人士透露，美伊拟议协议规定，伊朗承诺绝不研发核武器，暂停新增铀浓缩活动，并就上缴现有高浓缩铀储备展开谈判。 铀储备处置细则以及浓缩活动暂停时长，将留待后续磋商敲定。责任编辑：江学思
 
 ## 正文
 
-中新社北京6月5日电 (记者 张素)6月5日是世界环境日。
+知情人士透露，美伊拟议协议规定，伊朗承诺绝不研发核武器，暂停新增铀浓缩活动，并就上缴现有高浓缩铀储备展开谈判。
 
-当日发布的《中国环境司法发展报告(2025年)》显示，2025年，传统环境资源案件审理成效显著，流域、气候等新类型案件不断涌现。
+铀储备处置细则以及浓缩活动暂停时长，将留待后续磋商敲定。
 
-全国人大环境与资源保护委员会副主任委员吕忠梅在5日举行的新闻发布会上介绍上述报告。
-
-据统计，全国法院去年依法审结环境资源一审案件22.9万件。
-
-吕忠梅说，环境民事案件数量上升，省域分布差异显著。
-
-噪声污染案件数量占比依旧稳居首位，水污染案件数量明显下降。
-
-吕忠梅还说，环境行政案件争议类型相对集中，呈现出二审率和再审率较高的特征。
-
-环境刑事案件数量持续下降，罪名分布集中于非法占用农用地、非法采矿等土地矿产类犯罪。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 22:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 22:16 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 22:24 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 22:08 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 22:17 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 22:11 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 22:29 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 22:26 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 22:24 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 22:33 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 22:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 22:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 22:20 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 22:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 22:22 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 22:25 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 22:08 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 22:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 22:34 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 22:22 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 22:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 22:29 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 22:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/690918.shtml)
-- 2026-06-29 22:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/68657.shtml)
-- 2026-06-29 22:11 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/53037574513.shtml)
-- 2026-06-29 22:18 - [沉睡花园](http://www.share.minike.top/Article/details/38325763.shtml)
-- 2026-06-29 22:04 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/029856.shtml)
-- 2026-06-29 22:10 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/358311654160.shtml)
-- 2026-06-29 22:29 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/77733994.shtml)
-- 2026-06-29 22:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/0728853822.shtml)
-- 2026-06-29 22:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/13545.shtml)
-- 2026-06-29 22:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/03661620.shtml)
-- 2026-06-29 22:23 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/496922410.shtml)
-- 2026-06-29 22:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/775965455174.shtml)
-- 2026-06-29 22:10 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/0626663.shtml)
-- 2026-06-29 22:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/11444879.shtml)
-- 2026-06-29 22:07 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/0850223648.shtml)
+- 2026-06-29 22:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/91441257.shtml)
+- 2026-06-29 22:31 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/365606.shtml)
+- 2026-06-29 22:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/1004877.shtml)
+- 2026-06-29 22:13 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/955689.shtml)
+- 2026-06-29 22:17 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/5674958.shtml)
+- 2026-06-29 22:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/26451.shtml)
+- 2026-06-29 22:11 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/9281624.shtml)
+- 2026-06-29 22:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/647714.shtml)
+- 2026-06-29 22:14 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/5394170.shtml)
+- 2026-06-29 22:09 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/673595368.shtml)
+- 2026-06-29 22:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/6104829532.shtml)
+- 2026-06-29 22:10 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/47368398.shtml)
+- 2026-06-29 22:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/9606741784.shtml)
+- 2026-06-29 22:19 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/71331961495.shtml)
+- 2026-06-29 22:27 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/713836354.shtml)

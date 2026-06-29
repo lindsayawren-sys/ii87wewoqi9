@@ -1,50 +1,61 @@
-# 泡泡玛特MOLLY20周年特展北京站 将呈现MOLLY创作背后故事
+# 上市首年利润骤降七成，IPO前员工锐减45%！这家公司“创业板成色”经得起追问吗？
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 11:38 来源：中国新闻网 6月5日，泡泡玛特MOLLY20周年特展北京站在北京798艺术区举行媒体提前探访活动。展览将于6月6日开幕，首次全面呈现MOLLY的手稿、原画和创作背后的故事等资料。“MOLLY”是一个有着湖蓝色眼睛、嘟着嘴的小女孩，这一形象是由香港设计师王信明(Kenny Wong)在2006年创作，并于2016年授权泡泡玛特商
+(宏工科技周K线图)价值线| 来源热公司| 栏目钱唐| 作者秋水| 编辑价值线导读近期，价值线研究院全新推出“热公司”专栏，已刊出5篇公司文章，重在未来价值发现。接下来，将刊出数篇热公司文章，重在揭示风险。今天刊出第6篇，也是揭示风险第一篇。近日，头顶“宁德时代供应商”光环登陆创业板的宏工科技（301662），正式迎来两大重要股东的首轮减持窗口期，合计拟减持比例不超过3%。这家
 
 ## 正文
 
-发布时间：2026年06月06日 11:38 来源：中国新闻网 6月5日，泡泡玛特MOLLY20周年特展北京站在北京798艺术区举行媒体提前探访活动。
+(宏工科技周K线图)价值线| 来源热公司| 栏目钱唐| 作者秋水| 编辑价值线导读近期，价值线研究院全新推出“热公司”专栏，已刊出5篇公司文章，重在未来价值发现。
 
-展览将于6月6日开幕，首次全面呈现MOLLY的手稿、原画和创作背后的故事等资料。
+接下来，将刊出数篇热公司文章，重在揭示风险。
 
-“MOLLY”是一个有着湖蓝色眼睛、嘟着嘴的小女孩，这一形象是由香港设计师王信明(Kenny Wong)在2006年创作，并于2016年授权泡泡玛特商业使用。
+今天刊出第6篇，也是揭示风险第一篇。
 
-(易海菲 制作 侯诗蕊） 责任编辑：【卢岩】
+近日，头顶“宁德时代供应商”光环登陆创业板的宏工科技（301662），正式迎来两大重要股东的首轮减持窗口期，合计拟减持比例不超过3%。
+
+这家去年4月顶着“宁德时代供应商”光环登陆创业板的公司，上市首年即“变脸”，业绩同比下降七成。
+
+一边是业绩“变脸”，另一边却是股东和员工迫不及待“落袋为安”。
+
+更蹊跷的是，公司IPO之前员工减少45%、应收账款激增，隐忧十分明显，但它还是敲开了创业板之门。
+
+宏工科技IPO保荐机构为中信证券，保荐代表人为陈才泉，花少军。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 22:00 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 22:10 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 22:06 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 22:19 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 22:24 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 22:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 22:05 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 22:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 22:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 22:16 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 22:09 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 22:06 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 22:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 22:32 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 22:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 22:30 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 22:29 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 22:10 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 22:15 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 22:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 22:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:30 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 22:35 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 22:30 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 22:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 22:27 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/491421.shtml)
-- 2026-06-29 22:10 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/71671749.shtml)
-- 2026-06-29 22:27 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/00642448.shtml)
-- 2026-06-29 22:08 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/73296.shtml)
-- 2026-06-29 22:06 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/299166270223.shtml)
-- 2026-06-29 22:22 - [急先锋](https://www.blog.kurohicncr.top/Article/details/051794289563.shtml)
-- 2026-06-29 22:13 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/94240347.shtml)
-- 2026-06-29 22:00 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/82022659766.shtml)
-- 2026-06-29 22:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/513321.shtml)
-- 2026-06-29 22:23 - [月亮](https://www.share.minike.top/Article/details/74159.shtml)
-- 2026-06-29 22:29 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/076674294318.shtml)
-- 2026-06-29 22:15 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/04426427.shtml)
-- 2026-06-29 22:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/5236315141.shtml)
-- 2026-06-29 22:21 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/915094.shtml)
-- 2026-06-29 22:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/33555405130.shtml)
+- 2026-06-29 22:13 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/7026782732.shtml)
+- 2026-06-29 22:28 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/012663233.shtml)
+- 2026-06-29 22:15 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/621851856.shtml)
+- 2026-06-29 22:32 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/14357886247.shtml)
+- 2026-06-29 22:22 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/77774359.shtml)
+- 2026-06-29 22:27 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/43619941.shtml)
+- 2026-06-29 22:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/063713.shtml)
+- 2026-06-29 22:25 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/2811413.shtml)
+- 2026-06-29 22:35 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/02557860.shtml)
+- 2026-06-29 22:22 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/149376401897.shtml)
+- 2026-06-29 22:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/5044386367.shtml)
+- 2026-06-29 22:35 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/159423584067.shtml)
+- 2026-06-29 22:17 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/00073.shtml)
+- 2026-06-29 22:21 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/720309.shtml)
+- 2026-06-29 22:18 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/8293650.shtml)

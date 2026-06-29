@@ -1,61 +1,60 @@
-# 越南温纳集团获购股权 拟整合出行与能源平台资产
+# 美国众议院小组将调查预测市场中的内幕交易行为
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-越南大型综合性企业温纳集团（Vingroup）周一发布公告称，公司董事会已正式批准一项股权收购选择权方案。根据该方案，温纳集团有权收购其董事长范日旺（Pham Nhat Vuong）个人控制的数家交通出行与能源企业股份，以此强化集团在电动汽车生态及新能源领域的战略布局。 公告显示，若该购股权最终全额行使，温纳集团在上述两大业务板块的整体持股比例最高可提升至35%。在绿色交通出行
+美国众议院监督委员会正在调查Kalshi和Polymarket的客户如何可能利用非公开信息进行内幕交易。在出现一些时机极为可疑的交易后，对预测市场的担忧进一步升级。 众议院监督委员会主席詹姆斯·科默周五要求Polymarket的谢恩·科普兰和Kalshi的塔雷克·曼苏尔提供文件，以评估这两个平台如何验证账户持有人的身份、执行地理限制以及监控可疑交易活动。 预测市场允许用户对几乎
 
 ## 正文
 
-越南大型综合性企业温纳集团（Vingroup）周一发布公告称，公司董事会已正式批准一项股权收购选择权方案。
+美国众议院监督委员会正在调查Kalshi和Polymarket的客户如何可能利用非公开信息进行内幕交易。
 
-根据该方案，温纳集团有权收购其董事长范日旺（Pham Nhat Vuong）个人控制的数家交通出行与能源企业股份，以此强化集团在电动汽车生态及新能源领域的战略布局。
+在出现一些时机极为可疑的交易后，对预测市场的担忧进一步升级。
 
-公告显示，若该购股权最终全额行使，温纳集团在上述两大业务板块的整体持股比例最高可提升至35%。
+众议院监督委员会主席詹姆斯·科默周五要求Polymarket的谢恩·科普兰和Kalshi的塔雷克·曼苏尔提供文件，以评估这两个平台如何验证账户持有人的身份、执行地理限制以及监控可疑交易活动。
 
-在绿色交通出行领域，温纳集团获得了从范日旺手中收购越南GSM VN Holding公司以及香港Smart & Green Trans Limited公司各约30%股份的权利；在新能源领域，集团有权收购总部位于越南的VinEnergo Holding公司以及总部位于香港的G-Energo Limited公司各16%的股份。
+预测市场允许用户对几乎任何事情下注，在过去一年半中人气暴增。
 
-温纳集团强调，本次交易方案在架构设计上赋予了集团极高的资本配置灵活性。
+但批评人士认为，其中一些获利丰厚的赌注好得令人难以置信，似乎不仅仅是靠运气。
 
-方案规定，该购股权的行使具有非义务性，是否最终执行将完全取决于集团当时的资本配置优先级，且在现阶段集团无需支付任何预付款。
+“作为受美国监管的交易所，我们对自己全面防范内幕交易的机制感到自豪。
 
-此外，若行使上述交易，所有收购流程须在36个月内、且在Smart & Green Trans和G-Energo两家境外控股公司潜在的首次公开募股（IPO）上市前完成。
+”Kalshi发言人伊丽莎白·戴安娜表示。
 
-在定价机制方面，为确保母公司及中小股东权益，所有目标股份的交易价格将严格按照董事长范日旺的原始投资成本定价，不包含任何溢价。
+Polymarket的一位发言人表示，该公司维护着全面的市场诚信框架。
 
 ## 相关推荐
 
-- 2026-06-29 22:26 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 22:11 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 22:12 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 22:15 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 22:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 22:01 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 22:12 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 22:08 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 22:24 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 22:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 22:07 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 22:25 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 22:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 22:06 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 22:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 22:17 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 22:30 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 22:21 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-29 22:08 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 22:16 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 22:12 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 22:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 22:27 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 22:25 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 22:34 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 22:17 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 22:10 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 22:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 22:12 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/485100317333.shtml)
-- 2026-06-29 22:26 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/539406259501.shtml)
-- 2026-06-29 22:28 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/369451.shtml)
-- 2026-06-29 22:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/574523.shtml)
-- 2026-06-29 22:07 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/132339.shtml)
-- 2026-06-29 22:04 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/235503900347.shtml)
-- 2026-06-29 22:02 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/200021263362.shtml)
-- 2026-06-29 22:22 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/782552.shtml)
-- 2026-06-29 22:03 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/216061493273.shtml)
-- 2026-06-29 22:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/51854.shtml)
-- 2026-06-29 22:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/017344.shtml)
-- 2026-06-29 22:04 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/571410254.shtml)
-- 2026-06-29 22:08 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/465211.shtml)
-- 2026-06-29 22:04 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/971452403138.shtml)
-- 2026-06-29 22:01 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/1496312506.shtml)
+- 2026-06-29 22:20 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/35329.shtml)
+- 2026-06-29 22:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/67693137.shtml)
+- 2026-06-29 22:16 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/2011539506.shtml)
+- 2026-06-29 22:24 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/433093285594.shtml)
+- 2026-06-29 22:19 - [浙江进入梅雨最强“攻击时段”](https://www.blog.kurohicncr.top/Article/details/351571.shtml)
+- 2026-06-29 22:24 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/303777.shtml)
+- 2026-06-29 22:20 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/8391194685.shtml)
+- 2026-06-29 22:06 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/4976221029.shtml)
+- 2026-06-29 22:26 - [世界杯](http://www.blog.minike.top/Article/details/499063.shtml)
+- 2026-06-29 22:12 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/323516.shtml)
+- 2026-06-29 22:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/04724673.shtml)
+- 2026-06-29 22:07 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/413582210.shtml)
+- 2026-06-29 22:07 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/512744880.shtml)
+- 2026-06-29 22:16 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/718768.shtml)
+- 2026-06-29 22:22 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/457764511707.shtml)

@@ -1,50 +1,61 @@
-# 国家发展改革委与老挝有关部门签署合作文件
+# 深圳文博会：河源恐龙lP吸睛
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-2026年6月5日，在中国和老挝两党两国最高领导人见证下，郑栅洁主任与老挝副总理、财政部部长兼老中合作委员会主席山迪帕·丰威汉签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国老中合作委员会关于推动绿色产业发展合作的谅解备忘录》。下一步，双方将加强节能降碳产业、环境保护产业、资源循环利用产业、能源绿色低碳转型、基础设施绿色升级、生态保护修复和利用、绿色服务等领域交流合
+中新网深圳5月22日电 (记者 张璐)第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)正在深圳举行。走进以“围屋佧河源”为设计主题的河源馆，奇趣探秘的恐龙IP、婉转悠扬的客家音乐、扣人心弦的杂技表演、灵动大气的非遗舞蹈，吸引大量观众前来拍照“打卡”。 广东河源拥有全球最多的恐龙蛋化石馆藏，被誉为“中华恐龙之乡”。本届文博会上，河源企业携60余项特色精品集中亮相。其
 
 ## 正文
 
-2026年6月5日，在中国和老挝两党两国最高领导人见证下，郑栅洁主任与老挝副总理、财政部部长兼老中合作委员会主席山迪帕·丰威汉签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国老中合作委员会关于推动绿色产业发展合作的谅解备忘录》。
+中新网深圳5月22日电 (记者 张璐)第二十二届中国(深圳)国际文化产业博览交易会(简称“文博会”)正在深圳举行。
 
-下一步，双方将加强节能降碳产业、环境保护产业、资源循环利用产业、能源绿色低碳转型、基础设施绿色升级、生态保护修复和利用、绿色服务等领域交流合作。
+走进以“围屋佧河源”为设计主题的河源馆，奇趣探秘的恐龙IP、婉转悠扬的客家音乐、扣人心弦的杂技表演、灵动大气的非遗舞蹈，吸引大量观众前来拍照“打卡”。
 
-此外，郑栅洁主任与老挝工业与贸易部部长玛莱通·贡玛西签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国工业与贸易部关于开展矿产资源领域合作的谅解备忘录》。
+广东河源拥有全球最多的恐龙蛋化石馆藏，被誉为“中华恐龙之乡”。
 
-下一步，双方将支持和鼓励双方企业按照“市场主导、商业运作、绿色发展”的原则开展矿产资源合作。
+本届文博会上，河源企业携60余项特色精品集中亮相。
 
-(国家发展改革委微信公众号)
+其中，四小龙乐园区以本土恐龙化石为原型打造的IP形象憨态可掬，吸引观众前来选购产品。
+
+“我们的展馆设计主要采用了暖黄色和湖蓝色，色调之间既有万绿湖水的澄澈柔美，又有恐龙IP自带的鲜活童趣，整体空间摒弃传统静态陈列，以场景化、互动化、体验化布局，让观众在移步换景间便能触摸到河源的生态底色与文化温度。
+
+”文博会河源馆相关负责人王燕霞接受中新网采访时表示，他们希望让独具特色的河源城市形象走进青年群体视野，提升城市知名度与美誉度。
+
+“展馆整体设计色彩明快、生动活泼，视觉冲击力很强，尤其是四小龙IP文创形象特别可爱，对小朋友吸引力特别大，也让我对河源文化产生了浓厚兴趣。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 22:11 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 22:00 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 22:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 22:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 22:20 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 22:16 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 22:01 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 22:21 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 22:09 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 22:08 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 22:08 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 22:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 22:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 22:16 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 22:09 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 22:06 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 22:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 22:23 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 22:32 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 22:26 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 22:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 22:27 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 22:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 22:17 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/799957395883.shtml)
-- 2026-06-29 22:10 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/39941952470.shtml)
-- 2026-06-29 22:08 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/12552777292.shtml)
-- 2026-06-29 22:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/08935.shtml)
-- 2026-06-29 22:12 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/013094338134.shtml)
-- 2026-06-29 22:15 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/82251085.shtml)
-- 2026-06-29 22:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/158593157.shtml)
-- 2026-06-29 22:07 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/952166374.shtml)
-- 2026-06-29 22:16 - [流金岁月](https://www.blog.minike.top/Article/details/6471854.shtml)
-- 2026-06-29 22:21 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/995225783.shtml)
-- 2026-06-29 22:18 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/463146.shtml)
-- 2026-06-29 22:16 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/06988.shtml)
-- 2026-06-29 22:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/28131.shtml)
-- 2026-06-29 22:15 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/2814951.shtml)
-- 2026-06-29 22:05 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/49951.shtml)
+- 2026-06-29 22:33 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/192292498.shtml)
+- 2026-06-29 22:29 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/3287613.shtml)
+- 2026-06-29 22:24 - [济南航空航天全面起势](https://www.share.kurohicncr.top/Article/details/86151.shtml)
+- 2026-06-29 22:33 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/8179479411.shtml)
+- 2026-06-29 22:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/4085564251.shtml)
+- 2026-06-29 22:22 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/85455.shtml)
+- 2026-06-29 22:29 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/930801582.shtml)
+- 2026-06-29 22:32 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/057859563757.shtml)
+- 2026-06-29 22:25 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/896858128.shtml)
+- 2026-06-29 22:28 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/3742717.shtml)
+- 2026-06-29 22:26 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/03437575.shtml)
+- 2026-06-29 22:17 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/7496648406.shtml)
+- 2026-06-29 22:34 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/449054505729.shtml)
+- 2026-06-29 22:11 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/567336.shtml)
+- 2026-06-29 22:34 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/256115531.shtml)

@@ -1,51 +1,61 @@
-# 外交部：望欧方与中方相向而行推动经贸合作
+# 美国股市：标普500指数连续第八周上涨 AI热潮与中东缓和预期提振
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解
+美国股市在长周末假期前录得上涨，受市场预期中东紧张局势有望缓和以及人工智能相关交易持续高涨的提振。 标普500指数收涨0.4%，连续第八周上涨，创2023年以来最长连涨。 纳斯达克100指数上涨0.2%，交易员继续涌入人工智能（AI）受益股及更广泛的科技主题板块。 VIX波动率指数徘徊在2月初以来最低水平附近，表明尽管伊朗冲突前景存在不确定性，市场情绪依然平稳。 股票投资者基本
 
 ## 正文
 
-新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。
+美国股市在长周末假期前录得上涨，受市场预期中东紧张局势有望缓和以及人工智能相关交易持续高涨的提振。
 
-中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。
+标普500指数收涨0.4%，连续第八周上涨，创2023年以来最长连涨。
 
-中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解决问题，推动中欧经贸合作更好地造福双方企业与民众。
+纳斯达克100指数上涨0.2%，交易员继续涌入人工智能（AI）受益股及更广泛的科技主题板块。
 
-(完)
+VIX波动率指数徘徊在2月初以来最低水平附近，表明尽管伊朗冲突前景存在不确定性，市场情绪依然平稳。
+
+股票投资者基本无视能源供应受扰可能重新推高通胀的担忧，而是更关注经济韧性迹象，以及AI相关支出在美国企业界持续扩大的趋势。
+
+Piper Sandler期权业务主管Daniel Kirsch表示，AI交易“仍受到青睐，投资者关注增长，而不是担忧通胀压力”。
+
+与Anthropic生态系统相关的一篮子股票自3月初以来已上涨逾50%。
+
+科技硬件和服务器公司股价延续近期涨势，投资者继续看好AI对该板块的强力推动。
 
 ## 相关推荐
 
-- 2026-06-29 22:22 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:13 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 22:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 22:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 22:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 22:00 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 22:16 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 22:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 22:03 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 22:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 22:09 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 22:17 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 22:07 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 22:19 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 22:18 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 22:14 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 22:14 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 22:09 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 22:23 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 22:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 22:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 22:26 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 22:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 22:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 22:06 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 22:25 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 22:07 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 22:30 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/22669.shtml)
-- 2026-06-29 22:22 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/2537998.shtml)
-- 2026-06-29 22:06 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/4754522858.shtml)
-- 2026-06-29 22:21 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/196865601.shtml)
-- 2026-06-29 22:10 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/50428716.shtml)
-- 2026-06-29 22:19 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/9566729.shtml)
-- 2026-06-29 22:17 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/011192.shtml)
-- 2026-06-29 22:20 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/934288438983.shtml)
-- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/31202240.shtml)
-- 2026-06-29 22:11 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/383208520.shtml)
-- 2026-06-29 22:12 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/265575494347.shtml)
-- 2026-06-29 22:28 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/28747.shtml)
-- 2026-06-29 22:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/50768.shtml)
-- 2026-06-29 22:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/14336.shtml)
-- 2026-06-29 22:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/863774.shtml)
+- 2026-06-29 22:24 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/939539101810.shtml)
+- 2026-06-29 22:36 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/64949729008.shtml)
+- 2026-06-29 22:29 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/756255054.shtml)
+- 2026-06-29 22:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/5923890275.shtml)
+- 2026-06-29 22:18 - [一见倾心](https://www.share.minike.top/Article/details/16139172.shtml)
+- 2026-06-29 22:06 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/21820109144.shtml)
+- 2026-06-29 22:18 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/454524387079.shtml)
+- 2026-06-29 22:35 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/3697360.shtml)
+- 2026-06-29 22:19 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/7450012398.shtml)
+- 2026-06-29 22:09 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/887301759.shtml)
+- 2026-06-29 22:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/737487823162.shtml)
+- 2026-06-29 22:26 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/7312367000.shtml)
+- 2026-06-29 22:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/912717891892.shtml)
+- 2026-06-29 22:28 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/42115953980.shtml)
+- 2026-06-29 22:17 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/890950985.shtml)

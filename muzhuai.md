@@ -1,60 +1,56 @@
-# 用化工废桶、拖鞋边角料做“回料” 总台曝光一次性牙刷制作乱象
+# 公众科学日“盛宴”上新：多维度全方位展示空天地一体化
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-近日，《财经调查》栏目接到消费者和业内人士的举报，市场上有一些牙刷生产企业涉嫌违规使用各类废旧、回收塑料的原料制作一次性牙刷，并大量销售进市场。 《财经调查》曝光小作坊翻新牙刷 劣质“回收料”牙刷流入市场 在扬州市江都区的一处小型废品收购站，场内堆积着各种废旧塑料，有装化学制剂的白桶、家电上拆下来的旧面板、电风扇的盖子、破旧的轮滑鞋…… 给废品称重的工作人员告诉记者，这些回收塑
+中新网北京5月24日电 (记者 孙自法)深空“星探之眼”雷达、“芯心相应”雷达、鹰眼计划、空天灵眸、全息地球、数字地球……中国科学院空天信息创新研究院(空天院)公众科学日活动5月24日“新鲜出炉”，以一场多维度、全方位展示空天地一体化的科普“盛宴”招待社会大众。当天，北京市科技周也同步启幕。 中国科学院空天院党委书记、副院长张兵院士致辞表示，2026年是该院建院70周年，中国空
 
 ## 正文
 
-近日，《财经调查》栏目接到消费者和业内人士的举报，市场上有一些牙刷生产企业涉嫌违规使用各类废旧、回收塑料的原料制作一次性牙刷，并大量销售进市场。
+中新网北京5月24日电 (记者 孙自法)深空“星探之眼”雷达、“芯心相应”雷达、鹰眼计划、空天灵眸、全息地球、数字地球……中国科学院空天信息创新研究院(空天院)公众科学日活动5月24日“新鲜出炉”，以一场多维度、全方位展示空天地一体化的科普“盛宴”招待社会大众。
 
-《财经调查》曝光小作坊翻新牙刷 劣质“回收料”牙刷流入市场 在扬州市江都区的一处小型废品收购站，场内堆积着各种废旧塑料，有装化学制剂的白桶、家电上拆下来的旧面板、电风扇的盖子、破旧的轮滑鞋…… 给废品称重的工作人员告诉记者，这些回收塑料经过简单粉碎后，会流向各类塑料制品加工厂，其中相当一部分专门用来制作牙刷。
+当天，北京市科技周也同步启幕。
 
-按这位工作人员的说法，装过洗涤剂、尿素的化工废桶，沾染各类残留物质，全程不做清洗就送到外面直接粉碎加工。
+中国科学院空天院党委书记、副院长张兵院士致辞表示，2026年是该院建院70周年，中国空天事业的蓬勃发展，离不开一代又一代人的接续奋斗，更需要少年力量接续传承。
 
-只要加入颜料染色，就能解决废旧塑料原料外观脏乱的问题。
+该院将持续丰富活动载体、创新展现形式，助力广大公众沉浸式领略智能科技魅力。
 
-记者跟随一辆收废品的三轮车，来到另一处废品收购站，地上摆满了回收来的牙刷。
+此次公众科学日活动以中国科学院空天院北京新技术园区为引领，统筹联动京外园区及多个站点协同开放，设置大科学装置与展厅参观、空天科普课堂、专题科普讲座、趣味互动体验、科学集市五大特色板块，特别是聚焦低空科技与脑机接口两大前沿热门领域，深度整合科教融合优质资源，广泛吸引公众参与。
 
-只见一位工作人员坐在小板凳上用砍刀，把牙刷头一个个砍掉。
+活动提供了丰富多彩的沉浸式参观体验，公众可走进科技展厅，追寻科研先辈的奋斗足迹，领略空天科技的辉煌成果；近距离触摸科技创新的脉搏，深入了解生活中的雷达、波知万物、鹰眼计划等科创项目，以及火星车、空天灵眸、全息地球等前沿科研成果；沉浸式学习可持续发展数字地球演示；登上新舟60遥感飞机样机体验航空科技；近距离观摩曾飞跃珠峰的“极目一号”浮空艇。
 
-留下的旧刷杆，他们会按照颜色分拣，随后送往加工厂打碎，再次制成新的牙刷柄。
+特色空天课堂上，不仅有智能驾驶、浮空艇和医疗电子等课程，更以项目任务为驱动，鼓励青少年在实践中探索科技、收获成长。
 
-用拖鞋边角料做牙刷 小作坊现场触目惊心 在江都区一个民房的后院，记者看到院子里散落着各种已经加工好的一次性口罩，花花绿绿的包在塑料袋里都没有拆封。
+科普讲座既有专家主题报告，也有趣味十足的科普实验展演。
 
 ## 相关推荐
 
-- 2026-06-29 22:24 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 22:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 22:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 22:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 22:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 22:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 22:01 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 22:12 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 22:04 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 22:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 22:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 22:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 22:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 22:05 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 22:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 22:35 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 22:31 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 22:33 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 22:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 22:29 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 22:24 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 22:13 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 22:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 22:12 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/3323921.shtml)
-- 2026-06-29 22:10 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/7782131593.shtml)
-- 2026-06-29 22:21 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/1200961765.shtml)
-- 2026-06-29 22:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/488385.shtml)
-- 2026-06-29 22:24 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/22187154.shtml)
-- 2026-06-29 22:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/2005956.shtml)
-- 2026-06-29 22:10 - [时光音乐会](http://www.share.minike.top/Article/details/93315.shtml)
-- 2026-06-29 22:08 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/266315.shtml)
-- 2026-06-29 22:09 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/46354938.shtml)
-- 2026-06-29 22:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/03012774.shtml)
-- 2026-06-29 22:16 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/870432.shtml)
-- 2026-06-29 22:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/301445933812.shtml)
-- 2026-06-29 22:03 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/3643508691.shtml)
-- 2026-06-29 22:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/621184245628.shtml)
-- 2026-06-29 22:26 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/43880823040.shtml)
+- 2026-06-29 22:20 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/805006023936.shtml)
+- 2026-06-29 22:22 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/8302887.shtml)
+- 2026-06-29 22:33 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/822274233.shtml)
+- 2026-06-29 22:22 - [我和我的家乡](https://www.blog.minike.top/Article/details/2950721365.shtml)
+- 2026-06-29 22:14 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/5358592178.shtml)
+- 2026-06-29 22:27 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/006529527899.shtml)
+- 2026-06-29 22:24 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/87882.shtml)
+- 2026-06-29 22:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/91388.shtml)
+- 2026-06-29 22:20 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/41969847984.shtml)
+- 2026-06-29 22:11 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/898684611174.shtml)
+- 2026-06-29 22:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/6723108.shtml)
+- 2026-06-29 22:29 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/164842.shtml)
+- 2026-06-29 22:19 - [啊啊啊](https://www.blog.minike.top/Article/details/598360519212.shtml)
+- 2026-06-29 22:09 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/113366.shtml)
+- 2026-06-29 22:15 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/95228.shtml)

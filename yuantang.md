@@ -1,59 +1,59 @@
-# 摩根士丹利：Unity AI与创作业务变现潜力巨大，中国市场势头强劲
+# 新高盛宴！京东方A二连板，PCB龙头鹏鼎控股一字涨停！华宝基金电子ETF豪涨4.36%，续创历史新高！
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-摩根士丹利近日举办了Unity Software首席财务官Jarrod Yahes与投资者的系列会议，并在会后发布报告，强调Unity在人工智能、创作业务变现以及中国市场增长等方面的积极进展。该行维持对Unity的超配评级和35美元的目标股价。 摩根士丹利分析师指出，投资者对Unity runtime数据的长期增长潜力信心增强。作为Unity的核心差异化优势，runtime数据
+周五（5月22日）超592亿主力资金涌入电子板块，板块吸金额高居31个申万一级行业首位，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅最高上探4.47%，收涨4.36%，收盘涨幅再创历史新高！ETF成份股京东方A、胜宏科技、沪电股份、东山精密包揽A股吸金榜前四。 成份股掀涨停潮，面板龙头京东方A二连板，PCB龙头鹏鼎控股、生益科技、深南电路、沪电股份4股涨停，三环
 
 ## 正文
 
-摩根士丹利近日举办了Unity Software首席财务官Jarrod Yahes与投资者的系列会议，并在会后发布报告，强调Unity在人工智能、创作业务变现以及中国市场增长等方面的积极进展。
+周五（5月22日）超592亿主力资金涌入电子板块，板块吸金额高居31个申万一级行业首位，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅最高上探4.47%，收涨4.36%，收盘涨幅再创历史新高！
 
-该行维持对Unity的超配评级和35美元的目标股价。
+ETF成份股京东方A、胜宏科技、沪电股份、东山精密包揽A股吸金榜前四。
 
-摩根士丹利分析师指出，投资者对Unity runtime数据的长期增长潜力信心增强。
+成份股掀涨停潮，面板龙头京东方A二连板，PCB龙头鹏鼎控股、生益科技、深南电路、沪电股份4股涨停，三环集团、长电科技、兆易创新等多股刷新上市高点。
 
-作为Unity的核心差异化优势，runtime数据在测试中展现出显著的增量效益，有望在未来多年推动公司实现超越市场平均水平的增长。
+电子板块今日为何强势上涨？
 
-广告业务方面，Unity正致力于缩小与领先同行的广告转化率差距。
+细分方向来看： 1、PCB方面，英伟达下一代Rubin平台将采用正交背板架构，通过超高层数（超100层）、M9级材料的PCB替代铜缆，推动单机PCB价值量翻增超两倍。
 
-分析师认为，如果Unity能够在这一领域取得进展，其广告收入可能增长四到五倍。
+国金证券指出，AI短期、中期的需求强劲，目前多家AI-PCB公司订单强劲，满产满销，正在大力扩产，业绩高增长有望持续*。
 
-不过，这需要对现有广告模式进行重大且艰难的改进。
+2、面板方面，京东方A与康宁签署三年期合作备忘录，携手布局玻璃基封装载板等四大前沿赛道。
 
-创作业务板块表现稳健。
+业内人士指出，此举点燃“玻璃基板+AI封装”想象力，市场真正交易的不是短期行情表现，而是面板龙头切入先进封装的可能性。
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 22:09 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 22:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 22:25 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 22:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 22:22 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 22:17 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 22:03 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 22:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 22:08 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 22:03 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 22:21 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 22:16 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 22:17 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 22:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 22:14 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 22:24 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 22:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 22:24 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 22:07 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 22:12 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 22:16 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 22:06 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 22:14 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 22:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 22:08 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:28 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/30399876194.shtml)
-- 2026-06-29 22:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/434122296.shtml)
-- 2026-06-29 22:10 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/13784.shtml)
-- 2026-06-29 22:06 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/37659.shtml)
-- 2026-06-29 22:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/11648197383.shtml)
-- 2026-06-29 22:10 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/194856.shtml)
-- 2026-06-29 22:10 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/216255.shtml)
-- 2026-06-29 22:27 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/5394311067.shtml)
-- 2026-06-29 22:12 - [炽夏](https://www.blog.minike.top/Article/details/105916.shtml)
-- 2026-06-29 22:16 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/95448591.shtml)
-- 2026-06-29 22:07 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/757509360642.shtml)
-- 2026-06-29 22:09 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/2995163028.shtml)
-- 2026-06-29 22:30 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/29009701.shtml)
-- 2026-06-29 22:24 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/7967699340.shtml)
-- 2026-06-29 22:24 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/19810359.shtml)
+- 2026-06-29 22:07 - [记者：预计热火将追求小哈达威和康利](https://www.share.minike.top/Article/details/416405803.shtml)
+- 2026-06-29 22:13 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/2457446757.shtml)
+- 2026-06-29 22:19 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/919776453801.shtml)
+- 2026-06-29 22:17 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/80182786.shtml)
+- 2026-06-29 22:07 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/9644228.shtml)
+- 2026-06-29 22:24 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/23075.shtml)
+- 2026-06-29 22:30 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/650360597.shtml)
+- 2026-06-29 22:20 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/030586463.shtml)
+- 2026-06-29 22:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/95659531.shtml)
+- 2026-06-29 22:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/233603328.shtml)
+- 2026-06-29 22:34 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/16152011.shtml)
+- 2026-06-29 22:09 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/19488608.shtml)
+- 2026-06-29 22:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/08783.shtml)
+- 2026-06-29 22:09 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/125137.shtml)
+- 2026-06-29 22:35 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/0309059862.shtml)

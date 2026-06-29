@@ -1,44 +1,56 @@
-# 印尼羽毛球公开赛：刘圣书谭宁晋级印尼公开赛女双四强
+# 宁夏警方破获非法狩猎案 现场查获野生动物21只
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 15:23 来源：央视新闻 责任编辑：【王祎】
+中新网银川5月22日电 (记者 杨迪)记者22日从宁夏吴忠市公安局获悉，当地警方近日破获1起非法狩猎刑事案件，有力打击了破坏野生动物资源的违法犯罪行为。 据了解，民警通过线索摸排、实地核查、精准布控，锁定并抓获3名犯罪嫌疑人。现场查获国家二级保护动物猫头鹰1只，“三有”保护动物环颈雉7只、石鸡13只，共计21只野生动物。依法扣押猎套、铁丝钩、鸟笼等作案工具若干。目前，3名犯罪嫌
 
 ## 正文
 
-发布时间：2026年06月06日 15:23 来源：央视新闻 责任编辑：【王祎】
+中新网银川5月22日电 (记者 杨迪)记者22日从宁夏吴忠市公安局获悉，当地警方近日破获1起非法狩猎刑事案件，有力打击了破坏野生动物资源的违法犯罪行为。
+
+据了解，民警通过线索摸排、实地核查、精准布控，锁定并抓获3名犯罪嫌疑人。
+
+现场查获国家二级保护动物猫头鹰1只，“三有”保护动物环颈雉7只、石鸡13只，共计21只野生动物。
+
+依法扣押猎套、铁丝钩、鸟笼等作案工具若干。
+
+目前，3名犯罪嫌疑人已被依法采取刑事强制措施，案件正在进一步办理中。
+
+野生动物是维护生态平衡、保护生物多样性的重要资源。
+
+猫头鹰作为捕鼠能手，对防控农田鼠害、减少作物损失具有天然作用；环颈雉和石鸡则通过取食昆虫和杂草，帮助维持草原生态系统的稳定。
+
+它们均属于受法律保护的陆生野生动物。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 22:05 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 22:28 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 22:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 22:08 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 22:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 22:00 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 22:22 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 22:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 22:19 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 22:12 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 22:23 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 22:26 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 22:33 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 22:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 22:17 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 22:26 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 22:23 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 22:32 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 22:33 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 22:07 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 22:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/671753474.shtml)
-- 2026-06-29 22:09 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/51096411.shtml)
-- 2026-06-29 22:11 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/8841456.shtml)
-- 2026-06-29 22:22 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/70054832779.shtml)
-- 2026-06-29 22:28 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/754593220049.shtml)
-- 2026-06-29 22:23 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/175588.shtml)
-- 2026-06-29 22:05 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/91082878.shtml)
-- 2026-06-29 22:18 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/4297764.shtml)
-- 2026-06-29 22:09 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/8709798630.shtml)
-- 2026-06-29 22:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/5136788211.shtml)
-- 2026-06-29 22:23 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/618739.shtml)
-- 2026-06-29 22:27 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/692081207544.shtml)
-- 2026-06-29 22:23 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/727646651528.shtml)
-- 2026-06-29 22:01 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/5118993.shtml)
-- 2026-06-29 22:05 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/664219.shtml)
+- 2026-06-29 22:15 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/8480498.shtml)
+- 2026-06-29 22:20 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/911713073.shtml)
+- 2026-06-29 22:06 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/655807.shtml)
+- 2026-06-29 22:36 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/758302638.shtml)
+- 2026-06-29 22:29 - [沙丘](https://www.blog.minike.top/Article/details/631837794.shtml)
+- 2026-06-29 22:32 - [起风了](http://www.share.minike.top/Article/details/7606868201.shtml)
+- 2026-06-29 22:07 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/63118843161.shtml)
+- 2026-06-29 22:17 - [女生学医适合选什么专业](https://www.share.minike.top/Article/details/69551636263.shtml)
+- 2026-06-29 22:29 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/364048591453.shtml)
+- 2026-06-29 22:22 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/50051.shtml)
+- 2026-06-29 22:25 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/089500.shtml)
+- 2026-06-29 22:06 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/187601.shtml)
+- 2026-06-29 22:22 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/916225403.shtml)
+- 2026-06-29 22:26 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/40554848514.shtml)
+- 2026-06-29 22:17 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/68077958730.shtml)

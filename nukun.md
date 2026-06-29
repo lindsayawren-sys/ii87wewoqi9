@@ -1,59 +1,42 @@
-# 活跃股揭秘：43只股周换手率超100%
+# 数聚微光，爱润无疆——2025“数爱无疆”数字公益故事案例发布
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-沪指本周下跌1.00%，其中，43股成交活跃，周换手率超过100%。证券时报·数据宝统计显示，本周共有43只个股换手率超过100%；换手率在50%~100%的有282只；换手率在10%~50%的有2572只。分行业看，本周换手率100%以上个股中，电子行业个股最多，有11只个股上榜；机械设备、电力设备等紧随其后，分别有7只、6只个股上榜。龙辰科技是本周换手率最高的个股，一周换手
+发布时间：2026年05月22日 16:41 来源：中国新闻网 我们始终在探寻 何为跨越山海的温暖 何为永不设限的热爱 它在黑暗中，助你寻光 不辜负每一缕微小的期盼 在这场温暖的征途里 答案就藏在 每一次前行与善意交织的路上 关心成长，更托举希望 用数字的触角 去抵达脚步无法丈量的远方 在0与1翻涌的浪潮中 与无数脆弱和坚韧，温柔相撞 永不中断的连接，拓展永续的边界 让公平普惠
 
 ## 正文
 
-沪指本周下跌1.00%，其中，43股成交活跃，周换手率超过100%。
-
-证券时报·数据宝统计显示，本周共有43只个股换手率超过100%；换手率在50%~100%的有282只；换手率在10%~50%的有2572只。
-
-分行业看，本周换手率100%以上个股中，电子行业个股最多，有11只个股上榜；机械设备、电力设备等紧随其后，分别有7只、6只个股上榜。
-
-龙辰科技是本周换手率最高的个股，一周换手率为253.90%，一周股价上涨24.04%，该股本周因日换手率达20%、最近3个有成交的交易日以内收盘价涨跌幅偏离值累计达到+40%(-40%)等3次登陆龙虎榜，买卖居前营业部中，机构专用席位净卖出1823.74万元，营业部累计净买入4564.46万元。
-
-资金流向上，该股本周主力资金净买入4564.46万元。
-
-其次是新天力，一周换手率为241.81%，一周股价下跌32.57%，该股本周因日换手率达20%、日涨跌幅达到20%等5次登陆龙虎榜，买卖居前营业部中，机构专用席位净卖出28.69万元，营业部累计净卖出2163.79万元。
-
-资金流向上，该股本周主力资金净卖出2163.79万元。
-
-信音电子本周换手率211.67%，位居榜单第三，一周股价上涨13.23%，该股本周因日换手率达30%、日收盘价涨幅达15%等5次登陆龙虎榜，买卖居前营业部中，机构专用席位净卖出1.08亿元，营业部累计净卖出1898.96万元。
+发布时间：2026年05月22日 16:41 来源：中国新闻网 我们始终在探寻 何为跨越山海的温暖 何为永不设限的热爱 它在黑暗中，助你寻光 不辜负每一缕微小的期盼 在这场温暖的征途里 答案就藏在 每一次前行与善意交织的路上 关心成长，更托举希望 用数字的触角 去抵达脚步无法丈量的远方 在0与1翻涌的浪潮中 与无数脆弱和坚韧，温柔相撞 永不中断的连接，拓展永续的边界 让公平普惠，从愿景走向可能 为了每一个被遗忘的角落 数字技术持续迭代 赋予世界向上生长的力量 那些曾遥不可及的梦想 终被数字之手紧紧握住 绽放成跨越国界的花 没有什么比无声守护更深切的见证 技术与爱在孤岛之间，架起桥梁 唤醒沉睡的新生，蓄力乘风 托起更多生命，飞往开阔的远方 若要问什么是“数爱无疆” 是过去在填补的鸿沟 是现在仍在传递的温度 是往后不会熄灭的微光 是一群人汇聚千万人的期许
 
 ## 相关推荐
 
-- 2026-06-29 22:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 22:20 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 22:00 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 22:18 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 22:27 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 22:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 22:11 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 22:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 22:08 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 22:29 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 22:16 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 22:16 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 22:13 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 22:18 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 22:29 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 22:13 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 22:09 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 22:34 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 22:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 22:09 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 22:19 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 22:18 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 22:18 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/112515750498.shtml)
-- 2026-06-29 22:21 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/79597872.shtml)
-- 2026-06-29 22:26 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/316881.shtml)
-- 2026-06-29 22:18 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/677594034113.shtml)
-- 2026-06-29 22:07 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/45668538.shtml)
-- 2026-06-29 22:02 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/1300797.shtml)
-- 2026-06-29 22:29 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/594500.shtml)
-- 2026-06-29 22:04 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/65795023.shtml)
-- 2026-06-29 22:09 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/28928460631.shtml)
-- 2026-06-29 22:07 - [第一炉香](https://www.blog.minike.top/Article/details/30294164245.shtml)
-- 2026-06-29 22:28 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/55269.shtml)
-- 2026-06-29 22:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/09331476575.shtml)
-- 2026-06-29 22:13 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/964948.shtml)
-- 2026-06-29 22:23 - [斗破苍穹](http://www.share.minike.top/Article/details/50650592452.shtml)
-- 2026-06-29 22:00 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/65350287692.shtml)
+- 2026-06-29 22:22 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/252501361.shtml)
+- 2026-06-29 22:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/49958676282.shtml)
+- 2026-06-29 22:35 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/47330593049.shtml)
+- 2026-06-29 22:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/80233.shtml)
+- 2026-06-29 22:17 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/455732360665.shtml)
+- 2026-06-29 22:08 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/748368173.shtml)
+- 2026-06-29 22:21 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/852743.shtml)
+- 2026-06-29 22:22 - [任泽平：AI浪潮刚刚开始](http://www.share.minike.top/Article/details/69693560957.shtml)
+- 2026-06-29 22:16 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/402925.shtml)
+- 2026-06-29 22:16 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/4484647.shtml)
+- 2026-06-29 22:27 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/88908.shtml)
+- 2026-06-29 22:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/78430.shtml)
+- 2026-06-29 22:32 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/86499462276.shtml)
+- 2026-06-29 22:22 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/8598492.shtml)
+- 2026-06-29 22:30 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/52019.shtml)

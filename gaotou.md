@@ -1,56 +1,55 @@
-# 北部战区海军某基地组织新兵环岛拉练暨授衔仪式
+# 老虎回应遭证监会立案：将严格按照监管要求积极配合相关工作，目前公司各项业务运营正常
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月08日 16:52 来源：中国新闻网 近日，北部战区海军某基地组织新兵环岛拉练暨授衔仪式。 凌晨4时，紧急集合哨声响起，新兵们闻令而动，部队踏着夜色出发，数百米的迷彩队伍以常行军和急行军穿插的方式，穿行在蜿蜒陡峭的环岛山林间。在12公里，近3个小时的拉练后，新兵们在刘公岛黄岛炮台遗址前迎接属于他们的“毕业典礼”——授衔仪式。“到高山海岛去，到舰艇部队去
+专题：证监会严肃查处老虎富途长桥非法跨境展业案件 今日，证监会宣布，对Tiger Brokers （NZ） Limited（以下简称老虎）、富途证券国际（香港）有限公司（以下简称富途）、长桥证券（香港）有限公司（以下简称长桥）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。老虎、富途、长桥境内外相关主体未经核准，未取得经营证券经纪业务许可、经营证券融资
 
 ## 正文
 
-发布时间：2026年06月08日 16:52 来源：中国新闻网 近日，北部战区海军某基地组织新兵环岛拉练暨授衔仪式。
+专题：证监会严肃查处老虎富途长桥非法跨境展业案件 今日，证监会宣布，对Tiger Brokers （NZ） Limited（以下简称老虎）、富途证券国际（香港）有限公司（以下简称富途）、长桥证券（香港）有限公司（以下简称长桥）境内外相关主体在境内非法经营证券业务等行为立案调查并作出行政处罚事先告知。
 
-凌晨4时，紧急集合哨声响起，新兵们闻令而动，部队踏着夜色出发，数百米的迷彩队伍以常行军和急行军穿插的方式，穿行在蜿蜒陡峭的环岛山林间。
+老虎、富途、长桥境内外相关主体未经核准，未取得经营证券经纪业务许可、经营证券融资融券业务许可，在境内开展证券交易营销推广、处理交易指令等相关证券业务服务并获取相关收益，违反了《证券法》第一百二十条的规定，构成非法经营证券业务。
 
-在12公里，近3个小时的拉练后，新兵们在刘公岛黄岛炮台遗址前迎接属于他们的“毕业典礼”——授衔仪式。
+此外，三家机构境内外相关主体还违反了《证券投资基金法》第九十七条、《期货和衍生品法》第六十三条的规定，构成非法从事公募基金销售业务、非法从事期货经纪业务。
 
-“到高山海岛去，到舰艇部队去，到祖国最需要的地方去，坚决服从组织分配。
+老虎方面回应记者称，“公司已注意到相关通知，将严格按照监管要求积极配合相关工作，目前公司各项业务运营正常。
 
-” 新兵们纷纷表示，以崭新姿态整装待发，以昂扬斗志扎根岗位，立志在万里海疆书写无愧于时代的青春答卷。
+老虎始终将合规置于首位，并持续与监管机构保持密切沟通。
 
-(王远方 孙海 制作 卢晓娜 视频来源 北部战区海军） 责任编辑：【刘湃】
+”（蓝鲸新闻）责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 22:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 22:30 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 22:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 22:04 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 22:16 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 22:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 22:11 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 22:06 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 22:01 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 22:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 22:22 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 22:23 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 22:26 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 22:32 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 22:17 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 22:13 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 22:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 22:31 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 22:20 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 22:08 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 22:19 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 22:11 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 22:06 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 22:27 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 22:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 22:15 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/6077710762.shtml)
-- 2026-06-29 22:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/5446254.shtml)
-- 2026-06-29 22:14 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/463304.shtml)
-- 2026-06-29 22:01 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/70954139362.shtml)
-- 2026-06-29 22:26 - [乔家的儿女](http://www.blog.minike.top/Article/details/884160.shtml)
-- 2026-06-29 22:09 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/21210647.shtml)
-- 2026-06-29 22:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/661809202940.shtml)
-- 2026-06-29 22:14 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/55966.shtml)
-- 2026-06-29 22:22 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/3495543.shtml)
-- 2026-06-29 22:26 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/99704992216.shtml)
-- 2026-06-29 22:23 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/8110847.shtml)
-- 2026-06-29 22:08 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/518075789.shtml)
-- 2026-06-29 22:03 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/33754.shtml)
-- 2026-06-29 22:16 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/792872103.shtml)
-- 2026-06-29 22:22 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/15655421473.shtml)
+- 2026-06-29 22:17 - [《恋与深空》回应争议](http://www.blog.kurohicncr.top/Article/details/44587460.shtml)
+- 2026-06-29 22:21 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/567623344.shtml)
+- 2026-06-29 22:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/746680963.shtml)
+- 2026-06-29 22:33 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/72092.shtml)
+- 2026-06-29 22:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/645096.shtml)
+- 2026-06-29 22:13 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/3205480677.shtml)
+- 2026-06-29 22:20 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/4814785.shtml)
+- 2026-06-29 22:13 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/266043439522.shtml)
+- 2026-06-29 22:31 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/628248067645.shtml)
+- 2026-06-29 22:27 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/71278007.shtml)
+- 2026-06-29 22:08 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/6373243166.shtml)
+- 2026-06-29 22:08 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/2158885.shtml)
+- 2026-06-29 22:29 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/0144368.shtml)
+- 2026-06-29 22:08 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/76048115.shtml)
+- 2026-06-29 22:12 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/64781.shtml)

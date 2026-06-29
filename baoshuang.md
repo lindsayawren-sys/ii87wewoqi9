@@ -1,58 +1,61 @@
-# 长城基金刘疆：市场或继续保持积极，科技成长方向仍有望是主线
+# 香港国际机场二号客运大楼5月27日启用 15家航司分批进驻
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近期，强势已久的科技成长出现调整迹象。在板块拥挤度处于高位的当下，短期市场或存在风格再平衡的需求；与此同时，AI算力产业趋势仍在，美股财报整体偏乐观带动海外科技情绪上线，A股仍在等待新的业绩催化。 随着市场波动率放大，科技行情后续持续性如何？又该如何挖掘更具性价比的投资机会？一起来看长城基金“科技+”基金经
+中新社香港5月22日电 (记者 刘玥晴)香港机场管理局(简称“香港机管局”)机场运行执行总监姚兆聪22日在媒体简报会上介绍，香港国际机场二号客运大楼离港设施将于今年5月27日启用，旅客在该客运大楼办理登机手续和安检后，需通过客运接驳系统前往一号客运大楼登机。 姚兆聪指出，5月27日至6月10日，15家航空公司会分批进驻二号客运大楼，包括香港航空、海南航空、柬埔寨航空、曼谷航空等
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社香港5月22日电 (记者 刘玥晴)香港机场管理局(简称“香港机管局”)机场运行执行总监姚兆聪22日在媒体简报会上介绍，香港国际机场二号客运大楼离港设施将于今年5月27日启用，旅客在该客运大楼办理登机手续和安检后，需通过客运接驳系统前往一号客运大楼登机。
 
-近期，强势已久的科技成长出现调整迹象。
+姚兆聪指出，5月27日至6月10日，15家航空公司会分批进驻二号客运大楼，包括香港航空、海南航空、柬埔寨航空、曼谷航空等。
 
-在板块拥挤度处于高位的当下，短期市场或存在风格再平衡的需求；与此同时，AI算力产业趋势仍在，美股财报整体偏乐观带动海外科技情绪上线，A股仍在等待新的业绩催化。
+该客运大楼现阶段可承载的年客运量为3000万人次，与一号客运大楼每年共可承载的客流量将达1亿人次，且二号客运大楼已预留扩建空间，日后若有需要可提升年承载量至5000万人次。
 
-随着市场波动率放大，科技行情后续持续性如何？
+姚兆聪介绍，二号客运大楼内设108个值机服务柜台、68个自助托运行李柜台，由香港机管局自主研发，操作简单便捷，旅客可选择自助行李托运和手机特快行李托运。
 
-又该如何挖掘更具性价比的投资机会？
+姚兆聪表示，一号和二号客运大楼紧密相连、互通互联，共享交通配套网络。
 
-一起来看长城基金“科技+”基金经理刘疆最新研判。
+二号客运大楼登机廊桥预计于2027年底全部完工并投入使用，届时该客运大楼出发区域将全面启用。
 
-刘疆表示，当前市场呈现几个特征：一是情绪积极，成交量持续处于高位；二是分化剧烈，科技成长强势，顺周期和主题方向疲弱；三是交易持续向强势资产集中。
+在停车配套设施方面，姚兆聪称，在原有一号、四号停车场的基础上，二号客运大楼新增三号停车场，提供约1000个车位，配备逾80个新能源车充电桩。
 
-市场的整体状态符合我们持续看好科技成长方向的判断，但过于极致的分化也并不完全合理。
+香港机管局工程及设施维护管理执行总监梁景然在会上提到，二号客运大楼的建筑设计体现了绿色和可持续发展理念，涵盖节能照明，使用高效能隔热玻璃，合理沿用原有建筑结构扩建、减少建筑垃圾产生等多项举措。
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 22:09 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 22:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 22:19 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 22:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 22:21 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 22:14 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 22:06 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 22:06 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 22:28 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 22:18 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 22:08 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 22:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 22:10 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 22:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 22:34 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 22:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 22:08 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 22:10 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 22:09 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 22:11 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 22:24 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 22:27 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 22:32 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 22:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 22:34 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [毒液2](https://www.share.minike.top/Article/details/160392908.shtml)
-- 2026-06-29 22:14 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/7960448482.shtml)
-- 2026-06-29 22:20 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/1661050960.shtml)
-- 2026-06-29 22:04 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/93538652.shtml)
-- 2026-06-29 22:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/0255535.shtml)
-- 2026-06-29 22:08 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/312480993.shtml)
-- 2026-06-29 22:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/700133.shtml)
-- 2026-06-29 22:04 - [起风了](https://www.share.kurohicncr.top/Article/details/890338.shtml)
-- 2026-06-29 22:09 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/21734243598.shtml)
-- 2026-06-29 22:22 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/125453914346.shtml)
-- 2026-06-29 22:09 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/33474330.shtml)
-- 2026-06-29 22:24 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/1131085.shtml)
-- 2026-06-29 22:20 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/5095142347.shtml)
-- 2026-06-29 22:13 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/98880663588.shtml)
-- 2026-06-29 22:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/48641.shtml)
+- 2026-06-29 22:18 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/26074423218.shtml)
+- 2026-06-29 22:09 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/663774.shtml)
+- 2026-06-29 22:14 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/01296.shtml)
+- 2026-06-29 22:29 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/57085764577.shtml)
+- 2026-06-29 22:21 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/006995460506.shtml)
+- 2026-06-29 22:14 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/6704477.shtml)
+- 2026-06-29 22:27 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/71565392846.shtml)
+- 2026-06-29 22:09 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/622574850.shtml)
+- 2026-06-29 22:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/827290265.shtml)
+- 2026-06-29 22:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/809636863087.shtml)
+- 2026-06-29 22:32 - [85花告别古偶](https://www.blog.minike.top/Article/details/019161098.shtml)
+- 2026-06-29 22:12 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/434444864730.shtml)
+- 2026-06-29 22:24 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/88705616.shtml)
+- 2026-06-29 22:19 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/129863606.shtml)
+- 2026-06-29 22:33 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/2212927704.shtml)

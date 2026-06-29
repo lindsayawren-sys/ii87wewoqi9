@@ -1,60 +1,57 @@
-# 拉升超34%，920578，股价反转！脑机接口技术取得新突破，多只概念股砸出“深坑”
+# 京沈深化旅居康养合作 北京银发旅游团抵达沈阳
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-脑机接口技术不断取得新突破。 科技题材早盘大幅波动 今日（6月8日）早盘，A股各大主要指数开盘大幅走低，上证指数、深证成指、创业板指开盘分别下跌1.26%、2.49%、2.83%。个股方面，今日开盘时超5200股飘绿，科技类题材抛压严重。 盘中工业软件、外骨骼机器人、减速器、工业母机、玻璃基板等题材逆市走强，其他科技题材跌幅也明显收窄。 截至上午收盘，不少股票由绿盘翻红。其中巨
+中新网沈阳5月22日电 (李晛)5月21日，一场充满东北民俗特色的欢迎仪式在沈阳北站举行，仪式由沈阳市民政局、市文旅局、市老龄办联合举办，迎接来自北京的首个银发旅游团，助力京沈两地旅居康养合作走深走实。 中午12时许，高铁抵达沈阳，东北大秧歌、锣鼓表演轮番上阵。沈阳市相关部门工作人员走上前，与大家亲切交谈，了解他们的身体状况与出行体验，并送上精心准备的伴手礼。“一下车就感受到沈
 
 ## 正文
 
-脑机接口技术不断取得新突破。
+中新网沈阳5月22日电 (李晛)5月21日，一场充满东北民俗特色的欢迎仪式在沈阳北站举行，仪式由沈阳市民政局、市文旅局、市老龄办联合举办，迎接来自北京的首个银发旅游团，助力京沈两地旅居康养合作走深走实。
 
-科技题材早盘大幅波动 今日（6月8日）早盘，A股各大主要指数开盘大幅走低，上证指数、深证成指、创业板指开盘分别下跌1.26%、2.49%、2.83%。
+中午12时许，高铁抵达沈阳，东北大秧歌、锣鼓表演轮番上阵。
 
-个股方面，今日开盘时超5200股飘绿，科技类题材抛压严重。
+沈阳市相关部门工作人员走上前，与大家亲切交谈，了解他们的身体状况与出行体验，并送上精心准备的伴手礼。
 
-盘中工业软件、外骨骼机器人、减速器、工业母机、玻璃基板等题材逆市走强，其他科技题材跌幅也明显收窄。
+“一下车就感受到沈阳人的热情，太暖心了！
 
-截至上午收盘，不少股票由绿盘翻红。
+”一位来自北京的老年游客感叹道。
 
-其中巨能股份（920578）拉升幅度最高，该股今日开盘下跌3.43%，约10：07封住“30cm”的涨停板，拉升幅度超过34%。
+旅行团一行20余人，将在沈阳开启为期5天的康养之旅。
 
-拉升幅度靠前的还有万通液压、民士达、科威尔、唯特偶、节能铁汉、赛微微电等。
+行程涵盖沈阳故宫、张学良旧居、小河沿早市、清河半岛温泉等文旅、市井、休闲地标，让北京长者沉浸式感受沈阳历史文化、城市烟火与康养服务，全方位展现沈阳高品质颐养城市的独特魅力。
 
-针对当前市场走势，中泰证券判断，费城半导体指数暴跌对A股算力链或形成短期情绪压制，但A股科技板块的核心独立运行逻辑并未改变。
+“这次北京银发旅游团的顺利接待，正是京沈旅居康养合作的一次生动实践。
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 22:09 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 22:22 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 22:25 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 22:02 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 22:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 22:14 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 22:17 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 22:14 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 22:28 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 22:28 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 22:12 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 22:20 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 22:07 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 22:35 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 22:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 22:12 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 22:31 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 22:22 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 22:20 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 22:35 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 22:30 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 22:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 22:07 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 22:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/241452603.shtml)
-- 2026-06-29 22:29 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/292702219854.shtml)
-- 2026-06-29 22:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/817107184076.shtml)
-- 2026-06-29 22:08 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/10571480.shtml)
-- 2026-06-29 22:08 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/23672.shtml)
-- 2026-06-29 22:19 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/71383.shtml)
-- 2026-06-29 22:11 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/4252307183.shtml)
-- 2026-06-29 22:25 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/603562915350.shtml)
-- 2026-06-29 22:22 - [金刚川](http://www.share.minike.top/Article/details/2680713010.shtml)
-- 2026-06-29 22:07 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/451046770.shtml)
-- 2026-06-29 22:02 - [绘画区你赢了](http://www.share.minike.top/Article/details/7012720495.shtml)
-- 2026-06-29 22:08 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/310050817.shtml)
-- 2026-06-29 22:03 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/770037877.shtml)
-- 2026-06-29 22:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/0689025767.shtml)
-- 2026-06-29 22:15 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/28641.shtml)
+- 2026-06-29 22:18 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/97157.shtml)
+- 2026-06-29 22:17 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/329846.shtml)
+- 2026-06-29 22:30 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/169427474.shtml)
+- 2026-06-29 22:24 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/629730.shtml)
+- 2026-06-29 22:09 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/20092834540.shtml)
+- 2026-06-29 22:26 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/665386.shtml)
+- 2026-06-29 22:29 - [我们的少年时代2](https://www.blog.minike.top/Article/details/77168147.shtml)
+- 2026-06-29 22:20 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/019396029638.shtml)
+- 2026-06-29 22:28 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/594757.shtml)
+- 2026-06-29 22:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/43092768.shtml)
+- 2026-06-29 22:27 - [请回答王牌2019](http://www.share.minike.top/Article/details/377603.shtml)
+- 2026-06-29 22:11 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/75900.shtml)
+- 2026-06-29 22:12 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/023811793501.shtml)
+- 2026-06-29 22:32 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/9206472.shtml)
+- 2026-06-29 22:35 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/63385.shtml)

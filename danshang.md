@@ -1,56 +1,58 @@
-# 从肩挑叫卖到香飘海外 浙江瑞安杨梅成“致富果”
+# 呼和浩特公布中小学春假、秋假安排 毕业年级不放假
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新网温州6月8日电(张益聪)“预计六月中下旬，由海外华侨华人共同搭建的高楼杨梅出口渠道将正式投入使用，让在意大利的温州侨胞吃上一口家乡味。” 近日，在浙江省温州市瑞安市高楼镇举行的瑞安市第22届杨梅文化旅游季活动现场，意大利佛罗伦萨华侨华人联合总会荣誉会长郑晓峰表示，他在海外经商40多年，时常回家乡看看，几乎见证了瑞安杨梅产业的变迁。 如其所言，20世纪80年代，瑞安引进优良
+中新网呼和浩特5月25日电 (记者 张林虎)呼和浩特市教育局25日发布2026年春假及秋假安排通知，明确幼儿园、小学及初高中部分年级将分别于6月和11月享有3天假期，并与相邻双休日衔接，形成5天小长假。 根据通知，呼和浩特市幼儿园、小学1至6年级、初一年级春假时间为6月1日至3日，共计3天，假期将与5月30日、31日周末双休衔接，形成连贯休整时段。 高中阶段春假实行错峰放假，高
 
 ## 正文
 
-中新网温州6月8日电(张益聪)“预计六月中下旬，由海外华侨华人共同搭建的高楼杨梅出口渠道将正式投入使用，让在意大利的温州侨胞吃上一口家乡味。
+中新网呼和浩特5月25日电 (记者 张林虎)呼和浩特市教育局25日发布2026年春假及秋假安排通知，明确幼儿园、小学及初高中部分年级将分别于6月和11月享有3天假期，并与相邻双休日衔接，形成5天小长假。
 
-” 近日，在浙江省温州市瑞安市高楼镇举行的瑞安市第22届杨梅文化旅游季活动现场，意大利佛罗伦萨华侨华人联合总会荣誉会长郑晓峰表示，他在海外经商40多年，时常回家乡看看，几乎见证了瑞安杨梅产业的变迁。
+根据通知，呼和浩特市幼儿园、小学1至6年级、初一年级春假时间为6月1日至3日，共计3天，假期将与5月30日、31日周末双休衔接，形成连贯休整时段。
 
-如其所言，20世纪80年代，瑞安引进优良杨梅品种，鼓励当地农户“换种种植”，让曾经的“土杨梅”变为“致富果”。
+高中阶段春假实行错峰放假，高一、高二年级春假安排在6月5日、8日、9日，共3天，可衔接6月6日至7日双休日。
 
-至2004年，高楼杨梅文化节拉开了瑞安杨梅地方盛会的序幕，如今，该活动已经成为瑞安的标志性名片，并促动着当地杨梅产业不断走深走实。
+在秋假安排上，呼和浩特市统一划定放假时段。
 
-肩挑叫卖、推车而行、摊位陈列……本届杨梅节仍保留着市集形式引“流量”的同时，不仅以百桌杨梅宴等消费场景变“留量”，还推出了杨梅酒、杨梅罐头等深加工产品，吸引着买家游客实地选购、线上下单。
+幼儿园、小学1至6年级、初中一二年级、高中一二年级秋假为11月30日至12月2日，为期3天，衔接11月28日、29日双休日。
 
-走进高楼镇为农服务中心，当地的助农主播用手机开启直播，她手上拿着杨梅加工产品，背后则是络绎不绝的游客。
+另外，初二年级因备战生物、地理学业水平考试，不安排春假；初三、高三毕业年级不安排春假、秋假。
 
-该中心相关负责人胡允祝说：“杨梅深加工不仅能提高农产品附加值，还能为果农降低种植风险。
-
-” 今年，高楼镇还引进了氮气封装技术，为杨梅出海穿上了“隐形保鲜衣”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 22:01 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 22:18 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 22:07 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 22:25 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 22:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 22:16 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-29 22:28 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 22:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 22:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 22:35 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 22:09 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 22:32 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 22:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 22:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 22:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 22:25 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 22:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 22:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 22:35 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 22:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 22:19 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 22:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 22:10 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:13 - [爱很美味](https://www.share.kurohicncr.top/Article/details/27092.shtml)
-- 2026-06-29 22:13 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/199832916480.shtml)
-- 2026-06-29 22:02 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/99646.shtml)
-- 2026-06-29 22:26 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/85097183.shtml)
-- 2026-06-29 22:07 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/01532.shtml)
-- 2026-06-29 22:22 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/840836.shtml)
-- 2026-06-29 22:07 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/728918075.shtml)
-- 2026-06-29 22:12 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/9477138655.shtml)
-- 2026-06-29 22:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/24810913.shtml)
-- 2026-06-29 22:11 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/4429023389.shtml)
-- 2026-06-29 22:08 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/58602760.shtml)
-- 2026-06-29 22:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/5967112.shtml)
-- 2026-06-29 22:13 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/172758418.shtml)
-- 2026-06-29 22:17 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/8523722.shtml)
-- 2026-06-29 22:24 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/893511.shtml)
+- 2026-06-29 22:18 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/796328002731.shtml)
+- 2026-06-29 22:06 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/13277376.shtml)
+- 2026-06-29 22:20 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/475968.shtml)
+- 2026-06-29 22:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/0147734.shtml)
+- 2026-06-29 22:24 - [巴黎区长紧急采购50台中国空调](http://www.blog.kurohicncr.top/Article/details/21165368.shtml)
+- 2026-06-29 22:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/950288553.shtml)
+- 2026-06-29 22:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/551387492914.shtml)
+- 2026-06-29 22:22 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/8617452723.shtml)
+- 2026-06-29 22:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/1206863.shtml)
+- 2026-06-29 22:25 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/2238551.shtml)
+- 2026-06-29 22:19 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/713310455.shtml)
+- 2026-06-29 22:26 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/3789072.shtml)
+- 2026-06-29 22:28 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/2197803870.shtml)
+- 2026-06-29 22:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/41202487047.shtml)
+- 2026-06-29 22:12 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/74790.shtml)

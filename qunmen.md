@@ -1,61 +1,57 @@
-# （乡村行·看振兴）福建清流拔里村唤醒森工记忆 闲置地变身“聚宝盆”
+# 中国攻克世界级难题：胜利济阳页岩油累计产量超200万吨
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-中新网福建清流6月8日电 (巫建辉 杨锦波)入夏以来，福建省清流县龙津镇拔里村旅游逐渐升温，许多游客慕名前来乘坐造型复古的观光小火车，一边欣赏林间美景，一边举起手机，记录下被青山环抱的“慢时光”。 拔里村距离清流县城约14公里，森林覆盖率超95%。曾经，由于运木火车道被拆除、伐木场搬离等原因，村庄逐渐凋敝，留下大量闲置办公楼、废弃铁轨，传统发展模式难以为继。 依托丰富的森林资源
+中新社济南5月25日电 (记者 沙见龙)据中国石化胜利油田5月25日消息，中国首个陆相断陷盆地页岩油国家级示范区(下称“示范区”)——胜利济阳页岩油国家级示范区累计产量突破200万吨，标志着中国中低成熟度页岩油勘探开发取得历史性突破，为推动陆相页岩油规模化发展提供重要示范支撑。据胜利油田副总地质师张世明介绍，页岩油成熟度的高低代表了地层的生油能力，国际公认页岩油成熟度需大于0.
 
 ## 正文
 
-中新网福建清流6月8日电 (巫建辉 杨锦波)入夏以来，福建省清流县龙津镇拔里村旅游逐渐升温，许多游客慕名前来乘坐造型复古的观光小火车，一边欣赏林间美景，一边举起手机，记录下被青山环抱的“慢时光”。
+中新社济南5月25日电 (记者 沙见龙)据中国石化胜利油田5月25日消息，中国首个陆相断陷盆地页岩油国家级示范区(下称“示范区”)——胜利济阳页岩油国家级示范区累计产量突破200万吨，标志着中国中低成熟度页岩油勘探开发取得历史性突破，为推动陆相页岩油规模化发展提供重要示范支撑。
 
-拔里村距离清流县城约14公里，森林覆盖率超95%。
+据胜利油田副总地质师张世明介绍，页岩油成熟度的高低代表了地层的生油能力，国际公认页岩油成熟度需大于0.9%才富集可动、具备商业开发价值，而胜利济阳页岩油90%的资源量成熟度小于0.9%，属于中低成熟度，并且断层复杂、裂缝多，地层温度普遍高于150℃，勘探开发属于世界级难题，没有先例可借鉴。
 
-曾经，由于运木火车道被拆除、伐木场搬离等原因，村庄逐渐凋敝，留下大量闲置办公楼、废弃铁轨，传统发展模式难以为继。
+早在2006年，胜利油田地质工作者便开始页岩油探索。
 
-依托丰富的森林资源、“森工文化”以及政策东风，拔里村积极推进农文旅融合发展。
+胜利油田自主创新，创立陆相断陷盆地页岩油富集成藏与“储–缝–压”三元储渗等勘探开发理论。
 
-“在修旧如旧的原则下，我们不仅保留了上世纪50年代伐木场风貌，还依托铁路遗址复建观光铁轨，盘活闲置资源，成功打造观光火车、稻田公园等一批特色文旅项目。
+2022年，胜利济阳页岩油国家级示范区正式揭牌，攻克陆相断陷盆地构造复杂、演化程度低、页岩油流动性差以及高温、高压、涌漏并存的世界级难题，形成立体开发、优快钻井、高效均衡压裂等六大关键技术系列，6000米井深钻井周期从133天降至17天，平均单井预测产油突破4.3万吨，核心装备国产化率提升至95%以上。
 
-”拔里村党支部书记张前国介绍。
+作为陆相断陷盆地页岩油开发的“先行者”，胜利油田先后发现3个页岩油田，59口井峰值日产油超过百吨，最高达263吨；示范区年产量从初期的13.1万吨攀升至2025年的70万吨，提前一年完成储量与产量目标任务，形成了陆相断陷盆地页岩油高效勘探开发模式。
 
-拔里村耕地面积1680余亩，但受传统农业模式制约，存在40亩长期闲置农田和180余亩冬闲田，土地利用率较低。
+截至目前，示范区累计上报探明储量3.27亿吨，估算资源量达105亿吨，为中国东部原油战略接替筑牢资源根基。
 
-为此，拔里村整合零散地块，划定稻田公园核心区，构建春季油菜花海、夏季“森工火车”主题彩色水稻、秋季金色稻浪、冬季“花开紫云”的全季景观体系。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 22:08 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 22:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 22:12 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 22:16 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 22:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 22:25 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 22:09 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 22:00 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 22:18 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 22:02 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 22:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 22:24 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 22:03 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 22:29 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 22:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 22:15 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 22:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 22:22 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 22:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 22:11 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 22:34 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 22:12 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 22:22 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 22:13 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 22:16 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/69949957226.shtml)
-- 2026-06-29 22:16 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/453671479.shtml)
-- 2026-06-29 22:25 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/5062106718.shtml)
-- 2026-06-29 22:26 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/28766476.shtml)
-- 2026-06-29 22:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/14129193139.shtml)
-- 2026-06-29 22:04 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/1227382312.shtml)
-- 2026-06-29 22:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/92472621.shtml)
-- 2026-06-29 22:25 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/87160.shtml)
-- 2026-06-29 22:24 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/54007.shtml)
-- 2026-06-29 22:01 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/7668532029.shtml)
-- 2026-06-29 22:02 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/2195896.shtml)
-- 2026-06-29 22:04 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/728198.shtml)
-- 2026-06-29 22:20 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/64030741312.shtml)
-- 2026-06-29 22:13 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/3695827.shtml)
-- 2026-06-29 22:23 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/64412.shtml)
+- 2026-06-29 22:26 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/361374.shtml)
+- 2026-06-29 22:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/64177.shtml)
+- 2026-06-29 22:13 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/9634226066.shtml)
+- 2026-06-29 22:13 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/11114.shtml)
+- 2026-06-29 22:25 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/17460059.shtml)
+- 2026-06-29 22:08 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/11626429.shtml)
+- 2026-06-29 22:22 - [炽夏](https://www.share.minike.top/Article/details/3344591218.shtml)
+- 2026-06-29 22:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/778543868.shtml)
+- 2026-06-29 22:08 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/7521917691.shtml)
+- 2026-06-29 22:09 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/2072584.shtml)
+- 2026-06-29 22:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/190175627085.shtml)
+- 2026-06-29 22:32 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/51818.shtml)
+- 2026-06-29 22:11 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/746265.shtml)
+- 2026-06-29 22:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/8308795.shtml)
+- 2026-06-29 22:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/775740841421.shtml)

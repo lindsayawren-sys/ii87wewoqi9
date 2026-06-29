@@ -1,61 +1,61 @@
-# 比特币暴跌 抹去特斯拉2.2亿美元浮盈
+# 西藏拉萨：市民游客共享夏日生机
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-受加密货币市场大幅回调影响，特斯拉持有的比特币资产在过去一个月内缩水超过2.2亿美元。比特币价格周五一度跌破6.2万美元，创下近四个月新低。 截至6月5日，比特币价格跌至约6.27万美元，较5月初约8.2万美元的高点已回落约24%。本周累计跌幅接近15%，有望创下自2022年11月FTX交易所倒闭以来最大单周跌幅。 据BitcoinTreasuries.net统计，特斯拉目前持
+港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给
 
 ## 正文
 
-受加密货币市场大幅回调影响，特斯拉持有的比特币资产在过去一个月内缩水超过2.2亿美元。
+港人飞天，星辰可及美联储新主席宣誓就任 “沃什时代”政策迷雾待解抓科创、强产业，长三角一体化发展再提速你身上穿的T恤，大概率来自这个北方小城美军导弹告急，韩国日本更急？
 
-比特币价格周五一度跌破6.2万美元，创下近四个月新低。
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
 
-截至6月5日，比特币价格跌至约6.27万美元，较5月初约8.2万美元的高点已回落约24%。
+618大战，为何先从手机降价开始？
 
-本周累计跌幅接近15%，有望创下自2022年11月FTX交易所倒闭以来最大单周跌幅。
+埃及胡夫金字塔如何抗震？
 
-据BitcoinTreasuries.net统计，特斯拉目前持有11，509枚比特币。
+国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
 
-按当前市价计算，其持仓价值约为7.24亿美元，较5月上旬约9.46亿美元的峰值缩水约2.22亿美元。
+你的股票和黄金，后市怎么走？
 
-特斯拉在今年第一季度财报中已确认其数字资产持仓出现1.73亿美元的公允价值损失。
+郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
 
-若比特币价格在第二季度末前未能反弹，公司的账面亏损将进一步扩大。
+建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 22:06 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 22:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 22:15 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 22:06 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 22:11 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 22:16 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 22:18 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 22:09 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 22:00 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 22:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 22:21 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 22:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 22:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 22:27 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 22:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 22:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 22:17 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 22:26 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 22:34 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 22:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 22:21 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 22:11 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 22:28 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 22:30 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 22:28 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 22:22 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 22:08 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 22:19 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 22:17 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/888375885806.shtml)
-- 2026-06-29 22:13 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/96949781257.shtml)
-- 2026-06-29 22:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/24370.shtml)
-- 2026-06-29 22:22 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/9881728.shtml)
-- 2026-06-29 22:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/9381666.shtml)
-- 2026-06-29 22:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/01237110052.shtml)
-- 2026-06-29 22:06 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/68868618486.shtml)
-- 2026-06-29 22:15 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/50229.shtml)
-- 2026-06-29 22:03 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/03283.shtml)
-- 2026-06-29 22:04 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/033228.shtml)
-- 2026-06-29 22:24 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/3809822775.shtml)
-- 2026-06-29 22:28 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/199015.shtml)
-- 2026-06-29 22:08 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/06812490151.shtml)
-- 2026-06-29 22:02 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/723795801730.shtml)
-- 2026-06-29 22:21 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/75162.shtml)
+- 2026-06-29 22:12 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/4031692827.shtml)
+- 2026-06-29 22:23 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/746578969.shtml)
+- 2026-06-29 22:24 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/60873808.shtml)
+- 2026-06-29 22:16 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/603494897.shtml)
+- 2026-06-29 22:20 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/75812062.shtml)
+- 2026-06-29 22:15 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/385166.shtml)
+- 2026-06-29 22:30 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/7067431.shtml)
+- 2026-06-29 22:22 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/7077810277.shtml)
+- 2026-06-29 22:08 - [送你一朵小红花](http://www.blog.minike.top/Article/details/44625910.shtml)
+- 2026-06-29 22:29 - [金刚川](https://www.blog.kurohicncr.top/Article/details/38436462273.shtml)
+- 2026-06-29 22:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/4994779710.shtml)
+- 2026-06-29 22:19 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/28692.shtml)
+- 2026-06-29 22:26 - [明星大侦探第四季](http://www.share.minike.top/Article/details/867650757043.shtml)
+- 2026-06-29 22:32 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/5905440.shtml)
+- 2026-06-29 22:21 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/893942738009.shtml)

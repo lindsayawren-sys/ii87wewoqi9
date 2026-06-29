@@ -1,59 +1,56 @@
-# 避险情绪升温，比特币跌破6万美元关口
+# 双良节能索赔递交立案，误导性陈述被罚
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-周五，比特币价格延续跌势，自2024年10月以来首次跌破6万美元关键心理关口。在全球市场避险情绪持续升温的背景下，加密货币遭遇大规模抛售，比特币本周累计跌幅已超过16%。 截至美东时间周五午盘，比特币交易价格在59000美元附近徘徊，24小时内跌幅超过6%。以太坊同步走弱，下跌逾10%至1580美元左右。Coinglass数据显示，过去24小时全网加密货币爆仓金额超过15亿美元
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师团队近日递交了一批次案件至法院立案。2026年4月3日，公司、双良集团及相关当事人收到中国证监会江苏监管局下发的《行政处罚决定书》。（刘鹏律师专栏） 符合于2026年2月12日下午13：25-2026年2月12日收盘期间买入，并在2026年2月13日之后卖出或仍持有而亏损的还可报名索赔。（双良节能维权入
 
 ## 正文
 
-周五，比特币价格延续跌势，自2024年10月以来首次跌破6万美元关键心理关口。
+登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师团队近日递交了一批次案件至法院立案。
 
-在全球市场避险情绪持续升温的背景下，加密货币遭遇大规模抛售，比特币本周累计跌幅已超过16%。
+2026年4月3日，公司、双良集团及相关当事人收到中国证监会江苏监管局下发的《行政处罚决定书》。
 
-截至美东时间周五午盘，比特币交易价格在59000美元附近徘徊，24小时内跌幅超过6%。
+（刘鹏律师专栏） 符合于2026年2月12日下午13：25-2026年2月12日收盘期间买入，并在2026年2月13日之后卖出或仍持有而亏损的还可报名索赔。
 
-以太坊同步走弱，下跌逾10%至1580美元左右。
+（双良节能维权入口） 回溯本案，2026年2月12日午间，双良节能（维权）在其微信公众号发布快讯，称公司产品将用于SpaceX星舰发射基地扩建项目。
 
-Coinglass数据显示，过去24小时全网加密货币爆仓金额超过15亿美元，涉及交易员超过30万人，其中多头爆仓占比超过80%。
+受此消息刺激，公司股价当日下午开盘即涨停。
 
-此轮跌势的触发因素主要包括三个方面。
+然而，当晚在监管督促下披露的公告却显示，相关订单金额仅约1392.30万元，占公司营收比例仅0.11%，且公司仅为非独家间接供应商。
 
-首先，美联储加息预期升温成为最大利空。
+2月27日，双良节能公告收到证监会立案告知书，因涉嫌信息披露误导性陈述等违法违规行为被立案调查。
 
-美国5月非农就业数据远超预期，市场对年底前加息的押注显著上升，高风险的加密资产首当其冲遭遇抛售。
+3月14日，控股股东双良集团也因同一事项被证监会立案。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 22:27 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 22:01 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 22:12 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 22:11 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 22:06 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 22:08 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 22:08 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 22:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-29 22:16 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 22:07 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 22:19 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 22:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 22:34 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 22:29 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 22:21 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 22:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 22:20 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 22:20 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 22:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 22:08 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 22:16 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 22:33 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/6370514154.shtml)
-- 2026-06-29 22:13 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/561109.shtml)
-- 2026-06-29 22:00 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/562390.shtml)
-- 2026-06-29 22:04 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/008112858896.shtml)
-- 2026-06-29 22:03 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/511749214.shtml)
-- 2026-06-29 22:22 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/3252940780.shtml)
-- 2026-06-29 22:09 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/949630617.shtml)
-- 2026-06-29 22:24 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/01300.shtml)
-- 2026-06-29 22:14 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/046265971.shtml)
-- 2026-06-29 22:22 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/981350.shtml)
-- 2026-06-29 22:06 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/02292196.shtml)
-- 2026-06-29 22:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/20078640299.shtml)
-- 2026-06-29 22:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/087413835141.shtml)
-- 2026-06-29 22:08 - [绘画区你赢了](https://www.blog.minike.top/Article/details/440923671.shtml)
-- 2026-06-29 22:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/35069303301.shtml)
+- 2026-06-29 22:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/05756323.shtml)
+- 2026-06-29 22:31 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/502458751.shtml)
+- 2026-06-29 22:30 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/25864086.shtml)
+- 2026-06-29 22:08 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/5816886303.shtml)
+- 2026-06-29 22:15 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/922409773378.shtml)
+- 2026-06-29 22:35 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/679837732.shtml)
+- 2026-06-29 22:31 - [流金岁月](http://www.blog.minike.top/Article/details/4140546.shtml)
+- 2026-06-29 22:22 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/285534176055.shtml)
+- 2026-06-29 22:22 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/4938145.shtml)
+- 2026-06-29 22:17 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/5462030032.shtml)
+- 2026-06-29 22:15 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/7976547035.shtml)
+- 2026-06-29 22:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/949456.shtml)
+- 2026-06-29 22:08 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/85592376.shtml)
+- 2026-06-29 22:32 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/800217074.shtml)
+- 2026-06-29 22:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/99483064845.shtml)

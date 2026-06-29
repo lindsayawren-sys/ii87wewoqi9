@@ -1,52 +1,59 @@
-# 高考1天倒计时 全城细心护航北京高考
+# 发射“零窗口”、火箭用“遥”编号、航天员类别……航天科普↓
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月06日 21:23 来源：中国新闻网 2026年高考将于6月7日正式开始。又到一年高考季，全城暖心护航“如约上线”。考试前夕，中新社记者在北京多处实地探访发现，地铁、公交站贴起了高考加油标语，交警定岗值守、细心监管严控鸣笛，小区物业主动暂停装修服务降噪。整座城市大大小小暖心的细节，汇聚成了考生最踏实的考前保障。 (记者 谢龙飞 董语飞 范思忆 部分素材
+央视网消息：神舟二十三号飞船瞄准5月24日23时08分发射，这个发射窗口是如何确定的？火箭发射为何需要发射窗口？ 火箭要在一个特定的时间来发射才能圆满完成任务，这是为什么？ 大家想象一下，地球每24小时自转一圈，发射场所在的位置也就是实时变化的。火箭要送飞船去的目的地也就是空间站，它在太空中以每秒7.9公里的速度绕着地球飞。两个都在高速运动的东西要精准在太空中“碰头”，就不是随
 
 ## 正文
 
-发布时间：2026年06月06日 21:23 来源：中国新闻网 2026年高考将于6月7日正式开始。
+央视网消息：神舟二十三号飞船瞄准5月24日23时08分发射，这个发射窗口是如何确定的？
 
-又到一年高考季，全城暖心护航“如约上线”。
+火箭发射为何需要发射窗口？
 
-考试前夕，中新社记者在北京多处实地探访发现，地铁、公交站贴起了高考加油标语，交警定岗值守、细心监管严控鸣笛，小区物业主动暂停装修服务降噪。
+火箭要在一个特定的时间来发射才能圆满完成任务，这是为什么？
 
-整座城市大大小小暖心的细节，汇聚成了考生最踏实的考前保障。
+大家想象一下，地球每24小时自转一圈，发射场所在的位置也就是实时变化的。
 
-(记者 谢龙飞 董语飞 范思忆 部分素材来源 北京交警） 责任编辑：【卢岩】
+火箭要送飞船去的目的地也就是空间站，它在太空中以每秒7.9公里的速度绕着地球飞。
+
+两个都在高速运动的东西要精准在太空中“碰头”，就不是随便什么时候都能去的。
+
+只有当地球自转把酒泉卫星发射中心转到和空间站轨道平面“对齐”的那个时刻，火箭发射在几何上才成立，这个时间段就是发射窗口。
+
+而载人飞船要对接空间站，不仅要进入同一个轨道平面，还要在未来某个时间点跟空间站精确相遇，差一秒钟都不行，晚了或者早了相位就对不上。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 22:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 22:06 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 22:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 22:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 22:29 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 22:15 - [温网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 22:01 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 22:23 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 22:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 22:19 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 22:27 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 22:16 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 22:31 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 22:19 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 22:17 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 22:19 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 22:10 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 22:21 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 22:24 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 22:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 22:35 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 22:35 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 22:23 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 22:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [时光音乐会](http://www.share.minike.top/Article/details/436441840.shtml)
-- 2026-06-29 22:00 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/2474728.shtml)
-- 2026-06-29 22:27 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/9648149254.shtml)
-- 2026-06-29 22:19 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/07504129.shtml)
-- 2026-06-29 22:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/167338.shtml)
-- 2026-06-29 22:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/543737.shtml)
-- 2026-06-29 22:08 - [炽夏](http://www.share.kurohicncr.top/Article/details/86671148158.shtml)
-- 2026-06-29 22:12 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/84368676.shtml)
-- 2026-06-29 22:03 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/58760411877.shtml)
-- 2026-06-29 22:14 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/767723.shtml)
-- 2026-06-29 22:14 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/16080436.shtml)
-- 2026-06-29 22:05 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/6842028.shtml)
-- 2026-06-29 22:09 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/845062.shtml)
-- 2026-06-29 22:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/724419363866.shtml)
-- 2026-06-29 22:28 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/78052283.shtml)
+- 2026-06-29 22:30 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/67863.shtml)
+- 2026-06-29 22:09 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/299608969643.shtml)
+- 2026-06-29 22:14 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/02367108.shtml)
+- 2026-06-29 22:07 - [有什么好的高中网课推荐吗？](http://www.share.kurohicncr.top/Article/details/517014.shtml)
+- 2026-06-29 22:10 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.kurohicncr.top/Article/details/9264867512.shtml)
+- 2026-06-29 22:35 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/68250.shtml)
+- 2026-06-29 22:22 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/212634495.shtml)
+- 2026-06-29 22:29 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/601546605.shtml)
+- 2026-06-29 22:09 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/72517.shtml)
+- 2026-06-29 22:22 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/403118.shtml)
+- 2026-06-29 22:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/0681773494.shtml)
+- 2026-06-29 22:33 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/66616895.shtml)
+- 2026-06-29 22:14 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/97876017312.shtml)
+- 2026-06-29 22:11 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/828276482.shtml)
+- 2026-06-29 22:34 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/134191210736.shtml)

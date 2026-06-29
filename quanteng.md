@@ -1,56 +1,49 @@
-# 海底珊瑚监测、废弃渔网回收 珠澳携手保护海洋生态
+# 袁隆平墓前“长满”向日葵 22朵寓意杂交水稻事业向阳而生
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-6月8日是世界海洋日。这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。 在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。 此外，当地还开展了为期两
+发布时间：2026年05月22日 16:05 来源：中国新闻网 5月22日，是袁隆平逝世五周年纪念日，各地民众自发来到位于长沙唐人万寿园的袁隆平墓地缅怀。一位长沙民众带来22朵向日葵“种”在袁隆平墓前，寓意杂交水稻事业向阳而生。(唐小晴 游蕾 刘晓宇 制作 侯诗蕊） 责任编辑：【罗攀】
 
 ## 正文
 
-6月8日是世界海洋日。
+发布时间：2026年05月22日 16:05 来源：中国新闻网 5月22日，是袁隆平逝世五周年纪念日，各地民众自发来到位于长沙唐人万寿园的袁隆平墓地缅怀。
 
-这两天，珠澳联动开展了净滩护海、海底保育、跨境海洋科普研学等系列活动，推进粤港澳大湾区海洋生态共建共享，让海洋保护理念走进公众生活。
+一位长沙民众带来22朵向日葵“种”在袁隆平墓前，寓意杂交水稻事业向阳而生。
 
-在珠海庙湾岛周边海域，由大湾区潜水员组成的海洋保育队伍，开展了鹿角珊瑚监测、废弃渔网等海洋垃圾水下回收。
-
-巡查过程中，潜水员还记录了珊瑚群落生长状态和海域生态数据，为近海生态修复和常态化监测提供资料。
-
-此外，当地还开展了为期两天的“海洋小卫士”亲子研学营，许多亲子家庭参与了海洋科普课堂、潜水知识分享、贝壳归海等研学活动，在沉浸式体验中学习珊瑚保护、海洋垃圾治理和生物多样性保护。
-
-未来，当地还将持续开展珊瑚监测、海底保育、海滩清洁和跨境海洋科普研学等公益行动，推动粤港澳大湾区海洋生态保护和生态文明建设不断深化。
+(唐小晴 游蕾 刘晓宇 制作 侯诗蕊） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 22:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 22:11 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 22:22 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 22:27 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 22:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 22:00 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 22:23 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 22:11 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 22:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 22:14 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 22:22 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 22:10 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 22:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 22:26 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 22:10 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 22:34 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 22:22 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 22:24 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 22:16 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 22:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 22:14 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 22:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 22:07 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 22:27 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 22:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 22:26 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/31339645082.shtml)
-- 2026-06-29 22:29 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/031919.shtml)
-- 2026-06-29 22:09 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/025435827971.shtml)
-- 2026-06-29 22:05 - [流金岁月](https://www.share.kurohicncr.top/Article/details/37026157.shtml)
-- 2026-06-29 22:17 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/061445465087.shtml)
-- 2026-06-29 22:07 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/77166.shtml)
-- 2026-06-29 22:25 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/64440508.shtml)
-- 2026-06-29 22:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/06604916.shtml)
-- 2026-06-29 22:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/3321811294.shtml)
-- 2026-06-29 22:24 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/762457642436.shtml)
-- 2026-06-29 22:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/08469042.shtml)
-- 2026-06-29 22:19 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/6050348872.shtml)
-- 2026-06-29 22:04 - [记者乘坐无人驾驶汽车去采访](https://www.share.minike.top/Article/details/024301016.shtml)
-- 2026-06-29 22:04 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/461609004607.shtml)
-- 2026-06-29 22:26 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/40733.shtml)
+- 2026-06-29 22:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/81250503.shtml)
+- 2026-06-29 22:34 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/7330197.shtml)
+- 2026-06-29 22:09 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/669261.shtml)
+- 2026-06-29 22:34 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/415923784020.shtml)
+- 2026-06-29 22:15 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/4812088.shtml)
+- 2026-06-29 22:16 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/965143541.shtml)
+- 2026-06-29 22:23 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/48210.shtml)
+- 2026-06-29 22:35 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/61542576.shtml)
+- 2026-06-29 22:17 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/40251.shtml)
+- 2026-06-29 22:11 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/9728198604.shtml)
+- 2026-06-29 22:19 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/934601105.shtml)
+- 2026-06-29 22:08 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/37367468384.shtml)
+- 2026-06-29 22:19 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/5562289.shtml)
+- 2026-06-29 22:17 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/36593668.shtml)
+- 2026-06-29 22:22 - [美人鱼](http://www.share.minike.top/Article/details/405249.shtml)

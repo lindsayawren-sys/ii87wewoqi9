@@ -1,51 +1,61 @@
-# 韩国誓言对汇市单边走势采取“强力”行动
+# 香港举办佛诞节吉祥大会 祈愿国家和香港繁荣稳定
 
-> 更新时间：2026-06-29 22:30:02 UTC+8
+> 更新时间：2026-06-29 22:36:02 UTC+8
 
 ## 摘要
 
-韩国央行和财政部官员在一份联合短信中表示，韩国不会容忍过度的汇率波动或与经济基本面不符的单边市场布局，并将对此类行为采取强有力的行动。 韩国外汇监管机构认为，除了供需因素外，投机性外汇交易也是近期汇市波动加剧的原因之一，包括无本金交割远汇交易。责任编辑：陈钰嘉
+中新社5月24日电 (记者 赵静怡)香港佛教联合会24日在香港体育馆举办“祝福祖国·祝福香港”佛诞节吉祥大会，祈愿国家和香港繁荣稳定。 在现场数千名市民见证下，香港特区政府政务司司长陈国基、中央人民政府驻香港特别行政区联络办公室副主任罗永纲、香港特区政府民政及青年事务局局长麦美娟与香港佛教联合会会长宽运法师共同敲响吉祥钟，祝福祖国繁荣昌盛，香港社会祥和，市民安居乐业。 陈国基致
 
 ## 正文
 
-韩国央行和财政部官员在一份联合短信中表示，韩国不会容忍过度的汇率波动或与经济基本面不符的单边市场布局，并将对此类行为采取强有力的行动。
+中新社5月24日电 (记者 赵静怡)香港佛教联合会24日在香港体育馆举办“祝福祖国·祝福香港”佛诞节吉祥大会，祈愿国家和香港繁荣稳定。
 
-韩国外汇监管机构认为，除了供需因素外，投机性外汇交易也是近期汇市波动加剧的原因之一，包括无本金交割远汇交易。
+在现场数千名市民见证下，香港特区政府政务司司长陈国基、中央人民政府驻香港特别行政区联络办公室副主任罗永纲、香港特区政府民政及青年事务局局长麦美娟与香港佛教联合会会长宽运法师共同敲响吉祥钟，祝福祖国繁荣昌盛，香港社会祥和，市民安居乐业。
 
-责任编辑：陈钰嘉
+陈国基致辞表示，佛学理念里自利利他的精神，与香港浓厚的关爱文化互相呼应。
+
+希望大家发扬中华优秀传统文化中有容乃大、和而不同的智慧，让友爱与团结的种子在香港各处开花。
+
+宽运法师在致辞中呼吁大众要爱自己、爱家庭、爱国家、爱世界，做守法尽责的好公民，将爱国情怀体现在珍惜土地文化、守护社会安宁上。
+
+佛诞节又名浴佛节，中国汉传佛教以农历四月初八为释迦牟尼诞辰日。
+
+据悉，香港佛联会今年还将举办童真汇演、佛学讲座等活动。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 22:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 22:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 22:13 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 22:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 22:14 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 22:03 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 22:20 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 22:25 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 22:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 22:05 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 22:26 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 22:28 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 22:10 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 22:18 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 22:16 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 22:09 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 22:13 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 22:29 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 22:21 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 22:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 22:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:27 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:15 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 22:16 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 22:31 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 22:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 22:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 22:31 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 22:26 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:24 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/62341045.shtml)
-- 2026-06-29 22:26 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/20481.shtml)
-- 2026-06-29 22:05 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/058822710553.shtml)
-- 2026-06-29 22:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/42033.shtml)
-- 2026-06-29 22:00 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/1625515606.shtml)
-- 2026-06-29 22:05 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/5880875.shtml)
-- 2026-06-29 22:28 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/2887975213.shtml)
-- 2026-06-29 22:28 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/63218980.shtml)
-- 2026-06-29 22:14 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/93646.shtml)
-- 2026-06-29 22:09 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/92808450173.shtml)
-- 2026-06-29 22:16 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/8901247024.shtml)
-- 2026-06-29 22:19 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/50687159.shtml)
-- 2026-06-29 22:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/19685719237.shtml)
-- 2026-06-29 22:15 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/3200243291.shtml)
-- 2026-06-29 22:07 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/23032494.shtml)
+- 2026-06-29 22:10 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/709306067245.shtml)
+- 2026-06-29 22:11 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/3047866.shtml)
+- 2026-06-29 22:32 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/11391.shtml)
+- 2026-06-29 22:08 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/04118120320.shtml)
+- 2026-06-29 22:08 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/660581.shtml)
+- 2026-06-29 22:18 - [时光音乐会](http://www.share.minike.top/Article/details/949345.shtml)
+- 2026-06-29 22:33 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/651237578.shtml)
+- 2026-06-29 22:18 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/61084608.shtml)
+- 2026-06-29 22:35 - [一生一世](https://www.blog.minike.top/Article/details/700102.shtml)
+- 2026-06-29 22:19 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/6666843175.shtml)
+- 2026-06-29 22:31 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/7133429392.shtml)
+- 2026-06-29 22:21 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/356257.shtml)
+- 2026-06-29 22:33 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/94938997.shtml)
+- 2026-06-29 22:12 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/45010912.shtml)
+- 2026-06-29 22:20 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/371205997974.shtml)
