@@ -1,58 +1,58 @@
-# Evercore给予希捷科技1000美元新目标价
+# CrowdStrike CEO：网络安全行业已迎来发展拐点
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-Evercore ISI在近期与希捷科技首席财务官Gianluca Romano及投资者关系团队会面后，将该股目标价从750美元上调至1000美元，并维持“跑赢大盘”评级。 四大看点支撑长期增长 Evercore分析师Amit Daryanani在会后指出，支撑希捷长期增长的核心逻辑清晰：一是有效的供应管理维持了市场供需平衡；二是面密度技术和热辅助磁记录（HAMR）等关键技术突
+CrowdStrike首席执行官乔治・库尔茨在财报电话会议上表示，受人工智能技术迭代推动，网络攻防两端同步提速，本季度网络安全行业正式迎来行业拐点。 库尔茨提到，Anthropic 与 OpenAI 推出的新一代大模型，能够以远快于以往的速度识别各类软件漏洞并串联利用；AI 技术高速迭代倒逼企业配置专业化网络安全防护方案，CrowdStrike已参与上述两家企业最新 AI 产品
 
 ## 正文
 
-Evercore ISI在近期与希捷科技首席财务官Gianluca Romano及投资者关系团队会面后，将该股目标价从750美元上调至1000美元，并维持“跑赢大盘”评级。
+CrowdStrike首席执行官乔治・库尔茨在财报电话会议上表示，受人工智能技术迭代推动，网络攻防两端同步提速，本季度网络安全行业正式迎来行业拐点。
 
-四大看点支撑长期增长 Evercore分析师Amit Daryanani在会后指出，支撑希捷长期增长的核心逻辑清晰：一是有效的供应管理维持了市场供需平衡；二是面密度技术和热辅助磁记录（HAMR）等关键技术突破持续推进；三是AI驱动的数据存储需求“强劲”；四是公司长期协议已覆盖至2027年，为未来盈利提供了可见性。
+库尔茨提到，Anthropic 与 OpenAI 推出的新一代大模型，能够以远快于以往的速度识别各类软件漏洞并串联利用；AI 技术高速迭代倒逼企业配置专业化网络安全防护方案，CrowdStrike已参与上述两家企业最新 AI 产品的抢先试用项目。
 
-首席财务官在会中强调，希捷当前产能已“完全被客户长期预订”，表明其在高性能存储市场的供应主导地位稳固。
+“行业讨论的重心已经从‘人工智能会不会颠覆网安行业’，转变为各类机构乃至前沿 AI 实验室，都在依托我们的猎鹰（Falcon）产品作为 AI 安全防护底座。
 
-AI算力需求引爆存储市场 随着AI应用爆发式增长，企业对海量数据存储和处理的需求激增。
+” 库尔茨同时警示，性能愈发强大的 AI 工具也在降低黑客作恶门槛，让网络攻击实现 “破坏能力平民化”。
 
-希捷作为全球领先的硬盘驱动器供应商，其HAMR技术的大规模部署被市场视为满足下一代数据中心高密度存储需求的关键。
+富国银行分析师点评：公司一季度业绩表现稳健，但该股近一个月暴涨超60%，同期纳斯达克综合指数仅上涨 7%，现有业绩或难以满足投资者预期。
 
-Evercore预计，随着面密度持续提升，公司毛利率有望进一步改善。
+不过分析师指出，公司全年业绩指引超预期、内生增长提速，叠加管理层提出的 AI 驱动行业拐点逻辑，为企业下一阶段成长奠定基础；富国维持该股增持评级，目标价 725 美元。
 
-业绩超预期与市场表现 希捷于4月底发布的最新季报显示，其每股收益达4.10美元，远超市场预期的3.51美元；营收达31.1亿美元，同比增长44.1%。
-
-公司对第四季度的每股收益指引为4.80至5.20美元，同样超出分析师预期。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 19:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 19:37 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 19:22 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 19:27 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 19:19 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 19:38 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 19:13 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 19:22 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 19:37 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 19:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 19:29 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 19:30 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 19:35 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 19:23 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 19:43 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 19:20 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 19:33 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 19:29 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 19:28 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 19:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 19:31 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 19:33 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 19:40 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 19:36 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 19:28 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 19:40 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:21 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/770270905552.shtml)
-- 2026-06-29 19:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/23460.shtml)
-- 2026-06-29 19:18 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/241268161697.shtml)
-- 2026-06-29 19:12 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/473991691409.shtml)
-- 2026-06-29 19:38 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/8961357.shtml)
-- 2026-06-29 19:28 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/880173950848.shtml)
-- 2026-06-29 19:30 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/3727796.shtml)
-- 2026-06-29 19:35 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/23576476.shtml)
-- 2026-06-29 19:14 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/36252955.shtml)
-- 2026-06-29 19:23 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/3003044527.shtml)
-- 2026-06-29 19:33 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/138947.shtml)
-- 2026-06-29 19:35 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/1861346.shtml)
-- 2026-06-29 19:17 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/16556127.shtml)
-- 2026-06-29 19:16 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/10319.shtml)
-- 2026-06-29 19:14 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/8116999.shtml)
+- 2026-06-29 19:20 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/0987183.shtml)
+- 2026-06-29 19:23 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/9682571.shtml)
+- 2026-06-29 19:20 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/578878437879.shtml)
+- 2026-06-29 19:18 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/6317055473.shtml)
+- 2026-06-29 19:28 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/625069229016.shtml)
+- 2026-06-29 19:21 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/6743502829.shtml)
+- 2026-06-29 19:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/1183679.shtml)
+- 2026-06-29 19:26 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/466028301789.shtml)
+- 2026-06-29 19:22 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/867074725557.shtml)
+- 2026-06-29 19:35 - [时光音乐会](https://www.blog.minike.top/Article/details/6615952738.shtml)
+- 2026-06-29 19:39 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/830826348.shtml)
+- 2026-06-29 19:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/038435919.shtml)
+- 2026-06-29 19:28 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/9029989394.shtml)
+- 2026-06-29 19:20 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/0996945776.shtml)
+- 2026-06-29 19:42 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/45724120.shtml)

@@ -1,50 +1,49 @@
-# 【这个城市有点潮】云南昆明：春城的初夏温柔 “紫”属于你
+# 美术特长生专业考试有非监考老师进入考场？湖南湘乡通报
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 15:34 来源：中国新闻网 五月的昆明，蓝花楹如约倾泻。高饱和的蓝紫色，席卷街巷江畔，从教场中路到盘龙江畔，春城被晕染成一片蓝紫色的海。这是属于昆明的初夏温柔，是花开有时，“紫”属于你。 责任编辑：【刘湃】
+中新网6月3日电 据“湘乡教育”微信公众号消息，湖南省湘乡市教育局发布情况通报，近日，“湘乡一中美术特长生专业考试有非监考老师进入考场”的相关信息引发网民关注。对此，湘乡市教育局高度重视，已成立工作专班，开展深入核查，将依法依规处理，保障学生合法权益。下一步将切实加强管理，坚决维护教育公平公正。
 
 ## 正文
 
-发布时间：2026年05月13日 15:34 来源：中国新闻网 五月的昆明，蓝花楹如约倾泻。
+中新网6月3日电 据“湘乡教育”微信公众号消息，湖南省湘乡市教育局发布情况通报，近日，“湘乡一中美术特长生专业考试有非监考老师进入考场”的相关信息引发网民关注。
 
-高饱和的蓝紫色，席卷街巷江畔，从教场中路到盘龙江畔，春城被晕染成一片蓝紫色的海。
+对此，湘乡市教育局高度重视，已成立工作专班，开展深入核查，将依法依规处理，保障学生合法权益。
 
-这是属于昆明的初夏温柔，是花开有时，“紫”属于你。
-
-责任编辑：【刘湃】
+下一步将切实加强管理，坚决维护教育公平公正。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 19:19 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 19:16 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 19:41 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 19:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 19:33 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 19:35 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 19:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 19:20 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 19:15 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 19:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 19:28 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 19:31 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 19:26 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 19:18 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 19:29 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 19:42 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 19:18 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 19:24 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 19:42 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 19:35 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 19:28 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 19:29 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 19:47 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/47844592765.shtml)
-- 2026-06-29 19:35 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/2528866.shtml)
-- 2026-06-29 19:35 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/1636383.shtml)
-- 2026-06-29 19:38 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/00215541259.shtml)
-- 2026-06-29 19:40 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/928097174.shtml)
-- 2026-06-29 19:22 - [毒液2](http://www.blog.kurohicncr.top/Article/details/95878302619.shtml)
-- 2026-06-29 19:34 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/38614732.shtml)
-- 2026-06-29 19:22 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/32739.shtml)
-- 2026-06-29 19:39 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/0484458.shtml)
-- 2026-06-29 19:36 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/882434.shtml)
-- 2026-06-29 19:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/148751.shtml)
-- 2026-06-29 19:21 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/916044709.shtml)
-- 2026-06-29 19:30 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/22703151.shtml)
-- 2026-06-29 19:30 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/9246781072.shtml)
-- 2026-06-29 19:38 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/6160111.shtml)
+- 2026-06-29 19:23 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/98980.shtml)
+- 2026-06-29 19:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/00355347318.shtml)
+- 2026-06-29 19:24 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/004784730.shtml)
+- 2026-06-29 19:27 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/54710094923.shtml)
+- 2026-06-29 19:43 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/66603.shtml)
+- 2026-06-29 19:43 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/982170354298.shtml)
+- 2026-06-29 19:19 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/808565040.shtml)
+- 2026-06-29 19:18 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/06341372565.shtml)
+- 2026-06-29 19:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/935163546.shtml)
+- 2026-06-29 19:23 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/51539.shtml)
+- 2026-06-29 19:22 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/01257.shtml)
+- 2026-06-29 19:40 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/6462750351.shtml)
+- 2026-06-29 19:37 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/57145868120.shtml)
+- 2026-06-29 19:43 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/6755745844.shtml)
+- 2026-06-29 19:26 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/239350041783.shtml)

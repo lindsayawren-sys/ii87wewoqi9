@@ -1,55 +1,61 @@
-# 印度政府批准3750亿卢比计划,旨在加速煤气化转型
+# 从中国西南腹地直抵东盟 平陆运河商机超越国界
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-5月13日，印度内阁正式批准一项总额为3750亿卢比（约合39.2亿美元）的专项计划，旨在通过大规模推进煤气化项目，将丰富的国内煤炭储备转化为清洁工业能源，从而降低对进口燃料的依赖。 印度信息部长阿什维尼·维什瑙（Ashwini Vaishnaw）当日在简报会上指出，该计划的核心目标是鼓励将煤炭转化为合成气，广泛应用于发电、化肥生产及石化等关键工业领域。维什瑙强调，在当前中东局
+中新社南宁6月3日电 (记者 蒋雪林)广西平陆运河建设3日迎来历史性节点，平陆运河马道枢纽和企石枢纽开始充水，标志着这条新中国成立以来首条通江达海的大运河全线通水，为今年9月通航奠定基础。 走进位于平陆运河起点江畔的广西横州市新福镇平塘村，村民雷玉宝正向来客介绍村史。去年11月退休后，他把自家一间房屋进行改造，建起“江口历史文化展示馆”，“作为平陆运河的起点，相信这里会吸引来游
 
 ## 正文
 
-5月13日，印度内阁正式批准一项总额为3750亿卢比（约合39.2亿美元）的专项计划，旨在通过大规模推进煤气化项目，将丰富的国内煤炭储备转化为清洁工业能源，从而降低对进口燃料的依赖。
+中新社南宁6月3日电 (记者 蒋雪林)广西平陆运河建设3日迎来历史性节点，平陆运河马道枢纽和企石枢纽开始充水，标志着这条新中国成立以来首条通江达海的大运河全线通水，为今年9月通航奠定基础。
 
-印度信息部长阿什维尼·维什瑙（Ashwini Vaishnaw）当日在简报会上指出，该计划的核心目标是鼓励将煤炭转化为合成气，广泛应用于发电、化肥生产及石化等关键工业领域。
+走进位于平陆运河起点江畔的广西横州市新福镇平塘村，村民雷玉宝正向来客介绍村史。
 
-维什瑙强调，在当前中东局势持续扰动全球能源市场的背景下，此举将有效减少印度对液化天然气（LNG）、尿素、氨及甲醇等大宗商品的进口需求，对保障国家能源安全具有战略意义。
+去年11月退休后，他把自家一间房屋进行改造，建起“江口历史文化展示馆”，“作为平陆运河的起点，相信这里会吸引来游客”。
 
-根据该扶持政策，印度政府将为煤气化工厂及其机械设备的建设提供约20%的财政补贴。
+南宁港开发投资有限公司副总经理胡浩机表示，运河通航后，南宁本地企业经平陆运河出海，综合物流成本将下降30%-40%。
 
-维什瑙表示，印度目前拥有约4010亿吨煤炭和470亿吨褐煤储量，位居世界前列。
+以铝土矿为例，每吨运费节省30元(人民币，下同)以上；粮食“散改集”成本降低约20%。
 
-通过该计划，印度目标实现年均煤气化处理量达7500万公吨，并有望带动约3万亿卢比的社会总投资。
+这一成本优势催生产业集聚，南宁六景工业园区已吸引太阳纸业、比亚迪等50多家临港企业，“前港后厂”模式初现雏形。
 
-责任编辑：龙运翔
+随着平陆运河通航，不沿边不沿海的南宁港六景作业区将拉近与东盟的距离。
+
+据悉，比亚迪南宁项目目前每年进口数十万吨锂辉石，货物抵达钦州港后，若全部改走平陆运河，仅运费一项每年可节省逾千万元。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 19:25 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 19:38 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 19:19 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 19:35 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 19:17 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 19:31 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 19:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 19:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 19:35 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 19:40 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 19:39 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 19:38 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 19:28 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 19:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 19:27 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 19:38 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:41 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 19:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 19:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 19:36 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 19:45 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 19:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 19:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 19:40 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 19:30 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/6898207.shtml)
-- 2026-06-29 19:41 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/372001.shtml)
-- 2026-06-29 19:37 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/88325069252.shtml)
-- 2026-06-29 19:12 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/7210428563.shtml)
-- 2026-06-29 19:40 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/3157794229.shtml)
-- 2026-06-29 19:15 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/82620208.shtml)
-- 2026-06-29 19:28 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/438004333308.shtml)
-- 2026-06-29 19:39 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/2845630028.shtml)
-- 2026-06-29 19:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/968115.shtml)
-- 2026-06-29 19:12 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/855573.shtml)
-- 2026-06-29 19:15 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/941424308.shtml)
-- 2026-06-29 19:41 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/924400841260.shtml)
-- 2026-06-29 19:41 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/05227451628.shtml)
-- 2026-06-29 19:32 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/322216096.shtml)
-- 2026-06-29 19:33 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/928613927.shtml)
+- 2026-06-29 19:45 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/898773.shtml)
+- 2026-06-29 19:19 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/5768017340.shtml)
+- 2026-06-29 19:33 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/81102767.shtml)
+- 2026-06-29 19:30 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/22472.shtml)
+- 2026-06-29 19:25 - [5万块的威力](https://www.blog.minike.top/Article/details/42274616338.shtml)
+- 2026-06-29 19:35 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/008005.shtml)
+- 2026-06-29 19:42 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/7955818567.shtml)
+- 2026-06-29 19:41 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/526372225176.shtml)
+- 2026-06-29 19:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/706982427532.shtml)
+- 2026-06-29 19:45 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.kurohicncr.top/Article/details/45765035.shtml)
+- 2026-06-29 19:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/376327511.shtml)
+- 2026-06-29 19:28 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/332666027.shtml)
+- 2026-06-29 19:41 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/71124626596.shtml)
+- 2026-06-29 19:32 - [人形机器人](http://www.blog.minike.top/Article/details/636679698.shtml)
+- 2026-06-29 19:34 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/873536.shtml)

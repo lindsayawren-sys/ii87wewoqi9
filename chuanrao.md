@@ -1,43 +1,60 @@
-# 北京口岸出入境人员破800万人次 创新高
+# 博通财报暴雷：AI指引未达顶标，股价暴跌15%
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 10:11 来源：央视新闻 责任编辑：【王祎】
+尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。 美东时间6月3日盘后，博通公布了2026财年第二财季业绩。数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，
 
 ## 正文
 
-发布时间：2026年05月13日 10:11 来源：央视新闻 责任编辑：【王祎】
+尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。
+
+美东时间6月3日盘后，博通公布了2026财年第二财季业绩。
+
+数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。
+
+其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，成为推动增长的核心引擎。
+
+然而，亮眼的数据并未能阻止股价“跳水”。
+
+博通当季总营收略低于分析师预期的222.7亿美元，同时基础设施软件业务营收71.8亿美元，也未达到73.2亿美元的预期。
+
+但真正导致市场抛售的，是管理层对未来业绩的谨慎展望。
+
+尽管博通预计第三财季总营收将达294亿美元，超出预期，但其核心的AI芯片收入指引为160亿美元，低于部分分析师预期的172亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 19:33 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 19:30 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-29 19:18 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 19:22 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 19:21 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 19:20 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 19:41 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 19:31 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 19:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 19:29 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 19:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 19:42 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 19:40 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 19:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 19:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 19:33 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 19:22 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 19:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 19:28 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 19:36 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 19:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 19:35 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 19:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 19:26 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/74158.shtml)
-- 2026-06-29 19:31 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/311968.shtml)
-- 2026-06-29 19:36 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/8040120149.shtml)
-- 2026-06-29 19:17 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/504466508.shtml)
-- 2026-06-29 19:29 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/838571432.shtml)
-- 2026-06-29 19:19 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/55208.shtml)
-- 2026-06-29 19:34 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/657069.shtml)
-- 2026-06-29 19:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/91465184970.shtml)
-- 2026-06-29 19:20 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/4857622508.shtml)
-- 2026-06-29 19:17 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/199572431325.shtml)
-- 2026-06-29 19:33 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/518046612.shtml)
-- 2026-06-29 19:36 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/014027453041.shtml)
-- 2026-06-29 19:20 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/271980.shtml)
-- 2026-06-29 19:13 - [人形机器人](http://www.share.kurohicncr.top/Article/details/6664102044.shtml)
-- 2026-06-29 19:17 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/03803.shtml)
+- 2026-06-29 19:24 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/8819396671.shtml)
+- 2026-06-29 19:18 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/996778099.shtml)
+- 2026-06-29 19:34 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/227657317527.shtml)
+- 2026-06-29 19:45 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/3519587.shtml)
+- 2026-06-29 19:39 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/9112691.shtml)
+- 2026-06-29 19:25 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/672028.shtml)
+- 2026-06-29 19:18 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/899190.shtml)
+- 2026-06-29 19:24 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/897721.shtml)
+- 2026-06-29 19:31 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/22499631097.shtml)
+- 2026-06-29 19:18 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/20566.shtml)
+- 2026-06-29 19:26 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/651387.shtml)
+- 2026-06-29 19:28 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/1600211721.shtml)
+- 2026-06-29 19:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/17962622522.shtml)
+- 2026-06-29 19:31 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/6015377.shtml)
+- 2026-06-29 19:36 - [V8](https://www.share.minike.top/Article/details/0078423.shtml)

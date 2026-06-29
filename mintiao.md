@@ -1,60 +1,56 @@
-# 9国驻华外交官开启“发现中国之美·相约活力广东”之旅
+# 四川剑阁翠云廊：把古树当成大熊猫来爱护
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网广州5月13日电 (记者 程景伟)由中国文化和旅游部主办、广东省文化和旅游厅承办的2026驻华外交官“发现中国之美·相约活力广东”活动5月12日至16日举办，邀请圭亚那、塞舌尔、保加利亚等9国共13名驻华外交官出席。 此次广东站活动，驻华外交官深入广州、深圳、佛山等地，通过考察文博场馆、历史文化街区及高科技企业，全方位感知广东在文化遗产保护、文旅产业升级及乡村振兴方面的卓
+中新社四川广元6月4日电 题：四川剑阁翠云廊：把古树当成大熊猫来爱护 中新社记者 韩仪 范思忆 “巡护已成为我的习惯和爱好，如果哪一天没有巡护，我心里还欠欠的，晚上睡不着。”中新社记者近日跟随“美丽中国行之探访国家公园”首批次集中采访团走进四川广元市剑阁县剑门关镇翠云廊，古柏护林员杜德生受访时如是说。 翠云廊是剑门蜀道上的一段古道，保存有目前存世时间最长、规模最大的人工种植古柏
 
 ## 正文
 
-中新网广州5月13日电 (记者 程景伟)由中国文化和旅游部主办、广东省文化和旅游厅承办的2026驻华外交官“发现中国之美·相约活力广东”活动5月12日至16日举办，邀请圭亚那、塞舌尔、保加利亚等9国共13名驻华外交官出席。
+中新社四川广元6月4日电 题：四川剑阁翠云廊：把古树当成大熊猫来爱护 中新社记者 韩仪 范思忆 “巡护已成为我的习惯和爱好，如果哪一天没有巡护，我心里还欠欠的，晚上睡不着。
 
-此次广东站活动，驻华外交官深入广州、深圳、佛山等地，通过考察文博场馆、历史文化街区及高科技企业，全方位感知广东在文化遗产保护、文旅产业升级及乡村振兴方面的卓越成就。
+”中新社记者近日跟随“美丽中国行之探访国家公园”首批次集中采访团走进四川广元市剑阁县剑门关镇翠云廊，古柏护林员杜德生受访时如是说。
 
-5月12日晚，广东省文化和旅游厅举办“2026发现中国之美·相约活力广东”文旅资源推介会。
+翠云廊是剑门蜀道上的一段古道，保存有目前存世时间最长、规模最大的人工种植古柏群，被誉为“森林活化石”。
 
-广东省文化和旅游厅党组书记郭大杰在致辞中表示，广东是一部读懂中国的“活力密码”。
+在翠云廊拾级而上，可见两边古柏形态各异，巍峨壮观。
 
-伴随粤港澳大湾区蓬勃发展、APEC会议即将在深圳举办，广东正以开放姿态拥抱世界。
+柏群中，有的被命名为“状元柏”，有的被命名为“夫妻柏”，美好的情感寄托背后，显露出中国人“天人合一”的生存哲学。
 
-他诚挚邀请各国外交官深度感知岭南文脉与广东活力，把在粤的所见所闻、所感所悟，传递给世界各国人民，让更多的海外朋友了解中国、喜爱广东。
+作为土生土长的剑阁人，60多岁的杜德生已巡护古柏十余年。
 
-塞舌尔共和国驻华大使安妮·拉福蒂纳表示，期待通过此次参访，深入了解广东的文化遗产、创新活力与开放姿态；热忱邀请中国游客前往塞舌尔感受其独特自然之美。
+他每日上下午至少各巡护一次，徒步约两公里，观察古柏生长、虫害、人为破坏及树下是否有易燃易爆、杂草垃圾等情况，如发现异常，立即上报；遇刮风下雨等恶劣天气时，还需紧急巡护。
 
-当晚，伴随着铿锵有力的鼓点，岭南醒狮以最高规格的传统礼仪，向远道而来的嘉宾致以热烈欢迎。
+“虽然天天都走这段路、看这些树，但不简单的是日复一日的坚持。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 19:16 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 19:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 19:18 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:23 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 19:38 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 19:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 19:27 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 19:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 19:31 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 19:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 19:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 19:22 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 19:14 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 19:44 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 19:43 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 19:36 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 19:31 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 19:29 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 19:43 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 19:20 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 19:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 19:35 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 19:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/3941217.shtml)
-- 2026-06-29 19:13 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/36212.shtml)
-- 2026-06-29 19:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/4656650.shtml)
-- 2026-06-29 19:12 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/99772.shtml)
-- 2026-06-29 19:32 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/881306915742.shtml)
-- 2026-06-29 19:28 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/15870745.shtml)
-- 2026-06-29 19:20 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/26415810005.shtml)
-- 2026-06-29 19:13 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/46810.shtml)
-- 2026-06-29 19:40 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/171161548306.shtml)
-- 2026-06-29 19:23 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/161479.shtml)
-- 2026-06-29 19:17 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/02016731.shtml)
-- 2026-06-29 19:14 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/282143012.shtml)
-- 2026-06-29 19:16 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/14989504.shtml)
-- 2026-06-29 19:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/743416515.shtml)
-- 2026-06-29 19:18 - [金牌调解](https://www.share.kurohicncr.top/Article/details/586370024945.shtml)
+- 2026-06-29 19:44 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/42685.shtml)
+- 2026-06-29 19:31 - [千与千寻](https://www.share.minike.top/Article/details/219965.shtml)
+- 2026-06-29 19:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/513691.shtml)
+- 2026-06-29 19:26 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/74985470585.shtml)
+- 2026-06-29 19:46 - [NBA交易](https://www.share.kurohicncr.top/Article/details/04850.shtml)
+- 2026-06-29 19:34 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/3465791530.shtml)
+- 2026-06-29 19:41 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/1901645190.shtml)
+- 2026-06-29 19:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/412280512456.shtml)
+- 2026-06-29 19:42 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/9283171159.shtml)
+- 2026-06-29 19:40 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/698944558.shtml)
+- 2026-06-29 19:31 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/91840419842.shtml)
+- 2026-06-29 19:40 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/2015928591.shtml)
+- 2026-06-29 19:31 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/42894339.shtml)
+- 2026-06-29 19:20 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/32749.shtml)
+- 2026-06-29 19:27 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/73013697939.shtml)

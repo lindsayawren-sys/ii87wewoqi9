@@ -1,58 +1,55 @@
-# 稀土列入国家级战略性矿产目录，稀土ETF华泰柏瑞（516780）成资金加码板块重要工具
+# 特朗普：签署协议后霍尔木兹海峡将“立即”开放
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-在政策利好释放、供需格局改善的双重驱动下，稀土行业景气度有望持续上行，多家龙头企业一季度业绩普遍高增，板块中长期投资价值或进一步夯实。不少市场资金也积极布局赛道机会，Wind数据显示，市场首只稀土产业主题ETF——稀土ETF华泰柏瑞（516780）5月以来连续获资金增持（5/6-5/11），成为助力资金布局稀土板块的重要工具。 政策方面，2026年5月9日国务院常务会议审议通过
+美国总统特朗普表示，一旦与伊朗签署谅解备忘录，霍尔木兹海峡将“立即”开放。 特朗普称，霍尔木兹海峡开放取决于“几个区域”被“清理完毕”，并称他认为没有任何水雷，因此开放会“非常快”实现。 特朗普还表示，美国无论如何都会走南部航线。 特朗普在白宫讲话。 特朗普还称，根据协议，伊朗将不会拥有核武器。责任编辑：丁文武
 
 ## 正文
 
-在政策利好释放、供需格局改善的双重驱动下，稀土行业景气度有望持续上行，多家龙头企业一季度业绩普遍高增，板块中长期投资价值或进一步夯实。
+美国总统特朗普表示，一旦与伊朗签署谅解备忘录，霍尔木兹海峡将“立即”开放。
 
-不少市场资金也积极布局赛道机会，Wind数据显示，市场首只稀土产业主题ETF——稀土ETF华泰柏瑞（516780）5月以来连续获资金增持（5/6-5/11），成为助力资金布局稀土板块的重要工具。
+特朗普称，霍尔木兹海峡开放取决于“几个区域”被“清理完毕”，并称他认为没有任何水雷，因此开放会“非常快”实现。
 
-政策方面，2026年5月9日国务院常务会议审议通过《中华人民共和国矿产资源法实施条例 （草案）》，正式将稀土等矿产列入国家级战略性矿产目录。
+特朗普还表示，美国无论如何都会走南部航线。
 
-该《条例》通过审批上收、总量严控、全链条监管、出口收紧、生态硬约束等多重举措，从顶层法规层面强化稀土国家战略管控，推动稀土行业进一步集中化、规范化、价值重估，重塑行业供给与竞争格局。
+特朗普在白宫讲话。
 
-消息方面，5月11日某稀土龙头召开业绩说明会，对稀土行业的长期发展持积极态度。
+特朗普还称，根据协议，伊朗将不会拥有核武器。
 
-该稀土龙头表示，今年来伴随下游终端需求的稳步增加，部分稀土产品价格呈现出上涨趋势。
-
-中长期来看，随着稀土在新兴领域的应用范围不断扩大，叠加行业技术进步，稀土应用场景逐步拓展，稀土供需格局有望持续改善。
-
-政策端与消息面的利好，显著提升了稀土ETF华泰柏瑞（516780）等产品的市场关注度。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 19:27 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 19:27 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 19:20 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 19:41 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 19:23 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 19:17 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 19:19 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 19:18 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 19:20 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 19:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 19:24 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 19:34 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 19:41 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 19:36 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 19:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 19:27 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 19:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 19:44 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 19:27 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 19:26 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 19:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 19:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 19:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:44 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/86930457.shtml)
-- 2026-06-29 19:23 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/6069327.shtml)
-- 2026-06-29 19:16 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/4567060.shtml)
-- 2026-06-29 19:31 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/398225076415.shtml)
-- 2026-06-29 19:12 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/1220948845.shtml)
-- 2026-06-29 19:20 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/343317.shtml)
-- 2026-06-29 19:21 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/10217.shtml)
-- 2026-06-29 19:37 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/754517237.shtml)
-- 2026-06-29 19:22 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/0908473431.shtml)
-- 2026-06-29 19:29 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/5803738.shtml)
-- 2026-06-29 19:19 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/53910705.shtml)
-- 2026-06-29 19:38 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/20326086988.shtml)
-- 2026-06-29 19:41 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/91636443788.shtml)
-- 2026-06-29 19:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/066324346971.shtml)
-- 2026-06-29 19:32 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.kurohicncr.top/Article/details/859863440253.shtml)
+- 2026-06-29 19:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/06073883298.shtml)
+- 2026-06-29 19:25 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/790006469.shtml)
+- 2026-06-29 19:39 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/829135517658.shtml)
+- 2026-06-29 19:47 - [人形机器人](https://www.blog.minike.top/Article/details/8255325.shtml)
+- 2026-06-29 19:18 - [时光音乐会](http://www.share.minike.top/Article/details/2839139.shtml)
+- 2026-06-29 19:26 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/510142698588.shtml)
+- 2026-06-29 19:40 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/140477227375.shtml)
+- 2026-06-29 19:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/2351207.shtml)
+- 2026-06-29 19:37 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/6608177638.shtml)
+- 2026-06-29 19:42 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/685733208337.shtml)
+- 2026-06-29 19:32 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/426852247.shtml)
+- 2026-06-29 19:36 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/02978052116.shtml)
+- 2026-06-29 19:21 - [章若楠包场白敬亭特立独行](http://www.share.kurohicncr.top/Article/details/24137.shtml)
+- 2026-06-29 19:35 - [乔家的儿女](https://www.share.minike.top/Article/details/8157229.shtml)
+- 2026-06-29 19:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/00663098.shtml)

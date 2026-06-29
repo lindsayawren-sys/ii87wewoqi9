@@ -1,56 +1,61 @@
-# 中美元首会晤在即 专家：美方有责任慎重处理台湾问题
+# “闽超”受两岸关注 国台办：开放台胞专属参赛名额
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新社北京5月13日电 (记者 李京泽)即将到来的中美元首会晤吸引世界目光。据外媒报道，台湾问题料将是美国总统特朗普访华期间谈及的重要议题之一。 台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础，是中美关系第一条不可逾越的红线，也是中美关系的最大风险点。 元首互动，既是稳定双边关系的战略引领，也是坚守底线的坦诚对话。自特朗普重返白宫以来，台湾问题多次在中美元首互动中被
+中新社北京6月3日电 (李百加 张晓曦)近期，“闽超”推出系列特色对台活动，引发广大台胞关注。国务院台办发言人朱凤莲3日介绍，其中“喊您来参赛”活动，开放台胞专属参赛名额，每一支闽超参赛队伍均可新增2名台胞球员。当日在北京举行的国台办例行新闻发布会上，关于大陆各地“省超”，朱凤莲答问时表示，其烟火气在每一个周末点燃两岸球迷的激情与热血。其中，为助力两岸融合发展示范区建设，“闽超
 
 ## 正文
 
-中新社北京5月13日电 (记者 李京泽)即将到来的中美元首会晤吸引世界目光。
+中新社北京6月3日电 (李百加 张晓曦)近期，“闽超”推出系列特色对台活动，引发广大台胞关注。
 
-据外媒报道，台湾问题料将是美国总统特朗普访华期间谈及的重要议题之一。
+国务院台办发言人朱凤莲3日介绍，其中“喊您来参赛”活动，开放台胞专属参赛名额，每一支闽超参赛队伍均可新增2名台胞球员。
 
-台湾问题是中国核心利益中的核心，是中美关系政治基础中的基础，是中美关系第一条不可逾越的红线，也是中美关系的最大风险点。
+当日在北京举行的国台办例行新闻发布会上，关于大陆各地“省超”，朱凤莲答问时表示，其烟火气在每一个周末点燃两岸球迷的激情与热血。
 
-元首互动，既是稳定双边关系的战略引领，也是坚守底线的坦诚对话。
+其中，为助力两岸融合发展示范区建设，“闽超”近日创新推出三大特色对台系列活动。
 
-自特朗普重返白宫以来，台湾问题多次在中美元首互动中被提及。
+除开放台胞专属参赛名额外，朱凤莲介绍说，“闽超”还推出“邀您来观球”活动，各大赛区主场邀请台胞赴闽观球，启动“两岸球迷同框加油”短视频征集活动，邀请金门、马祖特色啦啦队同福建啦啦队同台展演。
 
-去年以来，在与特朗普的多次通话中，中国国家主席习近平指出，“台湾问题是中美关系中最重要的问题”“美国应当慎重处理台湾问题”“台湾问题事关中国国家主权和领土完整”。
+“请您来交流”活动，由各赛区主动对接台湾、港澳及海外侨胞球队，常态化开展友谊交流赛，厦门、平潭等地将举办至少一场闽超队伍与台湾地区城市球队的专项交流赛。
 
-南京大学国际关系学院院长朱锋表示，中方一再强调这条红线，就是要让美方清晰了解中方的原则底线，避免误解误判，防止冲突对抗。
+中央台办4月12日受权发布十项促进两岸交流合作的政策措施，其中第九项包含“台湾业者可以多种方式参与大陆微短剧创作”。
 
-复旦大学国际问题研究院院长吴心伯说，台湾问题是中美关系中最核心、最敏感的问题。
+朱凤莲说，这为推进两岸微短剧交流合作提供了有力的政策支持。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 19:30 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 19:25 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 19:30 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 19:30 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 19:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 19:14 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 19:17 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 19:39 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 19:36 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 19:32 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 19:30 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 19:25 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 19:38 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 19:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 19:27 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 19:47 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 19:27 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 19:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 19:36 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 19:18 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 19:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 19:47 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 19:38 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 19:30 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [周生如故](http://www.blog.kurohicncr.top/Article/details/101589639.shtml)
-- 2026-06-29 19:22 - [首个靠AI躺赢的国家](https://www.share.kurohicncr.top/Article/details/26148310991.shtml)
-- 2026-06-29 19:30 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/857291669456.shtml)
-- 2026-06-29 19:21 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/544087816985.shtml)
-- 2026-06-29 19:16 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/4613461.shtml)
-- 2026-06-29 19:38 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/7394308.shtml)
-- 2026-06-29 19:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/7435708.shtml)
-- 2026-06-29 19:29 - [逆天祖国人](http://www.share.minike.top/Article/details/9001431334.shtml)
-- 2026-06-29 19:12 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/02251860.shtml)
-- 2026-06-29 19:39 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/2080850.shtml)
-- 2026-06-29 19:17 - [5万块的威力](http://www.share.minike.top/Article/details/26110.shtml)
-- 2026-06-29 19:36 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/911930.shtml)
-- 2026-06-29 19:40 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/95455691375.shtml)
-- 2026-06-29 19:36 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/9114937782.shtml)
-- 2026-06-29 19:27 - [我和我的家乡](http://www.blog.minike.top/Article/details/5695001.shtml)
+- 2026-06-29 19:38 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/283860.shtml)
+- 2026-06-29 19:34 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/753330707.shtml)
+- 2026-06-29 19:18 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/66000622.shtml)
+- 2026-06-29 19:36 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/1851464.shtml)
+- 2026-06-29 19:47 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/09409265.shtml)
+- 2026-06-29 19:43 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/1994511081.shtml)
+- 2026-06-29 19:21 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/043085.shtml)
+- 2026-06-29 19:23 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/138814823673.shtml)
+- 2026-06-29 19:25 - [青春环游记第三季](https://www.share.minike.top/Article/details/040806.shtml)
+- 2026-06-29 19:26 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/748270.shtml)
+- 2026-06-29 19:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/309740839.shtml)
+- 2026-06-29 19:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/5385170.shtml)
+- 2026-06-29 19:43 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/601198981.shtml)
+- 2026-06-29 19:23 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/321541.shtml)
+- 2026-06-29 19:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/5926791051.shtml)

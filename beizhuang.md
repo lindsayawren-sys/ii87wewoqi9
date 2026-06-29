@@ -1,59 +1,57 @@
-# 摩根大通CEO戴蒙称要获得更好增长 需解决美欧之间“愚蠢”的贸易问题
+# 绿通科技股价破发情形下再遭减持 押注半导体国产替代初见成效
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-摩根大通首席执行官杰米·戴蒙表示，解决美国和欧洲之间“愚蠢的”贸易问题将为更好的增长铺平道路。 “如果你问我，我们与欧洲经济关系的目标应该是什么，我的答案应该是让欧洲变得更强大，”戴蒙周二在巴黎举行的摩根大通年度全球市场大会上接受采访时表示。“这样一来，双方经济都会发展得更好。” 戴蒙长期以来一直就美欧关系的问题发出警告。他曾在12月表示，欧洲大陆存在“真正的难题”。他周二表示
+出品：新浪财经上市公司研究院 作者：光心 5月27日晚，绿通科技发布股东预减持公告，股东广州创钰铭晨股权投资基金企业（有限合伙）、广州创钰铭恒股权投资基金企业（有限合伙）、珠海创钰铭汇股权投资基金企业（有限合伙）、广州创钰凯越创业投资基金合伙企业（有限合伙）在自本减持计划公告之日起15个交易日后的3个月内以集中竞价方式和大宗交易方式合计减持公司股份不超过4，279，500股，合
 
 ## 正文
 
-摩根大通首席执行官杰米·戴蒙表示，解决美国和欧洲之间“愚蠢的”贸易问题将为更好的增长铺平道路。
+出品：新浪财经上市公司研究院 作者：光心 5月27日晚，绿通科技发布股东预减持公告，股东广州创钰铭晨股权投资基金企业（有限合伙）、广州创钰铭恒股权投资基金企业（有限合伙）、珠海创钰铭汇股权投资基金企业（有限合伙）、广州创钰凯越创业投资基金合伙企业（有限合伙）在自本减持计划公告之日起15个交易日后的3个月内以集中竞价方式和大宗交易方式合计减持公司股份不超过4，279，500股，合计不超过公司总股本的3.00%。
 
-“如果你问我，我们与欧洲经济关系的目标应该是什么，我的答案应该是让欧洲变得更强大，”戴蒙周二在巴黎举行的摩根大通年度全球市场大会上接受采访时表示。
+本次减持主体互为一致行动人，且均系已通过中国证券投资基金业协会备案的创业投资基金。
 
-“这样一来，双方经济都会发展得更好。
+按照2026年6月3日51.00元/股的收盘价计算，上述四家创投机构在此轮减持中的变现金额约为2.18亿元。
 
-” 戴蒙长期以来一直就美欧关系的问题发出警告。
+近年主业断崖式下滑 上市三年股价仍破发 绿通科技成立于2004年，于2023年实现创业板上市。
 
-他曾在12月表示，欧洲大陆存在“真正的难题”。
+公司主营业务为高尔夫球车、观光车、电动巡逻车等场地电动车的研发、生产与销售，2022年，公司高尔夫球车贡献的营收占比高达84.61%。
 
-他周二表示，更强大的北约和欧洲盟友将使美国受益。
+绿通科技的业务结构决定了其较为依赖海外市场。
 
-他还说，修复贸易问题是加强美欧关系的途径。
+据美国NGF数据，截至2020年末，全世界共有38081个高尔夫球场，其中美国拥有16156个，占比高达42.43%，这使得美国成为全球高尔夫球车的核心市场。
 
-“解决这些问题，”戴蒙说。
+在此情形下，绿通科技的海外营收占比常年超过80%，其中美国是最主要的境外市场。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 19:37 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 19:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 19:16 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 19:25 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 19:24 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 19:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 19:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 19:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 19:36 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 19:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 19:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 19:40 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 19:45 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 19:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 19:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 19:21 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 19:29 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 19:45 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 19:29 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 19:35 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 19:24 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 19:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 19:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/720121380798.shtml)
-- 2026-06-29 19:22 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/85710056196.shtml)
-- 2026-06-29 19:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/91324522.shtml)
-- 2026-06-29 19:34 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/01424645972.shtml)
-- 2026-06-29 19:28 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/458690.shtml)
-- 2026-06-29 19:26 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/063539202204.shtml)
-- 2026-06-29 19:30 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/765799.shtml)
-- 2026-06-29 19:38 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/907188872.shtml)
-- 2026-06-29 19:27 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/896181492.shtml)
-- 2026-06-29 19:13 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/663078222.shtml)
-- 2026-06-29 19:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/16893976916.shtml)
-- 2026-06-29 19:40 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/317789.shtml)
-- 2026-06-29 19:29 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/972648.shtml)
-- 2026-06-29 19:40 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/796543.shtml)
-- 2026-06-29 19:26 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/0780526.shtml)
+- 2026-06-29 19:27 - [这一刀 会很帅](http://www.share.minike.top/Article/details/243238655470.shtml)
+- 2026-06-29 19:21 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/8349702706.shtml)
+- 2026-06-29 19:35 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/8877224948.shtml)
+- 2026-06-29 19:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/66618973.shtml)
+- 2026-06-29 19:20 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/425798036016.shtml)
+- 2026-06-29 19:42 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/985758175.shtml)
+- 2026-06-29 19:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/2856151.shtml)
+- 2026-06-29 19:41 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/500365689478.shtml)
+- 2026-06-29 19:46 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/52353401.shtml)
+- 2026-06-29 19:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/2579619.shtml)
+- 2026-06-29 19:26 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/36218862.shtml)
+- 2026-06-29 19:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/93820533.shtml)
+- 2026-06-29 19:43 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/40735967.shtml)
+- 2026-06-29 19:28 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/13177980.shtml)
+- 2026-06-29 19:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/78178.shtml)

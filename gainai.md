@@ -1,57 +1,59 @@
-# 京东物流第一季度营收606亿元同比增长29%
+# 量子计算：泡沫炒作还是硬核实业？
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-京东物流周二公布2026年第一季度财报，总收入达605.81亿元人民币（约合83.7亿美元），同比增长29.0%。归属于公司所有者的净利润为8.8亿元，同比大幅增长95.2%；经调整净利润达10.52亿元，同比增长40.1%。这也是京东物流自上市以来利润表现最好的一季度业绩。 营收拆分：外部客户贡献近七成 财报显示，来自外部客户的收入为411.81亿元，占总收入比例达68%。其
+“量子” 一词本义为 “一份、定量”，源自拉丁语词根，含义是 “多少”。在物理学中，量子是各类物理属性最小的不可分割基本单位。用作形容词时，例如短语 “quantum leap（跨越式巨变）”，指代突发性、根本性的重大变革；而这个词用来定义下一代颠覆性科技 —— 量子计算，也再贴切不过。 继人工智能之后，量子计算被业界奉为即将颠覆整个算力行业的下一代技术。各类行业头条虽然对非专
 
 ## 正文
 
-京东物流周二公布2026年第一季度财报，总收入达605.81亿元人民币（约合83.7亿美元），同比增长29.0%。
+“量子” 一词本义为 “一份、定量”，源自拉丁语词根，含义是 “多少”。
 
-归属于公司所有者的净利润为8.8亿元，同比大幅增长95.2%；经调整净利润达10.52亿元，同比增长40.1%。
+在物理学中，量子是各类物理属性最小的不可分割基本单位。
 
-这也是京东物流自上市以来利润表现最好的一季度业绩。
+用作形容词时，例如短语 “quantum leap（跨越式巨变）”，指代突发性、根本性的重大变革；而这个词用来定义下一代颠覆性科技 —— 量子计算，也再贴切不过。
 
-营收拆分：外部客户贡献近七成 财报显示，来自外部客户的收入为411.81亿元，占总收入比例达68%。
+继人工智能之后，量子计算被业界奉为即将颠覆整个算力行业的下一代技术。
 
-其中，一体化供应链客户收入为292亿元，同比增长25.9%，主要受益于合作模式纵深升级与全球服务扩张；来自快递、快运、秒送等服务的其他客户收入达314亿元，同比增长32.0%。
+各类行业头条虽然对非专业读者晦涩难懂，却极具冲击力： 然而，满是行业术语的亮眼科技头条，历来常常超前于产业落地现实。
 
-公司一季度毛利为48.3亿元，同比增长42.6%；非国际财务报告准则EBITDA为45.95亿元，同比增长22.3%。
+下文将厘清量子计算的本质、行业价值，判断行业热潮究竟名实相符，还是盲目炒作、不值得资本入局。
 
-销售及市场推广开支为17亿元，占营收比例为2.8%。
+经典计算机与摩尔定律 想要读懂量子计算，先要弄懂比特。
 
-责任编辑：张俊 SF065
+从智能手机、桌面笔记本，到全球算力顶尖的 “埃尔卡皮坦” 超级计算机，所有经典计算机的运算基础都是比特。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 19:36 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 19:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 19:27 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 19:27 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 19:30 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 19:13 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 19:16 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 19:24 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 19:23 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 19:23 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 19:33 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 19:27 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 19:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 19:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 19:20 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 19:25 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 19:45 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 19:35 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 19:35 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 19:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 19:23 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:31 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 19:33 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/79205958995.shtml)
-- 2026-06-29 19:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/39456376.shtml)
-- 2026-06-29 19:14 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/8495886916.shtml)
-- 2026-06-29 19:27 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/9291203.shtml)
-- 2026-06-29 19:39 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/93943187623.shtml)
-- 2026-06-29 19:18 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/24551.shtml)
-- 2026-06-29 19:20 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/8888344344.shtml)
-- 2026-06-29 19:35 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/11119588826.shtml)
-- 2026-06-29 19:24 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/9194518790.shtml)
-- 2026-06-29 19:41 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/63501057099.shtml)
-- 2026-06-29 19:16 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/83178.shtml)
-- 2026-06-29 19:33 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/970364.shtml)
-- 2026-06-29 19:19 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/273772396.shtml)
-- 2026-06-29 19:25 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/2887405.shtml)
-- 2026-06-29 19:19 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/46084747.shtml)
+- 2026-06-29 19:47 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/491107200790.shtml)
+- 2026-06-29 19:33 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/810809251404.shtml)
+- 2026-06-29 19:27 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/2612611469.shtml)
+- 2026-06-29 19:42 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/424079484.shtml)
+- 2026-06-29 19:45 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/09267991806.shtml)
+- 2026-06-29 19:19 - [明星大侦探第四季](http://www.share.minike.top/Article/details/5143006.shtml)
+- 2026-06-29 19:35 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/022963.shtml)
+- 2026-06-29 19:24 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/474708394.shtml)
+- 2026-06-29 19:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/277414934.shtml)
+- 2026-06-29 19:35 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/290866256.shtml)
+- 2026-06-29 19:42 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/56073639.shtml)
+- 2026-06-29 19:43 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/90464.shtml)
+- 2026-06-29 19:41 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/59007.shtml)
+- 2026-06-29 19:41 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/1586735526.shtml)
+- 2026-06-29 19:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/069080276.shtml)

@@ -1,56 +1,59 @@
-# 探营杭州国际具身机器人场景应用大赛：机器人展现“十八般武艺”
+# 易方达ETF超过华夏了
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-遭党内“逼宫” 斯塔默能迈过这道坎吗？Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？ 专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？保温杯等商品在多国热销 中式生活带动中国产品出海刷牙后立即漱口等于白刷？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：小基慢跑 之前写过： 易方达ETF规模马上超过华夏了 昨儿数据出来，易方达已经超过了华夏，成为新的ETF一哥了。 这是多年来华夏基金首次在ETF规模上被超越。 今年以来，受市场波动影响，头部基金公司ETF规模普遍出现缩水。易方达ETF规模减少了2622亿元，华夏减少了3407亿元。虽然两家都面临压力，
 
 ## 正文
 
-遭党内“逼宫” 斯塔默能迈过这道坎吗？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？
+来源：小基慢跑 之前写过： 易方达ETF规模马上超过华夏了 昨儿数据出来，易方达已经超过了华夏，成为新的ETF一哥了。
 
-专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？
+这是多年来华夏基金首次在ETF规模上被超越。
 
-央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？
+今年以来，受市场波动影响，头部基金公司ETF规模普遍出现缩水。
 
-保温杯等商品在多国热销 中式生活带动中国产品出海刷牙后立即漱口等于白刷？
+易方达ETF规模减少了2622亿元，华夏减少了3407亿元。
 
-医生建议情绪易怒爱走神是前额叶受损吗？
+虽然两家都面临压力，但易方达的缩水幅度相对更小，这也成为其反超的关键。
 
-保护大脑做好这4件事汶川地震十八载，我们从未忘记AI蒸馏复刻同事？
-
-潜藏三方面法律风险需关注图书广告引热议 “余华读得浑身发抖”被余华打假这种花是天然“消炎药”还能增强免疫力 有几类人要慎用徒步热潮下，山野垃圾谁来收？
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 19:16 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 19:35 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 19:32 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 19:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 19:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 19:28 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 19:41 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 19:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 19:41 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 19:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 19:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 19:39 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 19:21 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 19:34 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 19:46 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 19:32 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 19:40 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 19:40 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 19:38 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 19:21 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 19:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 19:21 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 19:18 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 19:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/9866830010.shtml)
-- 2026-06-29 19:14 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/759958752.shtml)
-- 2026-06-29 19:17 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/44112907.shtml)
-- 2026-06-29 19:13 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/8661329.shtml)
-- 2026-06-29 19:13 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/5389061.shtml)
-- 2026-06-29 19:17 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/30266912.shtml)
-- 2026-06-29 19:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/3099398590.shtml)
-- 2026-06-29 19:20 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/3539998.shtml)
-- 2026-06-29 19:20 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/041257.shtml)
-- 2026-06-29 19:22 - [千与千寻](https://www.blog.minike.top/Article/details/7968569317.shtml)
-- 2026-06-29 19:26 - [主力抛售电子和通信板块](http://www.share.minike.top/Article/details/0889576948.shtml)
-- 2026-06-29 19:17 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/77369.shtml)
-- 2026-06-29 19:16 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/1887386.shtml)
-- 2026-06-29 19:40 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/920521955.shtml)
-- 2026-06-29 19:41 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/350515.shtml)
+- 2026-06-29 19:42 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/022823236148.shtml)
+- 2026-06-29 19:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/447970879576.shtml)
+- 2026-06-29 19:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/692848036.shtml)
+- 2026-06-29 19:35 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/382112.shtml)
+- 2026-06-29 19:44 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/7882677743.shtml)
+- 2026-06-29 19:47 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/6435120.shtml)
+- 2026-06-29 19:29 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/9330544418.shtml)
+- 2026-06-29 19:41 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/45438.shtml)
+- 2026-06-29 19:36 - [女心理师](https://www.share.kurohicncr.top/Article/details/37280442298.shtml)
+- 2026-06-29 19:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/442693385833.shtml)
+- 2026-06-29 19:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/439264.shtml)
+- 2026-06-29 19:31 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/685548644091.shtml)
+- 2026-06-29 19:20 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/82368.shtml)
+- 2026-06-29 19:38 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/48777645442.shtml)
+- 2026-06-29 19:29 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/16312787973.shtml)

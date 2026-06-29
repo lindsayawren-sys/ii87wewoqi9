@@ -1,61 +1,56 @@
-# 拜耳净利润大幅飙升，由农业板块增长驱动
+# 酒价内参6月5日价格发布：水晶剑南春下跌3元
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-拜耳公布一季度净利润大幅攀升，主要得益于抗生素业务出售带来的收益，以及农业板块基础盈利表现走强。 这家德国农业与制药集团于周二表示，公司第一季度净利润达27.6亿欧元（折合32.5亿美元），去年同期为13亿欧元；上年同期业绩曾受诉讼拨备拖累。公司同时称，录得3.24亿欧元专项净收益，主要来自旗下AVELOX抗生素业务的出售。 历经多年法律纠纷并为此计提数十亿欧元拨备后，拜耳计划
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月5日整体继续承压大幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9876元，较昨日大幅下跌24元，总价创下近50天以来最低。市场在前一日转衰后再度大幅走弱，终端交投情绪偏冷，今日除青花汾20与古井贡古20上涨外其余九大品种均下
 
 ## 正文
 
-拜耳公布一季度净利润大幅攀升，主要得益于抗生素业务出售带来的收益，以及农业板块基础盈利表现走强。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月5日整体继续承压大幅走弱。
 
-这家德国农业与制药集团于周二表示，公司第一季度净利润达27.6亿欧元（折合32.5亿美元），去年同期为13亿欧元；上年同期业绩曾受诉讼拨备拖累。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9876元，较昨日大幅下跌24元，总价创下近50天以来最低。
 
-公司同时称，录得3.24亿欧元专项净收益，主要来自旗下AVELOX抗生素业务的出售。
+市场在前一日转衰后再度大幅走弱，终端交投情绪偏冷，今日除青花汾20与古井贡古20上涨外其余九大品种均下跌或平盘，其中四款酒价创下月内新低。
 
-历经多年法律纠纷并为此计提数十亿欧元拨备后，拜耳计划在2026年控制农达除草剂相关诉讼风险——农达是全球使用最广泛的除草剂产品。
+今日白酒市场11大单品二涨八跌一平，输家仍旧占据绝对优势。
 
-公司季度销售额为134.05亿欧元，剔除汇率及资产组合变动因素后同比增长4.1%。
+上涨方面，古井贡古20涨幅居前，上涨5元/瓶，收复昨日全部失地，自月内低谷温和回升；青花汾20上涨4元/瓶，亦回补前一日全部跌幅。
 
-据瓦拉研究整理的市场一致预期，分析师此前预估销售额为134.2亿欧元。
+下跌方面，国窖1573、洋河梦之蓝M6+、习酒君品与青花郎均下跌5元/瓶，其中国窖1573再度失守890元，平月内最低价格纪录，洋河梦之蓝M6+再度跌落600元大关，习酒君品终结此前四连阳，青花郎则续创月内新低，亦创下“酒价内参”统计以来的最低均价纪录；精品茅台与五粮液普五八代均下跌4元/瓶，后者近一个月价格下行明显，今日亦创下月内新低；水晶剑南春下跌3元/瓶；飞天茅台下跌2元/瓶。
 
-拜耳农业业务与消费者健康业务实现内生增长，抵消了制药板块的业绩下滑。
+五粮液1618的价格环比保持不变，近一个月走势颇为平稳。
 
-剔除特殊项目后的息税折旧摊销前利润同比增长9%，至44.5亿欧元；分析师此前预期该指标为39.3亿欧元。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 19:26 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 19:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 19:25 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 19:41 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 19:27 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 19:17 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 19:14 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 19:40 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 19:15 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 19:30 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 19:28 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 19:14 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 19:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 19:29 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 19:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 19:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 19:34 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 19:42 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 19:24 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 19:31 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 19:38 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 19:28 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 19:19 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 19:27 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [存储三巨头被告了](http://www.share.minike.top/Article/details/659232439374.shtml)
-- 2026-06-29 19:17 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/03952.shtml)
-- 2026-06-29 19:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/792016159.shtml)
-- 2026-06-29 19:12 - [流金岁月](http://www.blog.minike.top/Article/details/2338998.shtml)
-- 2026-06-29 19:24 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/03252930326.shtml)
-- 2026-06-29 19:38 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/912871325417.shtml)
-- 2026-06-29 19:26 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/535812017937.shtml)
-- 2026-06-29 19:33 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/41011.shtml)
-- 2026-06-29 19:35 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/37633.shtml)
-- 2026-06-29 19:25 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/591930855.shtml)
-- 2026-06-29 19:31 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/220464346.shtml)
-- 2026-06-29 19:30 - [小娘惹](https://www.share.kurohicncr.top/Article/details/65814896033.shtml)
-- 2026-06-29 19:18 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/77564155634.shtml)
-- 2026-06-29 19:19 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/127290205.shtml)
-- 2026-06-29 19:34 - [急先锋](http://www.blog.kurohicncr.top/Article/details/587185.shtml)
+- 2026-06-29 19:39 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/67063.shtml)
+- 2026-06-29 19:45 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/148896.shtml)
+- 2026-06-29 19:47 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/63202.shtml)
+- 2026-06-29 19:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/41668.shtml)
+- 2026-06-29 19:36 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/38894.shtml)
+- 2026-06-29 19:39 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/55067088.shtml)
+- 2026-06-29 19:45 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/46824335.shtml)
+- 2026-06-29 19:39 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/94160.shtml)
+- 2026-06-29 19:46 - [永远有话聊的原因](https://www.share.minike.top/Article/details/210909255.shtml)
+- 2026-06-29 19:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/2707947599.shtml)
+- 2026-06-29 19:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/841050887657.shtml)
+- 2026-06-29 19:45 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/195201647228.shtml)
+- 2026-06-29 19:46 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/5448112423.shtml)
+- 2026-06-29 19:42 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/21600.shtml)
+- 2026-06-29 19:46 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/62258209.shtml)

@@ -1,60 +1,60 @@
-# 途易集团第二财季亏损收窄,维持全年盈利预期
+# 中信建投期货：6月4日黑色系早报
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-5月13日，欧洲大型旅游巨头途易集团（TUI）发布的最新财报显示，受益于旅游预订需求的强劲韧性，该公司2026财年第二季度亏损额窄于市场预期。财报同时重申了全年盈利指引。 数据显示，在截至3月31日的第二财季中，途易集团经调整后的营业亏损为1.88亿欧元（约合2.21亿美元），较去年同期减亏9%，表现优于受访分析师此前预期的1.94亿欧元。尽管中东局势引发的航班取消和航线调整造
+钢材早报：需求承压，期钢窄幅震荡 市场信息： 1、6 月 3 日，焦炭价格偏强运行。河北市场钢厂对焦炭采购价上调，湿熄涨幅 50 元/吨，干熄涨幅 55 元/吨，2026 年 6 月 3 日 0 时起执行。原料端成本支撑强势，主流焦企将于本周五对焦炭价格进行第六轮提涨。 2、Mystee 最新调研结果显示：5 月 23 日以来山西停产煤矿总计数量 134 座，产能共计 1.53
 
 ## 正文
 
-5月13日，欧洲大型旅游巨头途易集团（TUI）发布的最新财报显示，受益于旅游预订需求的强劲韧性，该公司2026财年第二季度亏损额窄于市场预期。
+钢材早报：需求承压，期钢窄幅震荡 市场信息： 1、6 月 3 日，焦炭价格偏强运行。
 
-财报同时重申了全年盈利指引。
+河北市场钢厂对焦炭采购价上调，湿熄涨幅 50 元/吨，干熄涨幅 55 元/吨，2026 年 6 月 3 日 0 时起执行。
 
-数据显示，在截至3月31日的第二财季中，途易集团经调整后的营业亏损为1.88亿欧元（约合2.21亿美元），较去年同期减亏9%，表现优于受访分析师此前预期的1.94亿欧元。
+原料端成本支撑强势，主流焦企将于本周五对焦炭价格进行第六轮提涨。
 
-尽管中东局势引发的航班取消和航线调整造成了约4000万欧元的直接损失，但强劲的订单增长有效抵消了地缘政治风险带来的负面冲击。
+2、Mystee 最新调研结果显示：5 月 23 日以来山西停产煤矿总计数量 134 座，产能共计 1.537 亿吨。
 
-途易集团首席执行官塞巴斯蒂安·埃贝尔（Sebastian Ebel）在声明中指出，二季度的经营表现提振了公司对下半财年的信心。
+截至 6 月 3 日上午，复产煤矿数量达到 59 座，产能共计 7765 万吨。
 
-他强调，面对复杂的地缘政治挑战和动态变化的运营环境，公司将通过保持高度的灵活性和专业性来应对潜在风险。
+仍在停产状态煤矿共计 75 座，产能共计 7605 万吨。
 
-在业绩展望方面，途易集团重申了4月份发布的年度指引，预计2026财年全年经调整后的营业利润将在11亿至14亿欧元之间。
+3、据中指研究院数据，5 月 20 城二手住宅成交 14.1 万套，同比增长 19.3%，同比增幅较上月扩大 6.3 个百分点。
 
-此前，受航空燃油成本攀升及中东局势不确定性影响，该公司曾一度调整相关利润预期。
+北京、上海二手房分别成交 1.6 万、2.8 万套，同比分别增长 12.1%，30.9%，连续两个月创近五年同期新高。
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 19:37 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 19:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 19:32 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 19:33 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 19:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 19:16 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 19:17 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 19:12 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 19:37 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 19:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 19:40 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 19:30 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 19:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 19:23 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 19:33 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 19:35 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 19:21 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 19:36 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 19:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 19:18 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 19:34 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 19:34 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 19:41 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 19:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 19:32 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 19:38 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 19:46 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/314743300741.shtml)
-- 2026-06-29 19:25 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/61243399371.shtml)
-- 2026-06-29 19:18 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/2152462.shtml)
-- 2026-06-29 19:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/56591.shtml)
-- 2026-06-29 19:16 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/5620025.shtml)
-- 2026-06-29 19:33 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/935489.shtml)
-- 2026-06-29 19:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/4848306733.shtml)
-- 2026-06-29 19:13 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/69648786237.shtml)
-- 2026-06-29 19:24 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/16958706.shtml)
-- 2026-06-29 19:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/042667.shtml)
-- 2026-06-29 19:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/08607.shtml)
-- 2026-06-29 19:29 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/39746.shtml)
-- 2026-06-29 19:35 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/397015034.shtml)
-- 2026-06-29 19:20 - [这一刀 会很帅](https://www.share.minike.top/Article/details/78103400665.shtml)
-- 2026-06-29 19:16 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/28355796.shtml)
+- 2026-06-29 19:28 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/87714.shtml)
+- 2026-06-29 19:43 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/85183738.shtml)
+- 2026-06-29 19:21 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/58394.shtml)
+- 2026-06-29 19:42 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/430237.shtml)
+- 2026-06-29 19:44 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/4614101.shtml)
+- 2026-06-29 19:26 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/71269526.shtml)
+- 2026-06-29 19:47 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/22545.shtml)
+- 2026-06-29 19:40 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/10923591305.shtml)
+- 2026-06-29 19:25 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/81162913618.shtml)
+- 2026-06-29 19:45 - [T1零封KC MSI](https://www.share.minike.top/Article/details/857450778729.shtml)
+- 2026-06-29 19:46 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/503183410304.shtml)
+- 2026-06-29 19:43 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/99526202020.shtml)
+- 2026-06-29 19:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/333062006006.shtml)
+- 2026-06-29 19:39 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/496979870965.shtml)
+- 2026-06-29 19:46 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/633746.shtml)

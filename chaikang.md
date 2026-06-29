@@ -1,56 +1,61 @@
-# 多部陆剧在岛内热播 国台办：支持台湾有关团体邀请大陆艺人赴台交流
+# 国新文化（600636）业绩预告涉嫌信披违规，股民索赔可期
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新社北京5月13日电 (徐雪莹 刘大炜)国务院台办发言人张晗13日在北京表示，近期多部大陆影视剧在岛内热播，剧中一些演员深受台湾观众喜爱。我们对此喜闻乐见，支持台湾有关团体邀请大陆艺人赴台交流，与岛内观众见面。在当天举行的国台办例行新闻发布会上，有记者提到，台北演艺经纪文化交流协会创会理事长王祥基近日出席第三届海峡两岸中华文化峰会时说，希望邀请大陆演员到台湾交流，计划开展签名
+2026年1月31日，国新文化控股股份有限公司（简称国新文化、退市国化（维权），代码：600636）发布《2025年年度业绩预亏公告》。称公司预计2025年年度实现归属于母公司所有者的净利润为-24，000万元到-20，000万元；预计2025年年度实现归属于母公司所有者的扣除非经常性损益后的净利润为-26，500万元到-22，500万元；预计2025年年度实现营业收入为33，
 
 ## 正文
 
-中新社北京5月13日电 (徐雪莹 刘大炜)国务院台办发言人张晗13日在北京表示，近期多部大陆影视剧在岛内热播，剧中一些演员深受台湾观众喜爱。
+2026年1月31日，国新文化控股股份有限公司（简称国新文化、退市国化（维权），代码：600636）发布《2025年年度业绩预亏公告》。
 
-我们对此喜闻乐见，支持台湾有关团体邀请大陆艺人赴台交流，与岛内观众见面。
+称公司预计2025年年度实现归属于母公司所有者的净利润为-24，000万元到-20，000万元；预计2025年年度实现归属于母公司所有者的扣除非经常性损益后的净利润为-26，500万元到-22，500万元；预计2025年年度实现营业收入为33，200万元到35，700万元，扣除与主营业务无关的业务收入和不具备商业实质的收入后的营业收入为33，000万元到35，500万元；预计2025年末净资产为178，000万元到183，000万元。
 
-在当天举行的国台办例行新闻发布会上，有记者提到，台北演艺经纪文化交流协会创会理事长王祥基近日出席第三届海峡两岸中华文化峰会时说，希望邀请大陆演员到台湾交流，计划开展签名会、影视创作座谈会等文化活动。
+2026年4月13日、2026年4月30日，国新文化发布《关于2025年年度报告编制及最新审计进展情况的公告》、《关于公司股票触及财务类终止上市情形暨停牌的公告》。
 
-张晗答问时作上述表示。
+称公司经审计2025年度营业收入低于3亿元，且利润总额、净利润以及扣除非经常性损益后的净利润均为负值；立信会计师事务所（特殊普通合伙）对公司2025年度内部控制出具了否定意见的审计报告。
 
-大陆方面发布十项促进两岸交流合作的政策措施已满一个月。
+根据《上海证券交易所股票上市规则》相关规定，公司股票已触及财务类终止上市情形。
 
-张晗回应称，十项政策措施发布以来，我们秉持两岸一家亲的理念，聚焦岛内民生需求，在坚持“九二共识”、反对“台独”共同政治基础之上，积极会同有关部门、地方研究推进相关政策落实落细，坚持以交流融合增进民生福祉，争取让两岸同胞早蒙其利、共享其好。
+2026年6月1日，国新文化发布《股票进入退市整理期交易首日的风险提示公告》。
 
-她表示，民进党当局应顺应岛内民意、回应业界呼声，取消种种人为限制，为两岸人员往来和各领域交流合作正常化、常态化撤除障碍。
+根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
 
-东方航空计划自7月1日起恢复执飞成都直航台中航线，张晗回应说，这是大陆方面积极作为响应广大台胞出行需求的具体举措，“我们始终不遗余力积极推动恢复两岸航线航点”。
+权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 19:29 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 19:36 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 19:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 19:16 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 19:32 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 19:23 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-29 19:22 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 19:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 19:27 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 19:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 19:20 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 19:35 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 19:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 19:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 19:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 19:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 19:41 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 19:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 19:27 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 19:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 19:39 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 19:20 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 19:35 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/896921593830.shtml)
-- 2026-06-29 19:29 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/905883.shtml)
-- 2026-06-29 19:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/90908625293.shtml)
-- 2026-06-29 19:35 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/339066.shtml)
-- 2026-06-29 19:19 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/887084372.shtml)
-- 2026-06-29 19:34 - [沙丘](http://www.blog.minike.top/Article/details/8962865.shtml)
-- 2026-06-29 19:35 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/342658322713.shtml)
-- 2026-06-29 19:23 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/1680866620.shtml)
-- 2026-06-29 19:35 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/263071.shtml)
-- 2026-06-29 19:28 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/11055.shtml)
-- 2026-06-29 19:23 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/3308040764.shtml)
-- 2026-06-29 19:15 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/4404300.shtml)
-- 2026-06-29 19:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/0616355.shtml)
-- 2026-06-29 19:34 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/281404710124.shtml)
-- 2026-06-29 19:21 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/420538272027.shtml)
+- 2026-06-29 19:22 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/27677.shtml)
+- 2026-06-29 19:42 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/555211712.shtml)
+- 2026-06-29 19:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/9664159.shtml)
+- 2026-06-29 19:19 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/8352338562.shtml)
+- 2026-06-29 19:26 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/003526.shtml)
+- 2026-06-29 19:47 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/33218.shtml)
+- 2026-06-29 19:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/849767.shtml)
+- 2026-06-29 19:33 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/177006247504.shtml)
+- 2026-06-29 19:36 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/4336246737.shtml)
+- 2026-06-29 19:43 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/60042403.shtml)
+- 2026-06-29 19:18 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/89804179101.shtml)
+- 2026-06-29 19:33 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/48136125323.shtml)
+- 2026-06-29 19:40 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/5835106.shtml)
+- 2026-06-29 19:27 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/70083.shtml)
+- 2026-06-29 19:38 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.minike.top/Article/details/966538.shtml)

@@ -1,57 +1,57 @@
-# 千元一条查询反诈平台，谁在买通“内鬼”倒卖银行账户冻结信息
+# 消息人士：韩国5月航煤出口反弹至战前水平
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-严惩“内鬼”。 一条涉及银行账户冻结状态的信息，在黑市上可以卖出千元高价，远超普通公民个人信息几元至几十元的市场行情。 近日，中国裁判文书网披露的一则判例揭开了冰山一角：福建籍男子拉拢江西省上高县多名警员，利用国家反诈平台非法获取并倒卖公民银行账户信息，以每条1000元的价格非法查询170余条，并对27个账户直接操作止付。 第一财经根据多则公开判例调查发现，山西、江西、福建等多
+多位分析师与行业贸易消息人士表示，受原油进口回暖、炼油利润丰厚提振，韩国炼厂5月航空煤油（航煤）出口量回升至伊朗冲突爆发前的水平。 作为亚洲主要成品油出口国之一，韩国航煤出口显著回暖，现货批量出货增多，有效缓解了市场对供应紧缺的担忧，大幅压低了亚太地区航煤价格。 过去两周，航煤现货升水大跌五成，回落至每桶约2美元；而在3月，该升水曾突破20美元，创下历史峰值。 Kpler、Vo
 
 ## 正文
 
-严惩“内鬼”。
+多位分析师与行业贸易消息人士表示，受原油进口回暖、炼油利润丰厚提振，韩国炼厂5月航空煤油（航煤）出口量回升至伊朗冲突爆发前的水平。
 
-一条涉及银行账户冻结状态的信息，在黑市上可以卖出千元高价，远超普通公民个人信息几元至几十元的市场行情。
+作为亚洲主要成品油出口国之一，韩国航煤出口显著回暖，现货批量出货增多，有效缓解了市场对供应紧缺的担忧，大幅压低了亚太地区航煤价格。
 
-近日，中国裁判文书网披露的一则判例揭开了冰山一角：福建籍男子拉拢江西省上高县多名警员，利用国家反诈平台非法获取并倒卖公民银行账户信息，以每条1000元的价格非法查询170余条，并对27个账户直接操作止付。
+过去两周，航煤现货升水大跌五成，回落至每桶约2美元；而在3月，该升水曾突破20美元，创下历史峰值。
 
-第一财经根据多则公开判例调查发现，山西、江西、福建等多地出现警方“内鬼”与社会中间人合谋，倒卖国家反诈大数据平台中的敏感信息。
+Kpler、Vortexa统计数据及贸易商数据显示，韩国5月航煤出口量介于110万–120万吨（折合867万桶至946万桶），为去年8月以来最高。
 
-这些信息被层层倒卖给诈骗团伙和洗钱团伙（俗称“水房”），成为他们精确转移资金、试探警方调查进展的工具。
+Kpler数据显示，5月出口量较4月年内低点大增36%；今年迄今为止，韩国航煤出货量占亚太航煤进口总量的30%，较2025全年占比23%明显抬升。
 
-目前，中央网信办、公安部等多部门启动专项打击行动，严惩行业“内鬼”，严厉打击信息泄露、倒卖、使用等全链条的违法犯罪活动。
+伦敦证券交易所集团（LSEG）数据显示，除航煤现货升水大幅回落外，低硫（10ppm）柴油与航煤之间的品级价差已由升水转为小幅贴水。
 
-一条灰黑产业链 一条围绕反诈平台的灰黑产业链已浮出水面。
+美以针对伊朗的军事行动造成霍尔木兹海峡事实上遭封锁，全球五分之一的原油运力原本经该海峡外运，原油供应受阻一度压低亚洲炼厂开工负荷。
 
-根据公开披露的多则判例来看，公民在反诈平台的银行账户信息，多数通过“社会中间人”与“警方内鬼”的合谋被层层倒卖。
+Vortexa亚太区分析主管表示，韩国炼厂5月原油进口量已恢复至扰动前水平的约八成；受炼厂加工量抬升影响，他预计韩国6月航空煤油出口将环比增长。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 19:26 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 19:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 19:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 19:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 19:19 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-29 19:22 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 19:33 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 19:32 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 19:23 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 19:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 19:31 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 19:46 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 19:21 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 19:43 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 19:31 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 19:26 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 19:38 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 19:22 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 19:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 19:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 19:31 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/578703.shtml)
-- 2026-06-29 19:18 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/4997209536.shtml)
-- 2026-06-29 19:30 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/97203622.shtml)
-- 2026-06-29 19:18 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/6848397224.shtml)
-- 2026-06-29 19:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/10496179993.shtml)
-- 2026-06-29 19:18 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/285358010042.shtml)
-- 2026-06-29 19:29 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/190219978524.shtml)
-- 2026-06-29 19:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/310818.shtml)
-- 2026-06-29 19:37 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/6149237.shtml)
-- 2026-06-29 19:22 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/285198981.shtml)
-- 2026-06-29 19:19 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/651889.shtml)
-- 2026-06-29 19:33 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/349935670.shtml)
-- 2026-06-29 19:16 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/19067698573.shtml)
-- 2026-06-29 19:31 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/75195829595.shtml)
-- 2026-06-29 19:27 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/742018375.shtml)
+- 2026-06-29 19:44 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/867438.shtml)
+- 2026-06-29 19:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/0119270481.shtml)
+- 2026-06-29 19:36 - [急先锋](https://www.blog.minike.top/Article/details/62034.shtml)
+- 2026-06-29 19:19 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/42017.shtml)
+- 2026-06-29 19:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/14693.shtml)
+- 2026-06-29 19:36 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/15721520.shtml)
+- 2026-06-29 19:18 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/3765006884.shtml)
+- 2026-06-29 19:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/35121924314.shtml)
+- 2026-06-29 19:42 - [滚石点名酒店员工说有急救培训](http://www.blog.minike.top/Article/details/61503267.shtml)
+- 2026-06-29 19:46 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/47510732.shtml)
+- 2026-06-29 19:37 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/77481955035.shtml)
+- 2026-06-29 19:25 - [王楚钦开门红](http://www.share.minike.top/Article/details/0189919.shtml)
+- 2026-06-29 19:33 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/8440108.shtml)
+- 2026-06-29 19:19 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/57018281.shtml)
+- 2026-06-29 19:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/85242.shtml)

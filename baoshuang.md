@@ -1,59 +1,61 @@
-# 保险资管年报出炉：国寿、泰康、平安资管贡献过半利润
+# 林州重机被立案，多次被监管点名
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 孙诗卉 实习生 涂盛青 截至5月9日，除中英益利资管及新开业的友邦保险资管、荷全保险资管外，35家保险资产管理机构已披露2025年年报。整体来看，行业营收与净利润实现双位数增长，但内部分化加剧——头部机构强者恒强，万亿级“管理人家族”扩容至11家，部分中小机构则面临营收净利双降的压力。 营收利润双增，头部“马太效应”持续强化 2025年，35家机构合计实现
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月26日晚，林州重机（维权）发布公告称，因公司涉嫌信息披露违法违规，中国证券监督管理委员会决定对公司立案调查。随着立案落地，投资者索赔征集同步启动。 此次立案并非毫无征兆。5月8日，公司刚收到深交所监管函。根据监管函，林州重机在2026年1月30日预计2025年净利润为850万元至1200万元，但4月28日却将业绩大
 
 ## 正文
 
-21世纪经济报道记者 孙诗卉 实习生 涂盛青 截至5月9日，除中英益利资管及新开业的友邦保险资管、荷全保险资管外，35家保险资产管理机构已披露2025年年报。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月26日晚，林州重机（维权）发布公告称，因公司涉嫌信息披露违法违规，中国证券监督管理委员会决定对公司立案调查。
 
-整体来看，行业营收与净利润实现双位数增长，但内部分化加剧——头部机构强者恒强，万亿级“管理人家族”扩容至11家，部分中小机构则面临营收净利双降的压力。
+随着立案落地，投资者索赔征集同步启动。
 
-营收利润双增，头部“马太效应”持续强化 2025年，35家机构合计实现营业收入484.45亿元，同比增长14.9%；合计净利润218.64亿元，同比增长18.3%。
+此次立案并非毫无征兆。
 
-国寿资产、泰康资产、平安资管稳居前三，三家公司合计营收211.83亿元，占全行业43.7%；合计净利润近120亿元，占比约55%。
+5月8日，公司刚收到深交所监管函。
 
-营收前十名机构合计收入373.39亿元，占全行业77.1%；净利润前十名合计182.83亿元，占比高达83.6%。
+根据监管函，林州重机在2026年1月30日预计2025年净利润为850万元至1200万元，但4月28日却将业绩大幅修正为亏损4500万元至4900万元。
 
-这意味着，约八成利润集中在不到三分之一的机构手中。
+最终年报显示，公司2025年归母净利润为亏损4744.07万元，同比下降149.76%，出现由盈转亏的“业绩变脸”。
 
-东方证券研报指出，头部险企旗下资管平台在管理规模和管理费收入上的优势，有助于增厚集团利润并提升长期资金配置能力。
+与此同时，公司还披露前期会计差错更正公告，对2025年前三季度营业收入和营业成本进行追溯调整，暴露出财务信息披露问题。
 
-在业内人士看来，保险资管行业正在从依赖牌照红利、母公司委托资金，转向比拼投资能力、市场化募资和资产创设能力的新阶段。
+事实上，林州重机并非首次因信披违规被监管处罚。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 19:13 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 19:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 19:27 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 19:14 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 19:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 19:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 19:30 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 19:40 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 19:36 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 19:13 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 19:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 19:29 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 19:25 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 19:32 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 19:20 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 19:42 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 19:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 19:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 19:36 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 19:28 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 19:20 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 19:43 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 19:40 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 19:28 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 19:43 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 19:32 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 19:23 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/641254007.shtml)
-- 2026-06-29 19:29 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/14589663.shtml)
-- 2026-06-29 19:39 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/303953962.shtml)
-- 2026-06-29 19:39 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/5631853300.shtml)
-- 2026-06-29 19:25 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/30300260.shtml)
-- 2026-06-29 19:34 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/57150.shtml)
-- 2026-06-29 19:35 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/641517648.shtml)
-- 2026-06-29 19:24 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.kurohicncr.top/Article/details/12544716518.shtml)
-- 2026-06-29 19:21 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/865533.shtml)
-- 2026-06-29 19:14 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/8820446.shtml)
-- 2026-06-29 19:19 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/663330869.shtml)
-- 2026-06-29 19:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/760469.shtml)
-- 2026-06-29 19:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/1844810.shtml)
-- 2026-06-29 19:34 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/3118660.shtml)
-- 2026-06-29 19:20 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/075285.shtml)
+- 2026-06-29 19:36 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/2821982141.shtml)
+- 2026-06-29 19:18 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/434376.shtml)
+- 2026-06-29 19:41 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/237689079867.shtml)
+- 2026-06-29 19:31 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/68130.shtml)
+- 2026-06-29 19:25 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/3498864.shtml)
+- 2026-06-29 19:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/487982573.shtml)
+- 2026-06-29 19:38 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/199332.shtml)
+- 2026-06-29 19:28 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/8874332.shtml)
+- 2026-06-29 19:29 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/11438763.shtml)
+- 2026-06-29 19:48 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/877784778.shtml)
+- 2026-06-29 19:24 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/96205600803.shtml)
+- 2026-06-29 19:41 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/154470.shtml)
+- 2026-06-29 19:27 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/64403013295.shtml)
+- 2026-06-29 19:28 - [流金岁月](http://www.share.minike.top/Article/details/5869965677.shtml)
+- 2026-06-29 19:31 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.kurohicncr.top/Article/details/20061.shtml)

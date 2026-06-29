@@ -1,51 +1,59 @@
-# 骏杰集团控股附属获授古洞北新发展区基建工程建造合约 金额约1.18亿港元
+# 谷歌母公司800亿美元增发标志着华尔街迈入前所未有的市场阶段
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-骏杰集团控股（08188）发布公告，于2026年4月24日，公司的间接全资附属公司骏杰工程有限公司获授一份古洞北新发展区基建工程建造合约，合约金额约1.18亿港元（建造工程）。建造工程已施工，并预期于施工日期起计约两年内完成。 董事会谨此声明，集团并无就获授建造工程合约作出溢利预告或预测。责任编辑：卢昱君
+核心要点 高盛国际联席首席执行官安东尼・古特曼周三在 CNBC 独家采访中称：谷歌母公司字母表拟发售 800 亿美元股票，用于落地人工智能相关投入，此举令资本市场踏入 “前所未有的阶段”。 字母表于周一发布公告，本次股票发行额度中有 100 亿美元定向配售给格雷格・阿贝尔执掌的伯克希尔・哈撒韦，募资将用于建设顶级 AI 算力基础设施，匹配爆发式增长的客户需求。 高盛、摩根大通、
 
 ## 正文
 
-骏杰集团控股（08188）发布公告，于2026年4月24日，公司的间接全资附属公司骏杰工程有限公司获授一份古洞北新发展区基建工程建造合约，合约金额约1.18亿港元（建造工程）。
+核心要点 高盛国际联席首席执行官安东尼・古特曼周三在 CNBC 独家采访中称：谷歌母公司字母表拟发售 800 亿美元股票，用于落地人工智能相关投入，此举令资本市场踏入 “前所未有的阶段”。
 
-建造工程已施工，并预期于施工日期起计约两年内完成。
+字母表于周一发布公告，本次股票发行额度中有 100 亿美元定向配售给格雷格・阿贝尔执掌的伯克希尔・哈撒韦，募资将用于建设顶级 AI 算力基础设施，匹配爆发式增长的客户需求。
 
-董事会谨此声明，集团并无就获授建造工程合约作出溢利预告或预测。
+高盛、摩根大通、摩根士丹利共同担任本次承销发行的联席簿记管理人，其中高盛兼任私募配售代理机构。
 
-责任编辑：卢昱君
+古特曼在早间节目中对主持人卡洛琳・罗斯表示：“首先要说，当前市场环境史无前例，我们都需怀揣审慎与敬畏，合理把控业务重心。
+
+昨日字母表的巨额募资为后续 IPO 梯队释放积极信号，这笔募资规模创下同类发行的历史新高。
+
+” 古特曼称，市场对大额股权融资需求旺盛，从全市场股市总市值占比来看，本轮募资体量处在可控区间。
+
+当前资本市场正冲刺年度历史新高，多家巨头筹备重磅 IPO： 备受市场关注的 SpaceX 定于 6 月 12 日挂牌上市，冲刺史上最大 IPO，马斯克旗下公司目标纳斯达克上市估值 1.75 万亿美元；此外，OpenAI 与 Anthropic 均已官宣计划在年内登陆资本市场。
+
+古特曼补充：“我们十分看好这一批上市项目。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 19:32 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 19:33 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 19:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 19:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 19:24 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 19:25 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 19:32 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 19:14 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 19:13 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 19:17 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 19:33 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 19:35 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 19:43 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 19:29 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 19:34 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 19:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 19:19 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 19:46 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 19:34 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 19:40 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 19:32 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 19:34 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 19:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 19:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 19:21 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/0436832612.shtml)
-- 2026-06-29 19:23 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/114017091.shtml)
-- 2026-06-29 19:27 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/4912978378.shtml)
-- 2026-06-29 19:37 - [我和我的家乡](https://www.blog.minike.top/Article/details/59283948.shtml)
-- 2026-06-29 19:30 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/2005280211.shtml)
-- 2026-06-29 19:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/19871160232.shtml)
-- 2026-06-29 19:37 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/8207925067.shtml)
-- 2026-06-29 19:25 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/03252884453.shtml)
-- 2026-06-29 19:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/24478.shtml)
-- 2026-06-29 19:39 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/70868.shtml)
-- 2026-06-29 19:36 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/56813187500.shtml)
-- 2026-06-29 19:14 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/71276.shtml)
-- 2026-06-29 19:30 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/3987372922.shtml)
-- 2026-06-29 19:36 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/635196977.shtml)
-- 2026-06-29 19:35 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/6516420946.shtml)
+- 2026-06-29 19:45 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/41872040.shtml)
+- 2026-06-29 19:31 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/436842866.shtml)
+- 2026-06-29 19:36 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/75500225.shtml)
+- 2026-06-29 19:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9713055340.shtml)
+- 2026-06-29 19:44 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/0798104809.shtml)
+- 2026-06-29 19:30 - [乔家的儿女](http://www.blog.minike.top/Article/details/41829620.shtml)
+- 2026-06-29 19:32 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/0165881962.shtml)
+- 2026-06-29 19:20 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/17489298052.shtml)
+- 2026-06-29 19:39 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/853685258771.shtml)
+- 2026-06-29 19:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/6906161.shtml)
+- 2026-06-29 19:21 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/999101.shtml)
+- 2026-06-29 19:24 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/8246505123.shtml)
+- 2026-06-29 19:27 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/8955872.shtml)
+- 2026-06-29 19:44 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/6068241752.shtml)
+- 2026-06-29 19:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/2905921.shtml)

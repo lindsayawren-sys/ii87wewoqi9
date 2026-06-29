@@ -1,61 +1,57 @@
-# 美方似默许日元干预 日本财相与贝森特的会谈露出端倪
+# 标普拒绝给SpaceX等巨无霸IPO公司纳入指数提供快速通道
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-日本财务大臣片山皋月证实，她的团队正与美国财政部长斯科特·贝森特在外汇政策方面密切协调，暗示美国或默许了日本近期可能的市场干预行为。 “关于最近的汇率走势，我们确认日本和美国一直协调良好，并保持着密切的沟通，”片山周二在东京与贝森特会谈后告诉记者。 她表示：“我们也重申，我们将继续根据去年9月发表的联合声明，在外汇问题上密切合作。”她还补充说，该声明明确指出，干预是解决外汇市场
+标普道琼斯指数公司表示，将继续维持标普500指数等主要基准指数现行的资格要求，否决了让SpaceX等超大市值公司上市后快速纳入指数的提议。 该指数提供商周四发布新闻稿称，公司不会缩短目前对新上市公司设定的12个月观察期，也不会基于公司规模而豁免当前对盈利能力和公众持股比例的要求，与纳斯达克和富时罗素等竞争对手的做法截然不同。 当前华尔街面临着新的现实：一些公司在上市之前就已达到
 
 ## 正文
 
-日本财务大臣片山皋月证实，她的团队正与美国财政部长斯科特·贝森特在外汇政策方面密切协调，暗示美国或默许了日本近期可能的市场干预行为。
+标普道琼斯指数公司表示，将继续维持标普500指数等主要基准指数现行的资格要求，否决了让SpaceX等超大市值公司上市后快速纳入指数的提议。
 
-“关于最近的汇率走势，我们确认日本和美国一直协调良好，并保持着密切的沟通，”片山周二在东京与贝森特会谈后告诉记者。
+该指数提供商周四发布新闻稿称，公司不会缩短目前对新上市公司设定的12个月观察期，也不会基于公司规模而豁免当前对盈利能力和公众持股比例的要求，与纳斯达克和富时罗素等竞争对手的做法截然不同。
 
-她表示：“我们也重申，我们将继续根据去年9月发表的联合声明，在外汇问题上密切合作。
+当前华尔街面临着新的现实：一些公司在上市之前就已达到前所未有的规模。
 
-”她还补充说，该声明明确指出，干预是解决外汇市场过度波动的一种选择。
+今年早些时候，标普道琼斯指数公司公开征询意见，询问为不同时代制定的指数规则是否应该做出调整，以适应那些如今规模已达到过去只有成熟蓝筹股才能达到的公司，即业内所称的“快速通道”。
 
-“我相信我们在这一点上获得了充分理解，”片山说道。
+加快纳入基准指数的提议引发一些投资者担忧，他们认为，盈利能力、流通股数量和交易历史等方面的规定正是为了防止基准指数盲目追逐炒作。
 
-片山不愿就两人会面时是否讨论日本央行的货币政策发表评论。
+此外，他们还指出，过快地纳入IPO公司，可能会使被动型基金面临更大的市场波动，迫使这些基金在可靠的市场定价完全确立之前就买入股票。
 
-她还表示，她不会对贝森特的言论置评。
+与此同时，支持者表示，指数应该尽快纳入大型公司，以反映投资者实际拥有的市场，并称这些万亿美元市值公司在满足传统指数要求之前，可能已经具有重要的经济意义。
 
-这是贝森特就任财政部长以来第三次访问日本。
+这一结果意味着，SpaceX至少要在上市一年后才能被纳入标普500指数。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 19:26 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 19:41 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 19:41 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 19:33 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 19:28 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 19:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 19:30 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 19:24 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:39 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 19:28 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 19:25 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 19:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 19:30 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 19:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 19:18 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 19:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:18 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 19:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 19:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 19:38 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 19:36 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 19:47 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 19:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 19:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 19:18 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/598783.shtml)
-- 2026-06-29 19:24 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/012190249.shtml)
-- 2026-06-29 19:30 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/44049.shtml)
-- 2026-06-29 19:31 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/272758350.shtml)
-- 2026-06-29 19:38 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/511806715427.shtml)
-- 2026-06-29 19:27 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/483776.shtml)
-- 2026-06-29 19:28 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/4654076.shtml)
-- 2026-06-29 19:16 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/271651.shtml)
-- 2026-06-29 19:16 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/12293.shtml)
-- 2026-06-29 19:25 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/783638.shtml)
-- 2026-06-29 19:21 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/58821.shtml)
-- 2026-06-29 19:19 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/21356.shtml)
-- 2026-06-29 19:14 - [起风了](https://www.share.kurohicncr.top/Article/details/6600965070.shtml)
-- 2026-06-29 19:32 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/15078491.shtml)
-- 2026-06-29 19:15 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/02071312.shtml)
+- 2026-06-29 19:23 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/33940.shtml)
+- 2026-06-29 19:47 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/44654370303.shtml)
+- 2026-06-29 19:26 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/7915281252.shtml)
+- 2026-06-29 19:41 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/83349225.shtml)
+- 2026-06-29 19:19 - [金牌调解](https://www.share.kurohicncr.top/Article/details/230746936417.shtml)
+- 2026-06-29 19:27 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/16692105527.shtml)
+- 2026-06-29 19:21 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/736626960.shtml)
+- 2026-06-29 19:38 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/4002705.shtml)
+- 2026-06-29 19:36 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/4345893445.shtml)
+- 2026-06-29 19:33 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/5181015057.shtml)
+- 2026-06-29 19:46 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/23184.shtml)
+- 2026-06-29 19:22 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/8140904.shtml)
+- 2026-06-29 19:22 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/4371014.shtml)
+- 2026-06-29 19:29 - [斛珠夫人](http://www.share.minike.top/Article/details/444747193298.shtml)
+- 2026-06-29 19:18 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/7817378629.shtml)

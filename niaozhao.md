@@ -1,61 +1,56 @@
-# 世纪华通沦为“提款机”，实控人王佶或套现35亿还债
+# 科技赋能守护银发晚年
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app 5月8日晚间，世纪华通（维权）实控人王佶抛出减持计划，拟在未来三个月内套现约35亿元，公告明确写着减持用途——“偿还债务”。而此番套现还债，或与当年为拿下公司控股权所欠的债务以及日常经营借款有关。 5月8日晚间，世纪华通一纸减持公告，将这家游戏龙头推至市场聚光灯下。公司第一大股东、
+中新网沈阳6月4日电(姜月恒 禹瑞斋 李雪飞)随着老龄人口数量增长，各类智能化养老科创产品落地应用。从陪护配送机器人、居家安全监测雷达，到医用健康采集终端、专业康复护理机器人等适老化装备陆续推向市场。智能设备既在起居照料、健康监护等方面为老年人提供实用助力，也切实提升老年群体晚年生活质量。 清晨，沈阳市和平区的街巷，不少老人悠闲漫步。84岁的康志和老人出行时，一台智能轮椅始终紧
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网沈阳6月4日电(姜月恒 禹瑞斋 李雪飞)随着老龄人口数量增长，各类智能化养老科创产品落地应用。
 
-来源：环球老虎财经app 5月8日晚间，世纪华通（维权）实控人王佶抛出减持计划，拟在未来三个月内套现约35亿元，公告明确写着减持用途——“偿还债务”。
+从陪护配送机器人、居家安全监测雷达，到医用健康采集终端、专业康复护理机器人等适老化装备陆续推向市场。
 
-而此番套现还债，或与当年为拿下公司控股权所欠的债务以及日常经营借款有关。
+智能设备既在起居照料、健康监护等方面为老年人提供实用助力，也切实提升老年群体晚年生活质量。
 
-5月8日晚间，世纪华通一纸减持公告，将这家游戏龙头推至市场聚光灯下。
+清晨，沈阳市和平区的街巷，不少老人悠闲漫步。
 
-公司第一大股东、实控人王佶及其一致行动人计划合计减持不超过2.2亿股，按当日收盘价测算可套现约35亿元。
+84岁的康志和老人出行时，一台智能轮椅始终紧随其后。
 
-而减持原因仅寥寥数字：为自身资金需求，主要用于偿还债务。
+老人缓步闲逛，体力不支时便让轮椅停下座在上面，智能轮椅成了老人日常出行的贴心帮手。
 
-如此大额的套现或与当初王佶为拿下公司控制权所欠下的巨额债务有关。
+“我岁数大了，身体还算康健，就是长途行走吃力。
 
-2021年3月，王佶从原实控人王苗通手中受让5%股份，交易金额27.95亿元，全部来自腾讯借款，年化利率8%、复利计息。
+有了智能轮椅，走累了就能坐下代步；步行时开启跟随模式，设备自动跟在身后，遇上障碍还能自动刹车，出门省心又安全。
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 19:27 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 19:26 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 19:39 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 19:34 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 19:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 19:23 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 19:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 19:33 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 19:35 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 19:41 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 19:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 19:12 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 19:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 19:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 19:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 19:37 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 19:46 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 19:29 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 19:22 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 19:40 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 19:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 19:29 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 19:27 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 19:40 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/49116879.shtml)
-- 2026-06-29 19:28 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/951428012.shtml)
-- 2026-06-29 19:15 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/30835.shtml)
-- 2026-06-29 19:29 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/66290938.shtml)
-- 2026-06-29 19:32 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/139292.shtml)
-- 2026-06-29 19:39 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/9672884.shtml)
-- 2026-06-29 19:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/96958721875.shtml)
-- 2026-06-29 19:17 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/4661629.shtml)
-- 2026-06-29 19:23 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/83102436275.shtml)
-- 2026-06-29 19:33 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/4549617.shtml)
-- 2026-06-29 19:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/9684382784.shtml)
-- 2026-06-29 19:38 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/490009.shtml)
-- 2026-06-29 19:27 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/7735789877.shtml)
-- 2026-06-29 19:30 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/553345.shtml)
-- 2026-06-29 19:31 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/99355703286.shtml)
+- 2026-06-29 19:28 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/5766365498.shtml)
+- 2026-06-29 19:38 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/7352480.shtml)
+- 2026-06-29 19:18 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/131489.shtml)
+- 2026-06-29 19:38 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/497879683181.shtml)
+- 2026-06-29 19:48 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/22821808.shtml)
+- 2026-06-29 19:32 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/039987.shtml)
+- 2026-06-29 19:44 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/5831823.shtml)
+- 2026-06-29 19:24 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/589378854.shtml)
+- 2026-06-29 19:43 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/660968856.shtml)
+- 2026-06-29 19:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/81393.shtml)
+- 2026-06-29 19:40 - [AG 宫斗](https://www.blog.minike.top/Article/details/9285946.shtml)
+- 2026-06-29 19:40 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/671794178382.shtml)
+- 2026-06-29 19:36 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/7372612.shtml)
+- 2026-06-29 19:28 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/46198.shtml)
+- 2026-06-29 19:43 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/914683.shtml)

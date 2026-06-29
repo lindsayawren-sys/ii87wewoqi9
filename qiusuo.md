@@ -1,60 +1,60 @@
-# 兰州防灾减灾开放日：硬核装备与实战演练 展多元应用场景
+# Liquid Mercury全面整合BitGo，为全线产品提供机构级托管服务
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 11:54 来源：中国新闻网 5月12日是第18个全国防灾减灾日。当日，兰州国家陆地搜寻与救护基地公众开放日活动在甘肃兰州举行。此次开放日活动搜救队员现场演示了切割、斜向救援、横渡等高难度科目。斜楼逃生、黑暗空间避险、地震模拟体验等项目，让民众身临其境感受灾害场景，掌握避险逃生技巧。 活动现场，由甘肃省地震局引进的可控震源地震勘探系统，吸引众多
+数字资产市场技术提供商Liquid Mercury LLC周三宣布，选择BitGo Holdings， Inc．旗下子公司BitGo Inc．及受美国货币监理署监管的BitGo Bank & Trust， N.A．作为其“加密货币即服务”提供商。此次战略整合将合格托管、冷存储和合规框架引入Liquid Mercury全部产品线，深化了双方原有的技术合作关系。 根据合作协议，Bi
 
 ## 正文
 
-发布时间：2026年05月13日 11:54 来源：中国新闻网 5月12日是第18个全国防灾减灾日。
+数字资产市场技术提供商Liquid Mercury LLC周三宣布，选择BitGo Holdings， Inc．旗下子公司BitGo Inc．及受美国货币监理署监管的BitGo Bank & Trust， N.A．作为其“加密货币即服务”提供商。
 
-当日，兰州国家陆地搜寻与救护基地公众开放日活动在甘肃兰州举行。
+此次战略整合将合格托管、冷存储和合规框架引入Liquid Mercury全部产品线，深化了双方原有的技术合作关系。
 
-此次开放日活动搜救队员现场演示了切割、斜向救援、横渡等高难度科目。
+根据合作协议，BitGo的加密货币即服务基础设施将为Liquid Mercury的三款核心产品提供支持。
 
-斜楼逃生、黑暗空间避险、地震模拟体验等项目，让民众身临其境感受灾害场景，掌握避险逃生技巧。
+其中，Mercury Pro面向专业和机构交易者，支持现货、期权、期货及永续合约交易，其结算流程将无缝接入BitGo合格托管体系以降低交易对手风险；Mercury OTC为场外经纪商和流动性提供商的自动化电子交易平台提供结算支持；Mercury RWA则聚焦于体育投资、另类资产等代币化现实世界资产的发行、交易与管理。
 
-活动现场，由甘肃省地震局引进的可控震源地震勘探系统，吸引众多民众关注。
+BitGo的基础设施将提供多重签名冷存储方案、最高达2.5亿美元的行业领先保险保障，以及全面的合规框架。
 
-该系统通过液压驱动的振动平板，向地下激发连续、可控的地震波，经过专业处理就能绘制出地下结构的清晰图像，可用于探测活动断层、滑坡体等灾害隐患，提供地震灾害风险依据和预警支持，具有安全、环保、可重复作业的优势。
+Liquid Mercury首席执行官Tony Saliba表示：“随着我们持续扩大平台规模并吸引机构级客户，托管不仅是功能，更是基石。
 
-近年来，甘肃省地震局持续推动防灾减灾技术深度赋能重点领域，将专业防灾减灾技术广泛应用于文物保护、铁路运营等关键场景。
+BitGo在规模化数字资产安全方面的记录、监管地位和先进技术使其成为我们的明确选择。
 
-为了直观地演示地震预警工作原理，甘肃省地震局自主研发了地震预警科普系统，有效加深了民众对地震预警系统的认知与理解。
+我们的客户要求与传统市场同等标准的机构级基础设施，而BitGo恰恰能满足这一需求。
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 19:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 19:13 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 19:18 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 19:40 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 19:12 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 19:41 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 19:18 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 19:18 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 19:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 19:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 19:32 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 19:38 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 19:38 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 19:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 19:21 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 19:33 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 19:26 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 19:23 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 19:37 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 19:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 19:22 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 19:46 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 19:26 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 19:47 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 19:47 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 19:34 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 19:32 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:40 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/26068470720.shtml)
-- 2026-06-29 19:19 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/955231.shtml)
-- 2026-06-29 19:23 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/50555712391.shtml)
-- 2026-06-29 19:24 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/43006.shtml)
-- 2026-06-29 19:21 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/573511.shtml)
-- 2026-06-29 19:38 - [TOP Prada](https://www.blog.minike.top/Article/details/0268867567.shtml)
-- 2026-06-29 19:24 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/378254806780.shtml)
-- 2026-06-29 19:26 - [金刚川](http://www.share.minike.top/Article/details/22502562.shtml)
-- 2026-06-29 19:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/89347183.shtml)
-- 2026-06-29 19:35 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/87146185.shtml)
-- 2026-06-29 19:28 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/9878750500.shtml)
-- 2026-06-29 19:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/8262520262.shtml)
-- 2026-06-29 19:29 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/5260197174.shtml)
-- 2026-06-29 19:29 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/144851431474.shtml)
-- 2026-06-29 19:35 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/01199358791.shtml)
+- 2026-06-29 19:29 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/61972.shtml)
+- 2026-06-29 19:19 - [东方风云榜](http://www.share.minike.top/Article/details/1861788.shtml)
+- 2026-06-29 19:39 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/05213509.shtml)
+- 2026-06-29 19:26 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/933638.shtml)
+- 2026-06-29 19:25 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/9364388.shtml)
+- 2026-06-29 19:30 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/781075107.shtml)
+- 2026-06-29 19:47 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/1204097239.shtml)
+- 2026-06-29 19:42 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.minike.top/Article/details/33757.shtml)
+- 2026-06-29 19:22 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/99033710077.shtml)
+- 2026-06-29 19:21 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/024826361.shtml)
+- 2026-06-29 19:23 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/73294778398.shtml)
+- 2026-06-29 19:30 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/193846.shtml)
+- 2026-06-29 19:44 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/560418105.shtml)
+- 2026-06-29 19:37 - [《贺子珍》](https://www.blog.minike.top/Article/details/996971484996.shtml)
+- 2026-06-29 19:23 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/54259.shtml)

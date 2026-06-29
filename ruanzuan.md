@@ -1,61 +1,48 @@
-# 韩国官员提议以人工智能税收向发放公民红利 引发股市盘中巨震
+# 香港最大商业AI应用展览启幕 近100家供应商展示最新AI解决方案
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-韩国一位高级政策制定者表示，该国应利用人工智能（AI）产业产生的税收向公民发放“红利”，凸显出当局面临的日益加大的压力来重新分配这一波科技荣景的成果。三星电子和SK海力士等芯片企业已在AI热潮中赚得盆满钵满。 韩国总统府政策室长金容范在Facebook上的发言引发韩国股市周二剧烈波动，投资者一度难以解读其建议的具体所指。股市基准KOSPI指数盘中一度下跌5.1%，随后金容范澄清
+发布时间：2026年06月04日 19:01 来源：中国新闻网 6月4日至5日，香港最具规模的商业AI应用展览及论坛“Al+ Power 2026”在香港会议展览中心举行。近100家服务及产品供应商参与，展出智慧办公、企业自动化等领域的最新AI解决方案。展览同期举行AI+峰会，来自金融、科技、零售等行业的超150位中外业界领袖与专家学者，通过多场专题会议，共论AI如何从“概念”
 
 ## 正文
 
-韩国一位高级政策制定者表示，该国应利用人工智能（AI）产业产生的税收向公民发放“红利”，凸显出当局面临的日益加大的压力来重新分配这一波科技荣景的成果。
+发布时间：2026年06月04日 19:01 来源：中国新闻网 6月4日至5日，香港最具规模的商业AI应用展览及论坛“Al+ Power 2026”在香港会议展览中心举行。
 
-三星电子和SK海力士等芯片企业已在AI热潮中赚得盆满钵满。
+近100家服务及产品供应商参与，展出智慧办公、企业自动化等领域的最新AI解决方案。
 
-韩国总统府政策室长金容范在Facebook上的发言引发韩国股市周二剧烈波动，投资者一度难以解读其建议的具体所指。
+展览同期举行AI+峰会，来自金融、科技、零售等行业的超150位中外业界领袖与专家学者，通过多场专题会议，共论AI如何从“概念”更好地迈向“落地应用”。
 
-股市基准KOSPI指数盘中一度下跌5.1%，随后金容范澄清其意图是动用AI热潮带来的“超额税收收入”，而非对企业利润开征暴利税，令股市跌幅有所收窄。
-
-三星和SK海力士股价亦一度下挫，但随后收复了大部分失地。
-
-在全球范围内，经济学家和政界人士越来越关注人工智能技术可能加剧贫富差距的问题。
-
-尤其是在韩国，这种担忧已表现为公众呼吁——要求从SK海力士到三星在内的行业领军企业，将全球AI基础设施繁荣所带来的收益分享给更广泛的人群。
-
-Fibonacci Asset Management Global的首席执行官Jung In Yun认为，金容范的言论“表明韩国政府正越来越将人工智能视为国家基础设施，而不仅仅是一种技术趋势”。
+(记者 程宇) 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 19:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 19:17 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 19:40 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 19:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 19:26 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 19:22 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 19:32 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 19:14 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 19:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 19:28 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 19:26 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 19:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 19:16 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 19:18 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 19:25 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 19:29 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 19:38 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 19:26 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 19:18 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 19:40 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 19:33 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 19:18 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 19:35 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 19:21 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/152148922714.shtml)
-- 2026-06-29 19:30 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/714758528093.shtml)
-- 2026-06-29 19:21 - [毒液2](http://www.share.minike.top/Article/details/186787.shtml)
-- 2026-06-29 19:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/8925311154.shtml)
-- 2026-06-29 19:26 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/2315647.shtml)
-- 2026-06-29 19:23 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/7086271609.shtml)
-- 2026-06-29 19:31 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/790689431.shtml)
-- 2026-06-29 19:36 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/895731184674.shtml)
-- 2026-06-29 19:26 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/797454.shtml)
-- 2026-06-29 19:28 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/7585845.shtml)
-- 2026-06-29 19:35 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/40487972.shtml)
-- 2026-06-29 19:41 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/40544788.shtml)
-- 2026-06-29 19:28 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/405531.shtml)
-- 2026-06-29 19:37 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/9149039196.shtml)
-- 2026-06-29 19:41 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/54064.shtml)
+- 2026-06-29 19:45 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/19251.shtml)
+- 2026-06-29 19:34 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/95907592.shtml)
+- 2026-06-29 19:42 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/06402.shtml)
+- 2026-06-29 19:28 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/123701734.shtml)
+- 2026-06-29 19:19 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/112531.shtml)
+- 2026-06-29 19:43 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/456859.shtml)
+- 2026-06-29 19:33 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/911567758.shtml)
+- 2026-06-29 19:41 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/710788442226.shtml)
+- 2026-06-29 19:23 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/627415201.shtml)
+- 2026-06-29 19:47 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.minike.top/Article/details/6464858.shtml)
+- 2026-06-29 19:33 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/6545954.shtml)
+- 2026-06-29 19:22 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/02938044375.shtml)
+- 2026-06-29 19:24 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/7311354927.shtml)
+- 2026-06-29 19:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/228566377.shtml)
+- 2026-06-29 19:25 - [医药生物行业今日涨5.91%](http://www.blog.minike.top/Article/details/826056.shtml)

@@ -1,61 +1,60 @@
-# 中行境外机构人事调整 涉及中东、西欧多家分行
+# 全球媒体聚焦 | 外媒：英国外交大臣访华 西方国家日益重视与中国的关系
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-近日，中国银行发布2026年一季度报，报告期内实现营业收入1788.46亿元，同比上升8.44%；归母净利润566.31亿元，同比上升4.17%。截至一季度末，中行资产总额39.59万亿元，较上年末增长3.22%。 人事方面，近期中银香港管理层再次变动，中东、西欧的多家分行行长也出现调整。 刘畅，提任中银香港财务总监。 刘畅，纽约市立大学工商管理硕士，美国注册会计师。2000年
+英国外交大臣库珀于6月1日至3日访华并参加第十一次中英战略对话。对此，卡塔尔半岛电视台3日发表了题为《英中“冰河时代”解冻：为何西方需要北京》的文章。 文章称，英国首相斯塔默今年1月访问了北京，而外交大臣库珀此次对中国进行了为期三天的访问。尽管两国存在一些分歧，但英国和中国正努力重振经济和外交关系。 文章说，库珀此次访华并非个案。在库珀此次访问北京前，已经有多位其他国家的领导人
 
 ## 正文
 
-近日，中国银行发布2026年一季度报，报告期内实现营业收入1788.46亿元，同比上升8.44%；归母净利润566.31亿元，同比上升4.17%。
+英国外交大臣库珀于6月1日至3日访华并参加第十一次中英战略对话。
 
-截至一季度末，中行资产总额39.59万亿元，较上年末增长3.22%。
+对此，卡塔尔半岛电视台3日发表了题为《英中“冰河时代”解冻：为何西方需要北京》的文章。
 
-人事方面，近期中银香港管理层再次变动，中东、西欧的多家分行行长也出现调整。
+文章称，英国首相斯塔默今年1月访问了北京，而外交大臣库珀此次对中国进行了为期三天的访问。
 
-刘畅，提任中银香港财务总监。
+尽管两国存在一些分歧，但英国和中国正努力重振经济和外交关系。
 
-刘畅，纽约市立大学工商管理硕士，美国注册会计师。
+文章说，库珀此次访华并非个案。
 
-2000年加入中国银行，曾任职于总行财务管理部及纽约分行会计部，熟悉总行及境内外机构的经营管理情况。
+在库珀此次访问北京前，已经有多位其他国家的领导人和官员相继访问中国。
 
-2016年1月起历任中银香港财务管理部不同岗位，包括管理报告及分析处主管、企业规划及预算处主管、副总经理、总经理，亦曾代管司库工作。
+在全球局势日益动荡之际，他们都渴望与世界第二大经济体进行接触。
 
-鹿特丹分行行长王燕，拟任重庆分行副行长；曾任中行新加坡分行行长助理、副行长。
+文章表示，库珀承认伦敦和北京之间存在“分歧领域”，但她坚持认为，以“坦诚和尊重”的态度进行讨论将有助于增进相互了解。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 19:24 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 19:25 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 19:36 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 19:29 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 19:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 19:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 19:13 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 19:17 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 19:40 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 19:26 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 19:31 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 19:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 19:17 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 19:25 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 19:36 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 19:40 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 19:34 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 19:25 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 19:38 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 19:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 19:35 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 19:42 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 19:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 19:36 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 19:42 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 19:33 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 19:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 19:26 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/77956904.shtml)
-- 2026-06-29 19:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/0697971.shtml)
-- 2026-06-29 19:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/7410672301.shtml)
-- 2026-06-29 19:32 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/869706370414.shtml)
-- 2026-06-29 19:35 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/126447.shtml)
-- 2026-06-29 19:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/2418066001.shtml)
-- 2026-06-29 19:22 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/036961001.shtml)
-- 2026-06-29 19:14 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/811011372.shtml)
-- 2026-06-29 19:37 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/82125.shtml)
-- 2026-06-29 19:30 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/0278724.shtml)
-- 2026-06-29 19:22 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/044262003.shtml)
-- 2026-06-29 19:29 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/6537076.shtml)
-- 2026-06-29 19:17 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/369997957785.shtml)
-- 2026-06-29 19:18 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/7526805457.shtml)
-- 2026-06-29 19:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/579201365.shtml)
+- 2026-06-29 19:46 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/30455480.shtml)
+- 2026-06-29 19:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/79790488205.shtml)
+- 2026-06-29 19:38 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/256527.shtml)
+- 2026-06-29 19:23 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/485879519.shtml)
+- 2026-06-29 19:33 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/857588016.shtml)
+- 2026-06-29 19:46 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/636552.shtml)
+- 2026-06-29 19:40 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/1005901667.shtml)
+- 2026-06-29 19:30 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/669316735.shtml)
+- 2026-06-29 19:20 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/66391.shtml)
+- 2026-06-29 19:46 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/64502.shtml)
+- 2026-06-29 19:27 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/8316963.shtml)
+- 2026-06-29 19:27 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/5191248950.shtml)
+- 2026-06-29 19:28 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/807328.shtml)
+- 2026-06-29 19:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/17431.shtml)
+- 2026-06-29 19:37 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/70376566773.shtml)

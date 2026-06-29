@@ -1,59 +1,56 @@
-# 新型“职业闭店人”骗局调查
+# 日本11.7万亿救市无效！日元沦为全球最弱货币
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-原标题：新型“职业闭店人”骗局调查 精心包装“接盘者”人设、陷阱套路环环相扣……近期，上海警方破获一起新型“职业闭店人”合同诈骗案，犯罪嫌疑人在半年内连续“接盘”并关停三家教培机构，非法占有资金140余万元，600余名消费者遭受财产损失。 店铺落入圈套被关停 2025年6月，上海市民肖女士报警称，孩子的美术培训机构突然关停，负责人失联。两个月前，她刚支付21250元购买了150
+记者丨胡慧茵 编辑丨和佳 黎雨桐 李莹亮 “日元下跌后，我家买4包纸尿裤从4月的6174日元一下子猛涨到这个月的6946日元。”住在日本福冈的陈女士向21世纪经济报道晒出了购物账单。 6月3日，东京外汇市场上，日元对美元汇率再度跌至1美元兑160日元。截至北京时间6月3日晚上7点，日元对美元汇率略有回升，录得1美元兑159.8日元。 国际清算银行数据显示，以2020年为基准计算
 
 ## 正文
 
-原标题：新型“职业闭店人”骗局调查 精心包装“接盘者”人设、陷阱套路环环相扣……近期，上海警方破获一起新型“职业闭店人”合同诈骗案，犯罪嫌疑人在半年内连续“接盘”并关停三家教培机构，非法占有资金140余万元，600余名消费者遭受财产损失。
+记者丨胡慧茵 编辑丨和佳 黎雨桐 李莹亮 “日元下跌后，我家买4包纸尿裤从4月的6174日元一下子猛涨到这个月的6946日元。
 
-店铺落入圈套被关停 2025年6月，上海市民肖女士报警称，孩子的美术培训机构突然关停，负责人失联。
+”住在日本福冈的陈女士向21世纪经济报道晒出了购物账单。
 
-两个月前，她刚支付21250元购买了150节课程。
+6月3日，东京外汇市场上，日元对美元汇率再度跌至1美元兑160日元。
 
-“购课后才得知机构换了老板。
+截至北京时间6月3日晚上7点，日元对美元汇率略有回升，录得1美元兑159.8日元。
 
-”肖女士说，新老板声称资源丰富、实力雄厚，结果几个月后机构“人去楼空”。
+国际清算银行数据显示，以2020年为基准计算，日元实际有效汇率指数今年4月已跌至65.70，为1973年日本实行浮动汇率制度以来的最低水平。
 
-上海警方调查发现，这并非一起普通的经营失败案件。
+实际有效汇率综合了通胀水平、贸易状况、一篮子货币相对表现，能真实反映一国货币的对外购买力。
 
-自2024年12月起，一个以顾某、韩某为首的团伙开始在上海“物色”因个人原因欲转让的培训机构作为“猎物”。
+日元贬值最切身的“痛”，不仅体现在普通人的菜篮子里，也显现在日本企业日益攀升的经营成本中。
 
-“不法分子将自己包装成‘经验丰富、资源众多’的行业老手。
+从国家财政收入的角度看，有分析称，日元贬值带来的输入性压力还会推升日债收益率，增加日本的财政压力。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 19:27 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 19:23 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 19:17 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 19:35 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 19:30 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 19:19 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 19:27 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 19:31 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 19:42 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 19:31 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 19:16 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 19:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 19:38 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 19:40 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 19:39 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 19:47 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 19:42 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 19:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 19:28 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 19:41 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 19:38 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 19:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/2343395.shtml)
-- 2026-06-29 19:18 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/0260733.shtml)
-- 2026-06-29 19:31 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/47927.shtml)
-- 2026-06-29 19:38 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/589010624598.shtml)
-- 2026-06-29 19:28 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/165988218.shtml)
-- 2026-06-29 19:40 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/96443772.shtml)
-- 2026-06-29 19:29 - [青春环游记第三季](https://www.blog.minike.top/Article/details/45074534.shtml)
-- 2026-06-29 19:30 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/5362779.shtml)
-- 2026-06-29 19:28 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/5888724136.shtml)
-- 2026-06-29 19:35 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/321404065158.shtml)
-- 2026-06-29 19:22 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/07375.shtml)
-- 2026-06-29 19:40 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/25206126389.shtml)
-- 2026-06-29 19:23 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/09114649883.shtml)
-- 2026-06-29 19:18 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/9872524.shtml)
-- 2026-06-29 19:41 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/15723136.shtml)
+- 2026-06-29 19:46 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/442724918315.shtml)
+- 2026-06-29 19:25 - [扬名立万](https://www.blog.minike.top/Article/details/93083500013.shtml)
+- 2026-06-29 19:43 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/18563.shtml)
+- 2026-06-29 19:40 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/50352602235.shtml)
+- 2026-06-29 19:43 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/722049.shtml)
+- 2026-06-29 19:29 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/908078938.shtml)
+- 2026-06-29 19:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/12741.shtml)
+- 2026-06-29 19:27 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/2466010.shtml)
+- 2026-06-29 19:40 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/874709038286.shtml)
+- 2026-06-29 19:37 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/65225420.shtml)
+- 2026-06-29 19:37 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/21998277.shtml)
+- 2026-06-29 19:21 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/422127761521.shtml)
+- 2026-06-29 19:35 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/703059617.shtml)
+- 2026-06-29 19:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/26744.shtml)
+- 2026-06-29 19:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/858287388.shtml)

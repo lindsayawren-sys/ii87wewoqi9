@@ -1,61 +1,60 @@
-# 韩智库称中东冲突背景下经济下行风险仍存
+# 全球股市大涨，去年新增近200万名百万富翁
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-韩政府智库韩国开发研究院（KDI）周二表示，得益于强劲的半导体出口和不断改善的消费需求，韩国经济正呈现复苏迹象，但由于中东局势的不确定性，下行风险依然存在。 韩国开发研究院（KDI）在其月度经济评估报告中指出：“在半导体行业的带动下，出口正高速增长，而国内需求也在持续改善。” 但该机构表示，由于美伊冲突持续不断，经济下行风险依然存在，并指出油价上涨导致消费者价格上涨。 该机构补
+核心要点 一份最新行业报告显示，受全球股市大幅走高带动，2025 年全世界新增近 200 万名百万富翁，其中超高收入群体的财富增速领跑全品类。 据凯捷发布的《世界财富报告》，2025 年全球可投资资产超百万美元（不计自住房、收藏品与日用消费品）的百万富翁规模同比上涨 7.9% 至 2530 万人，总财富规模增至 98.3 万亿美元，涨幅 8.7%，创下近五年最快增速。 与此同时
 
 ## 正文
 
-韩政府智库韩国开发研究院（KDI）周二表示，得益于强劲的半导体出口和不断改善的消费需求，韩国经济正呈现复苏迹象，但由于中东局势的不确定性，下行风险依然存在。
+核心要点 一份最新行业报告显示，受全球股市大幅走高带动，2025 年全世界新增近 200 万名百万富翁，其中超高收入群体的财富增速领跑全品类。
 
-韩国开发研究院（KDI）在其月度经济评估报告中指出：“在半导体行业的带动下，出口正高速增长，而国内需求也在持续改善。
+据凯捷发布的《世界财富报告》，2025 年全球可投资资产超百万美元（不计自住房、收藏品与日用消费品）的百万富翁规模同比上涨 7.9% 至 2530 万人，总财富规模增至 98.3 万亿美元，涨幅 8.7%，创下近五年最快增速。
 
-” 但该机构表示，由于美伊冲突持续不断，经济下行风险依然存在，并指出油价上涨导致消费者价格上涨。
+与此同时，百万富翁与超高净值人士（UHNWI，可投资资产≥3000 万美元）之间的贫富差距持续扩张：超高净值人群财富增速显著高于普通百万富翁。
 
-该机构补充道：“尽管油价上限和扩大燃油税减免等措施在一定程度上抑制了消费者价格的上涨，但高油价仍对物价构成上行压力。
+2025 年全球超高净值人口增至 25 万人，增幅 9.4%，对应财富规模上涨 9.7%。
 
-” 此前公布的数据显示，韩国4月份消费者价格同比上涨2.6%，创21个月以来最快增速，主要原因是中东冲突导致燃油成本飙升。
+数据显示，超高净值人士仅占全球百万富翁总人数的 1%，却坐拥全部百万富翁总资产的 35%。
 
-韩国开发研究院表示，尽管存在这些下行风险，但在服务业的带动下，经济活动仍在持续改善。
+凯捷全球银行业负责人加雷斯・威尔逊解释：超高净值群体财富领跑，关键在于他们能接触普通百万富翁无法参与的高收益私募投资。
 
-受半导体生产强劲增长的推动，韩国3月份工业产出增长3.6%，服务业产出增长5.1%。
+“无论是上市前股权投资还是私募市场标的，这类优质投资机会不对普通百万富翁开放。
 
-然而，建筑业生产依然疲软，下降5.4%。
+手握巨额可投资金的富豪，更容易拿到稀缺对冲基金份额、独家私募项目以及多数人无从获知的 Pre-IPO 原始股权。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 19:24 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 19:22 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 19:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:38 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 19:42 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:40 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 19:27 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 19:20 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 19:22 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 19:41 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 19:38 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 19:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 19:36 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 19:35 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 19:31 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 19:33 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 19:43 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 19:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 19:27 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:35 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 19:18 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 19:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 19:45 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 19:39 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 19:47 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 19:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 19:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 19:26 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/41508009.shtml)
-- 2026-06-29 19:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/623545.shtml)
-- 2026-06-29 19:16 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/73627393.shtml)
-- 2026-06-29 19:29 - [叠纸](http://www.share.kurohicncr.top/Article/details/61192482546.shtml)
-- 2026-06-29 19:31 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/16496.shtml)
-- 2026-06-29 19:37 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/924491733.shtml)
-- 2026-06-29 19:20 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/95458248.shtml)
-- 2026-06-29 19:13 - [周生如故](https://www.share.kurohicncr.top/Article/details/794260321581.shtml)
-- 2026-06-29 19:28 - [逃狱兄弟](http://www.blog.minike.top/Article/details/6160033.shtml)
-- 2026-06-29 19:23 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/82278647064.shtml)
-- 2026-06-29 19:38 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/937874784907.shtml)
-- 2026-06-29 19:20 - [德国医生在没有空调的手术室工作](https://www.blog.minike.top/Article/details/43596781.shtml)
-- 2026-06-29 19:36 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/859341.shtml)
-- 2026-06-29 19:16 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/655466075015.shtml)
-- 2026-06-29 19:38 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/155102943.shtml)
+- 2026-06-29 19:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/6721564.shtml)
+- 2026-06-29 19:30 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/156186.shtml)
+- 2026-06-29 19:23 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/602537.shtml)
+- 2026-06-29 19:28 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/95078612.shtml)
+- 2026-06-29 19:24 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/680089308.shtml)
+- 2026-06-29 19:19 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/751558982.shtml)
+- 2026-06-29 19:35 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/57157769766.shtml)
+- 2026-06-29 19:18 - [速度与激情9](http://www.share.minike.top/Article/details/53828.shtml)
+- 2026-06-29 19:19 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/086346076457.shtml)
+- 2026-06-29 19:36 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/3818365586.shtml)
+- 2026-06-29 19:31 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/05812698234.shtml)
+- 2026-06-29 19:24 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/66213.shtml)
+- 2026-06-29 19:38 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/7590942402.shtml)
+- 2026-06-29 19:35 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.kurohicncr.top/Article/details/926392968146.shtml)
+- 2026-06-29 19:44 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/18366011980.shtml)

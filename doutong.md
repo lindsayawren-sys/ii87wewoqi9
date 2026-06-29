@@ -1,58 +1,61 @@
-# 市场监管总局：严查算法违规乱象 规范市场竞争秩序
+# 布鲁克携扩展版微生物诊断组合亮相ASM Microbe 2026
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-记者今天(13日)从市场监管总局发布会了解到，市场监管总局将部署开展反不正当竞争专项执法。聚焦平台经济、民生、科技创新等重点领域，统筹运用各类反不正当竞争措施，综合整治“内卷式”竞争，推动形成优质优价、良性竞争市场秩序。一是持续推进高效能执法。专项执法期间，市场监管总局将提升网络不正当竞争行为常态化监管水平，坚决规制利用数据和算法、技术、平台规则等实施的各类网络不正当竞争行为，
+美国科学仪器制造商布鲁克公司（Bruker）在ASM Microbe 2026大会上展示了其不断扩大的微生物学与感染诊断产品组合，重点呈现了其在微生物鉴定、败血症诊断、分子检测及下一代测序工作流程方面的多项创新。 本次展会的核心是获得美国FDA新增第7和第8项临床声明的MALDI Biotyper CA系统。该系统现已配备MBT Compass HT CA软件、MBT FAST
 
 ## 正文
 
-记者今天(13日)从市场监管总局发布会了解到，市场监管总局将部署开展反不正当竞争专项执法。
+美国科学仪器制造商布鲁克公司（Bruker）在ASM Microbe 2026大会上展示了其不断扩大的微生物学与感染诊断产品组合，重点呈现了其在微生物鉴定、败血症诊断、分子检测及下一代测序工作流程方面的多项创新。
 
-聚焦平台经济、民生、科技创新等重点领域，统筹运用各类反不正当竞争措施，综合整治“内卷式”竞争，推动形成优质优价、良性竞争市场秩序。
+本次展会的核心是获得美国FDA新增第7和第8项临床声明的MALDI Biotyper CA系统。
 
-一是持续推进高效能执法。
+该系统现已配备MBT Compass HT CA软件、MBT FAST Shuttle US IVD，以及一个包含549种经临床验证的微生物物种的FDA认证参考数据库，覆盖细菌、厌氧菌和酵母菌，能够支持临床实验室进行更广泛、更可靠的微生物鉴定。
 
-专项执法期间，市场监管总局将提升网络不正当竞争行为常态化监管水平，坚决规制利用数据和算法、技术、平台规则等实施的各类网络不正当竞争行为，依法保护经营者、消费者，特别是平台各方参与主体的合法权益；围绕打击社会关注度高、群众反映强烈的各类不正当竞争行为，开展全链条执法、穿透式监管，切实维护公平竞争市场环境。
+布鲁克还向美国市场推出了多款针对MALDI Biotyper RUO/GP系统的新解决方案，包括MBT Easy T Kit以及数据库涵盖5，325个物种的MBT Compass HT RUO/GP v.500。
 
-二是着力强化商业秘密保护。
+最新的数据库扩展新增了超过600个物种，其中丝状真菌的覆盖率提升约30%，解决了微生物学领域的一大检测难题。
 
-一方面加强商业秘密侵权案件查办力度，保护企业创新成果；另一方面，加强事前保护，持续完善商业秘密保护规则体系，研究制定重点领域保护标准，完善新兴产业保护指引，探索建立商业秘密管理体系认证制度。
+此外，公司还推出了用于微生物鉴定和疫情分析工作流程的MBioSEQ Ridom Typer软件。
 
-持续开展商业秘密保护创新试点工作，举办商业秘密保护月主题活动，指导重点企业、重点产业加强自我保护意识和能力，防范泄密风险，有效激发企业创新活力。
+在败血症诊断这一重点领域，布鲁克正在开发一种创新的快速抗菌药物敏感性测试工作流程。
 
-三是深化宣传倡导。
+该流程结合MALDI Biotyper CA系统和用于阳性血培养的Bruker Arc自动化样品制备方案，有望为危重患者实现更快速的诊断，支持早期临床决策。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 19:40 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 19:20 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 19:12 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 19:21 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 19:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 19:34 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 19:40 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 19:21 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 19:30 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 19:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 19:37 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 19:27 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 19:21 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 19:40 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 19:33 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 19:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 19:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 19:45 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 19:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 19:40 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 19:26 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 19:30 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 19:27 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 19:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 19:23 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 19:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:21 - [叠纸](https://www.blog.minike.top/Article/details/022835099374.shtml)
-- 2026-06-29 19:35 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/132758928.shtml)
-- 2026-06-29 19:12 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/293999.shtml)
-- 2026-06-29 19:37 - [啊啊啊](http://www.blog.minike.top/Article/details/558313862023.shtml)
-- 2026-06-29 19:39 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/144485605.shtml)
-- 2026-06-29 19:24 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/936376031933.shtml)
-- 2026-06-29 19:20 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/3351717.shtml)
-- 2026-06-29 19:17 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/51787765.shtml)
-- 2026-06-29 19:17 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/76047.shtml)
-- 2026-06-29 19:31 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/59588840173.shtml)
-- 2026-06-29 19:20 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/986725.shtml)
-- 2026-06-29 19:15 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/461116403926.shtml)
-- 2026-06-29 19:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/629668.shtml)
-- 2026-06-29 19:17 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/817865.shtml)
-- 2026-06-29 19:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/9517907516.shtml)
+- 2026-06-29 19:19 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/06597891200.shtml)
+- 2026-06-29 19:41 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/274188.shtml)
+- 2026-06-29 19:43 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/75741286672.shtml)
+- 2026-06-29 19:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/44408817.shtml)
+- 2026-06-29 19:29 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/82517.shtml)
+- 2026-06-29 19:46 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/75810604.shtml)
+- 2026-06-29 19:46 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/198430510262.shtml)
+- 2026-06-29 19:20 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/610231240884.shtml)
+- 2026-06-29 19:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/694639534.shtml)
+- 2026-06-29 19:47 - [金刚川](http://www.blog.minike.top/Article/details/492633661.shtml)
+- 2026-06-29 19:45 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/89244094.shtml)
+- 2026-06-29 19:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/2950500.shtml)
+- 2026-06-29 19:43 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/49730.shtml)
+- 2026-06-29 19:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/22384711.shtml)
+- 2026-06-29 19:48 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/30018263.shtml)

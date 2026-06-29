@@ -1,59 +1,50 @@
-# 最新，章建平建仓股曝光！牛散天团押注“AI+商业航天”（附名单）
+# 来看海警用“镜头签”为高考学子送祝福
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-超级牛散最新动向揭秘。 随着2026年A股上市公司一季报披露的收官，顶级牛散和超级游资的持仓底牌终于浮出水面。在这个市场风格剧烈切换的节点，素有“章盟主”之称的顶级游资章建平，以其高达数十亿的调仓手笔，为市场指明了新的资金流向。与此同时，众多牛散天团也呈现出罕见的“批量建仓”现象，而“AI+商业航天”这一硬核科技赛道，正成为他们共同青睐的“新宠”。 章建平狂砸超34亿建仓600
+发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。祝愿高考学子金榜题名，前程似锦，高考加油！(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
 
 ## 正文
 
-超级牛散最新动向揭秘。
+发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。
 
-随着2026年A股上市公司一季报披露的收官，顶级牛散和超级游资的持仓底牌终于浮出水面。
+祝愿高考学子金榜题名，前程似锦，高考加油！
 
-在这个市场风格剧烈切换的节点，素有“章盟主”之称的顶级游资章建平，以其高达数十亿的调仓手笔，为市场指明了新的资金流向。
-
-与此同时，众多牛散天团也呈现出罕见的“批量建仓”现象，而“AI+商业航天”这一硬核科技赛道，正成为他们共同青睐的“新宠”。
-
-章建平狂砸超34亿建仓600111 作为A股市场知名投资人，章建平的一举一动都牵动着投资者的心。
-
-最新披露的一季报数据显示，章建平在2026年一季度进行了罕见的“大腾挪”：退出了此前重仓的AI芯片龙头寒武纪，完成了在科技赛道上的阶段性获利了结。
-
-那么，这笔巨资去了哪里？
-
-答案是：硬核资源与新材料。
+(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 19:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 19:14 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 19:17 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 19:37 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 19:34 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 19:17 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 19:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 19:21 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 19:17 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 19:24 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 19:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 19:31 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 19:18 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 19:33 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 19:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 19:31 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 19:27 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 19:37 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 19:18 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 19:18 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 19:22 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 19:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 19:22 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 19:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 19:19 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 19:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/3570113.shtml)
-- 2026-06-29 19:38 - [欧洲极端高温如何影响家电股](https://www.share.minike.top/Article/details/23416148.shtml)
-- 2026-06-29 19:12 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/3543341957.shtml)
-- 2026-06-29 19:21 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/8836716565.shtml)
-- 2026-06-29 19:15 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/92613.shtml)
-- 2026-06-29 19:31 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/02093950.shtml)
-- 2026-06-29 19:31 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/1727262167.shtml)
-- 2026-06-29 19:27 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/770903410760.shtml)
-- 2026-06-29 19:36 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/220960913764.shtml)
-- 2026-06-29 19:29 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/32911190.shtml)
-- 2026-06-29 19:19 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/83413.shtml)
-- 2026-06-29 19:14 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/94339.shtml)
-- 2026-06-29 19:34 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.kurohicncr.top/Article/details/246568428.shtml)
-- 2026-06-29 19:21 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/571633736.shtml)
-- 2026-06-29 19:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/770598150.shtml)
+- 2026-06-29 19:38 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/245578.shtml)
+- 2026-06-29 19:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/06644757.shtml)
+- 2026-06-29 19:22 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/52115355345.shtml)
+- 2026-06-29 19:35 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/1535588750.shtml)
+- 2026-06-29 19:25 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/878204891.shtml)
+- 2026-06-29 19:21 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/4473468.shtml)
+- 2026-06-29 19:20 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/40862.shtml)
+- 2026-06-29 19:21 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/59153.shtml)
+- 2026-06-29 19:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/5148241.shtml)
+- 2026-06-29 19:22 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/85850377.shtml)
+- 2026-06-29 19:46 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/014653.shtml)
+- 2026-06-29 19:18 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/6835574667.shtml)
+- 2026-06-29 19:38 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/57057952.shtml)
+- 2026-06-29 19:25 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/871345846220.shtml)
+- 2026-06-29 19:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/1032857.shtml)

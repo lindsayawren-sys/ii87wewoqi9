@@ -1,56 +1,57 @@
-# 陕西宝鸡：道岔之下绽芳华
+# 凌晨！美联储，重大发布
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网陕西宝鸡5月12日电 题：陕西宝鸡：道岔之下绽芳华 作者 张远 孙婕婷 在位于陕西省宝鸡市的中铁宝桥集团宝鸡厂区的生产车间内，辙叉浇铸炉前火花四溅，映着张莉玫瑰金色的眼镜愈发光亮。作为获得“全国劳动模范”称号的高级工程师，自2003年参加工作起，她便开启了与道岔的不解之缘。 刚进厂时，张莉25岁。道岔作为铁路线路“咽喉”，设备状态直接关乎行车命脉。彼时，道岔国产化技术正处
+美联储“褐皮书”显示能源涨价推高通胀水平。 当地时间3日，美国联邦储备委员会发布的全国经济形势调查报告（美联储“褐皮书”）显示，尽管人工智能（AI）投资热潮仍在延续，但美国经济已显现消费承压、招聘疲软及物价上涨等迹象。 目前，市场对于美联储加息的预期有所升温。据CME“美联储观察”：美联储到6月维持利率不变的概率为98.4%，累计降息25个基点的概率为1.6%。美联储到7月维持
 
 ## 正文
 
-中新网陕西宝鸡5月12日电 题：陕西宝鸡：道岔之下绽芳华 作者 张远 孙婕婷 在位于陕西省宝鸡市的中铁宝桥集团宝鸡厂区的生产车间内，辙叉浇铸炉前火花四溅，映着张莉玫瑰金色的眼镜愈发光亮。
+美联储“褐皮书”显示能源涨价推高通胀水平。
 
-作为获得“全国劳动模范”称号的高级工程师，自2003年参加工作起，她便开启了与道岔的不解之缘。
+当地时间3日，美国联邦储备委员会发布的全国经济形势调查报告（美联储“褐皮书”）显示，尽管人工智能（AI）投资热潮仍在延续，但美国经济已显现消费承压、招聘疲软及物价上涨等迹象。
 
-刚进厂时，张莉25岁。
+目前，市场对于美联储加息的预期有所升温。
 
-道岔作为铁路线路“咽喉”，设备状态直接关乎行车命脉。
+据CME“美联储观察”：美联储到6月维持利率不变的概率为98.4%，累计降息25个基点的概率为1.6%。
 
-彼时，道岔国产化技术正处于攻坚期，国内首组侧向时速80公里60kg/m—18号单开道岔研制项目在中铁宝桥启动。
+美联储到7月维持利率不变的概率为90.2%，累计加息25个基点的概率8.4%，累计降息25个基点的概率为1.4%。
 
-实习期刚结束，张莉便被委任为项目负责人，留给她的设计时间仅有两个月。
+美联储“褐皮书”发布 当地时间3日，美国联邦储备委员会发布的全国经济形势调查报告显示，美国多数地区经济活动保持轻微至温和增长，但消费者支出出现分化，通胀压力上升。
 
-“那时候也是胆子大，啥活都敢接。
+报告指出，与中东冲突相关的能源成本是推高通胀水平的主要因素，并外溢至航运、包装、食品杂货和化肥等领域。
 
-”提起那段岁月，张莉忍不住感慨。
+报告显示，在12个联邦储备区中，有10个辖区经济活动呈现轻微至温和增长，1个辖区略有下滑，另1个辖区基本持平。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 19:14 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 19:27 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 19:29 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 19:18 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 19:18 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 19:17 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 19:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 19:41 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 19:28 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 19:34 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 19:25 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 19:28 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 19:45 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 19:23 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 19:23 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 19:47 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 19:40 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 19:34 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 19:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 19:23 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/42680911688.shtml)
-- 2026-06-29 19:33 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/48933172.shtml)
-- 2026-06-29 19:22 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/0038474311.shtml)
-- 2026-06-29 19:30 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/5955696293.shtml)
-- 2026-06-29 19:37 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/671764.shtml)
-- 2026-06-29 19:31 - [厨房装空调还是装冷烟机](https://www.share.kurohicncr.top/Article/details/315505647.shtml)
-- 2026-06-29 19:15 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/462243.shtml)
-- 2026-06-29 19:25 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/7318389934.shtml)
-- 2026-06-29 19:23 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/22652418.shtml)
-- 2026-06-29 19:23 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/0530734037.shtml)
-- 2026-06-29 19:30 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/373568.shtml)
-- 2026-06-29 19:15 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/998242253.shtml)
-- 2026-06-29 19:33 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/928521378.shtml)
-- 2026-06-29 19:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/5563286.shtml)
-- 2026-06-29 19:41 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/08285978.shtml)
+- 2026-06-29 19:35 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/308991.shtml)
+- 2026-06-29 19:44 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/32371791.shtml)
+- 2026-06-29 19:36 - [第一炉香](https://www.share.kurohicncr.top/Article/details/07292950869.shtml)
+- 2026-06-29 19:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/587089172436.shtml)
+- 2026-06-29 19:35 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/684844348.shtml)
+- 2026-06-29 19:30 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/48809000426.shtml)
+- 2026-06-29 19:46 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/76171926489.shtml)
+- 2026-06-29 19:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/728332216090.shtml)
+- 2026-06-29 19:42 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/469670073363.shtml)
+- 2026-06-29 19:33 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/15678434294.shtml)
+- 2026-06-29 19:38 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/91254754936.shtml)
+- 2026-06-29 19:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/38122806.shtml)
+- 2026-06-29 19:46 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/894752668370.shtml)
+- 2026-06-29 19:48 - [男子40度高温下骑行严重晒伤](http://www.blog.minike.top/Article/details/52576.shtml)
+- 2026-06-29 19:42 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/000373.shtml)

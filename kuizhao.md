@@ -1,60 +1,52 @@
-# 银河娱乐第一季度净收益为124亿港元 按年上升11%
+# 银之杰称公司“被立案调查”相关传闻不属实
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-银河娱乐（00027）发布公告，于2026年第一季度，集团录得净收益为124亿港元，按年上升11%，按季下跌10%。经调整EBITDA为36亿港元，按年增长8%，按季下跌17%。业绩的季度变动受到运气因素的影响。于2025年第四季度，集团的经调整EBITDA为43亿港元，其中包括因净赢率偏高而增加了约7.3亿港元；然而在第一季度却因净赢率偏低而减少了约200万港元。撇除赢率的因
+（来源：北京商报） 北京商报讯（记者 王蔓蕾）6月3日晚间，银之杰（300085）披露公告称，公司关注到网络平台出现关于公司“被立案调查”的相关传闻，经核实，上述传闻不属实。 银之杰表示，截至目前，公司未收到任何有权机关关于对公司立案调查的通知或相关法律文书，公司生产经营情况正常，各项业务开展有序，不存在应披露而未披露的重大事项。 交易行情显示，截至6月3日收盘，银之杰股价收跌
 
 ## 正文
 
-银河娱乐（00027）发布公告，于2026年第一季度，集团录得净收益为124亿港元，按年上升11%，按季下跌10%。
+（来源：北京商报） 北京商报讯（记者 王蔓蕾）6月3日晚间，银之杰（300085）披露公告称，公司关注到网络平台出现关于公司“被立案调查”的相关传闻，经核实，上述传闻不属实。
 
-经调整EBITDA为36亿港元，按年增长8%，按季下跌17%。
+银之杰表示，截至目前，公司未收到任何有权机关关于对公司立案调查的通知或相关法律文书，公司生产经营情况正常，各项业务开展有序，不存在应披露而未披露的重大事项。
 
-业绩的季度变动受到运气因素的影响。
+交易行情显示，截至6月3日收盘，银之杰股价收跌15.51%，报35.13元/股，总市值248.2亿元。
 
-于2025年第四季度，集团的经调整EBITDA为43亿港元，其中包括因净赢率偏高而增加了约7.3亿港元；然而在第一季度却因净赢率偏低而减少了约200万港元。
-
-撇除赢率的因素，经调整EBITDA与上一季持平。
-
-农历新年期间业务表现稳健，并与去年相近，假期後业务表现持续走强。
-
-银娱的资产负债表维持健康及高流动性，持有之现金及流动投资为392亿港元。
-
-此财务实力让我们有能力投资未来发展、探讨海外机遇、以及透过股息向股东回馈资本。
+责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 19:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 19:20 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 19:38 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 19:40 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 19:21 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 19:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 19:34 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 19:17 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 19:35 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 19:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 19:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 19:21 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 19:32 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 19:47 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 19:18 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 19:31 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 19:46 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 19:34 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 19:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 19:38 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 19:30 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 19:33 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 19:31 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 19:27 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 19:30 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 19:29 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 19:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/3582464025.shtml)
-- 2026-06-29 19:25 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/767210.shtml)
-- 2026-06-29 19:20 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/045060296.shtml)
-- 2026-06-29 19:33 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/979339.shtml)
-- 2026-06-29 19:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/712710.shtml)
-- 2026-06-29 19:16 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/67242768186.shtml)
-- 2026-06-29 19:28 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/337172.shtml)
-- 2026-06-29 19:18 - [沙丘](http://www.blog.minike.top/Article/details/15881331.shtml)
-- 2026-06-29 19:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/94157870027.shtml)
-- 2026-06-29 19:23 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/23077.shtml)
-- 2026-06-29 19:19 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/95097.shtml)
-- 2026-06-29 19:24 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/72395.shtml)
-- 2026-06-29 19:24 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/507055372.shtml)
-- 2026-06-29 19:40 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/99294.shtml)
-- 2026-06-29 19:38 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/430244509670.shtml)
+- 2026-06-29 19:31 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/6547463.shtml)
+- 2026-06-29 19:30 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/357942760281.shtml)
+- 2026-06-29 19:36 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/834145287525.shtml)
+- 2026-06-29 19:37 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/334675.shtml)
+- 2026-06-29 19:18 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/03248059135.shtml)
+- 2026-06-29 19:25 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/09197456.shtml)
+- 2026-06-29 19:46 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/8279284468.shtml)
+- 2026-06-29 19:28 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/88335.shtml)
+- 2026-06-29 19:33 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/112666.shtml)
+- 2026-06-29 19:34 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/006872898.shtml)
+- 2026-06-29 19:22 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/811553.shtml)
+- 2026-06-29 19:41 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/82897526032.shtml)
+- 2026-06-29 19:35 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/6206759.shtml)
+- 2026-06-29 19:28 - [女心理师](http://www.share.minike.top/Article/details/53335480.shtml)
+- 2026-06-29 19:33 - [金牌调解](http://www.blog.minike.top/Article/details/580822865.shtml)

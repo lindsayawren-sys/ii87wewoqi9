@@ -1,61 +1,60 @@
-# 转型品牌减肥药致一季度意外亏损，美企业Hims & Hers股价重挫11%
+# 东珠生态业绩预告“大变脸”，律师提示受损股民可索赔
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-受向品牌减肥药业务转型推高运营成本影响，美国远程医疗企业Hims & Hers Health第一季度遭遇意外亏损。当地时间12日，该公司股价在早盘交易中大幅下跌11%至25.95美元，预计市值蒸发约7.3亿美元。 财报数据显示，Hims & Hers第一季度每股亏损40美分，大幅低于此前分析师平均预期的每股盈利4美分，当期营收亦未达华尔街预期。公司首席财务官耶米·奥库佩（Yem
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月22日，上海证券交易所公开作出处分，对东珠生态，及公司时任董事长兼总经理、时任财务总监、时任董事会秘书予以公开谴责。 这一监管处罚的背后，是一起性质明确的信息披露违规事件，根源要追溯到公司2025年年报披露前后的业绩预告操作。 早在2026年1月17日，东珠生态就对外发布了2025年年度业绩预告，公告中仅提示公司当
 
 ## 正文
 
-受向品牌减肥药业务转型推高运营成本影响，美国远程医疗企业Hims & Hers Health第一季度遭遇意外亏损。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月22日，上海证券交易所公开作出处分，对东珠生态，及公司时任董事长兼总经理、时任财务总监、时任董事会秘书予以公开谴责。
 
-当地时间12日，该公司股价在早盘交易中大幅下跌11%至25.95美元，预计市值蒸发约7.3亿美元。
+这一监管处罚的背后，是一起性质明确的信息披露违规事件，根源要追溯到公司2025年年报披露前后的业绩预告操作。
 
-财报数据显示，Hims & Hers第一季度每股亏损40美分，大幅低于此前分析师平均预期的每股盈利4美分，当期营收亦未达华尔街预期。
+早在2026年1月17日，东珠生态就对外发布了2025年年度业绩预告，公告中仅提示公司当年业绩预亏，但是对公司营业收入可能低于3亿元这一关键信息并未披露。
 
-公司首席财务官耶米·奥库佩（Yemi Okupe）指出，此次亏损主要归因于司美格鲁肽（semaglutide）复合原料的资产减值、一次性法律费用及企业合并开支。
+根据沪市主板的退市规则，若上市公司一个会计年度经审计的净利润为负值且营业收入低于3亿元，股票将被直接实施退市风险警示，这是直接影响投资者决策的核心重大信息。
 
-对于营收不及预期的深层原因，该公司表示，由于美国食品药品监督管理局（FDA）近期收紧了对仿制减肥药的限制，公司正由提供较廉价的复合版GLP-1药物，全面转向与原研药企合作（如提供诺和诺德的Wegovy等品牌药物）。
+但东珠生态迟迟未披露该风险，直到年报披露窗口临近的2026年4月25日，才姗姗来迟发布补充公告，正式提示经调整后公司预计营业收入为2.90亿元，已经触及3亿元的退市红线。
 
-这一战略转型不仅冲击了短期销售额，还引发了较高的重组成本。
+违规信息披露直接带来了严重后果：最终东珠生态2025年年报确认了净利润亏损、营业收入低于3亿元的结果，公司股票被实施退市风险警示，证券简称也由原来的“东珠生态”变更为“*ST东珠（维权）”。
 
-此外，公司近期缩短了产品发货周期，导致部分减肥产品的收入确认时间发生变动，进一步拖累了美国市场的整体营收表现。
+这起事件的核心风险，其实不止于公司本身的业绩亏损，更在于信息披露的严重滞后和业绩预告的“变脸”，让普通投资者完全无法提前预判风险，突如其来的退市警示直接引发了二级市场的剧烈震荡，不少在业绩预告后买入的投资者遭遇了大幅亏损。
 
-针对该期财报，华尔街投行反应不一，部分券商维持了对该公司的原有评级。
+中国资本市场始终对信息披露违规秉持“零容忍”监管原则，持续从严打击各类违法违规行为，目的就是维护公开公平公正的市场秩序，保护广大中小投资者的合法权益。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 19:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 19:34 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 19:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 19:33 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 19:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 19:19 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 19:22 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 19:29 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 19:27 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:13 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 19:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 19:38 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 19:15 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 19:14 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 19:33 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 19:25 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 19:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 19:31 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 19:44 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 19:44 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 19:34 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 19:34 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 19:43 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 19:35 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 19:47 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 19:29 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 19:20 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 19:19 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/241763.shtml)
-- 2026-06-29 19:33 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/62360888769.shtml)
-- 2026-06-29 19:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/387091805.shtml)
-- 2026-06-29 19:25 - [美人鱼](http://www.share.kurohicncr.top/Article/details/59905700945.shtml)
-- 2026-06-29 19:12 - [美人鱼](http://www.blog.minike.top/Article/details/17058207.shtml)
-- 2026-06-29 19:15 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/135176.shtml)
-- 2026-06-29 19:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/42519.shtml)
-- 2026-06-29 19:26 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/676389447.shtml)
-- 2026-06-29 19:20 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/498044556535.shtml)
-- 2026-06-29 19:40 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/04023770.shtml)
-- 2026-06-29 19:39 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/893813892215.shtml)
-- 2026-06-29 19:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/148095088963.shtml)
-- 2026-06-29 19:29 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/38556507500.shtml)
-- 2026-06-29 19:40 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/1247736.shtml)
-- 2026-06-29 19:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/41749161910.shtml)
+- 2026-06-29 19:38 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/870299.shtml)
+- 2026-06-29 19:33 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/742053712.shtml)
+- 2026-06-29 19:23 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/450154186.shtml)
+- 2026-06-29 19:37 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/1897405.shtml)
+- 2026-06-29 19:23 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/2570474046.shtml)
+- 2026-06-29 19:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/81771.shtml)
+- 2026-06-29 19:38 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/327729294806.shtml)
+- 2026-06-29 19:18 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/411185783.shtml)
+- 2026-06-29 19:39 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/278078591.shtml)
+- 2026-06-29 19:32 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/1379714247.shtml)
+- 2026-06-29 19:37 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/68369638.shtml)
+- 2026-06-29 19:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/182220991662.shtml)
+- 2026-06-29 19:48 - [媒体评恋与深空用“引狼入室”台词](http://www.share.kurohicncr.top/Article/details/82678.shtml)
+- 2026-06-29 19:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/365701322482.shtml)
+- 2026-06-29 19:37 - [女心理师](https://www.share.kurohicncr.top/Article/details/919038003.shtml)

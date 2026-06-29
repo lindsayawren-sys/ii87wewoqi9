@@ -1,56 +1,61 @@
-# 汶川大地震中被埋72小时的女孩，如今怎么样了？
+# 京津冀等地有强对流 黑龙江吉林及江南华南等地有较强降水
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？ 黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排
+中新网6月4日电 据中央气象台网站消息，昨日，贵州、江西、安徽、湖南等地出现暴雨或大暴雨，河北、山东等地出现明显风雹。预计4日至5日，西南地区南部、江南、华南及东北、华北等地有较强降雨并伴有局地强对流天气，关注局地强降雨可能引发的山洪、地质灾害，以及降雨和强对流天气对城市运行、农业生产、交通运输等的影响；6日夜间起，南方将有新一轮大范围降雨过程，关注降雨叠加影响及暴雨灾害风险。
 
 ## 正文
 
-2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？
+中新网6月4日电 据中央气象台网站消息，昨日，贵州、江西、安徽、湖南等地出现暴雨或大暴雨，河北、山东等地出现明显风雹。
 
-黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？
+预计4日至5日，西南地区南部、江南、华南及东北、华北等地有较强降雨并伴有局地强对流天气，关注局地强降雨可能引发的山洪、地质灾害，以及降雨和强对流天气对城市运行、农业生产、交通运输等的影响；6日夜间起，南方将有新一轮大范围降雨过程，关注降雨叠加影响及暴雨灾害风险。
 
-” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排的角落 她眼前的最后一幕 是保护电视机的学习委员 被坍塌的铁架砸中 教室随即被黑暗、浓烟与惨叫吞没 牛钰的头顶 被一块预制板死死卡住 双腿以下全被压住 身体扭曲着动弹不得 闷热、窒息、剧痛 让她喘不上气 黑暗中 她摸到一只冰凉的手 手腕上戴着一块电子表 那就是坐在她后桌的女生 那个爱笑的女孩 永远留在了废墟之下 家长们哭喊着搜救 可到处都是坍塌的楼房 搬动一块石板 就可能让另一处再次塌陷 “先救我的孩子们！
+京津冀等地有强对流 未来三天，京津冀等地部分地区有小到中雨或雷阵雨，部分地区伴有雷暴大风或冰雹等强对流天气。
 
-” 班主任的声音从远处传来 微弱却坚定 废墟之下 牛钰昏迷、清醒、再昏迷 直到5月14日中午 她被一阵光亮唤醒 解放军小于叔叔冒着余震风险 一直俯在她上方的预制板上 手使劲往下够 “不要怕，叔叔在这里 我们一定救你出去” 小于叔叔的头盔上 有一盏很小的灯 微弱却耀眼 牛钰说 那是她关于希望最具象的模样 被困三天三夜后获救 5月15日 牛钰成为她读书的学校 最后一位被救出的幸存者 被抬上担架时 小于叔叔和她说 “一定要活下来” 救护车上 她的体温急剧下降 冷得浑身发抖 护士姐姐跪在担架旁 紧紧抱住她 哭着恳求 “孩子，你都撑了三天三夜 一定要坚持住 马上就到医院了” 没想到 抵达医院后等待她的 是另一个残酷的现实 双腿严重坏死 医生告诉牛钰的父母 “要命还是要腿，你们自己决定” 为保住女儿的生命 父母含泪签字 11岁的牛钰 在手术台上失去了右腿 此后又
+中央气象台6月4日6时继续发布强对流天气黄色预警：6月4日8时至5日8时，华北等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，河北中部、北京西南部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；江南东部和南部、西南地区南部、华南西部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，浙江中北部、广西中南部等地的部分地区小时雨量大于50毫米，最大可达60毫米以上。
 
-” 在无数个深夜里 她哭着向妈妈问出这个问题 康复训练的痛 与内心的自卑、挣扎 一度让她陷入低谷 日子在煎熬中一点点向前 她把委屈与不甘藏在心底 默默等待一个 能与自己和解的契机 2018年5月12日 汶川地震十周年 这天也是牛钰的农历生日 她做了一个勇敢的决定 参加汶川首届马拉松 那天 她取下假肢上的海绵 穿上短裤 第一次坦然露出假肢和伤疤 五百米、再五百米…… 本想跑几公里就放弃 却跑了一程又一程 有人冲她喊了一声“妹妹加油” 接着 很多折返回来的跑者异口同声 “中国加油！
+黑龙江吉林及江南华南等地有较强降水 6月4日至5日，东北地区东部、云贵高原、江南、华南等地的部分地区将有大到暴雨，局地有大暴雨，并伴有短时强降水等强对流天气。
 
-汶川加油！
+中央气象台6月4日6时继续发布暴雨蓝色预警：预计，6月4日8时至5日8时，黑龙江东部、吉林东部以及内蒙古东南部、河北东部、浙江西部和东北部、江西中部和东北部、湖南南部、广西东北部和西南部、云南北部和南部、四川西部和南部、西藏东南部、台湾岛南部等地部分地区有大到暴雨，其中，黑龙江东北部、湖南南部、云南东南部、广西东北部和西南部等地局地有大暴雨(100～150毫米)。
 
-” 她突然意识到 伤疤是苦难留下的不完美 也是无数人托举的生命奇迹 更是自己努力活下来的勋章 “从负数起步 我终于又回到了原点 从内心里接纳了这条‘腿’ 所以 哪有什么迈不过的坎儿？
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
 
-倒就爬起来，活就活精彩” 从那天起 她再也没给假肢包过海绵 坦然接受自己的不完美 真正与伤痛、与自己和解 铭记与向前 走出阴霾的牛钰爱上了摄影 即便扛着器材步履艰难 但她依然坚持用镜头 记录真实与美好 拍下残障朋友 最放松、最自信的模样 她也尝试做自媒体 用轻松幽默的方式 科普假肢知识，讲述幻肢痛 她走进校园宣讲 用自己的经历鼓励迷茫的人 “活法有千千万万种 你相信什么 就会成为什么” 她记得 自己是被无数人“拉一把” 才活下来的孩子 她也想成为拉别人一把的人 一位尿毒症女孩曾因绝望想告别世界 在牛钰的鼓励下重返校园 最终考上复旦大学 一位19岁截肢女孩怀揣模特梦 在看到牛钰的视频后重拾勇气 2021年 牛钰戴着闪光假肢 登上上海时装周T台 聚光灯下 她昂首挺胸，步履坚定 走出了最自信的姿态 每年5月12日 牛钰都会回到北川 祭奠逝去的亲友 小时候一
+国内未来三天具体预报 6月4日8时至5日8时，东北地区东部、江南东北部和南部、川西高原南部、西南地区南部、华南北部和西部、台湾岛等地部分地区有中到大雨，其中，黑龙江东部、吉林东部、湖南南部、广西西南部和东北部、云南南部、西藏东南部、台湾岛南部等地部分地区有暴雨或大暴雨(100～150毫米)。
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 19:38 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 19:21 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 19:14 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 19:25 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 19:28 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 19:25 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 19:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 19:19 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 19:29 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 19:40 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 19:21 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 19:24 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 19:23 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 19:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 19:21 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 19:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 19:40 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 19:32 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 19:38 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 19:46 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 19:24 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 19:22 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 19:42 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 19:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/067349382.shtml)
-- 2026-06-29 19:24 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.kurohicncr.top/Article/details/997867521.shtml)
-- 2026-06-29 19:15 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/319531879223.shtml)
-- 2026-06-29 19:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/55729246976.shtml)
-- 2026-06-29 19:31 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/716018642.shtml)
-- 2026-06-29 19:32 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/900553080530.shtml)
-- 2026-06-29 19:36 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/555829.shtml)
-- 2026-06-29 19:36 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/88621.shtml)
-- 2026-06-29 19:19 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/0301342.shtml)
-- 2026-06-29 19:41 - [逃狱兄弟](https://www.blog.minike.top/Article/details/144327754182.shtml)
-- 2026-06-29 19:18 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/492723.shtml)
-- 2026-06-29 19:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/0646131999.shtml)
-- 2026-06-29 19:36 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/487685460735.shtml)
-- 2026-06-29 19:26 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.minike.top/Article/details/98027561.shtml)
-- 2026-06-29 19:35 - [V8](http://www.blog.minike.top/Article/details/845024051054.shtml)
+- 2026-06-29 19:46 - [速度与激情9](https://www.share.minike.top/Article/details/10606984575.shtml)
+- 2026-06-29 19:34 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/005967225297.shtml)
+- 2026-06-29 19:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/48494.shtml)
+- 2026-06-29 19:41 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/696577.shtml)
+- 2026-06-29 19:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/8978935977.shtml)
+- 2026-06-29 19:45 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/1038808.shtml)
+- 2026-06-29 19:45 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/06487425475.shtml)
+- 2026-06-29 19:26 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/9099820.shtml)
+- 2026-06-29 19:18 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/5735333.shtml)
+- 2026-06-29 19:22 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/37564.shtml)
+- 2026-06-29 19:34 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/4426675448.shtml)
+- 2026-06-29 19:39 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/660916317580.shtml)
+- 2026-06-29 19:19 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/38124.shtml)
+- 2026-06-29 19:44 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/2038064639.shtml)
+- 2026-06-29 19:18 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/534938210.shtml)

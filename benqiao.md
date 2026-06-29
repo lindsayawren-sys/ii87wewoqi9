@@ -1,60 +1,61 @@
-# 5月13日财经早餐：美联储年内加息概率攀升，金价承压，油价飙升近4%
+# 油价徘徊在每桶100美元下方的三大原因
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。 日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0
+撰稿：布莱恩・沙利文 核心要点 尽管伊朗局势与霍尔木兹海峡地缘隐患重重，油价为何较前期高点大幅回落？ 这是近期被问及最多的问题，提问者往往紧接着追问：“油价不可能一直跌下去吧？” 在我看来，提问者大多持有原油多头仓位，看着期货油价跌破 100 美元感到意外。 无论市场多空持仓如何，这个问题合情合理：油价缘何大幅回撤？5 月原油创下史上最大单月跌幅，但中东战火远未平息。伊朗称美方
 
 ## 正文
 
-文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。
+撰稿：布莱恩・沙利文 核心要点 尽管伊朗局势与霍尔木兹海峡地缘隐患重重，油价为何较前期高点大幅回落？
 
-日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0.16%和0.71%，从历史高位回落，道琼斯指数则微涨0.11%。
+这是近期被问及最多的问题，提问者往往紧接着追问：“油价不可能一直跌下去吧？
 
-4月消费者价格指数涨幅超出预期，加之伊朗局势导致美伊停火协议日益脆弱，投资者在财报季接近尾声时获利了结。
+” 在我看来，提问者大多持有原油多头仓位，看着期货油价跌破 100 美元感到意外。
 
-科技股疲软拖累纳指，而医疗保健股带动道指上涨。
+无论市场多空持仓如何，这个问题合情合理：油价缘何大幅回撤？
 
-通胀数据受伊朗战争封锁霍尔木兹海峡影响，市场对美联储今年降息的期望几乎破灭，加息概率上升，CME FedWatch工具显示12月加息25个基点的概率为30.5%。
+5 月原油创下史上最大单月跌幅，但中东战火远未平息。
 
-个股方面，Zebra Technologies上调年度销售增长预期后大涨11.4%；Humana因目标价上调36%上涨7.7%；GameStop遭eBay拒绝收购要约后下跌3.5%；Hims & Hers Health因营收不及预期且意外亏损暴跌14.1%；Venture Global上调核心利润预期大涨14.2%。
+伊朗称美方破坏停火协议，其军方持续向中东地区美军发射导弹；也门胡塞武装放话准备介入，袭扰航道船只，各类利空消息层出不穷。
 
-金市 金价周二承压下跌，现货黄金下跌0.41%至每盎司4715.07美元，主要因伊朗和平协议希望破灭推高油价，加剧市场对通胀及全球利率可能上升的担忧。
+当前油价稳在 95 美元附近、迟迟突破不了百元大关，根源在于三点： 一、市场普遍乐观预判伊朗冲突短期内将落地收尾 伊朗经济高度依赖原油出口创收，恢复经贸常态符合本国巨大经济利益。
 
-道明证券策略师表示，油价上涨增加了美联储等央行可能不得不加息应对滞胀的风险，从而对黄金构成压力。
+作为石油经济体，油气产业是伊朗经济命脉，一旦出口受阻，国家财政濒临破产，民生困顿程度将创下三十余年新高。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 19:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 19:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 19:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 19:16 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 19:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 19:36 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 19:22 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 19:27 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 19:17 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 19:20 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 19:26 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 19:16 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 19:29 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 19:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-29 19:47 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 19:47 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 19:33 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 19:32 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 19:25 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 19:44 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 19:28 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:20 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 19:47 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 19:20 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 19:31 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 19:28 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 19:28 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 19:18 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/79400893.shtml)
-- 2026-06-29 19:41 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/21310.shtml)
-- 2026-06-29 19:18 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/78353170144.shtml)
-- 2026-06-29 19:20 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/829008473414.shtml)
-- 2026-06-29 19:27 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/638242.shtml)
-- 2026-06-29 19:38 - [起风了](https://www.blog.minike.top/Article/details/181993744.shtml)
-- 2026-06-29 19:29 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/60082843559.shtml)
-- 2026-06-29 19:30 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/85785.shtml)
-- 2026-06-29 19:30 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/8454089546.shtml)
-- 2026-06-29 19:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/18271795594.shtml)
-- 2026-06-29 19:35 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/808047261.shtml)
-- 2026-06-29 19:25 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/085060.shtml)
-- 2026-06-29 19:40 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/16773.shtml)
-- 2026-06-29 19:17 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/39318.shtml)
-- 2026-06-29 19:40 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/59044.shtml)
+- 2026-06-29 19:37 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/075356555.shtml)
+- 2026-06-29 19:34 - [V8](http://www.share.kurohicncr.top/Article/details/63871.shtml)
+- 2026-06-29 19:28 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/4483441.shtml)
+- 2026-06-29 19:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/83563917.shtml)
+- 2026-06-29 19:37 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/69309.shtml)
+- 2026-06-29 19:28 - [逆天祖国人](http://www.share.minike.top/Article/details/672295.shtml)
+- 2026-06-29 19:47 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/01166665421.shtml)
+- 2026-06-29 19:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/95826785.shtml)
+- 2026-06-29 19:20 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/594411947921.shtml)
+- 2026-06-29 19:19 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/8984195093.shtml)
+- 2026-06-29 19:45 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/622504.shtml)
+- 2026-06-29 19:29 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/215763189709.shtml)
+- 2026-06-29 19:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/65094842.shtml)
+- 2026-06-29 19:34 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/327560.shtml)
+- 2026-06-29 19:45 - [金刚川](http://www.blog.minike.top/Article/details/7930027.shtml)

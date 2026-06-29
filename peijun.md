@@ -1,50 +1,51 @@
-# 从“无翻译”到万余名留学生来华学习 拉赫蒙总统点赞塔中合作成果
+# Al Jadeed电视台：以色列军队撤出黎巴嫩南部城镇
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 19:29 来源：中国新闻网 5月11日晚，塔吉克斯坦共和国总统与中国企业负责人座谈会在北京举办。塔吉克斯坦总统拉赫蒙高度赞赏中国在农业、科技创新和基础设施建设等领域取得的成就，并表示两国在政府和个人层面合作空间广阔。 记者 迟瀚宇 北京报道 责任编辑：【刘湃】
+据Al Jadeed电视台报道，以色列军队已从黎巴嫩南部城镇迪宾撤出，黎巴嫩军队已进入该地区清理瓦砾并恢复道路通行。 以色列军队尚未对这一报道发表评论。责任编辑：李安桐
 
 ## 正文
 
-发布时间：2026年05月12日 19:29 来源：中国新闻网 5月11日晚，塔吉克斯坦共和国总统与中国企业负责人座谈会在北京举办。
+据Al Jadeed电视台报道，以色列军队已从黎巴嫩南部城镇迪宾撤出，黎巴嫩军队已进入该地区清理瓦砾并恢复道路通行。
 
-塔吉克斯坦总统拉赫蒙高度赞赏中国在农业、科技创新和基础设施建设等领域取得的成就，并表示两国在政府和个人层面合作空间广阔。
+以色列军队尚未对这一报道发表评论。
 
-记者 迟瀚宇 北京报道 责任编辑：【刘湃】
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 19:36 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 19:12 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 19:19 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 19:23 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 19:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 19:32 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 19:22 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 19:27 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 19:21 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 19:20 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 19:21 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 19:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 19:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 19:42 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 19:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 19:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 19:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 19:23 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 19:42 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 19:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 19:39 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 19:34 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 19:34 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 19:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 19:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 19:23 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 19:21 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:37 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/37663310691.shtml)
-- 2026-06-29 19:40 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/41918974560.shtml)
-- 2026-06-29 19:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/105362.shtml)
-- 2026-06-29 19:37 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/231916796363.shtml)
-- 2026-06-29 19:13 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/287639133.shtml)
-- 2026-06-29 19:18 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/797192.shtml)
-- 2026-06-29 19:30 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/524011.shtml)
-- 2026-06-29 19:14 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/20949833.shtml)
-- 2026-06-29 19:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/79026.shtml)
-- 2026-06-29 19:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/04217905.shtml)
-- 2026-06-29 19:32 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/4124547.shtml)
-- 2026-06-29 19:17 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/74396.shtml)
-- 2026-06-29 19:17 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/6687695.shtml)
-- 2026-06-29 19:35 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/7962065466.shtml)
-- 2026-06-29 19:37 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/8752726.shtml)
+- 2026-06-29 19:28 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/62072.shtml)
+- 2026-06-29 19:31 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/3404733354.shtml)
+- 2026-06-29 19:40 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/645016642932.shtml)
+- 2026-06-29 19:26 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/589924350295.shtml)
+- 2026-06-29 19:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/7966190792.shtml)
+- 2026-06-29 19:19 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/7967936.shtml)
+- 2026-06-29 19:27 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/406603592908.shtml)
+- 2026-06-29 19:30 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/0935937.shtml)
+- 2026-06-29 19:25 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/278891727182.shtml)
+- 2026-06-29 19:27 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/47930925337.shtml)
+- 2026-06-29 19:35 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/06693606.shtml)
+- 2026-06-29 19:47 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/446940943508.shtml)
+- 2026-06-29 19:40 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/12021474805.shtml)
+- 2026-06-29 19:26 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/8071548842.shtml)
+- 2026-06-29 19:33 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/3907301698.shtml)

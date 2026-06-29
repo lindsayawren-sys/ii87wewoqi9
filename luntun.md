@@ -1,59 +1,57 @@
-# ETF日报：国内招标持续放量、海外缺电仍在演绎，关注电网设备ETF
+# 韩国宣布获得美国价值18亿美元海上液化天然气设施订单
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-今日A股震荡盘整，沪指跌0.25%，深证成指跌0.47%，创业板指跌涨0.15%。沪深两市成交额约3.27万亿元，较上日有所缩量。个股跌多涨少，全市场超4000只个股下跌。行业层面，半导体设备、水泥制造、特高压等板块涨幅居前；稀土、工业气体、猪产业等方向则有所回调。 （资料来源：财联社） 昨晚，美股光通信板块全面爆发，Lumentum、Coherent、AAOI等多只标的实现大
+韩国政府周四宣布，韩国获得一项价值 28 亿美元的美国液化天然气（LNG）海上设施建设项目订单。 据韩国国土交通部发布的公告，由韩国政府、公立机构及民营企业组成的联合体中标，将在美国路易斯安那州承建一套浮式液化天然气设施。 三星重工是主要承包商，但韩国政府并未透露客户名称。 浮式液化天然气设施是一种用于海上天然气开发中液化天然气生产及相关作业的海上浮式装置。 这个耗资48亿美元
 
 ## 正文
 
-今日A股震荡盘整，沪指跌0.25%，深证成指跌0.47%，创业板指跌涨0.15%。
+韩国政府周四宣布，韩国获得一项价值 28 亿美元的美国液化天然气（LNG）海上设施建设项目订单。
 
-沪深两市成交额约3.27万亿元，较上日有所缩量。
+据韩国国土交通部发布的公告，由韩国政府、公立机构及民营企业组成的联合体中标，将在美国路易斯安那州承建一套浮式液化天然气设施。
 
-个股跌多涨少，全市场超4000只个股下跌。
+三星重工是主要承包商，但韩国政府并未透露客户名称。
 
-行业层面，半导体设备、水泥制造、特高压等板块涨幅居前；稀土、工业气体、猪产业等方向则有所回调。
+浮式液化天然气设施是一种用于海上天然气开发中液化天然气生产及相关作业的海上浮式装置。
 
-（资料来源：财联社） 昨晚，美股光通信板块全面爆发，Lumentum、Coherent、AAOI等多只标的实现大涨，同时芯片半导体领域也在延续上涨态势。
+这个耗资48亿美元的美国大型项目旨在每年在路易斯安那州附近海域生产440万吨液化天然气，建设期预计为五年，运营期计划为25年。
 
-受到美股映射影响，今日A股半导体设备和通信板块表现也相对较好。
+韩国海外基础设施与城市发展公司、绿色基金以及韩国海洋商业公司，共同向由全球资产管理公司贝莱德（BlackRock）牵头的基金注资1.5亿美元，以支持三星重工业参与工程、采购与建设（EPC）项目的投标。
 
-今日小作文颇多，主要还是围绕“券商杠杆要求”有一定的讨论，因此市场情绪有所扰动。
+三星重工表示，收到客户发出的开工通知后，计划开始建设，并将于2030年7月前交付该设施。
 
-不过一般短期放量大涨之后，市场波动性也会有所增加。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 19:21 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 19:35 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 19:23 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 19:41 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 19:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 19:14 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 19:26 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 19:35 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 19:27 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 19:18 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 19:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 19:12 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 19:38 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 19:37 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 19:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 19:46 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 19:41 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 19:45 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 19:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 19:26 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 19:47 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 19:29 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 19:43 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/1789989076.shtml)
-- 2026-06-29 19:24 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/014083640.shtml)
-- 2026-06-29 19:27 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/98779637.shtml)
-- 2026-06-29 19:34 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/311592.shtml)
-- 2026-06-29 19:17 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/8158039627.shtml)
-- 2026-06-29 19:41 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/906737.shtml)
-- 2026-06-29 19:25 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/019190835845.shtml)
-- 2026-06-29 19:18 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/52813.shtml)
-- 2026-06-29 19:24 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/47194005355.shtml)
-- 2026-06-29 19:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/693888133907.shtml)
-- 2026-06-29 19:12 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/68283071057.shtml)
-- 2026-06-29 19:39 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/41147898.shtml)
-- 2026-06-29 19:14 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/09506.shtml)
-- 2026-06-29 19:38 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/3933676720.shtml)
-- 2026-06-29 19:34 - [逆天祖国人](http://www.blog.minike.top/Article/details/67993861901.shtml)
+- 2026-06-29 19:24 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/96532766.shtml)
+- 2026-06-29 19:39 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/163181112021.shtml)
+- 2026-06-29 19:28 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/81294697.shtml)
+- 2026-06-29 19:26 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/6110338756.shtml)
+- 2026-06-29 19:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/87043298.shtml)
+- 2026-06-29 19:22 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/3090285.shtml)
+- 2026-06-29 19:32 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/8731361.shtml)
+- 2026-06-29 19:41 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/29146799734.shtml)
+- 2026-06-29 19:24 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/6876833132.shtml)
+- 2026-06-29 19:41 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/645900.shtml)
+- 2026-06-29 19:41 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/123178157.shtml)
+- 2026-06-29 19:20 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/025916218.shtml)
+- 2026-06-29 19:20 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/53534.shtml)
+- 2026-06-29 19:22 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/156840905175.shtml)
+- 2026-06-29 19:37 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/632103357345.shtml)

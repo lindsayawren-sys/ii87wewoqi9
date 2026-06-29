@@ -1,57 +1,58 @@
-# 国内航线燃油附加费将再上调，5月16日起单程最高170元
+# 法国称已羁押被海军拦截的俄罗斯油轮船长
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-国内航线燃油附加费将再上调。 5月12日，九元航空发布关于调整国内航线燃油附加征收标准的通知。自5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。800公里（含）以下航线，每位旅客燃油附加征收标准调整为90元。800公里以上航线，每位旅客燃油附加征收标准调整为170元。 这意味着，国内航线旅客运输燃油附加费将分别上调30元和50元。 九元航空公告指出，婴儿旅客免收燃油附
+法国西北部沿海城市布雷斯特检察官办公室3日说，法国海军日前拦截的俄罗斯油轮船长2日起被羁押。 检察官办公室表示，法国海事宪兵队执行了羁押任务。被羁押船长为俄罗斯籍，被指控所指挥的船舶未悬挂旗帜，以及在海上拒不配合执法等，他可能面临一年监禁和15万欧元罚款，船舶也可能被没收。船东身份还在核实中。 法国总统马克龙6月1日在社交媒体发文说，法国海军5月31日在大西洋海域拦截了一艘从俄
 
 ## 正文
 
-国内航线燃油附加费将再上调。
+法国西北部沿海城市布雷斯特检察官办公室3日说，法国海军日前拦截的俄罗斯油轮船长2日起被羁押。
 
-5月12日，九元航空发布关于调整国内航线燃油附加征收标准的通知。
+检察官办公室表示，法国海事宪兵队执行了羁押任务。
 
-自5月16日零时起，上调国内航线旅客运输燃油附加费征收标准。
+被羁押船长为俄罗斯籍，被指控所指挥的船舶未悬挂旗帜，以及在海上拒不配合执法等，他可能面临一年监禁和15万欧元罚款，船舶也可能被没收。
 
-800公里（含）以下航线，每位旅客燃油附加征收标准调整为90元。
+船东身份还在核实中。
 
-800公里以上航线，每位旅客燃油附加征收标准调整为170元。
+法国总统马克龙6月1日在社交媒体发文说，法国海军5月31日在大西洋海域拦截了一艘从俄罗斯驶出的油轮。
 
-这意味着，国内航线旅客运输燃油附加费将分别上调30元和50元。
+他说，上述行动在大西洋国际海域进行，获得英国等多个伙伴国家配合，行动严格遵守海洋领域相关国际法。
 
-九元航空公告指出，婴儿旅客免收燃油附加。
+另有消息称，这艘油轮被欧盟、美国和英国制裁。
 
-儿童、按民航局规定享受成人公布普通票价50%优惠的革命伤残军人和因公致残的人民警察实行减半收取，800公里（含）以下航线每位旅客收取40元，800公里以上航线每位旅客收取80元。
+俄罗斯总统新闻秘书佩斯科夫同日说，法国军方扣押俄罗斯油轮是非法的，这样的行为“近乎国际海盗行径”。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 19:24 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 19:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 19:39 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 19:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 19:32 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 19:41 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:27 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 19:28 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 19:20 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 19:34 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 19:47 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 19:23 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 19:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 19:42 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 19:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-29 19:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 19:44 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 19:26 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 19:36 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 19:18 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 19:38 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/045228580.shtml)
-- 2026-06-29 19:34 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/4674281.shtml)
-- 2026-06-29 19:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/3073349.shtml)
-- 2026-06-29 19:12 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/19717512.shtml)
-- 2026-06-29 19:23 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/93767.shtml)
-- 2026-06-29 19:20 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/1833838423.shtml)
-- 2026-06-29 19:32 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/08776073.shtml)
-- 2026-06-29 19:13 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/367801889965.shtml)
-- 2026-06-29 19:36 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/936227.shtml)
-- 2026-06-29 19:27 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/222832958.shtml)
-- 2026-06-29 19:23 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/1728589.shtml)
-- 2026-06-29 19:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/198388315756.shtml)
-- 2026-06-29 19:23 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/11359534.shtml)
-- 2026-06-29 19:38 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/85094246725.shtml)
-- 2026-06-29 19:19 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/25363461348.shtml)
+- 2026-06-29 19:42 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/264785856.shtml)
+- 2026-06-29 19:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/9725430.shtml)
+- 2026-06-29 19:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/94159699445.shtml)
+- 2026-06-29 19:34 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/21327.shtml)
+- 2026-06-29 19:32 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/450229127795.shtml)
+- 2026-06-29 19:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/4936470827.shtml)
+- 2026-06-29 19:47 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/935115860642.shtml)
+- 2026-06-29 19:30 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/31727.shtml)
+- 2026-06-29 19:36 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/17934.shtml)
+- 2026-06-29 19:45 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/36478843870.shtml)
+- 2026-06-29 19:19 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/49210022.shtml)
+- 2026-06-29 19:23 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/7558026255.shtml)
+- 2026-06-29 19:35 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/4332239284.shtml)
+- 2026-06-29 19:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/085128782335.shtml)
+- 2026-06-29 19:34 - [绘画区你赢了](https://www.share.minike.top/Article/details/99766441.shtml)

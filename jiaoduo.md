@@ -1,58 +1,57 @@
-# 英国政坛动荡引发金融震荡，英债收益率创28年新高
+# Kinaxis在拉斯维加斯Kinexions大会上揭晓2026年度客户大奖
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-受英国首相基尔·斯塔默（Keir Starmer）面临辞职压力及政局不确定性升温影响，英国金融市场周二出现剧烈波动。30年期英国国债收益率攀升至1998年以来最高水平，英镑兑美元及欧元汇率亦显著走低。 据报道，斯塔默于周二召开关键内阁会议，试图应对党内对其领导地位的严峻挑战。因执政党工党在上周的地方选举中遭遇惨重损失，党内不满情绪迅速蔓延。截至当地时间周一晚间，工党403名议员
+全球供应链规划与协调领导者Kinaxis近日在拉斯维加斯举办的Kinexions北美大会上揭晓了其2026年度客户大奖获奖名单。这项已进入第八个年头的年度盛事，旨在表彰那些利用创新技术重新定义供应链可能性的组织与个人。 Kinaxis首席执行官Razat Gaurav在颁奖典礼上表示，Kinexions汇聚了供应链领域的顶尖人才，而获奖者正是卓越精神的真实体现。他强调，这些组织
 
 ## 正文
 
-受英国首相基尔·斯塔默（Keir Starmer）面临辞职压力及政局不确定性升温影响，英国金融市场周二出现剧烈波动。
+全球供应链规划与协调领导者Kinaxis近日在拉斯维加斯举办的Kinexions北美大会上揭晓了其2026年度客户大奖获奖名单。
 
-30年期英国国债收益率攀升至1998年以来最高水平，英镑兑美元及欧元汇率亦显著走低。
+这项已进入第八个年头的年度盛事，旨在表彰那些利用创新技术重新定义供应链可能性的组织与个人。
 
-据报道，斯塔默于周二召开关键内阁会议，试图应对党内对其领导地位的严峻挑战。
+Kinaxis首席执行官Razat Gaurav在颁奖典礼上表示，Kinexions汇聚了供应链领域的顶尖人才，而获奖者正是卓越精神的真实体现。
 
-因执政党工党在上周的地方选举中遭遇惨重损失，党内不满情绪迅速蔓延。
+他强调，这些组织不仅是在复杂的商业环境中航行，更是将挑战转化为竞争优势，利用AI驱动的规划与决策能力，在其运营中创造了可衡量的影响力。
 
-截至当地时间周一晚间，工党403名议员中已有75人公开要求斯塔默辞职，并呼吁开启有序的权力交接进程。
+今年的获奖名单涵盖了多个行业的领军企业。
 
-市场对英国财政前景的担忧情绪随之加剧。
+消费品巨头Reckitt荣获“先锋奖”，表彰其通过早期采用企业调度和快速实施需求、供应、库存及企业规划能力，展示了清晰的实施路径和可衡量的供应链影响。
 
-伦敦证券交易所集团（LSEG）及Tradeweb数据显示，30年期英国国债收益率一度飙升至5.802%，刷新28年来最高纪录；10年期国债收益率上涨11个基点至5.116%，触及七周以来高点。
+通用汽车摘得“卓越奖”，因其利用Kinaxis Maestro平台实现了端到端服务零件规划的现代化，从而实现了并发规划、更快的响应速度和更高的产品可用性，同时保护了盈利能力和现金流。
 
-在汇率方面，英镑兑美元汇率跌至一周低点1.3499，英镑兑欧元汇率亦触及三周以来低位。
+在可持续发展领域，制药公司Lupin获得“影响力奖”，该公司通过一个统一的规划平台覆盖130多个国家，减少了浪费和排放，通过自动化提升了员工福祉，并通过更具韧性和预测性的供应链决策扩大了患者获取药物的机会。
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 19:35 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 19:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 19:41 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 19:41 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 19:31 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 19:18 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 19:24 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 19:18 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 19:12 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 19:24 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 19:27 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 19:45 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 19:36 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 19:32 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 19:30 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 19:29 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 19:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 19:46 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 19:33 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 19:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:33 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 19:34 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/28829.shtml)
-- 2026-06-29 19:19 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/85151006372.shtml)
-- 2026-06-29 19:37 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/0922005756.shtml)
-- 2026-06-29 19:15 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/7116123103.shtml)
-- 2026-06-29 19:24 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/6582814451.shtml)
-- 2026-06-29 19:16 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/214095422909.shtml)
-- 2026-06-29 19:19 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/61910599.shtml)
-- 2026-06-29 19:34 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/49216123.shtml)
-- 2026-06-29 19:18 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/8532975775.shtml)
-- 2026-06-29 19:25 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/897848030.shtml)
-- 2026-06-29 19:35 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/16377255637.shtml)
-- 2026-06-29 19:14 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/0063350319.shtml)
-- 2026-06-29 19:34 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/6812088.shtml)
-- 2026-06-29 19:17 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/7438328467.shtml)
-- 2026-06-29 19:21 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/75903.shtml)
+- 2026-06-29 19:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/3857961.shtml)
+- 2026-06-29 19:25 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/27135832.shtml)
+- 2026-06-29 19:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/829907.shtml)
+- 2026-06-29 19:40 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/09451.shtml)
+- 2026-06-29 19:44 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/242374.shtml)
+- 2026-06-29 19:38 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/886375644.shtml)
+- 2026-06-29 19:20 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/26910017291.shtml)
+- 2026-06-29 19:27 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/709131058688.shtml)
+- 2026-06-29 19:30 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/9341792.shtml)
+- 2026-06-29 19:38 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/4178883040.shtml)
+- 2026-06-29 19:46 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/14592426.shtml)
+- 2026-06-29 19:45 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/658776622640.shtml)
+- 2026-06-29 19:38 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/1959037.shtml)
+- 2026-06-29 19:35 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/504448253901.shtml)
+- 2026-06-29 19:30 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/51304971202.shtml)

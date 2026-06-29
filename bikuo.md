@@ -1,59 +1,61 @@
-# 农文旅融合解锁新体验：田园变景区 乡土变潮流
+# 股价异动！多家A股公司回应
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-原标题：农文旅融合解锁乡村游新体验 田园变景区 乡土变潮流 五一小长假的一个清晨，云南大理双廊古镇的薄雾还没散，女游客已经跟着民宿主人走进洱海畔的菜园。露水沾湿了裤脚，她亲手采摘下柠檬叶、薰衣草等香草，带回静待日出晾晒，之后用来冲泡清香的香草茶。亲手采摘、亲自体验非遗技艺、亲身参与乡村狂欢，再把田园滋味、文化记忆、自然疗愈通通装进行囊。国内的农文旅融合，正用无数个这样鲜活的瞬间
+来源：中国基金报 【导读】多家A股公司发布股价异动公告，回应布局相关业务及市场热点 中国基金报记者 闻言 6月3日晚间，实益达、裕太微、亨通光电、金海高科等A股公司，集中发布股票交易异常波动公告，分别回应了机器人业务、DSP（数字信号处理技术）电芯片产品、光纤光缆业务、控制权变更等事项。 实益达：持有宇树科技的股份比例较低 6月2日、6月3日，实益达的收盘价涨幅偏离值累计超20
 
 ## 正文
 
-原标题：农文旅融合解锁乡村游新体验 田园变景区 乡土变潮流 五一小长假的一个清晨，云南大理双廊古镇的薄雾还没散，女游客已经跟着民宿主人走进洱海畔的菜园。
+来源：中国基金报 【导读】多家A股公司发布股价异动公告，回应布局相关业务及市场热点 中国基金报记者 闻言 6月3日晚间，实益达、裕太微、亨通光电、金海高科等A股公司，集中发布股票交易异常波动公告，分别回应了机器人业务、DSP（数字信号处理技术）电芯片产品、光纤光缆业务、控制权变更等事项。
 
-露水沾湿了裤脚，她亲手采摘下柠檬叶、薰衣草等香草，带回静待日出晾晒，之后用来冲泡清香的香草茶。
+实益达：持有宇树科技的股份比例较低 6月2日、6月3日，实益达的收盘价涨幅偏离值累计超20%。
 
-亲手采摘、亲自体验非遗技艺、亲身参与乡村狂欢，再把田园滋味、文化记忆、自然疗愈通通装进行囊。
+根据《深圳证券交易所交易规则》等有关规定，该情形属于股票交易异常波动。
 
-国内的农文旅融合，正用无数个这样鲜活的瞬间，改写人们乡村旅行的体验。
+实益达公告称，宇树科技股份有限公司（以下简称宇树科技）不属于公司合并报表范围，且公司（含合并报表范围内的控股公司）目前不涉及机器人业务。
 
-乡村游热潮涌动 从小众选择到全民奔赴2025年的乡村，已不是“偏远”“朴素”的代名词。
+近日，网传实益达间接投资宇树科技。
 
-乡村振兴战略的深耕，让土路变成了景观道，旧屋改成了特色民宿；体验式消费的浪潮，让人们不再满足于“到此一游”，更渴望在乡村找到慢下来的节奏、有温度的体验。
+6月1日，上交所上市审核委员会审议通过了宇树科技的科创板IPO申请。
 
-农文旅融合，正是这两股力量碰撞出的火花，让乡村旅游从“小众选择”变成“大众潮流”，从“单点火爆”变成“全域开花”。
+实益达公告称，公司全资子公司持有浙江容腾创业投资合伙企业（有限合伙）0.8333%的股份，而浙江容腾创业投资合伙企业（有限合伙）持有宇树科技1.1868%的股份。
 
-上海白领周五下班开车两小时，就能住进苏浙皖的田园民宿；成都家庭周末带娃，直奔周边的农耕体验园……人们不用特意搜索“哪里有乡村游”，官方数据显示，从浙江的竹林到云南的梯田，从贵州的村寨到内蒙古的沙漠，超6万个行政村都端起了“旅游碗”。
+上述股权穿透后，实益达持有宇树科技约0.01%的股份。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 19:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 19:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 19:27 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 19:24 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 19:39 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 19:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 19:37 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 19:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 19:37 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 19:32 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 19:27 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 19:21 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 19:43 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 19:29 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 19:43 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 19:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 19:19 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 19:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 19:24 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 19:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 19:23 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 19:33 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:41 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 19:30 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 19:45 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 19:43 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 19:27 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/57808937780.shtml)
-- 2026-06-29 19:33 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/2025837183.shtml)
-- 2026-06-29 19:25 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/63589.shtml)
-- 2026-06-29 19:21 - [一见倾心](https://www.share.minike.top/Article/details/20398.shtml)
-- 2026-06-29 19:29 - [NBA交易](https://www.blog.minike.top/Article/details/10349719871.shtml)
-- 2026-06-29 19:34 - [扫黑风暴](https://www.share.minike.top/Article/details/2624613762.shtml)
-- 2026-06-29 19:18 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/1112867149.shtml)
-- 2026-06-29 19:31 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/7897458.shtml)
-- 2026-06-29 19:38 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/74574.shtml)
-- 2026-06-29 19:39 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/212593043.shtml)
-- 2026-06-29 19:33 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/156834.shtml)
-- 2026-06-29 19:21 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/91955710962.shtml)
-- 2026-06-29 19:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/07644.shtml)
-- 2026-06-29 19:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/69903.shtml)
-- 2026-06-29 19:30 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/158705861604.shtml)
+- 2026-06-29 19:21 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/878141008297.shtml)
+- 2026-06-29 19:19 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/68008511332.shtml)
+- 2026-06-29 19:41 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/46201.shtml)
+- 2026-06-29 19:44 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/85652467678.shtml)
+- 2026-06-29 19:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/708121860349.shtml)
+- 2026-06-29 19:37 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/640096405.shtml)
+- 2026-06-29 19:31 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/16667710.shtml)
+- 2026-06-29 19:38 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/97453.shtml)
+- 2026-06-29 19:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/3443599.shtml)
+- 2026-06-29 19:21 - [海清4次陪跑白玉兰](http://www.share.minike.top/Article/details/13460977.shtml)
+- 2026-06-29 19:34 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/145376.shtml)
+- 2026-06-29 19:23 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/747479.shtml)
+- 2026-06-29 19:47 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/416203476.shtml)
+- 2026-06-29 19:47 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/8841556326.shtml)
+- 2026-06-29 19:47 - [一见倾心](http://www.share.kurohicncr.top/Article/details/704695.shtml)

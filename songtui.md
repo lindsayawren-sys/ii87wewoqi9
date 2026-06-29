@@ -1,56 +1,47 @@
-# 能源智库称伊朗战争导致欧盟前所未有地高度依赖美国天然气
+# 私域直播设陷阱“拼单赌石”藏骗局非法获利500多万元 诈骗团伙落网
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。 能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。 自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多
+发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
 
 ## 正文
 
-一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。
-
-能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。
-
-按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。
-
-自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多元化，以避免过度依赖单一供应方。
-
-美国的海运输LNG已成为替代俄罗斯管道气的关键来源，但部分欧洲官员警告称，欧洲可能正从一种依赖转向另一种依赖。
-
-IEEFA欧洲首席能源分析师Ana Maria Jaller-Makarewicz表示：“液化天然气已成为欧洲能源安全战略的阿喀琉斯之踵，使该地区面临更高气价以及新的供应中断风险。
-
-” Jaller-Makarewicz指出，如果卡塔尔LNG生产设施因伊朗战争出现长期停产，美国向欧盟供气规模可能超过挪威。
-
-责任编辑：王永生
+发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 19:17 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 19:16 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 19:26 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 19:32 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 19:38 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 19:41 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 19:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 19:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 19:19 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 19:21 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 19:33 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 19:38 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 19:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 19:19 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 19:45 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 19:19 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 19:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 19:37 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 19:41 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 19:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 19:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 19:45 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 19:31 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 19:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/5649916.shtml)
-- 2026-06-29 19:15 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/024834.shtml)
-- 2026-06-29 19:15 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/248581.shtml)
-- 2026-06-29 19:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/081968824.shtml)
-- 2026-06-29 19:27 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/035831154.shtml)
-- 2026-06-29 19:37 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/156841.shtml)
-- 2026-06-29 19:40 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/1148734833.shtml)
-- 2026-06-29 19:37 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/772247948.shtml)
-- 2026-06-29 19:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/7863723.shtml)
-- 2026-06-29 19:16 - [速度与激情9](https://www.blog.minike.top/Article/details/613062705.shtml)
-- 2026-06-29 19:29 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/089611.shtml)
-- 2026-06-29 19:17 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/40850999794.shtml)
-- 2026-06-29 19:22 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/767688783.shtml)
-- 2026-06-29 19:36 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/757710.shtml)
-- 2026-06-29 19:25 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/5533496.shtml)
+- 2026-06-29 19:36 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/561864.shtml)
+- 2026-06-29 19:19 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/745046496639.shtml)
+- 2026-06-29 19:27 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/507166374176.shtml)
+- 2026-06-29 19:44 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/4064231.shtml)
+- 2026-06-29 19:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/504966775.shtml)
+- 2026-06-29 19:19 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/374390.shtml)
+- 2026-06-29 19:26 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/7936625296.shtml)
+- 2026-06-29 19:22 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/744273050.shtml)
+- 2026-06-29 19:26 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/68819415704.shtml)
+- 2026-06-29 19:28 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/50888.shtml)
+- 2026-06-29 19:44 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/5311159756.shtml)
+- 2026-06-29 19:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/529488569468.shtml)
+- 2026-06-29 19:46 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/9424959.shtml)
+- 2026-06-29 19:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/33076.shtml)
+- 2026-06-29 19:25 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/76552058.shtml)

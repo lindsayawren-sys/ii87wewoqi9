@@ -1,60 +1,56 @@
-# Longitude将在ABL集团收购完成后整合SynergenOG
+# 真主党拒绝以黎停火协议 美伊谈判陷入停滞
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-咨询公司ABL集团已同意收购总部位于马来西亚的工艺安全与技术风险咨询公司SynergenOG，以扩大其在能源领域的工程与风险管理能力。 ABL集团表示，收购完成后，SynergenOG将被整合到其工程咨询公司Longitude中。 该交易为集团增加了工艺安全管理、技术风险和损失预防服务，并扩大了其在亚太地区（包括文莱）的工程业务布局。 SynergenOG在马来西亚、新加坡、印
+美国和伊朗之间的停火谈判并无取得进展的迹象，此前双方爆发了数周以来最严重的暴力冲突，同时德黑兰支持的真主党周四拒绝了美国斡旋的以黎停火协议。 特朗普称停火谈判已进入“最后”阶段。早前伊朗外长曾称谈判已停滞。周三，在美国袭击一艘驶往伊朗的油轮后，德黑兰向科威特和巴林发射导弹和无人机，在科威特主要机场造成一人死亡，数十人受伤。 真主党武装分子表示，拒绝遵守美国国务院数小时前发布的停
 
 ## 正文
 
-咨询公司ABL集团已同意收购总部位于马来西亚的工艺安全与技术风险咨询公司SynergenOG，以扩大其在能源领域的工程与风险管理能力。
+美国和伊朗之间的停火谈判并无取得进展的迹象，此前双方爆发了数周以来最严重的暴力冲突，同时德黑兰支持的真主党周四拒绝了美国斡旋的以黎停火协议。
 
-ABL集团表示，收购完成后，SynergenOG将被整合到其工程咨询公司Longitude中。
+特朗普称停火谈判已进入“最后”阶段。
 
-该交易为集团增加了工艺安全管理、技术风险和损失预防服务，并扩大了其在亚太地区（包括文莱）的工程业务布局。
+早前伊朗外长曾称谈判已停滞。
 
-SynergenOG在马来西亚、新加坡、印度尼西亚、文莱和印度设有办公室，拥有45名顾问，为50多个国家的能源项目提供支持。
+周三，在美国袭击一艘驶往伊朗的油轮后，德黑兰向科威特和巴林发射导弹和无人机，在科威特主要机场造成一人死亡，数十人受伤。
 
-ABL集团首席执行官赫格·诺海姆表示：“SynergenOG是ABL集团和Longitude的极佳补充。
+真主党武装分子表示，拒绝遵守美国国务院数小时前发布的停火协议条件。
 
-两家公司与ABL和Longitude都有成功合作的记录，这表明市场对集成式风险与工程解决方案有明确需求，并且我们有能力共同为客户创造成果。
+据媒体报道，以色列的空袭造成至少四人死亡。
 
-” “通过此次收购，我们将SynergenOG专业的安全与风险工程能力纳入内部。
+以色列军方称真主党向其士兵发射了数枚火箭弹，但没有报告人员伤亡。
 
-这笔交易还强化了我们在亚太地区的工程业务布局，同时为SynergenOG提供了一个更大的平台，以扩展其服务范围，惠及更广泛的能源市场，”诺海姆补充道。
+尽管交火仍在继续，但受美国宣布黎巴嫩停火协议提振，投资者乐观情绪高涨，油价在连续三天上涨后回落。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 19:35 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 19:29 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 19:14 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 19:23 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 19:15 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 19:15 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 19:12 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 19:18 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 19:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 19:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 19:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 19:27 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 19:19 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 19:20 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 19:38 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 19:36 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 19:30 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 19:32 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-29 19:36 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 19:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 19:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 19:24 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 19:44 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [周生如故](https://www.blog.minike.top/Article/details/963489395753.shtml)
-- 2026-06-29 19:12 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/10887.shtml)
-- 2026-06-29 19:20 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/17973.shtml)
-- 2026-06-29 19:32 - [特朗普两大核心赌注将迎高院裁决](http://www.share.minike.top/Article/details/491129.shtml)
-- 2026-06-29 19:41 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/409017889707.shtml)
-- 2026-06-29 19:20 - [女心理师](http://www.blog.minike.top/Article/details/6060240812.shtml)
-- 2026-06-29 19:26 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/5806049.shtml)
-- 2026-06-29 19:35 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/467077.shtml)
-- 2026-06-29 19:26 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/45945.shtml)
-- 2026-06-29 19:31 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/7276188.shtml)
-- 2026-06-29 19:20 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/4744881.shtml)
-- 2026-06-29 19:19 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/87522.shtml)
-- 2026-06-29 19:33 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/30720.shtml)
-- 2026-06-29 19:36 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/6377407769.shtml)
-- 2026-06-29 19:25 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6000122.shtml)
+- 2026-06-29 19:22 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/001719007320.shtml)
+- 2026-06-29 19:46 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/01405.shtml)
+- 2026-06-29 19:25 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/33366161.shtml)
+- 2026-06-29 19:47 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/78928.shtml)
+- 2026-06-29 19:43 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/108546156.shtml)
+- 2026-06-29 19:32 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/3215690.shtml)
+- 2026-06-29 19:21 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/253429326005.shtml)
+- 2026-06-29 19:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/265516.shtml)
+- 2026-06-29 19:44 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/533647.shtml)
+- 2026-06-29 19:28 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/197889.shtml)
+- 2026-06-29 19:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/471845759317.shtml)
+- 2026-06-29 19:26 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/270010.shtml)
+- 2026-06-29 19:27 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/76327.shtml)
+- 2026-06-29 19:20 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/08867636.shtml)
+- 2026-06-29 19:43 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/671255038.shtml)

@@ -1,55 +1,56 @@
-# 曝出质量违规隐患 日本尼得科股价暴跌18%
+# 龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-周三，尼得科（Nidec Corp．，日本电产）东京盘中股价最大跌幅达18%，此前公司披露发现疑似产品质量违规行为。这家全球最大精密电机制造商表示，将开展全面质量核查，并于今日公布相关处置方案。花旗集团分析师TakayukiNaito在研报中指出：“若质量造假指控属实，尼得科或将面临成本进一步攀升、营收下滑，对公司基本面构成利空。”他补充称：“眼下6月年度股东大会及证券报告提交
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院/港市多维镜 作者：喜乐 2026年5月，香港本土美妆保健药品连锁品牌龙丰集团正式启动全球发售，并将于6月5日在港交所主板上市。依托香港本地消费客流回暖，公司近三年营收与毛利率稳步抬升，在香港细分零售赛道稳居行业前列，全渠道布局与多品类供应链构筑起基础竞争壁垒。但亮眼经营数据之下
 
 ## 正文
 
-周三，尼得科（Nidec Corp．，日本电产）东京盘中股价最大跌幅达18%，此前公司披露发现疑似产品质量违规行为。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家全球最大精密电机制造商表示，将开展全面质量核查，并于今日公布相关处置方案。
+出品：新浪财经上市公司研究院/港市多维镜 作者：喜乐 2026年5月，香港本土美妆保健药品连锁品牌龙丰集团正式启动全球发售，并将于6月5日在港交所主板上市。
 
-花旗集团分析师TakayukiNaito在研报中指出：“若质量造假指控属实，尼得科或将面临成本进一步攀升、营收下滑，对公司基本面构成利空。
+依托香港本地消费客流回暖，公司近三年营收与毛利率稳步抬升，在香港细分零售赛道稳居行业前列，全渠道布局与多品类供应链构筑起基础竞争壁垒。
 
-”他补充称：“眼下6月年度股东大会及证券报告提交临近，若后续排查再曝出更多问题，大概率会持续压制股价表现。
+但亮眼经营数据之下，100%家族实控、上市前突击大额分红、常年依靠银行透支维系周转、无基石认购等一系列问题，令本次港股上市争议重重。
 
-”尼得科已被剔除日经225指数与东证股价指数（TOPIX）；东京证券交易所表态，若公司内部治理无法整改达标，或将对其启动退市程序。
+依托深耕香港本土多年的线下门店布局，龙丰集团在香港美妆、保健品及处方药零售领域形成稳固行业地位。
 
-责任编辑：王永生
+根据弗若斯特沙利文资料，按2025财政年度零售销售额计，公司是香港第三大美妆、保健及药品零售商，市场份额5.8%；按药品零售额计，更是香港最大的药品零售商，市场份额5.2%。
+
+业绩层面公司受益香港客流回暖实现连续高增，2023至2025财年营收自10.9亿港元增长至24.6亿港元，三年复合增速达50.0%；2026财年前八个月营收20.4亿港元，同比增长35%，增速有所放缓。
+
+毛利率方面，公司采购规模持续扩容带来议价优势，毛利率从2023年24.9%稳步抬升至2025年31.6%，2026财年前八个月小幅回落至30.9%，整体仍维持高位。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 19:25 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 19:35 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 19:36 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 19:15 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 19:17 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 19:21 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 19:41 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 19:20 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 19:35 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 19:39 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 19:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 19:40 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 19:25 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 19:40 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 19:43 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 19:45 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 19:28 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 19:28 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 19:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 19:21 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 19:22 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 19:41 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/5440435.shtml)
-- 2026-06-29 19:26 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/89119792470.shtml)
-- 2026-06-29 19:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/87329359635.shtml)
-- 2026-06-29 19:29 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/801823394885.shtml)
-- 2026-06-29 19:20 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/45727.shtml)
-- 2026-06-29 19:15 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/467840453982.shtml)
-- 2026-06-29 19:24 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/595277402991.shtml)
-- 2026-06-29 19:41 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/0589553161.shtml)
-- 2026-06-29 19:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/422700.shtml)
-- 2026-06-29 19:24 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/27314158.shtml)
-- 2026-06-29 19:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/34755731.shtml)
-- 2026-06-29 19:12 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/365150.shtml)
-- 2026-06-29 19:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/696362.shtml)
-- 2026-06-29 19:12 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/0289265715.shtml)
-- 2026-06-29 19:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/10154843.shtml)
+- 2026-06-29 19:44 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/9439324.shtml)
+- 2026-06-29 19:46 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/993708.shtml)
+- 2026-06-29 19:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/69509448867.shtml)
+- 2026-06-29 19:29 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/04872370.shtml)
+- 2026-06-29 19:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/464103634.shtml)
+- 2026-06-29 19:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/933781328113.shtml)
+- 2026-06-29 19:32 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/162822518102.shtml)
+- 2026-06-29 19:42 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/090141809.shtml)
+- 2026-06-29 19:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/280082.shtml)
+- 2026-06-29 19:46 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/0797552153.shtml)
+- 2026-06-29 19:41 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/456665660294.shtml)
+- 2026-06-29 19:26 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/549936.shtml)
+- 2026-06-29 19:41 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/2709998237.shtml)
+- 2026-06-29 19:42 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/728505323654.shtml)
+- 2026-06-29 19:42 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/3885169.shtml)

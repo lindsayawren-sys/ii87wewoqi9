@@ -1,58 +1,55 @@
-# 日本称美国财长贝森特对日元政策表示理解
+# 伊朗外长：地区国家不应让美国利用其领土攻击伊朗
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-日本方面表示，在日元持续走弱、且日本多次干预汇市的做法遭到特朗普政府施压后，美国财政部长贝森特对日方的汇率政策立场给予了充分理解。 日本财务大臣片山皋月称，她与贝森特就汇率走势等市场动态进行了磋商。 片山皋月在周二历时25分钟的会谈结束后对记者表示：“双方一致同意，针对近期包括汇率在内的市场波动，美日双方的沟通协作极为顺畅。” 贝森特在社交平台X上发文称：“在应对外汇市场不必要
+当地时间4日，伊朗外长阿拉格齐表示，伊朗此前已警告该地区各国，如果它们参与对伊朗的侵略，其境内的美国军事基地将成为伊朗的合法打击目标。 阿拉格齐称，伊朗的反击针对的是美国军事基地，而非该地区各国的领土。该地区许多国家反对美国利用其领空和领土攻击伊朗，但不幸的是，美国却利用这些设施攻击伊朗。（总台记者 李健南） ©2026中央广播电视总台版权所有。未经许可，请勿转载使用。 责任编
 
 ## 正文
 
-日本方面表示，在日元持续走弱、且日本多次干预汇市的做法遭到特朗普政府施压后，美国财政部长贝森特对日方的汇率政策立场给予了充分理解。
+当地时间4日，伊朗外长阿拉格齐表示，伊朗此前已警告该地区各国，如果它们参与对伊朗的侵略，其境内的美国军事基地将成为伊朗的合法打击目标。
 
-日本财务大臣片山皋月称，她与贝森特就汇率走势等市场动态进行了磋商。
+阿拉格齐称，伊朗的反击针对的是美国军事基地，而非该地区各国的领土。
 
-片山皋月在周二历时25分钟的会谈结束后对记者表示：“双方一致同意，针对近期包括汇率在内的市场波动，美日双方的沟通协作极为顺畅。
+该地区许多国家反对美国利用其领空和领土攻击伊朗，但不幸的是，美国却利用这些设施攻击伊朗。
 
-” 贝森特在社交平台X上发文称：“在应对外汇市场不必要的过度波动方面，美日之间的沟通与协作始终保持紧密且高效。
+（总台记者 李健南） ©2026中央广播电视总台版权所有。
 
-” 他补充表示，双方还讨论了美日贸易投资协定、关键矿产，以及日本筹建外资审查体系的相关举措。
+未经许可，请勿转载使用。
 
-日元兑美元周二贬值约0.3%，跌至1美元兑157.67日元；而在上周日本疑似入市干预后，日元一度升至156.30日元附近。
-
-外汇分析师测算，过去两周日本已投入约637亿美元入市干预、支撑日元汇率，目前日元所处的交易价位，也让市场普遍预期日本监管当局或将再度出手干预汇市。
-
-贝森特定于周二晚些时候会见日本首相高市早苗。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 19:13 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-29 19:23 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 19:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 19:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 19:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 19:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 19:20 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 19:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 19:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 19:22 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 19:28 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 19:46 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 19:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 19:41 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 19:40 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 19:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:41 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 19:25 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 19:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 19:18 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 19:37 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 19:38 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 19:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 19:20 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/1903025.shtml)
-- 2026-06-29 19:23 - [爱很美味](https://www.share.minike.top/Article/details/1750803919.shtml)
-- 2026-06-29 19:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/057537.shtml)
-- 2026-06-29 19:14 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/361600612.shtml)
-- 2026-06-29 19:19 - [斗破苍穹](http://www.blog.minike.top/Article/details/336045.shtml)
-- 2026-06-29 19:37 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/38381.shtml)
-- 2026-06-29 19:30 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/91872737749.shtml)
-- 2026-06-29 19:23 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/2272191181.shtml)
-- 2026-06-29 19:39 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/051786505.shtml)
-- 2026-06-29 19:27 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/20125535292.shtml)
-- 2026-06-29 19:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/875706282.shtml)
-- 2026-06-29 19:12 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/2062741033.shtml)
-- 2026-06-29 19:34 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/419509432.shtml)
-- 2026-06-29 19:20 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/789660.shtml)
-- 2026-06-29 19:28 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/50297604522.shtml)
+- 2026-06-29 19:45 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/254890923.shtml)
+- 2026-06-29 19:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/973061323.shtml)
+- 2026-06-29 19:21 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/4665529.shtml)
+- 2026-06-29 19:28 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/227932347.shtml)
+- 2026-06-29 19:41 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/575182.shtml)
+- 2026-06-29 19:45 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/010411296.shtml)
+- 2026-06-29 19:21 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/69985821.shtml)
+- 2026-06-29 19:39 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/39983870.shtml)
+- 2026-06-29 19:20 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/99019.shtml)
+- 2026-06-29 19:40 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/677015787.shtml)
+- 2026-06-29 19:20 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/57270483045.shtml)
+- 2026-06-29 19:41 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/683579.shtml)
+- 2026-06-29 19:39 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/32328151.shtml)
+- 2026-06-29 19:31 - [女生每天戴耳机18小时突发耳聋](https://www.blog.kurohicncr.top/Article/details/15402160879.shtml)
+- 2026-06-29 19:45 - [金刚川](https://www.blog.minike.top/Article/details/808673074551.shtml)

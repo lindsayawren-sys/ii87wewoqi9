@@ -1,50 +1,59 @@
-# 韩国前总统尹锡悦涉嫌免费收受舆论调查服务一案被求刑4年
+# 长江有色：供需失衡压力持续 5日多晶硅或涨跌有限
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网5月12日电 据韩国YTN电视台12日报道，因涉嫌免费收受舆论调查服务一案，韩国前总统尹锡悦当天被特检组要求判处4年有期徒刑。 此前报道，4月29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。尹锡悦律师团队表示将提起上诉。4月24日，综合韩国MBC电视台等媒体报道，韩国内乱特检组24日就前总统尹锡悦向朝鲜派出无人机一案要求判处其有期徒刑30年。
+长江有色金属网 【行情解析】 多晶硅期货主力合约今日早盘大幅低开，并迅速走低，跌幅接近3%，价格已跌破35，200元/吨的前期震荡平台下沿，呈现破位下行态势。盘面显示，空头力量占据绝对主导，任何小幅反弹均遭遇抛压，市场情绪极为悲观。 核心驱动：供给过剩与需求疲软的双重挤压。 当前多晶硅市场的根本矛盾在于持续释放的新增产能与相对疲软的终端光伏装机需求之间的严重失衡。尽管部分企业进
 
 ## 正文
 
-中新网5月12日电 据韩国YTN电视台12日报道，因涉嫌免费收受舆论调查服务一案，韩国前总统尹锡悦当天被特检组要求判处4年有期徒刑。
+长江有色金属网 【行情解析】 多晶硅期货主力合约今日早盘大幅低开，并迅速走低，跌幅接近3%，价格已跌破35，200元/吨的前期震荡平台下沿，呈现破位下行态势。
 
-此前报道，4月29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。
+盘面显示，空头力量占据绝对主导，任何小幅反弹均遭遇抛压，市场情绪极为悲观。
 
-尹锡悦律师团队表示将提起上诉。
+核心驱动：供给过剩与需求疲软的双重挤压。
 
-4月24日，综合韩国MBC电视台等媒体报道，韩国内乱特检组24日就前总统尹锡悦向朝鲜派出无人机一案要求判处其有期徒刑30年。
+当前多晶硅市场的根本矛盾在于持续释放的新增产能与相对疲软的终端光伏装机需求之间的严重失衡。
+
+尽管部分企业进行检修，但整体供应量依然充裕，社会库存及厂家库存均处于高位。
+
+下游硅片环节由于利润微薄甚至亏损，采购意愿极其谨慎，仅维持刚性需求，导致硅料市场“有价无市”，成交清淡。
+
+期货盘面提前反映了现货市场持续阴跌的预期。
+
+技术面上，价格已跌至关键心理关口35，000元/吨附近，若该位置失守，下方空间可能被进一步打开。
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 19:36 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 19:20 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 19:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 19:13 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 19:23 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 19:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 19:17 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 19:24 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 19:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 19:14 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 19:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 19:29 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 19:33 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 19:22 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 19:46 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 19:47 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 19:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 19:38 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 19:34 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 19:40 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 19:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:35 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 19:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/56122981.shtml)
-- 2026-06-29 19:17 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/5188383664.shtml)
-- 2026-06-29 19:35 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/30690106.shtml)
-- 2026-06-29 19:28 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/5266137506.shtml)
-- 2026-06-29 19:22 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/0615705.shtml)
-- 2026-06-29 19:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/6809553.shtml)
-- 2026-06-29 19:16 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/3301315.shtml)
-- 2026-06-29 19:12 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/6876583548.shtml)
-- 2026-06-29 19:21 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/700332565.shtml)
-- 2026-06-29 19:34 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/485886.shtml)
-- 2026-06-29 19:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/914629223.shtml)
-- 2026-06-29 19:23 - [韩国队回国欢迎仪式取消](https://www.share.minike.top/Article/details/26058.shtml)
-- 2026-06-29 19:34 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/098094297161.shtml)
-- 2026-06-29 19:36 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/007446.shtml)
-- 2026-06-29 19:15 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/0944713758.shtml)
+- 2026-06-29 19:32 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/971927.shtml)
+- 2026-06-29 19:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/89889447372.shtml)
+- 2026-06-29 19:38 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/2647392.shtml)
+- 2026-06-29 19:30 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/180941.shtml)
+- 2026-06-29 19:28 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/6872124.shtml)
+- 2026-06-29 19:26 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/82207336.shtml)
+- 2026-06-29 19:18 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/381802.shtml)
+- 2026-06-29 19:42 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/429227196013.shtml)
+- 2026-06-29 19:33 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/40940.shtml)
+- 2026-06-29 19:35 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/13796548.shtml)
+- 2026-06-29 19:47 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/228590976110.shtml)
+- 2026-06-29 19:19 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/68305884.shtml)
+- 2026-06-29 19:21 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/4092343908.shtml)
+- 2026-06-29 19:33 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/3073886.shtml)
+- 2026-06-29 19:22 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/520505484801.shtml)

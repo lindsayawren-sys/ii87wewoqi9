@@ -1,56 +1,58 @@
-# OpenAI奥特曼称马斯克曾支持营利计划，否认背叛指控
+# 世界黄金协会：多国持续加码囤金，4月全球央行重回净买入
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-OpenAI首席执行官奥特曼周二驳斥了马斯克的指控，即他背叛了这家ChatGPT制造商致力于公共利益的创始使命，并表示真正有意夺取OpenAI控制权并从中牟利的是马斯克。 在2024年8月提起的诉讼中，马斯克指控奥特曼和OpenAI诱使其向捐赠3800万美元，结果却眼睁睁看着这家非营利组织背弃造福人类的使命，转而成为一家营利性公司。 这场已进入第三周的庭审，可能决定OpenAI
+文章来源：汇通财经 依托世界黄金协会的最新统计数据，全球央行黄金采购趋势迎来阶段性转变。继3月各国央行整体变成黄金净卖出主体之后，4月各国央行再度开启净增持模式，月度净购金17吨。 东欧与亚洲经济体仍是增持主力，多国接连大手笔囤金，多国小幅售金对冲。结合历年调研数据，各国央行中长期配置黄金的意愿持续走高，协会最新年度调研报告也即将落地发布。 月度购金行情反转，多国央行延续长线增
 
 ## 正文
 
-OpenAI首席执行官奥特曼周二驳斥了马斯克的指控，即他背叛了这家ChatGPT制造商致力于公共利益的创始使命，并表示真正有意夺取OpenAI控制权并从中牟利的是马斯克。
+文章来源：汇通财经 依托世界黄金协会的最新统计数据，全球央行黄金采购趋势迎来阶段性转变。
 
-在2024年8月提起的诉讼中，马斯克指控奥特曼和OpenAI诱使其向捐赠3800万美元，结果却眼睁睁看着这家非营利组织背弃造福人类的使命，转而成为一家营利性公司。
+继3月各国央行整体变成黄金净卖出主体之后，4月各国央行再度开启净增持模式，月度净购金17吨。
 
-这场已进入第三周的庭审，可能决定OpenAI及其领导层的未来，因为该公司正准备进行首次公开募股（IPO），其估值可能高达1万亿美元。
+东欧与亚洲经济体仍是增持主力，多国接连大手笔囤金，多国小幅售金对冲。
 
-在加利福尼亚州奥克兰联邦法院出庭作证时，奥特曼否认了马斯克的指控，即他与同样作为被告的OpenAI总裁格雷格·布罗克曼试图“窃取一家慈善机构”。
+结合历年调研数据，各国央行中长期配置黄金的意愿持续走高，协会最新年度调研报告也即将落地发布。
 
-奥特曼表示，“我甚至难以理解这种指控的逻辑”，并希望“随着OpenAI持续发展，这家非营利组织将表现得更好”。
+月度购金行情反转，多国央行延续长线增持节奏 世界黄金协会亚太区资深研究负责人玛丽莎·萨利姆（Marissa Salim）表示，4月全球央行扭转3月大额售金态势，重新实现17吨黄金净采购。
 
-作为全球首富，马斯克正要求OpenAI及其主要投资者微软赔偿约1500亿美元，并将这笔款项支付给OpenAI的非营利组织。
+分国别来看，波兰稳居当月第一大购金国，全月净买入14吨；亚洲大国当月净购黄金8吨，创下2024年12月之后月度增持峰值，连续18个月不间断加仓黄金储备；捷克保持稳健采购，4月买入3吨，连续38个月月度增持。
 
-他在庭审初期作证时表示：“如果让一个不可信的人来掌管人工智能，我认为这对全世界来说都是巨大的危险。
+售金阵营中，俄罗斯4月卖出6吨黄金，年内累计售金22吨；乌兹别克斯坦小幅减持1吨，但从年内整体口径依旧是净买入，累计购金24吨，净增持规模仅次于波兰。
 
-”马斯克还要求解除奥特曼和布罗克曼的职务。
+此前3月大额售金的土耳其，4月黄金储备基本维持不变，短期黄金兑美元互换集中到期，仅余下1至3个月的中长期互换产品。
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 19:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-29 19:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 19:21 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 19:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 19:12 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 19:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 19:36 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 19:15 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 19:24 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 19:40 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 19:42 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 19:18 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 19:38 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 19:26 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 19:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 19:27 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 19:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 19:24 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 19:21 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 19:20 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 19:37 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [金刚川](http://www.share.minike.top/Article/details/81394249.shtml)
-- 2026-06-29 19:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/244044.shtml)
-- 2026-06-29 19:18 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/796486229.shtml)
-- 2026-06-29 19:19 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/6379016752.shtml)
-- 2026-06-29 19:25 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/110057808.shtml)
-- 2026-06-29 19:27 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/397809368.shtml)
-- 2026-06-29 19:41 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/9621152394.shtml)
-- 2026-06-29 19:26 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/122309519784.shtml)
-- 2026-06-29 19:29 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/981671315584.shtml)
-- 2026-06-29 19:26 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/32025433796.shtml)
-- 2026-06-29 19:33 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/380026747.shtml)
-- 2026-06-29 19:14 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/411624124.shtml)
-- 2026-06-29 19:30 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/2228621615.shtml)
-- 2026-06-29 19:20 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/89115.shtml)
-- 2026-06-29 19:36 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/449399015.shtml)
+- 2026-06-29 19:31 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/134556.shtml)
+- 2026-06-29 19:23 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/2575675547.shtml)
+- 2026-06-29 19:28 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/147478.shtml)
+- 2026-06-29 19:18 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/86359097420.shtml)
+- 2026-06-29 19:34 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/095734.shtml)
+- 2026-06-29 19:19 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/59037.shtml)
+- 2026-06-29 19:30 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/1692108.shtml)
+- 2026-06-29 19:36 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/587442.shtml)
+- 2026-06-29 19:44 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.kurohicncr.top/Article/details/296917694976.shtml)
+- 2026-06-29 19:22 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/4522982.shtml)
+- 2026-06-29 19:29 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/372617679.shtml)
+- 2026-06-29 19:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/7437782158.shtml)
+- 2026-06-29 19:41 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/18614437280.shtml)
+- 2026-06-29 19:29 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/5597816.shtml)
+- 2026-06-29 19:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/1108845.shtml)

@@ -1,59 +1,54 @@
-# 通胀“烂摊子”难收场，沃什即将接手近50年来最难搞局面
+# 一席江南时令菜 中老情谊舌尖传
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-文章来源：金十数据 4月美国消费者价格指数（CPI）报告出炉后，即将接任美联储主席的凯文·沃什（Kevin Warsh）面临的政策环境，或是自1979年保罗·沃尔克（Paul Volcker）从威廉·米勒（William Miller）手中接掌美联储以来最棘手的一次之一。 参议院计划于本周正式确认沃什的主席任命，而最新通胀数据已经让市场意识到，他接下来的决策空间并不宽裕。 美国
+发布时间：2026年06月03日 21:46 来源：中国新闻网 6月2日，老挝人革党中央总书记、国家主席通伦抵达浙江杭州。当晚，西湖国宾馆的欢迎晚宴上，绍兴冻扎肉、糯米藕、腐皮卷、枇杷炖桃胶等一道道时令江南家常菜依次登场，以最地道的“浙江味道”迎接远道而来的贵宾。 此番以时令家常味待客，不仅以风味为纽带，唤起文化联结，也以“家常”烟火气，传递出两国亲邻如家人的亲近感。这一桌“江
 
 ## 正文
 
-文章来源：金十数据 4月美国消费者价格指数（CPI）报告出炉后，即将接任美联储主席的凯文·沃什（Kevin Warsh）面临的政策环境，或是自1979年保罗·沃尔克（Paul Volcker）从威廉·米勒（William Miller）手中接掌美联储以来最棘手的一次之一。
+发布时间：2026年06月03日 21:46 来源：中国新闻网 6月2日，老挝人革党中央总书记、国家主席通伦抵达浙江杭州。
 
-参议院计划于本周正式确认沃什的主席任命，而最新通胀数据已经让市场意识到，他接下来的决策空间并不宽裕。
+当晚，西湖国宾馆的欢迎晚宴上，绍兴冻扎肉、糯米藕、腐皮卷、枇杷炖桃胶等一道道时令江南家常菜依次登场，以最地道的“浙江味道”迎接远道而来的贵宾。
 
-美国4月CPI环比上涨0.6%，过去12个月累计上涨3.8%。
+此番以时令家常味待客，不仅以风味为纽带，唤起文化联结，也以“家常”烟火气，传递出两国亲邻如家人的亲近感。
 
-虽然较3月0.9%的环比涨幅有所放缓，但能源因素依然构成重要推力。
+这一桌“江南风物志”，或为远道而来的客人留下难忘的舌尖印记。
 
-数据显示，此轮涨幅中约40%与伊朗冲突带来的油价冲击有关。
-
-剔除食品和能源后的核心通胀并未同步降温。
-
-4月核心价格环比上涨0.4%，高于3月的0.2%；同比则达到2.8%。
-
-服务业价格依旧维持强势，住房成本单月上涨0.6%，扣除能源后的整体服务价格同比涨幅达到3.3%。
+(鲍梦妮 张煜欢 孙杨洋 王宇鹄 浙江杭州报道） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 19:12 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 19:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 19:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 19:36 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 19:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 19:35 - [V8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 19:15 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 19:17 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 19:37 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 19:19 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 19:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 19:30 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 19:44 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 19:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 19:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 19:28 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 19:32 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-29 19:31 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 19:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 19:24 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 19:19 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 19:21 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 19:21 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 19:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 19:46 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 19:38 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/728821929.shtml)
-- 2026-06-29 19:38 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/93005397.shtml)
-- 2026-06-29 19:23 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/342451956.shtml)
-- 2026-06-29 19:22 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/46970.shtml)
-- 2026-06-29 19:30 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/08389.shtml)
-- 2026-06-29 19:22 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/38349422.shtml)
-- 2026-06-29 19:37 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/3105547505.shtml)
-- 2026-06-29 19:40 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/16384706.shtml)
-- 2026-06-29 19:16 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/9325863304.shtml)
-- 2026-06-29 19:29 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/94416807.shtml)
-- 2026-06-29 19:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/87608105529.shtml)
-- 2026-06-29 19:19 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/749709.shtml)
-- 2026-06-29 19:41 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/43812203211.shtml)
-- 2026-06-29 19:15 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/4132406.shtml)
-- 2026-06-29 19:39 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/908350844.shtml)
+- 2026-06-29 19:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/1041435.shtml)
+- 2026-06-29 19:46 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/344154639.shtml)
+- 2026-06-29 19:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/4988533.shtml)
+- 2026-06-29 19:41 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/27608006.shtml)
+- 2026-06-29 19:39 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/8813272.shtml)
+- 2026-06-29 19:20 - [TFING全员黑西装](http://www.share.minike.top/Article/details/3038983.shtml)
+- 2026-06-29 19:45 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/591790265589.shtml)
+- 2026-06-29 19:46 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/40336535156.shtml)
+- 2026-06-29 19:21 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/473065.shtml)
+- 2026-06-29 19:21 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/71445022.shtml)
+- 2026-06-29 19:33 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/501845982344.shtml)
+- 2026-06-29 19:38 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/1835476.shtml)
+- 2026-06-29 19:35 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/5577713960.shtml)
+- 2026-06-29 19:47 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/017108172.shtml)
+- 2026-06-29 19:45 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/72378.shtml)

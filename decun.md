@@ -1,59 +1,61 @@
-# “中华民族共有精神家园建设主题文化活动·河南篇”在古都安阳启动
+# Avery Dennison任命Danny Allouche为材料集团总裁
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网安阳5月12日电(张楠)“中华民族共有精神家园建设主题文化活动·河南篇”启动仪式12日在河南省安阳市举行。国家民委副主任、党组成员郭卫平致辞并宣布开幕，河南省委常委、统战部部长张雷明出席并致辞，河南省政府副省长刘玉江主持启动仪式。 郭卫平表示，要坚持铸牢中华民族共同体意识主线不动摇，用共同理想信念凝心铸魂。要以文化滋养精神家园，深挖文化内涵，培育文化自信，涵养文明风尚，切
+美国材料科学和数字识别解决方案提供商艾利丹尼森公司今日宣布，任命Danny Allouche为材料集团总裁，该任命立即生效。Allouche将直接向公司总裁兼首席执行官Deon Stander汇报工作。 Allouche已在艾利丹尼森任职超过16年，担任过多个领导职务。自2016年起，他领导公司的全球战略和企业投资组合发展活动，最近担任高级副总裁兼首席战略和企业发展官。在这一职
 
 ## 正文
 
-中新网安阳5月12日电(张楠)“中华民族共有精神家园建设主题文化活动·河南篇”启动仪式12日在河南省安阳市举行。
+美国材料科学和数字识别解决方案提供商艾利丹尼森公司今日宣布，任命Danny Allouche为材料集团总裁，该任命立即生效。
 
-国家民委副主任、党组成员郭卫平致辞并宣布开幕，河南省委常委、统战部部长张雷明出席并致辞，河南省政府副省长刘玉江主持启动仪式。
+Allouche将直接向公司总裁兼首席执行官Deon Stander汇报工作。
 
-郭卫平表示，要坚持铸牢中华民族共同体意识主线不动摇，用共同理想信念凝心铸魂。
+Allouche已在艾利丹尼森任职超过16年，担任过多个领导职务。
 
-要以文化滋养精神家园，深挖文化内涵，培育文化自信，涵养文明风尚，切实增强各族群众的中华文化认同感、自豪感。
+自2016年起，他领导公司的全球战略和企业投资组合发展活动，最近担任高级副总裁兼首席战略和企业发展官。
 
-要坚持以人民为中心的导向，突出面向基层、面向群众，不断促进人民精神生活共同富裕。
+在这一职位上，他还负责监督公司的所有并购和风险投资活动。
 
-要有形有感有效推进中华民族共有精神家园建设，绵绵用力、久久为功，往实里抓、往细里做，为以中国式现代化全面推进强国建设、民族复兴伟业凝聚强大精神力量。
+Allouche还曾在2024年底短暂兼任艾利丹尼森临时首席财务官。
 
-张雷明在致辞中表示，河南省委、省政府高度重视本次活动，紧扣铸牢中华民族共同体意识主线，精心设计了丰富活动。
+在谈到此次任命时，Stander表示：“多年来，Danny在塑造材料集团和艾利丹尼森的战略方向方面发挥了至关重要的作用。
 
-希望以此次活动为新起点，持续深化各民族交往交流交融，不断夯实中华民族共有精神家园的文化根基、情感根基、发展根基，为奋力谱写中原大地推进中国式现代化新篇章作出新的更大贡献。
+他对我们的材料业务有深刻的了解，一直担任领导层的思想伙伴，并支持关键的业务项目，包括战略性并购活动。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 19:13 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 19:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 19:22 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 19:28 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 19:40 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 19:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 19:23 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 19:29 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 19:27 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 19:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 19:32 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 19:40 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 19:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 19:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 19:19 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 19:19 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 19:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 19:27 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 19:38 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 19:27 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 19:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 19:19 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 19:38 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 19:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 19:46 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 19:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:23 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/30749.shtml)
-- 2026-06-29 19:13 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/32711404097.shtml)
-- 2026-06-29 19:19 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/932180415981.shtml)
-- 2026-06-29 19:39 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/0458109817.shtml)
-- 2026-06-29 19:26 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/610177964.shtml)
-- 2026-06-29 19:25 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/657465.shtml)
-- 2026-06-29 19:33 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/95240313183.shtml)
-- 2026-06-29 19:40 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/83252559.shtml)
-- 2026-06-29 19:23 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/7734727.shtml)
-- 2026-06-29 19:41 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/800630269.shtml)
-- 2026-06-29 19:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/51737856.shtml)
-- 2026-06-29 19:29 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/810021245871.shtml)
-- 2026-06-29 19:12 - [锐评白玉兰提名片段](https://www.share.minike.top/Article/details/776321.shtml)
-- 2026-06-29 19:21 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/95031489.shtml)
-- 2026-06-29 19:28 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/01205330658.shtml)
+- 2026-06-29 19:36 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/06330145.shtml)
+- 2026-06-29 19:25 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/89385512.shtml)
+- 2026-06-29 19:20 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3790692456.shtml)
+- 2026-06-29 19:43 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/81197.shtml)
+- 2026-06-29 19:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/0253325.shtml)
+- 2026-06-29 19:22 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/3543077750.shtml)
+- 2026-06-29 19:27 - [锐评白玉兰提名片段](https://www.share.minike.top/Article/details/192126224.shtml)
+- 2026-06-29 19:39 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/9293406334.shtml)
+- 2026-06-29 19:45 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/963429765466.shtml)
+- 2026-06-29 19:19 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/49389.shtml)
+- 2026-06-29 19:40 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/7814698.shtml)
+- 2026-06-29 19:38 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/3990307.shtml)
+- 2026-06-29 19:40 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/05537.shtml)
+- 2026-06-29 19:31 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/59553.shtml)
+- 2026-06-29 19:35 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/4000990709.shtml)

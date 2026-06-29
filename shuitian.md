@@ -1,60 +1,58 @@
-# 美国债市：国债下跌 受油价上涨和通胀加速影响
+# Quantinuum开盘价为每股68美元
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-美国国债收于盘中低点附近。受英债抛售加剧和原油价格持续上涨影响。英国首相基尔·斯塔默面临的潜在领导权挑战引发市场对英国财政状况的担忧，导致英债收益率跳升。而在美国总统唐纳德·特朗普对美伊停火协议表示怀疑后，原油基准价格收盘上涨3%至4%。此外，美国10年期国债中标收益率高于发行前交易水平。 纽约时间下午3点过后不久，美债收益率全线上涨4个至5个基点，利差变化不大；10年期美债收
+Quantinuum周四在纳斯达克开盘价为每股68美元，此前该公司扩大了其首次公开募股的规模。 该公司在此次增发IPO中募资16.8亿美元，发行价为每股60美元，高于此前53至55美元的定价区间。按首笔交易价格计算，Quantinuum的市值约为176亿美元。 该公司成立于2021年，由霍尼韦尔的量子计算部门与总部位于英国的剑桥量子公司合并而成。该公司自称是一家“全栈式量子计算
 
 ## 正文
 
-美国国债收于盘中低点附近。
+Quantinuum周四在纳斯达克开盘价为每股68美元，此前该公司扩大了其首次公开募股的规模。
 
-受英债抛售加剧和原油价格持续上涨影响。
+该公司在此次增发IPO中募资16.8亿美元，发行价为每股60美元，高于此前53至55美元的定价区间。
 
-英国首相基尔·斯塔默面临的潜在领导权挑战引发市场对英国财政状况的担忧，导致英债收益率跳升。
+按首笔交易价格计算，Quantinuum的市值约为176亿美元。
 
-而在美国总统唐纳德·特朗普对美伊停火协议表示怀疑后，原油基准价格收盘上涨3%至4%。
+该公司成立于2021年，由霍尼韦尔的量子计算部门与总部位于英国的剑桥量子公司合并而成。
 
-此外，美国10年期国债中标收益率高于发行前交易水平。
+该公司自称是一家“全栈式量子计算平台”，涵盖硬件和软件两大领域。
 
-纽约时间下午3点过后不久，美债收益率全线上涨4个至5个基点，利差变化不大；10年期美债收益率接近4.46%，而10年期英债收益率收盘上涨10个基点至5.10%。
+阅读更多。
 
-英债引领全球债券抛售潮，英国30年期国债收益率触及5.81%，创下1998年以来最高水平；英镑兑美元下跌0.5%，至1英镑兑1.353美元。
-
-美国4月通胀数据显示核心CPI环比上升0.4%，高于预估中值0.3%，同比上升2.8%，高于预估的2.7%；尽管市场对数据的最初反应有限，但随着隔夜指数掉期定价反映出美联储在2027年加息的可能性增加，美债收益率在下午1点投标截止前进一步攀升。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 19:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 19:30 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 19:27 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 19:28 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 19:33 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 19:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 19:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 19:33 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 19:27 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 19:22 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 19:26 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 19:28 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 19:40 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 19:45 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 19:25 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 19:33 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 19:19 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 19:33 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 19:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 19:39 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 19:39 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 19:38 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 19:40 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 19:32 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 19:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:39 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 19:42 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/75317897.shtml)
-- 2026-06-29 19:36 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/37808.shtml)
-- 2026-06-29 19:30 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/137582118.shtml)
-- 2026-06-29 19:17 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/1213769.shtml)
-- 2026-06-29 19:28 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/86074380553.shtml)
-- 2026-06-29 19:17 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/9579305959.shtml)
-- 2026-06-29 19:24 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/038300956.shtml)
-- 2026-06-29 19:14 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/195051.shtml)
-- 2026-06-29 19:19 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/191815.shtml)
-- 2026-06-29 19:17 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/38033834.shtml)
-- 2026-06-29 19:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/750622006330.shtml)
-- 2026-06-29 19:22 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/008070850.shtml)
-- 2026-06-29 19:23 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/01335787193.shtml)
-- 2026-06-29 19:20 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/735611.shtml)
-- 2026-06-29 19:41 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/63699.shtml)
+- 2026-06-29 19:24 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/81450842.shtml)
+- 2026-06-29 19:21 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/48418.shtml)
+- 2026-06-29 19:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/87761272.shtml)
+- 2026-06-29 19:36 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/7498207.shtml)
+- 2026-06-29 19:24 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/6708610.shtml)
+- 2026-06-29 19:21 - [时光音乐会](https://www.blog.minike.top/Article/details/14667354.shtml)
+- 2026-06-29 19:36 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/8331589.shtml)
+- 2026-06-29 19:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/627806861760.shtml)
+- 2026-06-29 19:20 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/66573.shtml)
+- 2026-06-29 19:45 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/37643791257.shtml)
+- 2026-06-29 19:23 - [天道](https://www.blog.kurohicncr.top/Article/details/981637797.shtml)
+- 2026-06-29 19:37 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/27944.shtml)
+- 2026-06-29 19:27 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/783652035855.shtml)
+- 2026-06-29 19:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/2090346461.shtml)
+- 2026-06-29 19:45 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/05621.shtml)

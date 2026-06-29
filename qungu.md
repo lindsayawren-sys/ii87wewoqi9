@@ -1,58 +1,59 @@
-# 四川累计推动超百万民众远离地灾威胁
+# 【新思想引领新征程】通江达海 西部陆海新通道跑出高水平对外开放“加速度”
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网成都5月12日电 5月12日，四川省自然资源厅发布消息称，自2008年汶川8.0级特大地震以来，十八年间，四川累计让超百万民众远离地质灾害威胁，四川全省地灾年均伤亡人数较“十一五”时期下降83.6%。 四川是全国地质灾害最严重的省份之一，全省近96%的国土处于地质灾害易发区，隐患点多面广、威胁范围大、成灾风险高。“宁可十防九空，不可失防万一”。四川的避险搬迁之路正是在这样
+视频：【新思想引领新征程】通江达海 西部陆海新通道跑出高水平对外开放“加速度”来源：央视网 央视网消息(新闻联播)：习近平总书记强调，要大力推进西部陆海新通道建设，推动沿线地区开发开放，深度融入共建“一带一路”。今年以来，西部陆海新通道建设全面提速，推动西部地区高水平对外开放，加快形成“陆海内外联动、东西双向互济”的对外开放格局。 6月3日上午，西部陆海新通道骨干工程平陆运河建
 
 ## 正文
 
-中新网成都5月12日电 5月12日，四川省自然资源厅发布消息称，自2008年汶川8.0级特大地震以来，十八年间，四川累计让超百万民众远离地质灾害威胁，四川全省地灾年均伤亡人数较“十一五”时期下降83.6%。
+视频：【新思想引领新征程】通江达海 西部陆海新通道跑出高水平对外开放“加速度”来源：央视网 央视网消息(新闻联播)：习近平总书记强调，要大力推进西部陆海新通道建设，推动沿线地区开发开放，深度融入共建“一带一路”。
 
-四川是全国地质灾害最严重的省份之一，全省近96%的国土处于地质灾害易发区，隐患点多面广、威胁范围大、成灾风险高。
+今年以来，西部陆海新通道建设全面提速，推动西部地区高水平对外开放，加快形成“陆海内外联动、东西双向互济”的对外开放格局。
 
-“宁可十防九空，不可失防万一”。
+6月3日上午，西部陆海新通道骨干工程平陆运河建设迎来重大节点。
 
-四川的避险搬迁之路正是在这样的困境中艰难前行。
+随着控制性工程三大航运枢纽中的马道枢纽和企石枢纽开始充水，平陆运河实现全线通水，全面进入有水调试阶段。
 
-2007年，四川已在全国率先出台省级地质灾害避险搬迁管理办法，将这项工作纳入省级民生工程。
+作为西部陆海新通道的骨干工程，平陆运河通航后将开辟西南地区运距最短、最经济、最便捷通往东盟地区的水运大通道。
 
-汶川地震之后，面对山体松动、隐患点激增的严峻形势，四川在极重灾区率先探索“临时安置用地先行使用、旧宅基地复垦落实占补平衡”的用地模式。
+建设西部陆海新通道，是以习近平同志为核心的党中央立足国内国际两个大局作出的重大战略部署。
 
-这个从废墟中摸索出的经验，为山区搬迁安置积累了一批宝贵的“实战经验”。
+他指出，建设西部陆海新通道，对于推动形成“陆海内外联动、东西双向互济”的对外开放格局具有重要意义。
 
-2023年，四川印发《四川省受山洪地质灾害威胁村(居)民避险搬迁总体规划(2023—2027年)》，明确搬迁约5.9万户、22.6万人，这也是四川单次规划的最大规模山洪地灾避险搬迁。
+他在相关省份考察时强调，要实施一批重大交通基础设施项目，提高江铁海多式联运能力和自动化水平，带动西部和内陆地区高水平对外开放。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 19:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 19:24 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 19:28 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 19:32 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 19:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 19:21 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 19:22 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 19:31 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 19:33 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 19:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 19:35 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 19:42 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 19:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:47 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 19:20 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 19:27 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 19:18 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 19:47 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 19:19 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 19:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 19:38 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 19:45 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 19:27 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 19:29 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/4258161953.shtml)
-- 2026-06-29 19:15 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/12560631.shtml)
-- 2026-06-29 19:16 - [天道](https://www.blog.kurohicncr.top/Article/details/16147552358.shtml)
-- 2026-06-29 19:14 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/73065862.shtml)
-- 2026-06-29 19:14 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/23001.shtml)
-- 2026-06-29 19:18 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/344202.shtml)
-- 2026-06-29 19:25 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/46575687663.shtml)
-- 2026-06-29 19:39 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/2469506147.shtml)
-- 2026-06-29 19:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/06548.shtml)
-- 2026-06-29 19:22 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/64863404975.shtml)
-- 2026-06-29 19:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/321180009731.shtml)
-- 2026-06-29 19:15 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/76118459325.shtml)
-- 2026-06-29 19:18 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/03687.shtml)
-- 2026-06-29 19:21 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/12212235286.shtml)
-- 2026-06-29 19:29 - [金牌调解](https://www.share.kurohicncr.top/Article/details/14494.shtml)
+- 2026-06-29 19:37 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/454970883.shtml)
+- 2026-06-29 19:22 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/01588495.shtml)
+- 2026-06-29 19:42 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/890476027.shtml)
+- 2026-06-29 19:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/381021225.shtml)
+- 2026-06-29 19:46 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/9884563.shtml)
+- 2026-06-29 19:21 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/5736036370.shtml)
+- 2026-06-29 19:38 - [东方风云榜](https://www.blog.minike.top/Article/details/2345412.shtml)
+- 2026-06-29 19:19 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/706491931.shtml)
+- 2026-06-29 19:22 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/94724596134.shtml)
+- 2026-06-29 19:39 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/43614669.shtml)
+- 2026-06-29 19:18 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/173083726561.shtml)
+- 2026-06-29 19:43 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/688626970.shtml)
+- 2026-06-29 19:19 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/52170147716.shtml)
+- 2026-06-29 19:35 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/38072081335.shtml)
+- 2026-06-29 19:21 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/5418567427.shtml)

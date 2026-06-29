@@ -1,54 +1,60 @@
-# 京西国际盘中涨超13% 其控股股东与立讯精密订立买卖协议
+# 【光明论坛】以正确政绩观护航科技创新生态建设
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-京西国际（02339）盘中涨超13%，昨日复牌大涨超49%。截至发稿，股价上涨11.96%，现报7.49港元，成交额5421.60万港元。 京西国际近日公告，其控股股东京西智行集团与立讯精密订立买卖协议，立讯精密有条件同意收购京西智行集团的全部股权。京西智行集团透过其全资附属公司持有京西国际已发行股份总数约59.50%。若交易完成，立讯精密将间接持有京西国际59.50%股份，并
+【光明论坛】 近年来，各地抓科技创新的干劲十足。项目加快推进，平台密集落地，应用场景不断推出，新赛道一个接着一个升温。这是高质量发展的蓬勃气象。但也要看到，科技创新不是一阵风，不能只看一时热度。 一个地方科技创新工作做得好不好，不能只问上了多少项目、建了多少平台、引进了多少企业，还要问有没有稳定的人才供给，创新链条能不能顺畅承接，多元主体能不能有效协同，遇到风口变化和市场波动时
 
 ## 正文
 
-京西国际（02339）盘中涨超13%，昨日复牌大涨超49%。
+【光明论坛】 近年来，各地抓科技创新的干劲十足。
 
-截至发稿，股价上涨11.96%，现报7.49港元，成交额5421.60万港元。
+项目加快推进，平台密集落地，应用场景不断推出，新赛道一个接着一个升温。
 
-京西国际近日公告，其控股股东京西智行集团与立讯精密订立买卖协议，立讯精密有条件同意收购京西智行集团的全部股权。
+这是高质量发展的蓬勃气象。
 
-京西智行集团透过其全资附属公司持有京西国际已发行股份总数约59.50%。
+但也要看到，科技创新不是一阵风，不能只看一时热度。
 
-若交易完成，立讯精密将间接持有京西国际59.50%股份，并成为其最终控股股东。
+一个地方科技创新工作做得好不好，不能只问上了多少项目、建了多少平台、引进了多少企业，还要问有没有稳定的人才供给，创新链条能不能顺畅承接，多元主体能不能有效协同，遇到风口变化和市场波动时能不能保持韧性。
 
-据悉，京西智行是全球化汽车悬架与制动系统一级供应商，承袭德尔福百年技术积淀，深度布局中欧美三大汽车产区。
+说到底，科技创新拼到最后，拼的是生态；生态能不能持续向好，考验的正是政绩观。
 
-责任编辑：卢昱君
+政绩观会在科技创新的具体推进中留下清晰痕迹。
+
+对科技创新的理解不同，资源怎么投、力量怎么组织、风险怎么看、成效怎么评，也会随之不同。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 19:21 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 19:25 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 19:35 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 19:41 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 19:21 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 19:31 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 19:36 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 19:21 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:39 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 19:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 19:21 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 19:25 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 19:45 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 19:28 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 19:38 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 19:41 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 19:33 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 19:38 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 19:33 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 19:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 19:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 19:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 19:30 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/3941278.shtml)
-- 2026-06-29 19:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/76972526.shtml)
-- 2026-06-29 19:16 - [王楚钦开门红](https://www.blog.minike.top/Article/details/995843594.shtml)
-- 2026-06-29 19:16 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/40198.shtml)
-- 2026-06-29 19:38 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/296846487.shtml)
-- 2026-06-29 19:12 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/177153.shtml)
-- 2026-06-29 19:24 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/924308992.shtml)
-- 2026-06-29 19:27 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/05809563097.shtml)
-- 2026-06-29 19:41 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/463054727310.shtml)
-- 2026-06-29 19:26 - [明星大侦探第一季](http://www.share.minike.top/Article/details/782618771.shtml)
-- 2026-06-29 19:19 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/9654569.shtml)
-- 2026-06-29 19:34 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/8370088241.shtml)
-- 2026-06-29 19:31 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/68739118.shtml)
-- 2026-06-29 19:19 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/442698515.shtml)
-- 2026-06-29 19:23 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/2297524.shtml)
+- 2026-06-29 19:47 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/9543525.shtml)
+- 2026-06-29 19:45 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/343329723374.shtml)
+- 2026-06-29 19:33 - [葛军透露高考出题思路](http://www.blog.minike.top/Article/details/126686057660.shtml)
+- 2026-06-29 19:23 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/6882439044.shtml)
+- 2026-06-29 19:39 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/502758405039.shtml)
+- 2026-06-29 19:26 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/533578658.shtml)
+- 2026-06-29 19:36 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/9262145184.shtml)
+- 2026-06-29 19:45 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/8977525041.shtml)
+- 2026-06-29 19:38 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/21228061.shtml)
+- 2026-06-29 19:35 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/34017339191.shtml)
+- 2026-06-29 19:23 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/92467105.shtml)
+- 2026-06-29 19:37 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/4680326710.shtml)
+- 2026-06-29 19:18 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/46827.shtml)
+- 2026-06-29 19:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/109690.shtml)
+- 2026-06-29 19:27 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/0068815.shtml)

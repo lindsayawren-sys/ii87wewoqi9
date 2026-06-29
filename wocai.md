@@ -1,57 +1,59 @@
-# 酒价内参5月13日价格发布：五粮液1618下跌1元
+# 第十八届海峡论坛6月中旬举办 将邀请台湾各界人士参加
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨三跌三平，赢
+中新社北京6月3日电 (张晓曦 李百加)国务院台办发言人朱凤莲3日在北京应询介绍，第十八届海峡论坛将于6月中旬在福建举办，6月13日举办论坛大会，将邀请台湾有关政党代表以及工会、青年、妇女、民间信仰、农渔水利、文化旅游、卫生健康、工商金融等各界人士参加。当日的国台办例行新闻发布会上，朱凤莲介绍，本届论坛坚持“民间性、草根性、广泛性”定位，延续“扩大民间交流、深化融合发展”主题，
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。
+中新社北京6月3日电 (张晓曦 李百加)国务院台办发言人朱凤莲3日在北京应询介绍，第十八届海峡论坛将于6月中旬在福建举办，6月13日举办论坛大会，将邀请台湾有关政党代表以及工会、青年、妇女、民间信仰、农渔水利、文化旅游、卫生健康、工商金融等各界人士参加。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。
+当日的国台办例行新闻发布会上，朱凤莲介绍，本届论坛坚持“民间性、草根性、广泛性”定位，延续“扩大民间交流、深化融合发展”主题，设置基层交流、青年交流、文化交流、经济交流四大板块58项活动。
 
-今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。
+论坛主会场设在厦门，福建有关设区市和平潭综合实验区将举办相关活动。
 
-今日白酒市场11大单品五涨三跌三平，赢家占据优势，但涨幅相对温和。
+朱凤莲表示，目前论坛各项筹备工作稳步推进，进展顺利。
 
-上涨方面，飞天茅台、五粮液普五八代、国窖1573及青花郎均上涨2元/瓶，同步小幅回暖，其中飞天茅台二连涨，普五平近一月最高价格，国窖1573收获四连阳，价格快速回升至月内次高位，青花郎近半月价格中枢总体呈缓慢上升势头；洋河梦之蓝M6+上涨1元/瓶，价格升至月内次高位。
+论坛新闻中心将发布记者采访申请通知，欢迎媒体记者前往采访报道。
 
-下跌方面，古20跌幅居前，下跌6元/瓶，连续上涨势头告终；习酒君品下跌5元/瓶，创近一月新低；五粮液1618下跌1元/瓶。
+台湾网红“馆长”近期在川渝直播参访，打卡重庆抗战遗址博物馆、探访张雪机车工厂、观看川剧变脸和大熊猫，还有台湾网红俯瞰厦金大桥，到宜昌用双脚丈量三峡大坝，受到两岸网友关注。
 
-精品茅台、青花汾20及水晶剑南春的价格环比保持不变。
+朱凤莲说，很多两岸网民特别是台湾网民对此予以热情回应，表示希望有更多类似的善意互动和客观推介。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+百闻不如一见，见面三分情。
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 19:22 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 19:27 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 19:33 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 19:15 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 19:30 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 19:22 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 19:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 19:22 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 19:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 19:22 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 19:24 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 19:26 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 19:23 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 19:28 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 19:47 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 19:18 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 19:33 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 19:24 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 19:47 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 19:43 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 19:18 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 19:46 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 19:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:39 - [大学专业未来如何洗牌](http://www.share.kurohicncr.top/Article/details/43714961429.shtml)
-- 2026-06-29 19:16 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/80004.shtml)
-- 2026-06-29 19:30 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/0358422455.shtml)
-- 2026-06-29 19:30 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/0796837.shtml)
-- 2026-06-29 19:17 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/5288403.shtml)
-- 2026-06-29 19:35 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/53529.shtml)
-- 2026-06-29 19:27 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/69749972223.shtml)
-- 2026-06-29 19:27 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/362696785.shtml)
-- 2026-06-29 19:17 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/35546344.shtml)
-- 2026-06-29 19:27 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/7874266.shtml)
-- 2026-06-29 19:16 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/73885962.shtml)
-- 2026-06-29 19:18 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/793880218.shtml)
-- 2026-06-29 19:14 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/9028135.shtml)
-- 2026-06-29 19:17 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/35039513843.shtml)
-- 2026-06-29 19:35 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/0548401.shtml)
+- 2026-06-29 19:36 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/95370049228.shtml)
+- 2026-06-29 19:19 - [大学专业未来如何洗牌](https://www.blog.minike.top/Article/details/97242.shtml)
+- 2026-06-29 19:21 - [美人鱼](http://www.blog.minike.top/Article/details/78406590862.shtml)
+- 2026-06-29 19:20 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/77704.shtml)
+- 2026-06-29 19:35 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/15545.shtml)
+- 2026-06-29 19:37 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/54167.shtml)
+- 2026-06-29 19:33 - [沙丘](http://www.blog.minike.top/Article/details/420643.shtml)
+- 2026-06-29 19:19 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/1588219.shtml)
+- 2026-06-29 19:40 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/1257379764.shtml)
+- 2026-06-29 19:30 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/382244.shtml)
+- 2026-06-29 19:19 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/7756192070.shtml)
+- 2026-06-29 19:22 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/42978.shtml)
+- 2026-06-29 19:35 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/914979511030.shtml)
+- 2026-06-29 19:41 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/20408.shtml)
+- 2026-06-29 19:24 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/209585.shtml)

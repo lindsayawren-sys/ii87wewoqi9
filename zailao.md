@@ -1,61 +1,47 @@
-# 辽宁公安2025年破获经济案2500余起 挽回企业损失超7亿元
+# 南京银行：2025年度每股派0.22295元（含税） 6月15日除权除息
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。 经济安全是国家安全的基础。赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风
+6月4日金融一线消息，南京银行发布2025年年度权益分派实施公告，每股派发含税现金红利0.22295元（含税），股权登记日为2026年6月12日，除权（息）日及现金红利发放日均为2026年6月15日。 责任编辑：秦艺
 
 ## 正文
 
-中新网沈阳5月12日电 (记者 王景巍)5月12日，辽宁省公安厅召开新闻发布会。
+6月4日金融一线消息，南京银行发布2025年年度权益分派实施公告，每股派发含税现金红利0.22295元（含税），股权登记日为2026年6月12日，除权（息）日及现金红利发放日均为2026年6月15日。
 
-辽宁省公安厅经侦总队总队长赵刚在发布会上通报，2025年以来，辽宁省公安机关共破获各类经济犯罪案件2500余起，抓获犯罪嫌疑人5600余人。
-
-经济安全是国家安全的基础。
-
-赵刚表示，辽宁公安始终将打击和防范经济犯罪作为护航全面振兴发展的重要举措，健全完善“专业+机制+大数据”新型警务运行模式，积极参与风险化解、严厉打击经济犯罪、严格规范执法行为，有力维护了辽宁省经济安全和市场秩序。
-
-在金融领域，辽宁公安联合金融监管、行业主管部门构建“四位一体”联动机制，发起多波次集中收网。
-
-2025年以来，共破获金融“黑灰产”领域案件20余起，采取刑事强制措施142人，打掉犯罪团伙7个，成功侦办“屹腾惠民”等一批非法经营案。
-
-同时，依托“歼击”专项行动，健全警汇战略合作机制，成功侦破系列地下钱庄案；严打假币犯罪，打掉多个制售假币犯罪团伙。
-
-护企安商是优化法治化营商环境的关键一环。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 19:16 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 19:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 19:39 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 19:18 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 19:31 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 19:25 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 19:32 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 19:12 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 19:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 19:34 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 19:26 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 19:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 19:35 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 19:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 19:18 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 19:39 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 19:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 19:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 19:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 19:35 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 19:42 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 19:47 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 19:47 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 19:40 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 19:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 19:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 19:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:25 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/250278017.shtml)
-- 2026-06-29 19:15 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/5849614.shtml)
-- 2026-06-29 19:20 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/493141358.shtml)
-- 2026-06-29 19:30 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1479853.shtml)
-- 2026-06-29 19:12 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/126889120.shtml)
-- 2026-06-29 19:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/30553974.shtml)
-- 2026-06-29 19:36 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/1394538.shtml)
-- 2026-06-29 19:25 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/23497368.shtml)
-- 2026-06-29 19:16 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/00783.shtml)
-- 2026-06-29 19:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/24941863826.shtml)
-- 2026-06-29 19:18 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/1782497.shtml)
-- 2026-06-29 19:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/736490186671.shtml)
-- 2026-06-29 19:41 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/6881995966.shtml)
-- 2026-06-29 19:31 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/9366520.shtml)
-- 2026-06-29 19:14 - [东方风云榜](http://www.blog.minike.top/Article/details/895997552.shtml)
+- 2026-06-29 19:29 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/73456477.shtml)
+- 2026-06-29 19:47 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/071118738.shtml)
+- 2026-06-29 19:32 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/12809.shtml)
+- 2026-06-29 19:27 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/36399631.shtml)
+- 2026-06-29 19:19 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/87300743.shtml)
+- 2026-06-29 19:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/811084209556.shtml)
+- 2026-06-29 19:33 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/3143359011.shtml)
+- 2026-06-29 19:27 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/9482218.shtml)
+- 2026-06-29 19:33 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/14171.shtml)
+- 2026-06-29 19:29 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/783549795.shtml)
+- 2026-06-29 19:29 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/780488655255.shtml)
+- 2026-06-29 19:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/1562646.shtml)
+- 2026-06-29 19:25 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/4506853380.shtml)
+- 2026-06-29 19:32 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/342674575059.shtml)
+- 2026-06-29 19:33 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/699938.shtml)

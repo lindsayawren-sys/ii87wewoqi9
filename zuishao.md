@@ -1,60 +1,57 @@
-# 瑞士研发出“熊脸识别”人工智能模型
+# （乡村行·看振兴）桂东北小镇的“国际生意”：婚纱销欧美 玩具卖日韩
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网北京5月12日电 伯尔尼消息：据瑞士资讯网10日报道，瑞士研发出一款能够进行“熊脸识别”的人工智能模型，可以在美国阿拉斯加荒野中追踪棕熊的行踪，为野生动物研究和自然保护带来全新工具。 美国阿拉斯加太平洋大学的生物学家和生态学家贝丝·罗森伯格(Beth Rosenberg)在阿拉斯加荒野中生活了二十年，可以凭棕熊的头部、口鼻形状，以及细小伤疤或某些典型行为分辨出不同的熊。
+中新网广西贺州6月3日电 题：桂东北小镇的“国际生意”：婚纱销欧美 玩具卖日韩 作者 张广权 初夏时节，在广西贺州市平桂区公会镇，一群本地缝纫工正在赶制即将发往欧美市场的婚纱。她们所在的公会镇乡村振兴产业融合园(以下简称“园区”)，正悄然成为桂东北山区连接全球产业链的一个重要节点。 园区规划总面积854亩，目前已吸引19家企业签约入驻，其中9家已正式投产。园区生产的产品远销欧美
 
 ## 正文
 
-中新网北京5月12日电 伯尔尼消息：据瑞士资讯网10日报道，瑞士研发出一款能够进行“熊脸识别”的人工智能模型，可以在美国阿拉斯加荒野中追踪棕熊的行踪，为野生动物研究和自然保护带来全新工具。
+中新网广西贺州6月3日电 题：桂东北小镇的“国际生意”：婚纱销欧美 玩具卖日韩 作者 张广权 初夏时节，在广西贺州市平桂区公会镇，一群本地缝纫工正在赶制即将发往欧美市场的婚纱。
 
-美国阿拉斯加太平洋大学的生物学家和生态学家贝丝·罗森伯格(Beth Rosenberg)在阿拉斯加荒野中生活了二十年，可以凭棕熊的头部、口鼻形状，以及细小伤疤或某些典型行为分辨出不同的熊。
+她们所在的公会镇乡村振兴产业融合园(以下简称“园区”)，正悄然成为桂东北山区连接全球产业链的一个重要节点。
 
-如今，她与瑞士洛桑联邦理工学院的研究人员合作，将这些经验分享给人工智能模型，训练了一套能够识别单只棕熊的人工智能系统。
+园区规划总面积854亩，目前已吸引19家企业签约入驻，其中9家已正式投产。
 
-这项训练基于罗森伯格多年积累的专业知识，以及她在六年间拍摄的数千张棕熊照片。
+园区生产的产品远销欧美、日韩和中东市场。
 
-据报道，该系统可根据棕熊的头部形状和侧面轮廓等身体特征，准确地识别麦克尼尔河沿岸的棕熊个体，并且能够将同一只熊在不同时间、不同地点拍摄的照片联系起来，从而在时间和空间上追踪这只熊的活动轨迹。
+“我们的婚纱通过粤港澳大湾区的贸易商中转，最终出现在欧美客户的婚礼上。
 
-这个模型甚至还能识别出一只此前从未“见过”的熊。
+”广西爱天婚纱有限公司创始人李大冰说。
 
-罗森伯格表示，这是前所未有的成果。
+这位返乡创业的本地企业家介绍，虽然目前团队仅14人，但她希望未来能形成从设计、生产到销售的完整婚纱产业链。
 
-通过对大量影像资料进行分析，人工智能还可以帮助研究人员识别反复出现的情景，例如棕熊在哪里觅食、休息或活动，从而进一步系统研究熊的行为。
+与广西爱天婚纱有限公司依靠贸易商出海的模式不同，园区内规模最大的泽立鑫玩具厂与迪士尼、万代、三丽鸥等品牌深度合作，该厂工人生产的玩具，直接出口日本、韩国和欧美市场。
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 19:39 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 19:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 19:32 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 19:21 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 19:27 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 19:36 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 19:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 19:17 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 19:26 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 19:37 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 19:39 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 19:36 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 19:33 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 19:25 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 19:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 19:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 19:45 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 19:29 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 19:28 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 19:23 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 19:47 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 19:36 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 19:44 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 19:34 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/969385582.shtml)
-- 2026-06-29 19:13 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/95011857.shtml)
-- 2026-06-29 19:13 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/329316949.shtml)
-- 2026-06-29 19:21 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/27140.shtml)
-- 2026-06-29 19:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/10172.shtml)
-- 2026-06-29 19:37 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/916824780.shtml)
-- 2026-06-29 19:39 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/25741666.shtml)
-- 2026-06-29 19:24 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/0339727.shtml)
-- 2026-06-29 19:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/953050878.shtml)
-- 2026-06-29 19:13 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/318867301691.shtml)
-- 2026-06-29 19:17 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/532935376596.shtml)
-- 2026-06-29 19:39 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.minike.top/Article/details/534677140185.shtml)
-- 2026-06-29 19:37 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/5861205380.shtml)
-- 2026-06-29 19:18 - [逆天祖国人](http://www.blog.minike.top/Article/details/38281.shtml)
-- 2026-06-29 19:34 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/25772625664.shtml)
+- 2026-06-29 19:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/500815928.shtml)
+- 2026-06-29 19:41 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/165104785176.shtml)
+- 2026-06-29 19:23 - [上海小区惊现鳄鱼](http://www.share.kurohicncr.top/Article/details/35165.shtml)
+- 2026-06-29 19:27 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/44493.shtml)
+- 2026-06-29 19:44 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/17084.shtml)
+- 2026-06-29 19:46 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/147339545.shtml)
+- 2026-06-29 19:26 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/129858876.shtml)
+- 2026-06-29 19:35 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/38112441488.shtml)
+- 2026-06-29 19:19 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/58220872874.shtml)
+- 2026-06-29 19:48 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/26967608.shtml)
+- 2026-06-29 19:32 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/5349807801.shtml)
+- 2026-06-29 19:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/182401789297.shtml)
+- 2026-06-29 19:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/673333939.shtml)
+- 2026-06-29 19:44 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/3835028.shtml)
+- 2026-06-29 19:39 - [让AI做一个账号，它会做成什么样？](http://www.blog.kurohicncr.top/Article/details/21939.shtml)

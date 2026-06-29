@@ -1,56 +1,59 @@
-# CPO交换机一机难求！算力硬件大涨，工业富联等3股涨停！华宝基金电子ETF（515260）上探3.7%续创新高！
+# 路透预测上周美国原油及成品油库存全面下滑
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-今日（5月13日）电子板块再度领跑市场，算力硬件概念午后拉升，工业富联、鹏鼎控股、生益科技3股涨停，卓胜微涨超15%，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅最高上探3.7%，收涨3.46%，续创历史新高！伴随火热的行情，该ETF昨天单日吸金689万元。 资金面上，电子板块全天获主力资金净流入645.93亿元，拉长时间来看，近5日、近20日分别吸金1362.
+路透社2日发布的最新民意调查结果显示，上周美国商业原油库存预计将连续第七周录得下降，汽油和馏分油库存也将同步下滑。 路透社对9名行业分析师的调查平均预测显示，在截至5月29日的一周内，美国原油库存预计将减少约400万桶。同时，汽油库存预计减少约50万桶；包含柴油和取暖油在内的馏分油库存预计减少约30万桶。在精炼厂运行方面，上周美国炼厂整体开工率预计将在前一周94.5%的基础上，
 
 ## 正文
 
-今日（5月13日）电子板块再度领跑市场，算力硬件概念午后拉升，工业富联、鹏鼎控股、生益科技3股涨停，卓胜微涨超15%，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅最高上探3.7%，收涨3.46%，续创历史新高！
+路透社2日发布的最新民意调查结果显示，上周美国商业原油库存预计将连续第七周录得下降，汽油和馏分油库存也将同步下滑。
 
-伴随火热的行情，该ETF昨天单日吸金689万元。
+路透社对9名行业分析师的调查平均预测显示，在截至5月29日的一周内，美国原油库存预计将减少约400万桶。
 
-资金面上，电子板块全天获主力资金净流入645.93亿元，拉长时间来看，近5日、近20日分别吸金1362.80亿元、3447.76亿元，板块吸金额持续霸居31个申万一级行业首位！
+同时，汽油库存预计减少约50万桶；包含柴油和取暖油在内的馏分油库存预计减少约30万桶。
 
-电子ETF华宝（515260）成份股工业富联获主力资金净流入91亿元，登顶A股吸金榜榜首。
+在精炼厂运行方面，上周美国炼厂整体开工率预计将在前一周94.5%的基础上，进一步小幅上升0.3个百分点。
 
-近期，北美云厂商一季度资本开支激增，叠加鸿海大幅上修CPO交换机柜出货目标，AI算力板块再次成为资金焦点： 焦点个股方面，工业富联母公司鸿海集团的全光CPO交换机柜已向英伟达提前出货，远快于市场此前预期，且出货目标亦上修到2026至2027年超过5万台。
+行业机构美国石油协会（API）同日发布的内部数据显示，上周美国原油及成品油库存表现总体符合市场整体下滑的预期。
 
-值得关注的是，鸿海集团（富士康）越南工厂已投产全光CPO交换机柜，并提前向英伟达供货，目前产品供货供不应求、产能极度紧缺，就连展示用机柜也已悉数交付英伟达，可谓一机难求。
+具体而言，截至5月29日当周，美国原油库存大幅减少680万桶，馏分油库存减少21.4万桶，而汽油库存则逆势增加350万桶。
 
-从产业链传导视角看，谷歌、Meta、字节跳动等全球主要云端服务供应商（CSP）近日再度上修2026年资本支出指引，正为AI算力产业链注入持续的成长动力。
+此前，美国能源信息局（EIA）官方数据显示，截至5月22日当周，美国商业原油库存已减少330万桶至4.417亿亿桶，馏分油库存和汽油库存也分别录得210万桶和260万桶的降幅。
 
-国盛证券认为，以谷歌为代表的CSP厂商已显著持续跑出算力投入-订单增长-算力不足-资本开支上修的正反馈模型，其云业务增长还将更为快速，后续增长势头的持续性展望较为乐观，预计将为AI算力产业链进一步注入成长动力。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 19:17 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 19:23 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 19:14 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 19:17 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:33 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 19:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 19:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 19:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 19:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 19:41 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 19:25 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 19:31 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 19:31 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 19:29 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 19:20 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 19:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 19:46 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 19:36 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 19:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 19:39 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 19:23 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 19:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/378290004281.shtml)
-- 2026-06-29 19:36 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/685078995.shtml)
-- 2026-06-29 19:20 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/527997536.shtml)
-- 2026-06-29 19:41 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/79807.shtml)
-- 2026-06-29 19:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/67950470.shtml)
-- 2026-06-29 19:35 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/26468670668.shtml)
-- 2026-06-29 19:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/04601417.shtml)
-- 2026-06-29 19:38 - [Ella回应SHE何时合体](http://www.blog.minike.top/Article/details/11418.shtml)
-- 2026-06-29 19:14 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/59808174.shtml)
-- 2026-06-29 19:16 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/103808.shtml)
-- 2026-06-29 19:36 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/2081468641.shtml)
-- 2026-06-29 19:27 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/05272.shtml)
-- 2026-06-29 19:30 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/576205.shtml)
-- 2026-06-29 19:36 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/9216141063.shtml)
-- 2026-06-29 19:22 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/01596.shtml)
+- 2026-06-29 19:34 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/79634518.shtml)
+- 2026-06-29 19:36 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/14120.shtml)
+- 2026-06-29 19:40 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/75146284.shtml)
+- 2026-06-29 19:29 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/2985611445.shtml)
+- 2026-06-29 19:29 - [NBA交易](http://www.blog.minike.top/Article/details/32752576.shtml)
+- 2026-06-29 19:44 - [叠纸](https://www.blog.minike.top/Article/details/07593430.shtml)
+- 2026-06-29 19:26 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/863194610.shtml)
+- 2026-06-29 19:40 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/439708033.shtml)
+- 2026-06-29 19:20 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/689992.shtml)
+- 2026-06-29 19:29 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/55345.shtml)
+- 2026-06-29 19:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/296865339078.shtml)
+- 2026-06-29 19:32 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/823331.shtml)
+- 2026-06-29 19:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/8354199.shtml)
+- 2026-06-29 19:21 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/07247095593.shtml)
+- 2026-06-29 19:30 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/73950.shtml)

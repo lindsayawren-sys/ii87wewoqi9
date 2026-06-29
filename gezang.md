@@ -1,46 +1,58 @@
-# 摩根大通将在更广泛的重组中调整投资银行高管层
+# 恒生科技暴涨，现在追还是再等等？
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-据英国《金融时报》周二援引知情人士的话报道，摩根大通将对其投资银行的高管职位进行调整，这是该公司更广泛重组计划的一部分。此次调整中，客户覆盖主管布莱辛（Dorothee Blessing）、全球资本市场主管福莱（Kevin Foley）以及金融机构业务全球联席主管凯（Jared Kaye）将共同出任全球投资银行联席主管。责任编辑：王永生
+你的朋友圈可能被刷屏了——恒生科技涨了近5%，腾讯涨了10个点，美团涨了9个点。 看到这种行情，年轻人的第一反应通常是：大家都赚了，我是不是又错过了？别急。先搞清楚三件事再决定跟不跟——为什么涨？能涨多久？以及，年轻人买港股科技，到底买什么？ 为什么涨？三件事凑一块了 第一件事：美团亏少了，大家信心回来了。美团发了一季报，核心本地商业的亏损从100亿一下缩到20亿，减了八成多。
 
 ## 正文
 
-据英国《金融时报》周二援引知情人士的话报道，摩根大通将对其投资银行的高管职位进行调整，这是该公司更广泛重组计划的一部分。
+你的朋友圈可能被刷屏了——恒生科技涨了近5%，腾讯涨了10个点，美团涨了9个点。
 
-此次调整中，客户覆盖主管布莱辛（Dorothee Blessing）、全球资本市场主管福莱（Kevin Foley）以及金融机构业务全球联席主管凯（Jared Kaye）将共同出任全球投资银行联席主管。
+看到这种行情，年轻人的第一反应通常是：大家都赚了，我是不是又错过了？
 
-责任编辑：王永生
+别急。
+
+先搞清楚三件事再决定跟不跟——为什么涨？
+
+能涨多久？
+
+以及，年轻人买港股科技，到底买什么？
+
+为什么涨？
+
+三件事凑一块了 第一件事：美团亏少了，大家信心回来了。
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 19:15 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 19:33 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 19:35 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:21 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 19:32 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 19:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 19:40 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 19:30 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 19:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 19:37 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 19:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 19:25 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 19:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 19:36 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 19:40 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 19:19 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 19:26 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 19:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 19:18 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 19:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 19:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/641707.shtml)
-- 2026-06-29 19:15 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/531671.shtml)
-- 2026-06-29 19:33 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/33387.shtml)
-- 2026-06-29 19:20 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/765732443044.shtml)
-- 2026-06-29 19:30 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/7683475695.shtml)
-- 2026-06-29 19:15 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/052251.shtml)
-- 2026-06-29 19:19 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/15201.shtml)
-- 2026-06-29 19:35 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/507914.shtml)
-- 2026-06-29 19:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/433368.shtml)
-- 2026-06-29 19:40 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/10096396159.shtml)
-- 2026-06-29 19:31 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/04176000.shtml)
-- 2026-06-29 19:30 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/7337423680.shtml)
-- 2026-06-29 19:39 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/15699367.shtml)
-- 2026-06-29 19:37 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/43546132561.shtml)
-- 2026-06-29 19:31 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/83183.shtml)
+- 2026-06-29 19:19 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/925993.shtml)
+- 2026-06-29 19:34 - [V8](http://www.share.kurohicncr.top/Article/details/31177263653.shtml)
+- 2026-06-29 19:28 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/927917.shtml)
+- 2026-06-29 19:41 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/86001.shtml)
+- 2026-06-29 19:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/28763336070.shtml)
+- 2026-06-29 19:43 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/61701.shtml)
+- 2026-06-29 19:36 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/11500.shtml)
+- 2026-06-29 19:27 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/20981071.shtml)
+- 2026-06-29 19:23 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/07673.shtml)
+- 2026-06-29 19:31 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/97999907874.shtml)
+- 2026-06-29 19:29 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/34684825.shtml)
+- 2026-06-29 19:35 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/3073356458.shtml)
+- 2026-06-29 19:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/397909848.shtml)
+- 2026-06-29 19:22 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/573344.shtml)
+- 2026-06-29 19:43 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/76171.shtml)

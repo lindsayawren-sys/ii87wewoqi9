@@ -1,60 +1,51 @@
-# 华媒探访南宁微短剧产业：AI 赋能“出海” 光影联通东盟
+# 金力集团遭高健行减持14万股 每股作价约1.35港元
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月13日电(陈秋霞)依托面向东盟的区位优势、丰富的文旅资源及人工智能(AI)技术赋能，广西“南宁造”微短剧乘着数字东风走向东盟、链接世界。5月12日，15名华文媒体代表走进南宁相关企业，了解当地微短剧产业生态。 南宁企业借力 AI 技术，破解短剧“出海”过程中面临的语言壁垒、文化差异、制作效率偏低等痛点。广西山海星辰传媒集团有限公司(下称“山海星辰”)将AI深度应用
+香港联交所最新数据显示，5月29日，高健行减持金力集团（03919）14万股，每股作价1.354港元，总金额约为18.96万港元。减持后最新持股数目为453.6万股，最新持股比例为11.67%。责任编辑：卢昱君
 
 ## 正文
 
-中新网南宁5月13日电(陈秋霞)依托面向东盟的区位优势、丰富的文旅资源及人工智能(AI)技术赋能，广西“南宁造”微短剧乘着数字东风走向东盟、链接世界。
+香港联交所最新数据显示，5月29日，高健行减持金力集团（03919）14万股，每股作价1.354港元，总金额约为18.96万港元。
 
-5月12日，15名华文媒体代表走进南宁相关企业，了解当地微短剧产业生态。
+减持后最新持股数目为453.6万股，最新持股比例为11.67%。
 
-南宁企业借力 AI 技术，破解短剧“出海”过程中面临的语言壁垒、文化差异、制作效率偏低等痛点。
-
-广西山海星辰传媒集团有限公司(下称“山海星辰”)将AI深度应用于短剧“出海”全流程，目前已在东盟市场积累超千万用户规模。
-
-山海星辰公共事务总监张民康受访时介绍，公司将中国国内优质微短剧译制“出海”，高分剧集结合全球热点和当地文化，进行深度本土化改编、翻拍制作，更好适配海外受众审美与观看习惯。
-
-企业乘风发展的背后，离不开地方政策的强力护航。
-
-南宁市出台扶持微短剧产业高质量发展系列政策，从企业落户、制作拍摄、人才引进到出海推广，提供全链条支持，对符合条件的微短剧企业最高奖励达400万元人民币。
-
-同时，加快中国—东盟(南宁)动漫游戏产业园、中国—东盟(南宁)视听产业基地等平台载体建设，集聚微短剧上下游业态，培育产业生态，为本土企业“出海”壮大保驾护航。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 19:13 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 19:15 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 19:30 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 19:29 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 19:17 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 19:38 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 19:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 19:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 19:39 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 19:24 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 19:33 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 19:17 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 19:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 19:23 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 19:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 19:40 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 19:43 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 19:47 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 19:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 19:46 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 19:21 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 19:43 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 19:34 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 19:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 19:21 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 19:28 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 19:32 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 19:29 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/0767292.shtml)
-- 2026-06-29 19:38 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/4955923.shtml)
-- 2026-06-29 19:35 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/19251548546.shtml)
-- 2026-06-29 19:26 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/204998.shtml)
-- 2026-06-29 19:22 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/1584262545.shtml)
-- 2026-06-29 19:22 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/5876680.shtml)
-- 2026-06-29 19:36 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/25373418.shtml)
-- 2026-06-29 19:20 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/913512953905.shtml)
-- 2026-06-29 19:29 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/618630720.shtml)
-- 2026-06-29 19:15 - [黄金也扛不住了](http://www.share.minike.top/Article/details/54553914832.shtml)
-- 2026-06-29 19:24 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/6972559.shtml)
-- 2026-06-29 19:35 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/00731422.shtml)
-- 2026-06-29 19:26 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/850014.shtml)
-- 2026-06-29 19:19 - [极限挑战第一季](https://www.share.minike.top/Article/details/29756143.shtml)
-- 2026-06-29 19:16 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/0528117566.shtml)
+- 2026-06-29 19:21 - [德国医生在没有空调的手术室工作](http://www.share.minike.top/Article/details/77265745.shtml)
+- 2026-06-29 19:31 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/424062873893.shtml)
+- 2026-06-29 19:26 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/604175.shtml)
+- 2026-06-29 19:22 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/994065572.shtml)
+- 2026-06-29 19:29 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/79760813582.shtml)
+- 2026-06-29 19:46 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/338665765032.shtml)
+- 2026-06-29 19:19 - [世界杯在中国观看最多的比赛](https://www.blog.minike.top/Article/details/970807344.shtml)
+- 2026-06-29 19:48 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/579870.shtml)
+- 2026-06-29 19:35 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/385457353.shtml)
+- 2026-06-29 19:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/30594436.shtml)
+- 2026-06-29 19:18 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/68663765.shtml)
+- 2026-06-29 19:23 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/000998775.shtml)
+- 2026-06-29 19:40 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/765547621866.shtml)
+- 2026-06-29 19:43 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/095870063943.shtml)
+- 2026-06-29 19:30 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/9937815667.shtml)

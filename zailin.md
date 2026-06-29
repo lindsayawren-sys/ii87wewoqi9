@@ -1,59 +1,56 @@
-# 澳门与韩国旅游机构签署友好协议 深化文旅联动
+# 6月4日收盘：美股收跌道指跌逾600点 油价和美债收益率攀升
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网澳门5月12日电 (记者 郑嘉伟)澳门旅游商会、澳门酒店旅业商会与韩国济州特别自治道观光协会12日在澳门举行交流座谈会暨友好合作协议签署仪式，共同推动两地文旅深度联动。 在澳门特区政府旅游局代局长程卫东、横琴粤澳深度合作区经济发展局文旅会展商贸处处长林衍杰的见证下，澳门旅游商会、澳门酒店旅业商会分别与济州特别自治道观光协会签署合作协议，内容涵盖产业合作、联合营销推广、资源
+北京时间6月4日凌晨，美股周三收跌。受美伊冲突可能持续推高通胀的担忧影响，油价和美国国债收益率同步走高。 道指跌620.72点，跌幅为1.21%，报50687.07点；纳指跌239.93点，跌幅为0.90%，报26853.98点；标普500指数跌56.10点，跌幅为0.74%，报7553.68点。 在美伊双方相互发动新一轮打击后，油价上涨。西德克萨斯中质原油期货上涨2%，至每桶
 
 ## 正文
 
-中新网澳门5月12日电 (记者 郑嘉伟)澳门旅游商会、澳门酒店旅业商会与韩国济州特别自治道观光协会12日在澳门举行交流座谈会暨友好合作协议签署仪式，共同推动两地文旅深度联动。
+北京时间6月4日凌晨，美股周三收跌。
 
-在澳门特区政府旅游局代局长程卫东、横琴粤澳深度合作区经济发展局文旅会展商贸处处长林衍杰的见证下，澳门旅游商会、澳门酒店旅业商会分别与济州特别自治道观光协会签署合作协议，内容涵盖产业合作、联合营销推广、资源联动等多个领域，并将建立常态化联络机制，为两地客源互送、研学旅游的发展奠定良好基础。
+受美伊冲突可能持续推高通胀的担忧影响，油价和美国国债收益率同步走高。
 
-济州特别自治道观光协会会长姜东勋表示，济州作为韩国知名旅游胜地，向来重视与澳门的文旅交流。
+道指跌620.72点，跌幅为1.21%，报50687.07点；纳指跌239.93点，跌幅为0.90%，报26853.98点；标普500指数跌56.10点，跌幅为0.74%，报7553.68点。
 
-希望双方以协议为基础，加强旅游市场信息交流，推进民间互访机制建设，联合开展市场宣传推广，强化产业合作，让更多澳门市民走进济州领略自然生态之美，也让更多韩国游客来澳感受中西交融的人文魅力。
+在美伊双方相互发动新一轮打击后，油价上涨。
 
-交流座谈会上，来自澳门与济州的旅游业界代表亲切交流，共同探讨文旅合作发展机遇，积极缔结友好合作关系。
+西德克萨斯中质原油期货上涨2%，至每桶约96美元；布伦特原油上涨2%，至每桶约98美元。
 
-澳门酒店旅业商会会长、澳门旅游发展智库会长张健中说，澳门与济州文旅资源互补性强，民众旅游互访基础坚实。
+美国总统特朗普周三表示，伊朗同意不拥有核武器，但他补充说“他们可能会改变主意”。
 
-随着澳门与横琴文旅融合加速推进，建议依托澳琴深度合作，共同构建“一程多站”黄金旅游目的地，丰富澳门文旅内容，拓展国际文旅合作新空间，推动澳门世界旅游休闲中心建设。
+在特朗普发表此番言论之前，中东冲突进一步紧张，推动油价上涨。
 
-(完)
+周二晚些时候，科威特军方在社交媒体上发文称，防空系统正在“拦截敌对目标”。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 19:31 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 19:27 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 19:27 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 19:39 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 19:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 19:32 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 19:26 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 19:21 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 19:40 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 19:23 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 19:27 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 19:22 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 19:40 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 19:39 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 19:31 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 19:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 19:41 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 19:32 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 19:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 19:36 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 19:32 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 19:22 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/2593319707.shtml)
-- 2026-06-29 19:24 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/509866654581.shtml)
-- 2026-06-29 19:34 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/92260905.shtml)
-- 2026-06-29 19:36 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/877483541.shtml)
-- 2026-06-29 19:39 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/69599414263.shtml)
-- 2026-06-29 19:30 - [爱很美味](http://www.blog.minike.top/Article/details/0106226495.shtml)
-- 2026-06-29 19:21 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/760485504.shtml)
-- 2026-06-29 19:19 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/754848232.shtml)
-- 2026-06-29 19:16 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/13099136733.shtml)
-- 2026-06-29 19:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/289501417.shtml)
-- 2026-06-29 19:33 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/736346074707.shtml)
-- 2026-06-29 19:20 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/718433494.shtml)
-- 2026-06-29 19:20 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/6240923.shtml)
-- 2026-06-29 19:29 - [周生如故](https://www.share.minike.top/Article/details/566818548.shtml)
-- 2026-06-29 19:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/564675447.shtml)
+- 2026-06-29 19:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/93804908.shtml)
+- 2026-06-29 19:29 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/69091541108.shtml)
+- 2026-06-29 19:35 - [大马同意延长马航370残骸搜寻工作](https://www.share.minike.top/Article/details/117610807608.shtml)
+- 2026-06-29 19:47 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/985265512518.shtml)
+- 2026-06-29 19:23 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/559404353.shtml)
+- 2026-06-29 19:25 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/3800832.shtml)
+- 2026-06-29 19:43 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/218160.shtml)
+- 2026-06-29 19:21 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/4821891.shtml)
+- 2026-06-29 19:32 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/4845328935.shtml)
+- 2026-06-29 19:41 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/1474852.shtml)
+- 2026-06-29 19:43 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/87305549.shtml)
+- 2026-06-29 19:31 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/4884705.shtml)
+- 2026-06-29 19:43 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/4508054.shtml)
+- 2026-06-29 19:31 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/30288.shtml)
+- 2026-06-29 19:37 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/032827754.shtml)

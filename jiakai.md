@@ -1,60 +1,56 @@
-# 华泰期货：市场整体情绪偏乐观 铜价维持偏强格局
+# VersaBank二季度核心净利润增长45%
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-05-11，沪铜主力合约开于 104500元/吨，收于 104620元/吨，较前一交易日收盘0.07%，昨日夜盘沪铜主力合约开于 105，500元/吨，收于 106，770 元/吨，较昨日午后收盘上涨3.01%。 现货情况： 据 SMM 讯，昨早盘沪期铜 2605 合约横盘震荡后小幅上行，开盘 104250
+VersaBank于6月3日公布了截至2026年4月30日的第二季度财报。受益于美国结构性应收款项计划投资组合的强劲增长以及加拿大业务的超预期扩张，公司总营收与净利息收入同比增长27%，调整后核心净利润同比增长45%。 财报显示，第二季度总营收为3830万加元，净利息收入达3570万加元，均较去年同期的3010万加元显著提升。调整后核心净利润为1240万加元，合每股0.39加元
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场要闻与重要数据 期货行情： 2026-05-11，沪铜主力合约开于 104500元/吨，收于 104620元/吨，较前一交易日收盘0.07%，昨日夜盘沪铜主力合约开于 105，500元/吨，收于 106，770 元/吨，较昨日午后收盘上涨3.01%。
+VersaBank于6月3日公布了截至2026年4月30日的第二季度财报。
 
-现货情况： 据 SMM 讯，昨早盘沪期铜 2605 合约横盘震荡后小幅上行，开盘 104250 元 / 吨，区间震荡后冲高至 104730 元 / 吨，收报 104680 元 / 吨；隔月 Contango 月差区间 20-70 元 / 吨，当月进口盈亏维持亏损 200 至 250 元 / 吨。
+受益于美国结构性应收款项计划投资组合的强劲增长以及加拿大业务的超预期扩张，公司总营收与净利息收入同比增长27%，调整后核心净利润同比增长45%。
 
-上海电解铜销售情绪环比微升、采购情绪小幅回落。
+财报显示，第二季度总营收为3830万加元，净利息收入达3570万加元，均较去年同期的3010万加元显著提升。
 
-早盘持货商首轮高报后连续下调升水，平水铜品牌报价分化、好铜报价偏高，湿法铜货源稀缺报价坚挺；后市报价继续走低，部分品牌出现贴水，非注册铜成交贴水幅度较大。
+调整后核心净利润为1240万加元，合每股0.39加元，大幅高于分析师预期的0.28加元。
 
-今日来看，下游高价位接货意愿偏弱、仅刚需采购，现货升水重心回落。
+总资产同比增长28%，达到创纪录的63.999亿加元；信贷资产净息差从上年同期的2.59%扩大至2.71%。
 
-临近本周五合约最后交易日，交割逻辑逐步凸显，对现货升贴水形成支撑。
+报告净利润为750万加元（每股0.23加元），同比下降12%，主要受670万加元非核心费用拖累。
 
-预计沪铜现货延续弱势整理，下行空间受交割预期约束有限。
+其中450万加元涉及公司向美国标准银行架构重组的项目成本，220万加元为出售唯一实体分行产生的无形资产减值。
 
-重要资讯汇总： 地缘方面，外交部发言人宣布：应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
+该分行已于5月1日完成出售。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 19:16 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 19:19 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 19:20 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 19:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 19:33 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 19:24 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 19:27 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 19:27 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 19:32 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 19:30 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 19:15 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 19:29 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 19:40 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 19:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 19:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 19:19 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 19:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 19:41 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 19:20 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-29 19:29 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 19:42 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 19:20 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 19:43 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:39 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/9788890.shtml)
-- 2026-06-29 19:32 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/457098924.shtml)
-- 2026-06-29 19:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/64349359901.shtml)
-- 2026-06-29 19:29 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/36188056762.shtml)
-- 2026-06-29 19:17 - [TFING全员黑西装](https://www.share.minike.top/Article/details/74438462098.shtml)
-- 2026-06-29 19:24 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/83966450.shtml)
-- 2026-06-29 19:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/2538983.shtml)
-- 2026-06-29 19:14 - [千与千寻](http://www.share.kurohicncr.top/Article/details/9225627038.shtml)
-- 2026-06-29 19:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/161800426.shtml)
-- 2026-06-29 19:39 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/1925979107.shtml)
-- 2026-06-29 19:18 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/655614506483.shtml)
-- 2026-06-29 19:23 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/14428.shtml)
-- 2026-06-29 19:37 - [女心理师](http://www.blog.kurohicncr.top/Article/details/4171108.shtml)
-- 2026-06-29 19:25 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/4517418.shtml)
-- 2026-06-29 19:17 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/099717474.shtml)
+- 2026-06-29 19:31 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/9601314978.shtml)
+- 2026-06-29 19:30 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/24559.shtml)
+- 2026-06-29 19:33 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/500402552261.shtml)
+- 2026-06-29 19:34 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/52325.shtml)
+- 2026-06-29 19:36 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/4017326238.shtml)
+- 2026-06-29 19:26 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/7585491.shtml)
+- 2026-06-29 19:20 - [世界杯在中国观看最多的比赛](https://www.share.kurohicncr.top/Article/details/88009222028.shtml)
+- 2026-06-29 19:42 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/1716992.shtml)
+- 2026-06-29 19:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/5249781.shtml)
+- 2026-06-29 19:37 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/5881161436.shtml)
+- 2026-06-29 19:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/03146.shtml)
+- 2026-06-29 19:44 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/638581.shtml)
+- 2026-06-29 19:36 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/076267436.shtml)
+- 2026-06-29 19:19 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/75517599.shtml)
+- 2026-06-29 19:21 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/7137135.shtml)

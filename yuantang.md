@@ -1,59 +1,60 @@
-# 中信建投期货：5月13日能化早报
+# 塞勒抛售比特币：其信徒阵营正在瓦解？
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-PX： 供需面供需双减。亚洲行业负荷环比减少1.8pct至62.7%，刷新五年新低。中国PX行业负荷环比减少1.1pct至79.3%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。需求端，PTA计划外检修增多将对PX需求产生阶段性压制。PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。美国4月CPI同比上涨3.8%
+“绝不抛售。我们只囤币、只加仓比特币，这就是我们的既定策略。”—— 迈克尔・塞勒，2022 年 1 月彭博专访 时隔四年半，策略公司创始人迈克尔・塞勒坚守多年的 “只买不卖” 信条已然破灭。 在 5 月 26 日至 5 月 31 日期间，策略公司卖出 32 枚比特币，成交金额约 250 万美元。相较于该公司合计 610 亿美元的比特币持仓体量，这笔交易金额微乎其微。但关键不在于
 
 ## 正文
 
-PX： 供需面供需双减。
+“绝不抛售。
 
-亚洲行业负荷环比减少1.8pct至62.7%，刷新五年新低。
+我们只囤币、只加仓比特币，这就是我们的既定策略。
 
-中国PX行业负荷环比减少1.1pct至79.3%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。
+”—— 迈克尔・塞勒，2022 年 1 月彭博专访 时隔四年半，策略公司创始人迈克尔・塞勒坚守多年的 “只买不卖” 信条已然破灭。
 
-需求端，PTA计划外检修增多将对PX需求产生阶段性压制。
+在 5 月 26 日至 5 月 31 日期间，策略公司卖出 32 枚比特币，成交金额约 250 万美元。
 
-PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。
+相较于该公司合计 610 亿美元的比特币持仓体量，这笔交易金额微乎其微。
 
-美国4月CPI同比上涨3.8%，超出市场预期的3.7%，创2023年5月以来新高，通胀压力重燃，美元指数随之上涨。
+但关键不在于成交额大小，而是塞勒背弃了自己多年反复着重强调的承诺。
 
-美国政府内部人士透露，美方如今比过去几周“更认真地考虑”恢复对伊朗的军事行动。
+就在 2026 年 2 月，CNBC 主持人安德鲁・罗斯・索尔金追问：倘若比特币持续深度下跌，策略公司将如何应对？
 
-与此同时，伊朗表示，核技术和铀浓缩问题不会被列入美伊谈判。
+塞勒当时表态：“我们不会卖出，反而会继续加仓。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 19:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 19:37 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 19:40 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 19:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 19:33 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 19:33 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 19:18 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 19:29 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 19:26 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 19:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 19:28 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 19:41 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 19:40 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 19:30 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 19:27 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 19:24 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 19:42 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 19:47 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 19:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 19:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 19:21 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 19:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 19:20 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 19:26 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:44 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 19:28 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/25021870.shtml)
-- 2026-06-29 19:25 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/8683835764.shtml)
-- 2026-06-29 19:26 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/240119475.shtml)
-- 2026-06-29 19:29 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/959047539.shtml)
-- 2026-06-29 19:34 - [7款高价创新药有望降价](https://www.share.minike.top/Article/details/912430514.shtml)
-- 2026-06-29 19:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/3194460622.shtml)
-- 2026-06-29 19:19 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/5437985060.shtml)
-- 2026-06-29 19:26 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/48187516703.shtml)
-- 2026-06-29 19:32 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0217385873.shtml)
-- 2026-06-29 19:23 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/49436153654.shtml)
-- 2026-06-29 19:33 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/59108481.shtml)
-- 2026-06-29 19:36 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/15321061.shtml)
-- 2026-06-29 19:18 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/1378633.shtml)
-- 2026-06-29 19:14 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/48121170379.shtml)
-- 2026-06-29 19:33 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/1786914.shtml)
+- 2026-06-29 19:28 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/23378.shtml)
+- 2026-06-29 19:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/153583812.shtml)
+- 2026-06-29 19:38 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/76846621270.shtml)
+- 2026-06-29 19:24 - [扫黑风暴](http://www.share.minike.top/Article/details/672471.shtml)
+- 2026-06-29 19:29 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/719237049.shtml)
+- 2026-06-29 19:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/3000300.shtml)
+- 2026-06-29 19:22 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/35451226.shtml)
+- 2026-06-29 19:23 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/1262468.shtml)
+- 2026-06-29 19:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/1901522.shtml)
+- 2026-06-29 19:32 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/159314704009.shtml)
+- 2026-06-29 19:40 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/1998773994.shtml)
+- 2026-06-29 19:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/4683058.shtml)
+- 2026-06-29 19:32 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/0675797824.shtml)
+- 2026-06-29 19:41 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/570975.shtml)
+- 2026-06-29 19:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/53166.shtml)

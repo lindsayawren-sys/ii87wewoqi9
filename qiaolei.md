@@ -1,58 +1,56 @@
-# “入境游2.0时代”：外国游客有了新偏好与新需求
+# 印孚瑟斯估值分析：DCF模型显示公允价格约11美元
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-5月10日，在一条关于中国旅行的短视频里，TikTok旅行博主Christian Grossi没有把镜头只对准传统景点，而是记录了自己在桂林一家乡村民宿的体验：山水之间，一杯出人意料的咖啡，成为他理解中国旅行的新入口。这条视频发布一天内就获得了接近2万次点赞。类似内容正在海外社交媒体上不断出现——越来越多外国游客镜头里的中国，不再只是长城、故宫、外滩等传统地标，而是高铁站里的跨
+根据媒体于2026年6月3日更新的贴现现金流分析，印度IT服务巨头印孚瑟斯的每股内在价值约为12.78美元，而当前股价约为13.08美元，理论上有约2.3%的轻微高估，整体处于公允价值区间。今年以来，该股已累计下跌约26.6%。 两种DCF模型的分歧 基于每股收益的DCF模型计算的内在价值为12.78美元，显示当前股价略高于该水平。然而，基于自由现金流的DCF模型给出的内在价值
 
 ## 正文
 
-5月10日，在一条关于中国旅行的短视频里，TikTok旅行博主Christian Grossi没有把镜头只对准传统景点，而是记录了自己在桂林一家乡村民宿的体验：山水之间，一杯出人意料的咖啡，成为他理解中国旅行的新入口。
+根据媒体于2026年6月3日更新的贴现现金流分析，印度IT服务巨头印孚瑟斯的每股内在价值约为12.78美元，而当前股价约为13.08美元，理论上有约2.3%的轻微高估，整体处于公允价值区间。
 
-这条视频发布一天内就获得了接近2万次点赞。
+今年以来，该股已累计下跌约26.6%。
 
-类似内容正在海外社交媒体上不断出现——越来越多外国游客镜头里的中国，不再只是长城、故宫、外滩等传统地标，而是高铁站里的跨城出行、街边小店的扫码点餐、夜市里的烟火气、县城民宿里的生活感，甚至是一杯奶茶、一顿火锅、一次移动支付。
+两种DCF模型的分歧 基于每股收益的DCF模型计算的内在价值为12.78美元，显示当前股价略高于该水平。
 
-这种变化折射出入境游的新趋势：外国游客来华的兴趣，正在从“我想看看中国是什么样”，转向“我想像当地人一样体验中国”。
+然而，基于自由现金流的DCF模型给出的内在价值却高达17.06美元，意味着有约23.3%的安全边际。
 
-刚刚过去的“五一”假期，则为这种趋势提供了一个观察窗口。
+这两种模型的差异，反映了印孚瑟斯强劲的现金流表现。
 
-国家移民管理局、文化和旅游部5月6日发布的数据显示，假期5天内，外国人出入境人次达126万，同比增长12.5%，其中免签入境人数同比增长14.7%。
+公司2026财年自由现金流达33，097亿卢比（约37亿美元），自由现金流与净利润的转换比率高达112.6%。
 
-热度背后，更值得关注的是游客需求的升级。
+此外，公司2026财年营收首次突破200亿美元，达到201.58亿美元，同比增长3.1%。
 
-随着国际游客对中国旅行的关注持续升温，社交媒体不断放大真实体验，中国正从一个曾被认为距离遥远、理解门槛较高的目的地，转变为一个更便利、更具未来感，也更适合深度体验的旅行选择。
+市场背景与股价表现 此次估值分析发布之际，印孚瑟斯正处于市场的回调压力之下。
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 19:22 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 19:20 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 19:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 19:41 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 19:26 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 19:36 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 19:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 19:31 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 19:28 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 19:31 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 19:20 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 19:25 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 19:44 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 19:44 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 19:41 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 19:18 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 19:22 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 19:26 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 19:39 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 19:22 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 19:35 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/008128.shtml)
-- 2026-06-29 19:39 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/912461665060.shtml)
-- 2026-06-29 19:22 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/98764.shtml)
-- 2026-06-29 19:12 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/11591911689.shtml)
-- 2026-06-29 19:41 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/2998601682.shtml)
-- 2026-06-29 19:35 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/3186702450.shtml)
-- 2026-06-29 19:40 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/347827025311.shtml)
-- 2026-06-29 19:25 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/38742232.shtml)
-- 2026-06-29 19:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/43117758.shtml)
-- 2026-06-29 19:32 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/6783264.shtml)
-- 2026-06-29 19:28 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/17231161155.shtml)
-- 2026-06-29 19:39 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/30190.shtml)
-- 2026-06-29 19:36 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/8442873.shtml)
-- 2026-06-29 19:32 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/192724302.shtml)
-- 2026-06-29 19:24 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/874226.shtml)
+- 2026-06-29 19:44 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/98707024.shtml)
+- 2026-06-29 19:42 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/773662.shtml)
+- 2026-06-29 19:19 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/1205005.shtml)
+- 2026-06-29 19:47 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/830884177.shtml)
+- 2026-06-29 19:18 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/56186746.shtml)
+- 2026-06-29 19:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/097150768085.shtml)
+- 2026-06-29 19:22 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/3896362.shtml)
+- 2026-06-29 19:41 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/718944383207.shtml)
+- 2026-06-29 19:40 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/236282.shtml)
+- 2026-06-29 19:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/2855023929.shtml)
+- 2026-06-29 19:19 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/622522.shtml)
+- 2026-06-29 19:33 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/690496.shtml)
+- 2026-06-29 19:34 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/42408.shtml)
+- 2026-06-29 19:42 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/10132446217.shtml)
+- 2026-06-29 19:24 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/6592310.shtml)

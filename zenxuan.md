@@ -1,58 +1,61 @@
-# 新日股份销量被雅迪、爱玛及台铃等品牌吊打 一季度业绩双降、近期因针对非法改装等问题被约谈
+# 原油：以色列和黎巴嫩停火后WTI下跌 尽管冲突仍在持续
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2025年，国内电动两轮车市场在以旧换新政策与新国标切换的双重驱动下，整体呈现增长态势，奥维云网数据显示，全年市场生产规模达6316万台，同比增长14.8%。在此行业背景下，雅迪控股、爱玛科技、九号公司、绿源集团、新日股份、小牛电动6家主流上市公司业绩呈现分化态势，多数企业实现营收利润双增长，但这一增长态势
+原油下跌，因以色列和黎巴嫩达成有条件停火后，市场寄望美国和伊朗距离和平协议更近一步，尽管持续冲突给停火蒙上阴影。 WTI期货下跌逾3%，终结三连涨，结算价在每桶93美元上方。周三宣布的以色列和黎巴嫩停火可能满足德黑兰的一个关键谈判条件，为美国和伊朗达成协议铺平道路。 华盛顿和德黑兰已勾勒出一个框架，将双方停火延长两个月并重新开放霍尔木兹海峡。但谈判陷入停滞，零星战斗已经恢复。
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+原油下跌，因以色列和黎巴嫩达成有条件停火后，市场寄望美国和伊朗距离和平协议更近一步，尽管持续冲突给停火蒙上阴影。
 
-2025年，国内电动两轮车市场在以旧换新政策与新国标切换的双重驱动下，整体呈现增长态势，奥维云网数据显示，全年市场生产规模达6316万台，同比增长14.8%。
+WTI期货下跌逾3%，终结三连涨，结算价在每桶93美元上方。
 
-在此行业背景下，雅迪控股、爱玛科技、九号公司、绿源集团、新日股份、小牛电动6家主流上市公司业绩呈现分化态势，多数企业实现营收利润双增长，但这一增长态势并未延续到2026年。
+周三宣布的以色列和黎巴嫩停火可能满足德黑兰的一个关键谈判条件，为美国和伊朗达成协议铺平道路。
 
-2026年一季度，国内电动自行车行业受新国标落地、原材料价格高位、市场需求观望及监管趋严等多重因素影响，整体呈现“销量下滑、盈利收缩”的态势，6家上市公司仅有3家已披露2026年第一季度业绩。
+华盛顿和德黑兰已勾勒出一个框架，将双方停火延长两个月并重新开放霍尔木兹海峡。
 
-其中，新日股份2026年Q1实现营收9.4亿元，归母净利润2517.67万元，同比分别下降10.81%和15.87% 2005年，新日电动自行车产销量首次问鼎全国第一，其后连续3年保持高增速，并相继成为2008年北京奥运会和2010年上海世博会的官方赞助商，风头一时无两。
+但谈判陷入停滞，零星战斗已经恢复。
 
-到2010年，新日已连续六年产销规模牢牢占据国内电动车行业第一的位置，成为行业内首家年销量突破100万辆的品牌，张崇舜亦被称为“电动自行车之王”。
+伊朗表示，与美国的谈判最近没有取得进展，伊朗支持的真主党武装也拒绝接受由美国斡旋的黎巴嫩停火。
 
-2025年，奥维云网数据显示，新日内销市场份额仅余3.4%，排名跌至行业第七，同期雅迪以25.5%的份额蝉联榜首，爱玛以19.4%紧随其后，台铃、九号、绿源、金箭等品牌均相继超越新日。
+与此同时，霍尔木兹海峡实际上仍处于关闭状态。
 
-在线上渠道，新日以0.5%的份额几乎沦为“垫底”。
+不过，这些障碍并未阻止油价下滑。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 19:19 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 19:18 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 19:14 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 19:26 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 19:35 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-29 19:28 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 19:39 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 19:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 19:39 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 19:30 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 19:25 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 19:30 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 19:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:41 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 19:21 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 19:37 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 19:24 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 19:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 19:29 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 19:32 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 19:47 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 19:20 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 19:40 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 19:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 19:28 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 19:24 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/588155123.shtml)
-- 2026-06-29 19:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/3719912.shtml)
-- 2026-06-29 19:33 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/168735.shtml)
-- 2026-06-29 19:32 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/22932480.shtml)
-- 2026-06-29 19:37 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.kurohicncr.top/Article/details/2359464.shtml)
-- 2026-06-29 19:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/579499127.shtml)
-- 2026-06-29 19:32 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/849528114.shtml)
-- 2026-06-29 19:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/5709261043.shtml)
-- 2026-06-29 19:16 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/5807514085.shtml)
-- 2026-06-29 19:15 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/860662423621.shtml)
-- 2026-06-29 19:24 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/679850745257.shtml)
-- 2026-06-29 19:29 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/2723008.shtml)
-- 2026-06-29 19:24 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/317876778879.shtml)
-- 2026-06-29 19:23 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/189251237.shtml)
-- 2026-06-29 19:41 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/006095354126.shtml)
+- 2026-06-29 19:26 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/00759498586.shtml)
+- 2026-06-29 19:29 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/09550.shtml)
+- 2026-06-29 19:47 - [毒液2](http://www.blog.kurohicncr.top/Article/details/552594756782.shtml)
+- 2026-06-29 19:40 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/56949.shtml)
+- 2026-06-29 19:34 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/13215297874.shtml)
+- 2026-06-29 19:19 - [爱很美味](http://www.blog.minike.top/Article/details/038713064.shtml)
+- 2026-06-29 19:21 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/702423.shtml)
+- 2026-06-29 19:21 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/25363.shtml)
+- 2026-06-29 19:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/4338220.shtml)
+- 2026-06-29 19:47 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/2763740525.shtml)
+- 2026-06-29 19:25 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/35991.shtml)
+- 2026-06-29 19:41 - [美人鱼](https://www.share.minike.top/Article/details/872229164796.shtml)
+- 2026-06-29 19:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/84561463997.shtml)
+- 2026-06-29 19:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/8563841.shtml)
+- 2026-06-29 19:44 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/008602697635.shtml)

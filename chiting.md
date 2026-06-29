@@ -1,60 +1,56 @@
-# 软银因OpenAI持股增值实现120亿美元利润
+# 美银将迎4000名新人 打破人工智能引发的失业恐慌
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-科技投资巨头软银集团（SoftBank Group）周三公布，受其对ChatGPT开发商OpenAI的投资收益推动，今年1月至3月季度的净利润增至1.83万亿日元，较上年同期增长逾三倍（约合116亿美元）。 这是软银连续第五个季度实现盈利，其投资部门“愿景基金”当季因OpenAI带来的收益达3.1万亿日元。 软银创始人兼首席执行官孙正义是OpenAI最热情的支持者之一，该集团表
+尽管AI及其他技术工具正在取代部分工作岗位，并切断了许多传统职业路径，美国银行仍在继续招聘。 下周，将有2000名暑期实习生以及另外2000名来自高校的全职新员工进入美国银行的办公大楼。据该银行全球人才主管Josh Bronstein介绍，他们将入职八大业务板块中的各类岗位，涵盖消费者银行、投资银行和企业银行等领域。 “对我们来说，这是一个重要的领导力人才输送管道，我们通过它引
 
 ## 正文
 
-科技投资巨头软银集团（SoftBank Group）周三公布，受其对ChatGPT开发商OpenAI的投资收益推动，今年1月至3月季度的净利润增至1.83万亿日元，较上年同期增长逾三倍（约合116亿美元）。
+尽管AI及其他技术工具正在取代部分工作岗位，并切断了许多传统职业路径，美国银行仍在继续招聘。
 
-这是软银连续第五个季度实现盈利，其投资部门“愿景基金”当季因OpenAI带来的收益达3.1万亿日元。
+下周，将有2000名暑期实习生以及另外2000名来自高校的全职新员工进入美国银行的办公大楼。
 
-软银创始人兼首席执行官孙正义是OpenAI最热情的支持者之一，该集团表示其该项投资的累计收益总额达450亿美元。
+据该银行全球人才主管Josh Bronstein介绍，他们将入职八大业务板块中的各类岗位，涵盖消费者银行、投资银行和企业银行等领域。
 
-但对OpenAI的投资规模——这是软银自2017年和2019年推出愿景基金投资工具以来最雄心勃勃的支出计划——引发了外界对其集团融资压力的质疑。
+“对我们来说，这是一个重要的领导力人才输送管道，我们通过它引进广泛的人才群体，让他们能够来到这里并与我们共同实现长期的职业成长，”Bronstein在接受采访时表示，“虽然技术进步确实导致部分工作内容发生了变化，但这并不意味着我们对校园招聘的总体需求有所改变。
 
-批评者还指出，随着Alphabet旗下的Gemini和Anthropic的Claude等竞争对手抢占市场份额，OpenAI在大型语言模型开发商中的主导地位已不复存在，而训练和运行AI模型的成本也在不断攀升。
+” 为了通过保持员工总数稳定来控制开支，美国银行正在全公司范围内对人员进行重新配置，并利用AI来提高员工效率。
 
-软银已出售了T-Mobile和英伟达等持仓股份，并发行债券及借入贷款，其资产以持有的芯片设计公司Arm ARM.O 以及旗下日本电信业务部门软银株式会社 9434.T 作为担保。
+去年，这家金融巨头的管理层制定了一系列财务目标，旨在提高收入并降低各业务板块的成本收入比。
 
-周三公布的财报显示，该集团在上一财年抛售了价值162.5亿美元的T-Mobile股份。
+2025年，美国银行在全球范围内共招聘了约18000名员工，截至当年年底，员工总数已达到213207人。
 
-责任编辑：刘明亮
+尽管这一数字在今年第一季度小幅回落至212134人，但Bronstein表示，公司的招聘步伐仍与一年前一致，暑期实习生及全职新员工的规模也大致持平。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 19:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 19:16 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 19:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 19:39 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 19:16 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 19:21 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 19:27 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 19:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 19:36 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 19:41 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 19:16 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 19:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 19:23 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 19:25 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 19:21 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 19:32 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 19:47 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 19:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 19:27 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 19:19 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 19:27 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 19:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 19:31 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [扬名立万](http://www.share.kurohicncr.top/Article/details/6696736.shtml)
-- 2026-06-29 19:38 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/93179192397.shtml)
-- 2026-06-29 19:23 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/464936367.shtml)
-- 2026-06-29 19:25 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/025625673624.shtml)
-- 2026-06-29 19:42 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/348550.shtml)
-- 2026-06-29 19:34 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/7257307215.shtml)
-- 2026-06-29 19:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/4193343.shtml)
-- 2026-06-29 19:20 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/64130.shtml)
-- 2026-06-29 19:22 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/588594597.shtml)
-- 2026-06-29 19:39 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/0044953451.shtml)
-- 2026-06-29 19:41 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/375124041694.shtml)
-- 2026-06-29 19:28 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/311924066906.shtml)
-- 2026-06-29 19:26 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/77114.shtml)
-- 2026-06-29 19:22 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/5662423.shtml)
-- 2026-06-29 19:37 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/63676756958.shtml)
+- 2026-06-29 19:47 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/933824.shtml)
+- 2026-06-29 19:41 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/4090227.shtml)
+- 2026-06-29 19:44 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/592523767.shtml)
+- 2026-06-29 19:33 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/6377546095.shtml)
+- 2026-06-29 19:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/02916542.shtml)
+- 2026-06-29 19:19 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/657657.shtml)
+- 2026-06-29 19:37 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/182352.shtml)
+- 2026-06-29 19:30 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/613740182.shtml)
+- 2026-06-29 19:29 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/56336219.shtml)
+- 2026-06-29 19:43 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/87930030716.shtml)
+- 2026-06-29 19:46 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/690571.shtml)
+- 2026-06-29 19:33 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/1184976568.shtml)
+- 2026-06-29 19:46 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/9214858.shtml)
+- 2026-06-29 19:39 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/3538568003.shtml)
+- 2026-06-29 19:18 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/6811410083.shtml)

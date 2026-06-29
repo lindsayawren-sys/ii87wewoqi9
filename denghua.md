@@ -1,55 +1,58 @@
-# 视频|何小鹏：我为朋友们造了这台车
+# 博通股价盘后下跌 AI芯片营收预测不及预期
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-来源：XP何小鹏 最近，我的老朋友张颖和一群创业家朋友们也一起体验品鉴了小鹏GX。 张颖说自己平时不怎么开车，但体验完我们GX搭载的第二代VLA感觉非常舒服。 小鹏GX，献给所有为自己，也为时代，在努力、在折腾的人，献给所有的朋友们。 下周见！ 责任编辑：杨赐
+博通股价盘后下跌，该公司公布的人工智能芯片营收预测不及预期，显示其在这一快速增长行业中争取更大份额的进展慢于外界预期。 博通周三在公告中表示，在截至7月的第三财季，AI半导体营收将在160亿美元。数据显示，分析师平均预期为172亿美元。 首席执行官Hock Tan表示，在截至10月的这一财年，博通人工智能芯片的销售额将在560亿美元，这一预测低于此前576亿美元的平均预期。 尽
 
 ## 正文
 
-来源：XP何小鹏 最近，我的老朋友张颖和一群创业家朋友们也一起体验品鉴了小鹏GX。
+博通股价盘后下跌，该公司公布的人工智能芯片营收预测不及预期，显示其在这一快速增长行业中争取更大份额的进展慢于外界预期。
 
-张颖说自己平时不怎么开车，但体验完我们GX搭载的第二代VLA感觉非常舒服。
+博通周三在公告中表示，在截至7月的第三财季，AI半导体营收将在160亿美元。
 
-小鹏GX，献给所有为自己，也为时代，在努力、在折腾的人，献给所有的朋友们。
+数据显示，分析师平均预期为172亿美元。
 
-下周见！
+首席执行官Hock Tan表示，在截至10月的这一财年，博通人工智能芯片的销售额将在560亿美元，这一预测低于此前576亿美元的平均预期。
 
-责任编辑：杨赐
+尽管博通在向人工智能客户转型方面取得了进展，但仍面临着投资者过高的期望。
+
+在财报发布前的五个交易日里，受人工智能乐观情绪推动，博通市值增加了约2700亿美元。
+
+博通已与多家公司签署并扩大了长期合作协议，其中包括Alphabet旗下的谷歌、Anthropic PBC以及Meta Platforms Inc．，不过这些合同中有多少收入将在各个季度确认仍存在疑问。
+
+在上述背景下，最新财报未能令投资者满意，博通股价盘后跌超10%。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 19:19 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 19:14 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 19:32 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 19:30 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 19:29 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 19:14 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 19:14 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 19:37 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 19:20 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 19:40 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 19:26 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 19:13 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 19:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 19:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 19:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 19:28 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 19:31 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 19:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 19:18 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 19:46 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 19:23 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 19:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 19:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 19:35 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 19:41 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 19:18 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/552627936632.shtml)
-- 2026-06-29 19:28 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/441396994.shtml)
-- 2026-06-29 19:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/74753366790.shtml)
-- 2026-06-29 19:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/534905.shtml)
-- 2026-06-29 19:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/4544923992.shtml)
-- 2026-06-29 19:37 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/978427240.shtml)
-- 2026-06-29 19:29 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/45813377267.shtml)
-- 2026-06-29 19:20 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/6498292.shtml)
-- 2026-06-29 19:34 - [许建琼任湖南省检察院副检察长](http://www.blog.minike.top/Article/details/62370133.shtml)
-- 2026-06-29 19:40 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/295803154302.shtml)
-- 2026-06-29 19:40 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/936460707375.shtml)
-- 2026-06-29 19:22 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/13331.shtml)
-- 2026-06-29 19:35 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/18607043.shtml)
-- 2026-06-29 19:27 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/033983.shtml)
-- 2026-06-29 19:25 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/6919242648.shtml)
+- 2026-06-29 19:43 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/4709661050.shtml)
+- 2026-06-29 19:29 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/60709.shtml)
+- 2026-06-29 19:21 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/518280866.shtml)
+- 2026-06-29 19:38 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/304823.shtml)
+- 2026-06-29 19:47 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/850835617.shtml)
+- 2026-06-29 19:24 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/9459774.shtml)
+- 2026-06-29 19:36 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/610033436319.shtml)
+- 2026-06-29 19:21 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/6703135.shtml)
+- 2026-06-29 19:36 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/78012266.shtml)
+- 2026-06-29 19:31 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/2060359613.shtml)
+- 2026-06-29 19:46 - [流金岁月](http://www.share.minike.top/Article/details/49223715.shtml)
+- 2026-06-29 19:22 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/171675431.shtml)
+- 2026-06-29 19:36 - [急先锋](http://www.share.minike.top/Article/details/77600905967.shtml)
+- 2026-06-29 19:27 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/38966843125.shtml)
+- 2026-06-29 19:46 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/26839264.shtml)

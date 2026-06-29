@@ -1,60 +1,61 @@
-# 大国来信丨再续“乒乓情缘”
+# OPEC+石油配额恢复接近完成 最后一批供应限制解除前景受关注
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-锦书云中来，尺牍传深情。今年是中美“乒乓外交”55周年，4月10日，习近平主席向中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式致贺信，高度评价“乒乓外交”的历史和现实意义。多位亲历这段历史的美国友人再度访华，与中国的新老朋友再续“乒乓情缘”。 故地重游 55年后人们仍在关注“乒乓外交” 中美“乒乓外交”亲历者 美国前乒乓球运动员 朱迪•霍夫罗斯特：欢迎来到
+OPEC+恢复数百万桶此前暂停供应的进程已接近完成，至少在纸面上是如此，这让人对该集团原定于2027年恢复投放市场的最后一批产量前景产生疑问。 过去一年，OPEC及其盟友恢复了2023年减产规模的80%以上。与会代表表示，该联盟计划截至9月分三次进一步提高配额，以完成这一复产进程，他们预计将在周日视频会议上批准7月配额又一次小幅上调，幅度为每日18.8万桶。 战争迫使沙特阿拉伯
 
 ## 正文
 
-锦书云中来，尺牍传深情。
+OPEC+恢复数百万桶此前暂停供应的进程已接近完成，至少在纸面上是如此，这让人对该集团原定于2027年恢复投放市场的最后一批产量前景产生疑问。
 
-今年是中美“乒乓外交”55周年，4月10日，习近平主席向中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式致贺信，高度评价“乒乓外交”的历史和现实意义。
+过去一年，OPEC及其盟友恢复了2023年减产规模的80%以上。
 
-多位亲历这段历史的美国友人再度访华，与中国的新老朋友再续“乒乓情缘”。
+与会代表表示，该联盟计划截至9月分三次进一步提高配额，以完成这一复产进程，他们预计将在周日视频会议上批准7月配额又一次小幅上调，幅度为每日18.8万桶。
 
-故地重游 55年后人们仍在关注“乒乓外交” 中美“乒乓外交”亲历者 美国前乒乓球运动员 朱迪•霍夫罗斯特：欢迎来到长城。
+战争迫使沙特阿拉伯、伊拉克和科威特削减产量，令市场对OPEC+石油的需求变得十分迫切；但由于霍尔木兹海峡油轮通行严重受阻，该集团无法立即满足这一需求。
 
-中美“乒乓外交”亲历者 美国前乒乓球运动员 朱迪•霍夫罗斯特：我们是1971年“乒乓外交”的亲历者，如今依然在这里。
+因此，尽管他们在纸面上提高产量配额，实际产量水平却大幅下降。
 
-尽管下了雨，我们感到很有活力、很温暖。
+最后一批供应限制定于明年解除。
 
-中美“乒乓外交”亲历者 美国前乒乓球运动员 康妮•史维利斯：我们三个是1971年一起登上长城的人，故地重游真是令人怀念。
+几位与会代表表示，鉴于最近几批供应恢复速度快于原计划，加上市场迫切需要石油，最后这一批供应限制也有可能提前解除。
 
-中美“乒乓外交”亲历者 美国前乒乓球运动员 朱迪•霍夫罗斯特：现在整个女队都在这了，55年后我们又在这里了。
+只要霍尔木兹海峡关闭，这些决定基本上只具有象征意义。
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 19:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 19:12 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 19:31 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 19:22 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 19:28 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 19:36 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 19:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 19:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 19:22 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 19:41 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 19:23 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 19:13 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 19:12 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 19:39 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 19:35 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 19:41 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 19:39 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 19:32 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 19:31 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 19:45 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 19:28 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 19:28 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 19:21 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 19:22 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 19:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 19:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 19:39 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 19:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [送你一朵小红花](http://www.blog.minike.top/Article/details/42002.shtml)
-- 2026-06-29 19:21 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/100848.shtml)
-- 2026-06-29 19:13 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/1361095.shtml)
-- 2026-06-29 19:13 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/00764.shtml)
-- 2026-06-29 19:27 - [送你一朵小红花](http://www.share.minike.top/Article/details/80470.shtml)
-- 2026-06-29 19:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/190325411.shtml)
-- 2026-06-29 19:40 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/2631959606.shtml)
-- 2026-06-29 19:16 - [送你一朵小红花](http://www.blog.minike.top/Article/details/695156.shtml)
-- 2026-06-29 19:24 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/19939.shtml)
-- 2026-06-29 19:22 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/797806.shtml)
-- 2026-06-29 19:28 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/765308395178.shtml)
-- 2026-06-29 19:34 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/080909105687.shtml)
-- 2026-06-29 19:40 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/990054660448.shtml)
-- 2026-06-29 19:31 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/535314.shtml)
-- 2026-06-29 19:23 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/538834433.shtml)
+- 2026-06-29 19:30 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/437966153.shtml)
+- 2026-06-29 19:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/88529853386.shtml)
+- 2026-06-29 19:37 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/795619.shtml)
+- 2026-06-29 19:41 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/148231864.shtml)
+- 2026-06-29 19:35 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/1193839.shtml)
+- 2026-06-29 19:22 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/786720703040.shtml)
+- 2026-06-29 19:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/22696895788.shtml)
+- 2026-06-29 19:35 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/95220942.shtml)
+- 2026-06-29 19:42 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/9871895.shtml)
+- 2026-06-29 19:22 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/024688288.shtml)
+- 2026-06-29 19:27 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/6458337858.shtml)
+- 2026-06-29 19:44 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/978270189.shtml)
+- 2026-06-29 19:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/416795.shtml)
+- 2026-06-29 19:42 - [请回答王牌2019](http://www.share.minike.top/Article/details/30286606.shtml)
+- 2026-06-29 19:23 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/3170372.shtml)

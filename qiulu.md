@@ -1,60 +1,61 @@
-# 虎牙2026年一季报：收入17.3亿元 连续五季同比增长
+# 英诺赛科早盘涨逾7% 公司此前切入英伟达HVDC
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月12日下午消息，虎牙公司公布2026年第一季度财报。财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。其中，游戏相关服务、广告及其他收入同比增长69.4%至6.3亿元，占比再创新高，达到36.3%。 利润方面，2026年第一季度，随着高毛利率的多元业务收入占比的扩大，虎牙毛利润和毛利率均实现同比、环比提升。非美
+英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨6.65%，现报78.55港元，成交额5.84亿港元。 周三美股纳微半导体股价收涨19.26%。该公司宣布与英伟达MGX生态系统展开合作，共同推进800 VDC人工智能基础设施建设。纳微半导体首席执行官Chris Allexandre表示，随着AI工作负载持续扩展，电力传输已成为构建下一代吉瓦级AI工厂最关键的挑战之一。纳微
 
 ## 正文
 
-新浪科技讯 5月12日下午消息，虎牙公司公布2026年第一季度财报。
+英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨6.65%，现报78.55港元，成交额5.84亿港元。
 
-财报显示，2026年第一季度，虎牙总收入同比增长14.6%至17.3亿元，连续第五个季度实现同比增长。
+周三美股纳微半导体股价收涨19.26%。
 
-其中，游戏相关服务、广告及其他收入同比增长69.4%至6.3亿元，占比再创新高，达到36.3%。
+该公司宣布与英伟达MGX生态系统展开合作，共同推进800 VDC人工智能基础设施建设。
 
-利润方面，2026年第一季度，随着高毛利率的多元业务收入占比的扩大，虎牙毛利润和毛利率均实现同比、环比提升。
+纳微半导体首席执行官Chris Allexandre表示，随着AI工作负载持续扩展，电力传输已成为构建下一代吉瓦级AI工厂最关键的挑战之一。
 
-非美国通用会计准则下，归属于虎牙公司的净利润为2110万元。
+纳微半导体专注于氮化镓和碳化硅第三代功率半导体，产品广泛应用于AI电源领域，可提供从电网接入到芯片的完整供电方案，是AI浪潮中“电力革命”这一细分赛道的代表性企业。
 
-随着虎牙在全网游戏内容生态的布局持续扩张，其生态影响力正加速释放。
+华创证券此前指出，英诺赛科成功进入英伟达等多家国际头部客户800VHVDC供应体系，成为AI基础设施建设及高密度算力中心的核心供应商。
 
-据悉，虎牙在站外可触达的用户规模预估已超过2亿，覆盖抖音、视频号等多个平台，较去年同期实现翻倍。
+公司与STM、安森美等多家功率半导体公司合作开发数十款可用于高密度算力中心的电源及模块方案，推动数据中心向高密度算力中心升级发展。
 
-内部统计数据显示，在游戏MCN领域，虎牙已成为视频号最大的游戏MCN，并在抖音稳居前三。
+预期随着高压直流架构的落地上量，将迎来AI-GaN大规模应用新纪元。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 19:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 19:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 19:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 19:37 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 19:23 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 19:17 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 19:20 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 19:37 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 19:39 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 19:30 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 19:38 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 19:34 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 19:13 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 19:29 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 19:42 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 19:34 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 19:19 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 19:19 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 19:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 19:19 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 19:41 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 19:31 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:37 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 19:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 19:27 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 19:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 19:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 19:23 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/091519339.shtml)
-- 2026-06-29 19:12 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/671533066952.shtml)
-- 2026-06-29 19:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/859968.shtml)
-- 2026-06-29 19:38 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/638524.shtml)
-- 2026-06-29 19:34 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/9361402.shtml)
-- 2026-06-29 19:22 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/17138987599.shtml)
-- 2026-06-29 19:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/8338839621.shtml)
-- 2026-06-29 19:14 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/2245441.shtml)
-- 2026-06-29 19:16 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/96612868.shtml)
-- 2026-06-29 19:35 - [请回答王牌2019](http://www.blog.minike.top/Article/details/97967.shtml)
-- 2026-06-29 19:37 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/14620014171.shtml)
-- 2026-06-29 19:38 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/5410710.shtml)
-- 2026-06-29 19:16 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/18419597054.shtml)
-- 2026-06-29 19:41 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/56979287.shtml)
-- 2026-06-29 19:41 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/1797592.shtml)
+- 2026-06-29 19:39 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/352754.shtml)
+- 2026-06-29 19:46 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/504664217395.shtml)
+- 2026-06-29 19:44 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/823818358.shtml)
+- 2026-06-29 19:19 - [V8](http://www.blog.minike.top/Article/details/6495864707.shtml)
+- 2026-06-29 19:26 - [一见倾心](http://www.blog.minike.top/Article/details/7740457.shtml)
+- 2026-06-29 19:38 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/702519998.shtml)
+- 2026-06-29 19:24 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/6940901448.shtml)
+- 2026-06-29 19:30 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/4923755.shtml)
+- 2026-06-29 19:18 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/163614.shtml)
+- 2026-06-29 19:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/7645724249.shtml)
+- 2026-06-29 19:31 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/274187.shtml)
+- 2026-06-29 19:47 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/13667.shtml)
+- 2026-06-29 19:24 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/9113572835.shtml)
+- 2026-06-29 19:22 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/59963166939.shtml)
+- 2026-06-29 19:45 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/81979.shtml)

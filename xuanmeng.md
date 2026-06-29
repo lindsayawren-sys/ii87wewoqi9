@@ -1,61 +1,61 @@
-# 瑞银：上调A股盈利预测至11%，中国资产全球吸引力凸显
+# 比亚迪扎根韩国市场破纪录，中国汽车完成从引进来到出海领跑逆袭
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-“我们将2026年全部A股盈利同比增长预测从此前的8%上调至11%。”在5月11日举行的媒体分享会上，瑞银证券中国股票策略分析师孟磊表示。 从全球视角来看，国际市场对中国资产的关注度正在持续升温。瑞银全球金融市场部中国主管房东明指出，在全球不确定性加剧、地缘政治波动明显的背景下，中国资产的抗风险和低相关性的属性，越来越凸显了吸引力。他强调，中国资本市场拥有完整的产业链与多元化的
+近日，多家韩国主流媒体报道了中国汽车品牌在韩国进口车市场的最新表现。根据韩国进口汽车协会(KAIDA)发布的4月进口新车注册数据，中国品牌当月在韩国市场注册量首次超越日系品牌，跻身韩国进口车国别销量前三。值得关注的是，中国汽车品牌此次仅凭借比亚迪单一品牌的共计2023辆销量，超过了雷克萨斯(1079辆)、丰田(829)辆和本田(66辆)在内的三大日系品牌在合计销量1974辆。韩
 
 ## 正文
 
-“我们将2026年全部A股盈利同比增长预测从此前的8%上调至11%。
+近日，多家韩国主流媒体报道了中国汽车品牌在韩国进口车市场的最新表现。
 
-”在5月11日举行的媒体分享会上，瑞银证券中国股票策略分析师孟磊表示。
+根据韩国进口汽车协会(KAIDA)发布的4月进口新车注册数据，中国品牌当月在韩国市场注册量首次超越日系品牌，跻身韩国进口车国别销量前三。
 
-从全球视角来看，国际市场对中国资产的关注度正在持续升温。
+值得关注的是，中国汽车品牌此次仅凭借比亚迪单一品牌的共计2023辆销量，超过了雷克萨斯(1079辆)、丰田(829)辆和本田(66辆)在内的三大日系品牌在合计销量1974辆。
 
-瑞银全球金融市场部中国主管房东明指出，在全球不确定性加剧、地缘政治波动明显的背景下，中国资产的抗风险和低相关性的属性，越来越凸显了吸引力。
+韩媒普遍将此次排名视为韩国进口车市场格局转变的重要信号，中国智造稳步撬动全球车市。
 
-他强调，中国资本市场拥有完整的产业链与多元化的能源结构，今年更是彰显了低相关性、分散风险的优势，被越来越多的机构投资者称为是全球资产的“避风港”。
+业内人士分析认为，随着韩国消费者对电动汽车的接受度持续提升，以及中国汽车优秀的产品力及在软件定义汽车(SDV)等智能化领域优势将逐步显现，中国汽车品牌在韩国进口车市场的份额有望进一步扩大。
 
-房东明介绍，国际投资者目前高度关注三大方向：AI创新和高科技产业、中国优质企业出海与全球化布局，以及“反内卷”带来的新机遇。
+以比亚迪为例，自2025年4月14日正式启动首批乘用车交付以来，截至2026年3月，比亚迪在韩国累计销量已达到10,075辆，刷新进口汽车品牌在韩国市场达成该销量规模的最快纪录。
 
-当日，上证综指盘中最高触及4229.58点，刷新自2015年7月2日以来新高。
+"从市场换技术"到"技术换市场"，从"引进来"到"走出去"，中国汽车工业走过了一条漫长而艰辛的逆袭之路。
 
-孟磊对此表示，这只是整体市场上行，不断突破之后一层一层的整数高点当中的步骤，有非常强的正面的激励作用，但远远没有达到最终的目标。
+曾几何时，日韩系轿车驰骋在中国大街小巷，德系豪车定义着高端市场的天花板；而今天，比亚迪以单一品牌之力，在韩国——这个现代、起亚的故乡，在全球汽车工业竞争最激烈的战场之一——将雷克萨斯、丰田、本田三大日系品牌整体超越，历史性跻身进口车前三。
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 19:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 19:21 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 19:37 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 19:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 19:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 19:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 19:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 19:20 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 19:21 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 19:40 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 19:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 19:33 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 19:36 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 19:38 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 19:47 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 19:30 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:28 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 19:23 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 19:23 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 19:47 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 19:18 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 19:26 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 19:20 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 19:47 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 19:21 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 19:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 19:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 19:46 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 19:41 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/3860182.shtml)
-- 2026-06-29 19:15 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/29827661.shtml)
-- 2026-06-29 19:12 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/06267322369.shtml)
-- 2026-06-29 19:26 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/00968.shtml)
-- 2026-06-29 19:18 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/94671073.shtml)
-- 2026-06-29 19:25 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/25292735.shtml)
-- 2026-06-29 19:33 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/74215572948.shtml)
-- 2026-06-29 19:15 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/3207017.shtml)
-- 2026-06-29 19:36 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/2956931631.shtml)
-- 2026-06-29 19:18 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/821392.shtml)
-- 2026-06-29 19:42 - [斛珠夫人](http://www.share.minike.top/Article/details/26030605.shtml)
-- 2026-06-29 19:23 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/28826243.shtml)
-- 2026-06-29 19:29 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/40710616.shtml)
-- 2026-06-29 19:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/57546777.shtml)
-- 2026-06-29 19:21 - [毒液2](https://www.share.minike.top/Article/details/994222.shtml)
+- 2026-06-29 19:30 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/97900623147.shtml)
+- 2026-06-29 19:44 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/73937662253.shtml)
+- 2026-06-29 19:29 - [周杰伦演唱会含星量](http://www.blog.kurohicncr.top/Article/details/69243212468.shtml)
+- 2026-06-29 19:36 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/085037987.shtml)
+- 2026-06-29 19:25 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/74990699.shtml)
+- 2026-06-29 19:34 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/7915291196.shtml)
+- 2026-06-29 19:47 - [永远有话聊的原因](https://www.share.minike.top/Article/details/5929554.shtml)
+- 2026-06-29 19:22 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/7112355338.shtml)
+- 2026-06-29 19:35 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/926202928817.shtml)
+- 2026-06-29 19:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/93187895638.shtml)
+- 2026-06-29 19:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/21901909.shtml)
+- 2026-06-29 19:29 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/18197290497.shtml)
+- 2026-06-29 19:45 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/46219717.shtml)
+- 2026-06-29 19:33 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/177575.shtml)
+- 2026-06-29 19:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/28806864478.shtml)

@@ -1,58 +1,61 @@
-# 纳德拉作证：OpenAI当年解雇奥特曼的操作“极其业余”
+# A股最强风口之一！“世界变压器之都”订单已排至2027年
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-微软首席执行官萨提亚·纳德拉周一在马斯克诉OpenAI一案的庭审中作证，直言OpenAI董事会在2023年解雇萨姆·奥特曼的过程中表现“极其业余”，同时他从未收到董事会的事先沟通或合理解释。 “业余水平”：纳德拉抨击董事会沟通缺失 纳德拉在加利福尼亚州奥克兰的联邦法院作证时表示，他对奥特曼被解雇感到“至少是相当惊讶”。作为OpenAI最大的投资者和战略合作伙伴，纳德拉认为董事会
+专题：国际秩序与产业创新共振，下半年A股关注三大主线 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！被誉为“世界变压器之都”的常州，正掀起一场变压器出海的新高潮。 证券时报记者探访时了解到，当地变压器企业海外订单已密集排至2027年之后，更有不少外籍采购商常驻生产车间，提前锁定优质产能。中国制造业企业“出海抢单”成常态，但常州变压器产业却迎来“外商上门
 
 ## 正文
 
-微软首席执行官萨提亚·纳德拉周一在马斯克诉OpenAI一案的庭审中作证，直言OpenAI董事会在2023年解雇萨姆·奥特曼的过程中表现“极其业余”，同时他从未收到董事会的事先沟通或合理解释。
+专题：国际秩序与产业创新共振，下半年A股关注三大主线 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“业余水平”：纳德拉抨击董事会沟通缺失 纳德拉在加利福尼亚州奥克兰的联邦法院作证时表示，他对奥特曼被解雇感到“至少是相当惊讶”。
+被誉为“世界变压器之都”的常州，正掀起一场变压器出海的新高潮。
 
-作为OpenAI最大的投资者和战略合作伙伴，纳德拉认为董事会理应提前与他沟通。
+证券时报记者探访时了解到，当地变压器企业海外订单已密集排至2027年之后，更有不少外籍采购商常驻生产车间，提前锁定优质产能。
 
-然而，董事会从未主动联系他。
+中国制造业企业“出海抢单”成常态，但常州变压器产业却迎来“外商上门锁产能”的“新常态”。
 
-当他追问解雇原因时，OpenAI方面仅以奥特曼“在与董事会的沟通中没有始终保持坦诚”为由作出回应，始终未能提供具体事件的说明。
+从传统电力配套装备领跑全球市场，到算力专用变压器精准卡位AI新基建风口，再到前瞻布局固态变压器抢占未来产业赛道，常州变压器产业正在全方位构筑竞争壁垒，持续擦亮中国智造出海的金字招牌。
 
-纳德拉在证词中直言：“从我这里看，这完全是业余水平。
+海外客商扎堆锁产能 在江苏华朋集团的生产车间内，来自全球各地的采购商常驻现场。
 
-”他推测，解雇背后可能存在“嫉妒”或内部沟通问题。
+忙着测数据、看图纸的他们，其实并不是企业员工，而是来自世界各地的采购商。
 
-马斯克诉讼核心：微软是否控制OpenAI？
+江苏华朋集团副总经理徐涛透露，这些驻厂采购商主要有两个目的：一是进行出厂验收，二是为了提前锁定未来产能。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 19:36 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 19:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 19:20 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 19:40 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:28 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 19:26 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 19:23 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 19:40 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 19:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 19:35 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 19:24 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 19:25 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 19:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 19:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 19:18 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 19:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 19:24 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 19:41 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 19:38 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 19:45 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 19:37 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 19:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 19:39 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 19:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 19:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/794183.shtml)
-- 2026-06-29 19:37 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/1637924.shtml)
-- 2026-06-29 19:31 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/3560961.shtml)
-- 2026-06-29 19:15 - [王楚钦开门红](http://www.share.minike.top/Article/details/77873.shtml)
-- 2026-06-29 19:26 - [金刚川](https://www.blog.kurohicncr.top/Article/details/6020615701.shtml)
-- 2026-06-29 19:13 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/85496705.shtml)
-- 2026-06-29 19:24 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/312135.shtml)
-- 2026-06-29 19:39 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/76202.shtml)
-- 2026-06-29 19:38 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/6949543.shtml)
-- 2026-06-29 19:21 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/85838888179.shtml)
-- 2026-06-29 19:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/42476016915.shtml)
-- 2026-06-29 19:35 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/378896082529.shtml)
-- 2026-06-29 19:16 - [毒液2](https://www.share.minike.top/Article/details/3365094805.shtml)
-- 2026-06-29 19:37 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/298925968630.shtml)
-- 2026-06-29 19:22 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/34415529673.shtml)
+- 2026-06-29 19:37 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/0300039.shtml)
+- 2026-06-29 19:42 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/15850352045.shtml)
+- 2026-06-29 19:20 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/051795008202.shtml)
+- 2026-06-29 19:47 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/5975473.shtml)
+- 2026-06-29 19:43 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/591233388442.shtml)
+- 2026-06-29 19:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/673832.shtml)
+- 2026-06-29 19:41 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/37065.shtml)
+- 2026-06-29 19:19 - [女心理师](https://www.share.kurohicncr.top/Article/details/25958024.shtml)
+- 2026-06-29 19:24 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/962932702097.shtml)
+- 2026-06-29 19:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/673181490.shtml)
+- 2026-06-29 19:46 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/873729.shtml)
+- 2026-06-29 19:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/013221119326.shtml)
+- 2026-06-29 19:42 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/86613197.shtml)
+- 2026-06-29 19:25 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/55312698.shtml)
+- 2026-06-29 19:31 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/580873484.shtml)

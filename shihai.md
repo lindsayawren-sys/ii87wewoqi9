@@ -1,57 +1,45 @@
-# 受中东冲突影响，印度航空削减国际航班
+# 港股存储概念股全线走弱 南方两倍做多海力士盘中跌超15%
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-印度航空周三宣布，将于6 月至 8 月期间临时削减多条国际航线航班，原因是部分地区空域受限，且航空燃油价格创下历史新高。 伊朗战事导致多处空域关闭，航班被迫绕飞更长航线，同时推高了全球燃油成本，给全球各大航空公司经营带来压力。 新加坡航空持有印度航空约 25% 股份，其余股份由塔塔集团持有。目前印度航空正深陷亏损加剧的困境，同时受冲突带来的运营中断影响，各项开支大幅增加；巴基斯
+6月5日消息，港股存储概念股全线走弱，南方两倍做多海力士盘中跌超15%，南方两倍做多三星电子盘中跌超12%，澜起科技、兆易创新跌近6%，伟仕佳杰跌超4%。 责任编辑：郝欣煜
 
 ## 正文
 
-印度航空周三宣布，将于6 月至 8 月期间临时削减多条国际航线航班，原因是部分地区空域受限，且航空燃油价格创下历史新高。
+6月5日消息，港股存储概念股全线走弱，南方两倍做多海力士盘中跌超15%，南方两倍做多三星电子盘中跌超12%，澜起科技、兆易创新跌近6%，伟仕佳杰跌超4%。
 
-伊朗战事导致多处空域关闭，航班被迫绕飞更长航线，同时推高了全球燃油成本，给全球各大航空公司经营带来压力。
-
-新加坡航空持有印度航空约 25% 股份，其余股份由塔塔集团持有。
-
-目前印度航空正深陷亏损加剧的困境，同时受冲突带来的运营中断影响，各项开支大幅增加；巴基斯坦此前对印度航司实施的空域禁令，进一步加重了其经营压力。
-
-去年，在两个核武邻国军事关系紧张之际，巴基斯坦伊斯兰堡方面禁止印度航空公司使用其领空。
-
-受持续亏损及监管审查影响，印度航空首席执行官、新西兰籍高管坎贝尔・威尔逊已于 4 月辞职。
-
-本月早些时候报道，新加坡航空高管维诺德・坎南以及印度航空商务负责人尼蓬・阿加瓦尔是首席执行官继任人选的热门人选。
-
-印度航空将临时停飞德里 — 芝加哥、孟买 — 纽约航线；欧洲航线方面，削减德里飞往巴黎、米兰、罗马的航班频次。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 19:14 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 19:19 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 19:26 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 19:17 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 19:13 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 19:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 19:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 19:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 19:20 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 19:17 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:29 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 19:26 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 19:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 19:32 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 19:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 19:47 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 19:40 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 19:19 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 19:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 19:20 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 19:33 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/435934369395.shtml)
-- 2026-06-29 19:25 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/428355331421.shtml)
-- 2026-06-29 19:39 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/807015586900.shtml)
-- 2026-06-29 19:36 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/820924774059.shtml)
-- 2026-06-29 19:36 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/899286783.shtml)
-- 2026-06-29 19:38 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/54253368327.shtml)
-- 2026-06-29 19:16 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/60907.shtml)
-- 2026-06-29 19:36 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/7222425.shtml)
-- 2026-06-29 19:19 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/13221351.shtml)
-- 2026-06-29 19:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/51211081.shtml)
-- 2026-06-29 19:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/75023553515.shtml)
-- 2026-06-29 19:17 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/5191681.shtml)
-- 2026-06-29 19:12 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/4256332427.shtml)
-- 2026-06-29 19:23 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/93198.shtml)
-- 2026-06-29 19:34 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/673547027.shtml)
+- 2026-06-29 19:18 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/542611094.shtml)
+- 2026-06-29 19:46 - [沙丘](https://www.share.minike.top/Article/details/6734801.shtml)
+- 2026-06-29 19:20 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/674789211358.shtml)
+- 2026-06-29 19:23 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/37959.shtml)
+- 2026-06-29 19:28 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/6961891754.shtml)
+- 2026-06-29 19:44 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/952943472413.shtml)
+- 2026-06-29 19:22 - [明星大侦探第一季](http://www.share.minike.top/Article/details/5103659710.shtml)
+- 2026-06-29 19:42 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/171045725.shtml)
+- 2026-06-29 19:40 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/0229374.shtml)
+- 2026-06-29 19:38 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/27245828275.shtml)
+- 2026-06-29 19:33 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/07691151537.shtml)
+- 2026-06-29 19:34 - [爱很美味](http://www.share.minike.top/Article/details/129035915350.shtml)
+- 2026-06-29 19:20 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/0261909880.shtml)
+- 2026-06-29 19:21 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/8696852.shtml)
+- 2026-06-29 19:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/20427.shtml)

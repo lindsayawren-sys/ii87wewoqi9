@@ -1,59 +1,61 @@
-# 打好灾害防范“主动仗”——第18个全国防灾减灾日一线见闻
+# 中国互联网金融协会召开成立十周年工作座谈会
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-新华社北京5月12日电 题：打好灾害防范“主动仗”——第18个全国防灾减灾日一线见闻 新华社记者毛思倩、贾云鹏、熊家林 今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。记者了解到，各地各部门突出事前预防，打好灾害防范“主动仗”，多措并举提升防灾减灾救灾能力。 5月11日，深圳市福田区南园街道滨江社区滨江新村小区启动了今年的第三次
+来源：中国互联网金融协会 2026年是国家“十五五”规划开局之年，也是中国互联网金融协会成立十周年。为回顾总结协会十年发展历程，更好助力数字金融高质量发展，近日，协会在京召开“十五五”数字金融高质量发展暨成立十周年工作座谈会。中国人民银行党委委员、副行长陶玲出席会议并讲话。会议由协会会长朱苏荣主持。协会党委书记、秘书长马超作工作报告。中国人民银行相关司局负责同志、协会党委班子成
 
 ## 正文
 
-新华社北京5月12日电 题：打好灾害防范“主动仗”——第18个全国防灾减灾日一线见闻 新华社记者毛思倩、贾云鹏、熊家林 今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。
+来源：中国互联网金融协会 2026年是国家“十五五”规划开局之年，也是中国互联网金融协会成立十周年。
 
-记者了解到，各地各部门突出事前预防，打好灾害防范“主动仗”，多措并举提升防灾减灾救灾能力。
+为回顾总结协会十年发展历程，更好助力数字金融高质量发展，近日，协会在京召开“十五五”数字金融高质量发展暨成立十周年工作座谈会。
 
-5月11日，深圳市福田区南园街道滨江社区滨江新村小区启动了今年的第三次防汛应急演练，5分钟之内，物业工作人员完成了地下车库防汛挡板的安装和封堵。
+中国人民银行党委委员、副行长陶玲出席会议并讲话。
 
-与平日不同的是，参加演练的工作人员胸前都挂着一张印有处置流程和应急人员联系方式的防汛安全处置“明白卡”。
+会议由协会会长朱苏荣主持。
 
-“有了这张卡，照着操作就能守住安全底线。
+协会党委书记、秘书长马超作工作报告。
 
-”社区书记刘艳媚说。
+中国人民银行相关司局负责同志、协会党委班子成员及会员机构代表参加会议。
 
-这款防水密封、小巧便携的卡片，是深圳2023年“9·7”特大暴雨后，深圳市城市公共安全技术研究院联合社区为小区量身打造的防汛“掌中手册”，也是深圳立足韧性城市建设，推动基层应急治理从“被动应对”向“主动预防”转变的生动实践。
+陶玲指出，十年来，中国人民银行以习近平新时代中国特色社会主义思想为指导，认真落实党中央国务院决策部署，推动中国互联网金融协会走中国特色金融发展之路，以强监管、防风险、促发展为主线，敦促互联网金融行业深刻汲取风险教训，强化金融运行规律认识，依法合规经营，全面接受金融监管。
 
-“明白卡”背后，是一整套防汛预案。
+下一步，中国互联网金融协会要立足全国性行业自律组织定位，进一步健全自身治理机制，完善行业自律制度，强化行业自律功能，助力金融监管；要带领广大会员机构，严格树立法治理念，健全公司治理和内部管理，规范经营行为，加强风险防控，促进行业规范健康发展，服务经济社会高质量发展。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 19:21 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 19:38 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 19:26 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 19:16 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 19:20 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 19:36 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 19:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 19:33 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 19:15 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 19:21 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 19:27 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 19:30 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 19:18 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 19:42 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 19:35 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 19:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 19:34 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 19:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 19:21 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 19:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 19:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 19:44 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 19:28 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 19:33 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 19:38 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 19:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 19:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/6536755505.shtml)
-- 2026-06-29 19:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/82955144054.shtml)
-- 2026-06-29 19:17 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/98690448.shtml)
-- 2026-06-29 19:12 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/552700005.shtml)
-- 2026-06-29 19:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/8290122.shtml)
-- 2026-06-29 19:14 - [大马同意延长马航370残骸搜寻工作](http://www.blog.kurohicncr.top/Article/details/5814361475.shtml)
-- 2026-06-29 19:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/1892768.shtml)
-- 2026-06-29 19:26 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/739865.shtml)
-- 2026-06-29 19:19 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/630165.shtml)
-- 2026-06-29 19:15 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/977918884.shtml)
-- 2026-06-29 19:21 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/44300.shtml)
-- 2026-06-29 19:34 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/111518421156.shtml)
-- 2026-06-29 19:25 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/9682887.shtml)
-- 2026-06-29 19:20 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/8079470.shtml)
-- 2026-06-29 19:19 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/49453609.shtml)
+- 2026-06-29 19:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/53334.shtml)
+- 2026-06-29 19:23 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/13780013.shtml)
+- 2026-06-29 19:31 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/25787471.shtml)
+- 2026-06-29 19:24 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/083232.shtml)
+- 2026-06-29 19:29 - [刘冰任河南南阳市代市长](http://www.blog.minike.top/Article/details/711134405056.shtml)
+- 2026-06-29 19:20 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/35641302451.shtml)
+- 2026-06-29 19:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/155575775.shtml)
+- 2026-06-29 19:30 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/1702603682.shtml)
+- 2026-06-29 19:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/97562955923.shtml)
+- 2026-06-29 19:46 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/8989414871.shtml)
+- 2026-06-29 19:19 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/471227924.shtml)
+- 2026-06-29 19:32 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/191184038166.shtml)
+- 2026-06-29 19:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/549613843637.shtml)
+- 2026-06-29 19:20 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/6498024.shtml)
+- 2026-06-29 19:30 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/445095.shtml)

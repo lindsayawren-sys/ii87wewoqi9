@@ -1,60 +1,56 @@
-# 突然爆发！1.3万亿巨头，突传重大利好！
+# 共和党参议员蒂利斯痛批特朗普情报负责人提名人普尔特
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-工业富联彻底爆发了！ 今日（5月13日）早盘，市值超1.3万亿的工业富联突然大爆发，股价一度飙升超9%。港股市场富士康概念股集体拉升，鸿腾精密亦大涨近12%，普达特科技大涨超5%，云智汇科技大涨近5%。 当天有媒体报道称，鸿海集团全光CPO交换机的机柜提前出货给大客户英伟达，并从原先预估2026年出货量超过万台，上修到2026至2027年将超过5万台。 那么，这对工业富联的影响
+核心要点 即将卸任北卡罗来纳州联邦参议员的蒂利斯做客 CNBC《财经早间秀》，公开抨击特朗普提名的全美情报掌门人，称其是 “煽风点火的打手”，断言此人无法通过参议院任职核准。此番表态进一步加剧了舆论对比尔・普尔特的反对浪潮；普尔特现任联邦住房金融局局长，特朗普已于周二任命其出任代理国家情报总监。 谈及普尔特，蒂利斯称：“我认为他压根没有机会通过参议院审议、转正成为正式国家情报总
 
 ## 正文
 
-工业富联彻底爆发了！
+核心要点 即将卸任北卡罗来纳州联邦参议员的蒂利斯做客 CNBC《财经早间秀》，公开抨击特朗普提名的全美情报掌门人，称其是 “煽风点火的打手”，断言此人无法通过参议院任职核准。
 
-今日（5月13日）早盘，市值超1.3万亿的工业富联突然大爆发，股价一度飙升超9%。
+此番表态进一步加剧了舆论对比尔・普尔特的反对浪潮；普尔特现任联邦住房金融局局长，特朗普已于周二任命其出任代理国家情报总监。
 
-港股市场富士康概念股集体拉升，鸿腾精密亦大涨近12%，普达特科技大涨超5%，云智汇科技大涨近5%。
+谈及普尔特，蒂利斯称：“我认为他压根没有机会通过参议院审议、转正成为正式国家情报总监。
 
-当天有媒体报道称，鸿海集团全光CPO交换机的机柜提前出货给大客户英伟达，并从原先预估2026年出货量超过万台，上修到2026至2027年将超过5万台。
+” 不过这名参议员也坦言，特朗普政府或另辟蹊径，长期保留普尔特的代理头衔、不再推动正式提名表决，以此绕开参议院核准环节。
 
-那么，这对工业富联的影响有多大呢？
+普尔特过往没有任何情报系统任职履历，被外界普遍视作特朗普铁杆亲信；执掌住房监管机构期间，他频频动用职权针对特朗普的政坛对手发难。
 
-工业富联的利好 据报道，CPO产品具备两位数毛利率及高平均出货单价（ASP）优势，预计可为工业富联贡献15%以上营收，并推动鸿海集团实现盈利结构转型，成为集团业绩增长的第二曲线。
+遭其指控涉嫌抵押贷款违规的对象包括美联储理事莉萨・库克、纽约州总检察长莱蒂西亚・詹姆斯。
 
-针对全光CPO交换机研发量产进度，鸿海方面回应称，不对单一客户及特定产品置评。
+特朗普官方说明，普尔特就任代理国家情报总监后，将继续身兼联邦住房金融局（FHFA）局长、两大住房抵押贷款巨头房利美、房地美董事长三项职务。
 
-工业富联此前曾透露，全光CPO交换机已于一季度启动样机出货，预计三季度进入量产阶段；同时公司预期今年整体CPO交换机出货量可达万台级别，行业正式迈入CPO发展元年。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 19:34 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 19:33 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 19:34 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 19:36 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 19:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 19:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 19:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 19:21 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 19:23 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 19:12 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 19:33 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 19:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 19:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 19:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 19:22 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 19:20 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 19:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 19:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 19:43 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 19:38 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 19:32 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 19:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 19:35 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/348248059505.shtml)
-- 2026-06-29 19:32 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/373120818701.shtml)
-- 2026-06-29 19:41 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/75392590335.shtml)
-- 2026-06-29 19:16 - [急先锋](http://www.share.kurohicncr.top/Article/details/24896.shtml)
-- 2026-06-29 19:18 - [娜扎搂着我的腰和我合照](http://www.blog.kurohicncr.top/Article/details/5402852272.shtml)
-- 2026-06-29 19:32 - [女心理师](http://www.blog.minike.top/Article/details/99795.shtml)
-- 2026-06-29 19:17 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/735020713009.shtml)
-- 2026-06-29 19:31 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/57211438.shtml)
-- 2026-06-29 19:29 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/926637777201.shtml)
-- 2026-06-29 19:15 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/202448608.shtml)
-- 2026-06-29 19:36 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/14874647.shtml)
-- 2026-06-29 19:23 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/42467181.shtml)
-- 2026-06-29 19:28 - [起风了](http://www.share.minike.top/Article/details/121241430073.shtml)
-- 2026-06-29 19:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/3616525933.shtml)
-- 2026-06-29 19:29 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/101573.shtml)
+- 2026-06-29 19:47 - [大学专业未来如何洗牌](https://www.blog.minike.top/Article/details/956112.shtml)
+- 2026-06-29 19:33 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/302345842.shtml)
+- 2026-06-29 19:19 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/7443647.shtml)
+- 2026-06-29 19:24 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/71599512854.shtml)
+- 2026-06-29 19:23 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/9080886161.shtml)
+- 2026-06-29 19:42 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/43159.shtml)
+- 2026-06-29 19:21 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/20181939863.shtml)
+- 2026-06-29 19:18 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/79099.shtml)
+- 2026-06-29 19:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/639349982311.shtml)
+- 2026-06-29 19:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/736014472988.shtml)
+- 2026-06-29 19:46 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/4608819993.shtml)
+- 2026-06-29 19:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/94830.shtml)
+- 2026-06-29 19:38 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/09883.shtml)
+- 2026-06-29 19:30 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/25010025.shtml)
+- 2026-06-29 19:41 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/572397742286.shtml)

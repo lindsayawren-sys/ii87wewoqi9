@@ -1,57 +1,56 @@
-# 出现这些症状可能是肾在“求救” 快自查
+# DeepSeek大消息，融资有新进展
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-尿毒症是慢性肾病发展的终末阶段，此时肾脏功能严重衰竭，体内代谢废物无法正常排出，需依赖替代治疗维持生命。哪些症状是肾脏发出的“求救”信号？一文了解↓ 别忽视 肾脏发出的“求救”信号 根据相关调查数据，全世界尿毒症患者的发病年龄正显著年轻化，从以往的50~60岁降至30~40岁，甚至出现了11~20岁的低龄患者，其中20岁以下的年轻患者数量还在持续增长。尿毒症早期症状主要集中在消
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：证券时报）中国AI巨头融资有新进展！6月3日最新消息，有外媒报道称，DeepSeek在首轮融资中预计筹资约500亿元，估值最高可达4000亿元。在此轮融资中，腾讯和宁德时代将成为DeepSeek最大的外部投资者。值得关注的是，全球软件巨头微软日前发布全新AI模型，以减少对OpenAI的依赖并降低开发
 
 ## 正文
 
-尿毒症是慢性肾病发展的终末阶段，此时肾脏功能严重衰竭，体内代谢废物无法正常排出，需依赖替代治疗维持生命。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-哪些症状是肾脏发出的“求救”信号？
+（来源：证券时报）中国AI巨头融资有新进展！
 
-一文了解↓ 别忽视 肾脏发出的“求救”信号 根据相关调查数据，全世界尿毒症患者的发病年龄正显著年轻化，从以往的50~60岁降至30~40岁，甚至出现了11~20岁的低龄患者，其中20岁以下的年轻患者数量还在持续增长。
+6月3日最新消息，有外媒报道称，DeepSeek在首轮融资中预计筹资约500亿元，估值最高可达4000亿元。
 
-尿毒症早期症状主要集中在消化道和身体体征两方面，一旦出现以下症状，千万别大意↓ 消化道不适：出现恶心、呕吐、食欲减退等表现。
+在此轮融资中，腾讯和宁德时代将成为DeepSeek最大的外部投资者。
 
-身体水肿：眼睑、双下肢水肿是典型特征。
+值得关注的是，全球软件巨头微软日前发布全新AI模型，以减少对OpenAI的依赖并降低开发者成本。
 
-其他全身症状：皮肤瘙痒、面色晦暗(尿毒症面容)、贫血、乏力、注意力不集中等。
+与此同时，OpenAI的竞争对手Anthropic上市进展加快，后者已秘密提交IPO注册文件草案，而OpenAI预计将在未来数天或数周内跟进。
 
-早晚期肾病水肿有何区别？
+DeepSeek融资大消息据路透社报道，知情人士透露，中国人工智能初创公司DeepSeek预计将在其首轮融资筹集约500亿元人民币（约合74亿美元）。
 
-早期轻症水肿：多因劳累出现下肢浮肿，夜间休息、抬高双腿后，次日晨起可自行消退，属于慢性肾病早期表现。
+此次融资后，该公司的估值可能在3500亿至4000亿元人民币（合520亿至590亿美元）之间。
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 19:32 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 19:26 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 19:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 19:28 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 19:14 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 19:22 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 19:14 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 19:25 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 19:23 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 19:38 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 19:33 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 19:45 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 19:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 19:33 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 19:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 19:27 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 19:40 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 19:24 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 19:40 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 19:18 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/13096888347.shtml)
-- 2026-06-29 19:18 - [大学专业未来如何洗牌](https://www.blog.minike.top/Article/details/53062881250.shtml)
-- 2026-06-29 19:21 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/4023566.shtml)
-- 2026-06-29 19:28 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/4883400.shtml)
-- 2026-06-29 19:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/52142.shtml)
-- 2026-06-29 19:25 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/29112512286.shtml)
-- 2026-06-29 19:33 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/6501203718.shtml)
-- 2026-06-29 19:32 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/9231474.shtml)
-- 2026-06-29 19:17 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/37736063.shtml)
-- 2026-06-29 19:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/61025.shtml)
-- 2026-06-29 19:24 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/963462.shtml)
-- 2026-06-29 19:37 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/623142.shtml)
-- 2026-06-29 19:19 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/34411500.shtml)
-- 2026-06-29 19:17 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/09726.shtml)
-- 2026-06-29 19:27 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/8280212681.shtml)
+- 2026-06-29 19:29 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/344863.shtml)
+- 2026-06-29 19:39 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/013042502913.shtml)
+- 2026-06-29 19:36 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/36676868.shtml)
+- 2026-06-29 19:28 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/342809043464.shtml)
+- 2026-06-29 19:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/3079596935.shtml)
+- 2026-06-29 19:18 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/46118.shtml)
+- 2026-06-29 19:33 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/73447992894.shtml)
+- 2026-06-29 19:32 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/36755787.shtml)
+- 2026-06-29 19:37 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/5740981.shtml)
+- 2026-06-29 19:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/269368301174.shtml)
+- 2026-06-29 19:42 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/152552.shtml)
+- 2026-06-29 19:46 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/14042800.shtml)
+- 2026-06-29 19:26 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/86444030259.shtml)
+- 2026-06-29 19:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/09093231.shtml)
+- 2026-06-29 19:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/22965.shtml)

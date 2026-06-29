@@ -1,59 +1,46 @@
-# 金融时报：特朗普失去随心所欲挥舞关税大棒的能力
+# 【小新的Vlog】端午将至 沉浸式体验辽河口侯氏艾蒿制作技艺
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-当特朗普今年1月为争夺格陵兰岛威胁对北约盟友提高关税时，伦敦感到不安，欧盟召开紧急会议，数千人在丹麦街头抗议。然而三个月后，当他宣布对向伊朗出售武器的国家征收50%的关税且“无例外无豁免”时，这一威胁很快被外界抛诸脑后。 这一巨大反差，源于美国最高法院的一纸判决。 司法重击：紧急权力法案不再“万能” 今年2月，最高法院以6比3裁定，特朗普依据1977年《国际紧急经济权力法》征收
+发布时间：2026年06月05日 09:06 来源：中国新闻网 端午临近，辽宁省盘锦市盘山县迎来采艾制艾民俗生产旺季。立足辽河口湿地得天独厚的艾草资源，辽河口侯氏艾蒿制作技艺传承百年，从湿地田间采收鲜艾、避光阴干经年储存，再经拣叶捣绒、蛋清糊纸手工卷制艾条，一脉传承超百年的古法技艺在非物质文化遗产代表性项目传承人手中接续鲜活，以传统艾草炮制习俗承载端午祈福安康的民俗内涵。 (韩
 
 ## 正文
 
-当特朗普今年1月为争夺格陵兰岛威胁对北约盟友提高关税时，伦敦感到不安，欧盟召开紧急会议，数千人在丹麦街头抗议。
+发布时间：2026年06月05日 09:06 来源：中国新闻网 端午临近，辽宁省盘锦市盘山县迎来采艾制艾民俗生产旺季。
 
-然而三个月后，当他宣布对向伊朗出售武器的国家征收50%的关税且“无例外无豁免”时，这一威胁很快被外界抛诸脑后。
+立足辽河口湿地得天独厚的艾草资源，辽河口侯氏艾蒿制作技艺传承百年，从湿地田间采收鲜艾、避光阴干经年储存，再经拣叶捣绒、蛋清糊纸手工卷制艾条，一脉传承超百年的古法技艺在非物质文化遗产代表性项目传承人手中接续鲜活，以传统艾草炮制习俗承载端午祈福安康的民俗内涵。
 
-这一巨大反差，源于美国最高法院的一纸判决。
-
-司法重击：紧急权力法案不再“万能” 今年2月，最高法院以6比3裁定，特朗普依据1977年《国际紧急经济权力法》征收的一揽子全球关税越过了总统权限，其法律依据“自始无效”。
-
-这一裁决从根本上动摇了特朗普最得心应手的贸易武器——那种“周五威胁、周一实施”的瞬时施压能力。
-
-对特朗普而言，关税远不止是经济工具。
-
-它既是迎合民粹情绪的“政治提款机”，又是填补财政窟窿的“补血袋”，更是外交施压的“万能筹码”。
-
-他自称“关税侠”，相信进口税能重振美国制造业、平衡经济、增加财政收入。
+(韩浩天 王翕瞳 杨茜茜 辽宁盘锦报道) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 19:17 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 19:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 19:19 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 19:19 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 19:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 19:36 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 19:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 19:31 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 19:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 19:23 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 19:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 19:38 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 19:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 19:21 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 19:40 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 19:47 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 19:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 19:26 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 19:44 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 19:27 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 19:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 19:25 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/7246402.shtml)
-- 2026-06-29 19:32 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/6422740.shtml)
-- 2026-06-29 19:29 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/52374746.shtml)
-- 2026-06-29 19:40 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/66041.shtml)
-- 2026-06-29 19:24 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/21352477635.shtml)
-- 2026-06-29 19:40 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/2379267.shtml)
-- 2026-06-29 19:19 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/4366759610.shtml)
-- 2026-06-29 19:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/5713638.shtml)
-- 2026-06-29 19:40 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/773897376361.shtml)
-- 2026-06-29 19:23 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/51280962681.shtml)
-- 2026-06-29 19:39 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/264413.shtml)
-- 2026-06-29 19:39 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/83752249.shtml)
-- 2026-06-29 19:15 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/4657787.shtml)
-- 2026-06-29 19:18 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/58772966993.shtml)
-- 2026-06-29 19:27 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/066431306016.shtml)
+- 2026-06-29 19:34 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/382464180.shtml)
+- 2026-06-29 19:29 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/3972373.shtml)
+- 2026-06-29 19:28 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/9093781.shtml)
+- 2026-06-29 19:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/342252356.shtml)
+- 2026-06-29 19:46 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/960195329.shtml)
+- 2026-06-29 19:30 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/59130220.shtml)
+- 2026-06-29 19:32 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/66036.shtml)
+- 2026-06-29 19:36 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/367427.shtml)
+- 2026-06-29 19:21 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/625607707140.shtml)
+- 2026-06-29 19:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/066563618365.shtml)
+- 2026-06-29 19:31 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/733459.shtml)
+- 2026-06-29 19:27 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/92272.shtml)
+- 2026-06-29 19:31 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/278788929598.shtml)
+- 2026-06-29 19:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/935022.shtml)
+- 2026-06-29 19:34 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/18869716.shtml)

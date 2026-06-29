@@ -1,56 +1,61 @@
-# 吉林全力打造全国重要绿色能源高地
+# 中国汽车工程学会：到2030年预计新能源车型在乘用车新车销量中占比将超七成
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。 当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。 截至“十四五”末，吉林省新增
+中新网北京6月4日电 (记者 阮煜琳)中国汽车工程学会副理事长兼秘书长侯福深在北京表示，预计到2030年，新能源车型在乘用车新车销量中的占比将超过70%。 侯福深在3日召开的第三十三届中国汽车工程学会年会暨展览会(SAECCE2026)和汽车创新技术展(AITX)新闻发布会上对记者作出表示。“十五五”是我国汽车产业由规模扩张迈向全面高质量发展的关键阶段。他说，未来五年我国汽车产
 
 ## 正文
 
-中新网长春5月12日电 (高龙安 李彦国)吉林省能源局局长赵彦峰12日在长春表示，“十五五”时期，该省将新能源产业作为培育壮大新质生产力、布局未来产业的“突破口”，推出多项举措推动新能源产业提质跃升。
+中新网北京6月4日电 (记者 阮煜琳)中国汽车工程学会副理事长兼秘书长侯福深在北京表示，预计到2030年，新能源车型在乘用车新车销量中的占比将超过70%。
 
-当天，吉林省政府新闻办召开“开局起步‘十五五’推动吉林全面振兴和高质量发展”系列主题新闻发布会第二场，赵彦峰详细介绍了新能源产业跃升发展的相关举措。
+侯福深在3日召开的第三十三届中国汽车工程学会年会暨展览会(SAECCE2026)和汽车创新技术展(AITX)新闻发布会上对记者作出表示。
 
-截至“十四五”末，吉林省新增风光新能源装机是“十三五”期间的3.6倍，风光新能源装机占比、发电量占比及非水可再生能源消纳责任权重均走在全国前列；能源领域投资连续两年超千亿元，氢基绿能产业领跑全国，新能源产业已强势崛起为全省发展新的增长极。
+“十五五”是我国汽车产业由规模扩张迈向全面高质量发展的关键阶段。
 
-当前，吉林省正加快“两集四高”建设，全力打造全国重要的绿色能源产业高地。
+他说，未来五年我国汽车产业将迎来电动化、智能化、国际化发展新局面。
 
-赵彦峰介绍，“两集”即推进新能源产业集成式发展、集群化布局，“四高”指实现新能源高质量开发、高水平消纳、高价值转化。
+侯福深提出，我国将成为全球汽车前沿技术创新策源地和新技术新模式规模化验证与先导应用的重要市场，海外市场的销量拉动作用将更加突出，预计至2030年我国汽车海外销量将达到近1000万辆，其中约四成来自海外本地化生产销售。
 
-在此基础上，吉林省将科学编制新型能源体系建设“十五五”规划，推动规划落地见效。
+他强调，当前汽车技术发展已进入“深水区”“无人区”，原创性、前瞻性、颠覆性创新的重要性比以往任何时候都更加凸显。
 
-为优化产业发展环境，吉林省将进一步完善省级能源政策体系，深化电力市场机制改革创新，保障企业“用得上绿电、用得起绿电、用得好绿电”，推动源网荷储协同发展，为新能源产业项目落地保驾护航。
+提升基础研究与前沿技术原始创新能力是今后五年产业科技创新的重中之重，精准把握前沿技术趋势方向将成为产业开展高水平科技创新的重要前提。
 
-在产业融合发展方面，吉林将制定出台新能源集成融合发展方案，推出三种融合模式、17个典型场景，推动新能源产业多维度一体开发、多产业深度融合、多链条系统集成、多场景培育应用，打造产业发展“第二曲线”。
+“人工智能正在以前所未有的速度、深度和广度重塑汽车科技创新的基本逻辑”，侯福深说，对传统“试错迭代”“规则主导”等研发模式带来颠覆性影响。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 19:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 19:13 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 19:37 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 19:32 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 19:38 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 19:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 19:40 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 19:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 19:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 19:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 19:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 19:39 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 19:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:27 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 19:41 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 19:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 19:41 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 19:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 19:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 19:39 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 19:25 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 19:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 19:42 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 19:28 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/121165.shtml)
-- 2026-06-29 19:15 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/09604.shtml)
-- 2026-06-29 19:12 - [一见倾心](http://www.share.kurohicncr.top/Article/details/46727553677.shtml)
-- 2026-06-29 19:16 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/0579950237.shtml)
-- 2026-06-29 19:32 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/174636.shtml)
-- 2026-06-29 19:15 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/4373351.shtml)
-- 2026-06-29 19:16 - [T1零封KC MSI](http://www.share.minike.top/Article/details/451517.shtml)
-- 2026-06-29 19:16 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.minike.top/Article/details/82644937.shtml)
-- 2026-06-29 19:14 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/999079315.shtml)
-- 2026-06-29 19:37 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/1671098035.shtml)
-- 2026-06-29 19:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/661868053.shtml)
-- 2026-06-29 19:28 - [送你一朵小红花](https://www.share.minike.top/Article/details/643751590.shtml)
-- 2026-06-29 19:18 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/3834714821.shtml)
-- 2026-06-29 19:28 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/1014991.shtml)
-- 2026-06-29 19:39 - [王俊凯命名方式](https://www.share.minike.top/Article/details/70226641457.shtml)
+- 2026-06-29 19:21 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/137357426.shtml)
+- 2026-06-29 19:43 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/378945767446.shtml)
+- 2026-06-29 19:41 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/49554.shtml)
+- 2026-06-29 19:31 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/93486.shtml)
+- 2026-06-29 19:26 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/405136290877.shtml)
+- 2026-06-29 19:23 - [急先锋](https://www.blog.kurohicncr.top/Article/details/39512769569.shtml)
+- 2026-06-29 19:30 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/41304855469.shtml)
+- 2026-06-29 19:30 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/72715476166.shtml)
+- 2026-06-29 19:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/06091550.shtml)
+- 2026-06-29 19:20 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/71358.shtml)
+- 2026-06-29 19:29 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/03690855405.shtml)
+- 2026-06-29 19:19 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/2333942969.shtml)
+- 2026-06-29 19:46 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/1652681.shtml)
+- 2026-06-29 19:40 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/801675923.shtml)
+- 2026-06-29 19:28 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/60386018635.shtml)

@@ -1,47 +1,56 @@
-# 赖亚文当选新一届中国排球协会主席
+# 徽商期货与安徽建筑大学经济与管理学院签署校企合作协议
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-新华社快讯：中国排球协会第八届会员大会在京举行，赖亚文当选新一届中国排球协会主席。
+徽商期货与安徽建筑大学经济与管理学院签署校企合作协议 ——校企携手推动投资者教育纳入国民教育体系 为进一步落实“将投资者教育纳入国民教育体系”的战略部署，深化产教融合与校企协同育人，6月2日，安徽建筑大学经济与管理学院院长彭志胜、党委副书记汪令宇、副院长蔡弘等一行应邀走进徽商期货有限责任公司，实地参观、座谈交流，并正式签署《投资者教育合作协议》与《研究生联合培养基地协议书》。徽
 
 ## 正文
 
-新华社快讯：中国排球协会第八届会员大会在京举行，赖亚文当选新一届中国排球协会主席。
+徽商期货与安徽建筑大学经济与管理学院签署校企合作协议 ——校企携手推动投资者教育纳入国民教育体系 为进一步落实“将投资者教育纳入国民教育体系”的战略部署，深化产教融合与校企协同育人，6月2日，安徽建筑大学经济与管理学院院长彭志胜、党委副书记汪令宇、副院长蔡弘等一行应邀走进徽商期货有限责任公司，实地参观、座谈交流，并正式签署《投资者教育合作协议》与《研究生联合培养基地协议书》。
+
+徽商期货董事长、总经理储进，党委委员、副总经理陈名贤出席活动。
+
+双方同时为“安徽建筑大学研究生联合培养基地”及“安徽建筑大学毕业生就业实习基地”揭牌。
+
+这标志着双方校企合作迈入全方位、多层次、长期化的新阶段。
+
+一、实地参观：走进徽商期货，感受行业底蕴 活动伊始，安徽建筑大学经济与管理学院领导及教师代表在徽商期货工作人员的引导下，参观了公司省级投资者教育基地。
+
+该基地连续四年获评“省级优秀投资者教育基地”，是公司开展普惠投教、提升公众金融素养的重要窗口。
+
+校方对基地的专业性和实践价值给予高度评价，认为其为高校金融人才培养提供了生动的“第二课堂”。
+
+二、座谈交流：共话合作基础，共谋育人新径 参观结束后，双方举行座谈交流。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 19:13 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 19:41 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 19:27 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 19:37 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 19:32 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 19:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 19:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 19:14 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 19:12 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 19:13 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 19:41 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 19:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 19:21 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 19:27 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 19:35 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 19:34 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 19:25 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 19:34 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 19:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 19:41 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 19:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 19:35 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 19:34 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 19:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/71150.shtml)
-- 2026-06-29 19:27 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/319720469839.shtml)
-- 2026-06-29 19:40 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/39983689.shtml)
-- 2026-06-29 19:26 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/81648919594.shtml)
-- 2026-06-29 19:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/736793676.shtml)
-- 2026-06-29 19:30 - [主力抛售电子和通信板块](http://www.share.kurohicncr.top/Article/details/74006.shtml)
-- 2026-06-29 19:24 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.minike.top/Article/details/46006521007.shtml)
-- 2026-06-29 19:19 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/624452721310.shtml)
-- 2026-06-29 19:28 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/701322238.shtml)
-- 2026-06-29 19:32 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/455425413466.shtml)
-- 2026-06-29 19:35 - [爱很美味](http://www.share.kurohicncr.top/Article/details/5469358112.shtml)
-- 2026-06-29 19:37 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/346401974.shtml)
-- 2026-06-29 19:23 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/641661163420.shtml)
-- 2026-06-29 19:13 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/1220714.shtml)
-- 2026-06-29 19:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/3103647901.shtml)
+- 2026-06-29 19:41 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/9742725.shtml)
+- 2026-06-29 19:21 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/5861416450.shtml)
+- 2026-06-29 19:38 - [急先锋](http://www.share.minike.top/Article/details/61863.shtml)
+- 2026-06-29 19:24 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/46984051618.shtml)
+- 2026-06-29 19:47 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/471718239.shtml)
+- 2026-06-29 19:35 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/9812754.shtml)
+- 2026-06-29 19:40 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/035733674040.shtml)
+- 2026-06-29 19:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/1827127451.shtml)
+- 2026-06-29 19:22 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/694080956.shtml)
+- 2026-06-29 19:33 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/7579432558.shtml)
+- 2026-06-29 19:27 - [啊啊啊](https://www.share.minike.top/Article/details/784550.shtml)
+- 2026-06-29 19:28 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/8734371.shtml)
+- 2026-06-29 19:25 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/50890.shtml)
+- 2026-06-29 19:33 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/64727545.shtml)
+- 2026-06-29 19:41 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/2773609323.shtml)

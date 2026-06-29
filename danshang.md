@@ -1,56 +1,49 @@
-# 第四届老山国际春茶节专场活动在云南麻栗坡举行
+# 我国成功发射千帆极轨11组卫星
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-中新网文山5月13日电 (李相成 杨镇)5月12日，第四届老山国际春茶节“茶香天下·同心致远”麻栗坡·新华国茶政企合作四周年专场活动在云南省麻栗坡县小兴冲村举行。香港新华集团等企业代表及云南农业大学、西南林业大学等机构的茶学专家参加了活动。 麻栗坡县地处中越边境，拥有茶园约3.5万亩，古茶树40余万株。2021年，当地古树茶亮相联合国，受到外界关注。自2021年麻栗坡县政府与香
+北京时间2026年6月4日19时39分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨11组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是长征系列运载火箭的第648次飞行。 (央视新闻客户端 总台记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
 
 ## 正文
 
-中新网文山5月13日电 (李相成 杨镇)5月12日，第四届老山国际春茶节“茶香天下·同心致远”麻栗坡·新华国茶政企合作四周年专场活动在云南省麻栗坡县小兴冲村举行。
+北京时间2026年6月4日19时39分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨11组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-香港新华集团等企业代表及云南农业大学、西南林业大学等机构的茶学专家参加了活动。
+此次任务是长征系列运载火箭的第648次飞行。
 
-麻栗坡县地处中越边境，拥有茶园约3.5万亩，古茶树40余万株。
-
-2021年，当地古树茶亮相联合国，受到外界关注。
-
-自2021年麻栗坡县政府与香港新华集团开启合作以来，当地茶产业逐步从资源输出向品牌化发展转型。
-
-活动期间，麻栗坡县致富带头人现场讲述了依托茶产业脱贫的经历。
-
-由当地政府与企业联合推出的“四载同心·老山礼茶”纪念产品正式发布。
-
-当日，麻栗坡县人民政府与相关企业签订了深度战略合作协议，并与勐海陈升茶业有限公司签订三方合作协议。
+(央视新闻客户端 总台记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 19:23 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 19:29 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 19:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 19:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 19:27 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 19:24 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 19:24 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 19:22 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 19:15 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:44 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 19:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 19:41 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 19:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 19:36 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 19:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 19:23 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 19:46 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 19:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 19:28 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 19:24 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 19:35 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 19:23 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/148222.shtml)
-- 2026-06-29 19:16 - [爱很美味](http://www.share.kurohicncr.top/Article/details/371335771.shtml)
-- 2026-06-29 19:41 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/42527599363.shtml)
-- 2026-06-29 19:14 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/82416.shtml)
-- 2026-06-29 19:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/346935409.shtml)
-- 2026-06-29 19:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/2232206202.shtml)
-- 2026-06-29 19:35 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/6071765104.shtml)
-- 2026-06-29 19:31 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/381432.shtml)
-- 2026-06-29 19:18 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/41972.shtml)
-- 2026-06-29 19:17 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/7165912.shtml)
-- 2026-06-29 19:28 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/877817.shtml)
-- 2026-06-29 19:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/355372704861.shtml)
-- 2026-06-29 19:36 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/08227.shtml)
-- 2026-06-29 19:14 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/26958104.shtml)
-- 2026-06-29 19:39 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/27308.shtml)
+- 2026-06-29 19:40 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/16728800.shtml)
+- 2026-06-29 19:26 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/17657.shtml)
+- 2026-06-29 19:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/802780462.shtml)
+- 2026-06-29 19:31 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/72054174971.shtml)
+- 2026-06-29 19:29 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/06583.shtml)
+- 2026-06-29 19:28 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/0422781168.shtml)
+- 2026-06-29 19:34 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/97756615726.shtml)
+- 2026-06-29 19:43 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/17418.shtml)
+- 2026-06-29 19:33 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/46915906.shtml)
+- 2026-06-29 19:24 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/79207.shtml)
+- 2026-06-29 19:18 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/8149261.shtml)
+- 2026-06-29 19:20 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/6976236.shtml)
+- 2026-06-29 19:33 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/6901507780.shtml)
+- 2026-06-29 19:28 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/09103.shtml)
+- 2026-06-29 19:27 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/0545753.shtml)

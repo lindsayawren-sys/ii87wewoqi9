@@ -1,53 +1,60 @@
-# 亚市早盘油价下跌 或因技术性回调
+# 印尼国会通过金融法案：扩大央行职能并强化国会监督
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-亚洲早盘油价下跌，这可能是在周二结算价走高后的技术性回调。Kudotrade的Konstantinos Chrysikos在一份报告中表示，如果伊朗冲突恶化，油价仍有上涨空间。Chrysikos补充说，霍尔木兹海峡的长期关闭继续扰乱全球原油供应。近月西得州中质油期货下跌0.6%，报每桶101.56美元；近月布伦特原油期货下跌0.6%，报每桶107.12美元。责任编辑：王永生
+印尼国会周四举行全体会议，正式通过了一项针对金融体系的重大立法修正案。该法案明确扩大了印尼央行（印尼银行）的法定职能，要求其在维持物价和汇率稳定的基础上，进一步加大对本国经济增长和就业创造的支持力度。同时，法案赋予了国会对印尼央行及独立金融监管机构进行绩效评估的权力。 印尼国会副议长苏夫米·达斯科·艾哈迈德主持了当日的全体会议。据他介绍，该法案在全体会议上获得了国会所有党派的一
 
 ## 正文
 
-亚洲早盘油价下跌，这可能是在周二结算价走高后的技术性回调。
+印尼国会周四举行全体会议，正式通过了一项针对金融体系的重大立法修正案。
 
-Kudotrade的Konstantinos Chrysikos在一份报告中表示，如果伊朗冲突恶化，油价仍有上涨空间。
+该法案明确扩大了印尼央行（印尼银行）的法定职能，要求其在维持物价和汇率稳定的基础上，进一步加大对本国经济增长和就业创造的支持力度。
 
-Chrysikos补充说，霍尔木兹海峡的长期关闭继续扰乱全球原油供应。
+同时，法案赋予了国会对印尼央行及独立金融监管机构进行绩效评估的权力。
 
-近月西得州中质油期货下跌0.6%，报每桶101.56美元；近月布伦特原油期货下跌0.6%，报每桶107.12美元。
+印尼国会副议长苏夫米·达斯科·艾哈迈德主持了当日的全体会议。
 
-责任编辑：王永生
+据他介绍，该法案在全体会议上获得了国会所有党派的一致支持，以鼓掌通过的方式顺利获得通过。
+
+鉴于总统普拉博沃·苏比安托领导的执政联盟控制着国会八成以上的议席，外界普遍认为该法案的通过符合预期。
+
+普拉博沃此前曾多次强调，将在任期内全力实现8%的高经济增长目标。
+
+针对此次立法修订，印尼财政部长普尔巴亚·尤迪·萨德瓦在周三向国会财政委员会作证时指出，政府与国会达成共识，将扩大现有法律的适用范围。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 19:40 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 19:37 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 19:21 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 19:18 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 19:25 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 19:20 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 19:37 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 19:19 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 19:35 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 19:37 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 19:25 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 19:41 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 19:24 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 19:19 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 19:23 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 19:34 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 19:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 19:30 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 19:20 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 19:26 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 19:25 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 19:39 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 19:24 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 19:32 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 19:18 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 19:33 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/9779380.shtml)
-- 2026-06-29 19:39 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/938847.shtml)
-- 2026-06-29 19:25 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/875194669.shtml)
-- 2026-06-29 19:35 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/29367175.shtml)
-- 2026-06-29 19:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/0679175690.shtml)
-- 2026-06-29 19:14 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/108121278.shtml)
-- 2026-06-29 19:34 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/14878.shtml)
-- 2026-06-29 19:29 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/0092588.shtml)
-- 2026-06-29 19:24 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/57800488.shtml)
-- 2026-06-29 19:36 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/442128263.shtml)
-- 2026-06-29 19:25 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/433754.shtml)
-- 2026-06-29 19:32 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/979482.shtml)
-- 2026-06-29 19:25 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/601986714982.shtml)
-- 2026-06-29 19:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/733169623175.shtml)
-- 2026-06-29 19:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/70394160239.shtml)
+- 2026-06-29 19:25 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/737312201164.shtml)
+- 2026-06-29 19:41 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/883132.shtml)
+- 2026-06-29 19:33 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/56030895113.shtml)
+- 2026-06-29 19:19 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/86804466144.shtml)
+- 2026-06-29 19:43 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/661046.shtml)
+- 2026-06-29 19:36 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/165186592507.shtml)
+- 2026-06-29 19:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/4882229443.shtml)
+- 2026-06-29 19:24 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/4236979.shtml)
+- 2026-06-29 19:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/09912.shtml)
+- 2026-06-29 19:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/12076833.shtml)
+- 2026-06-29 19:43 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/1246346.shtml)
+- 2026-06-29 19:24 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/04666240679.shtml)
+- 2026-06-29 19:28 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/69909.shtml)
+- 2026-06-29 19:30 - [V8](http://www.share.kurohicncr.top/Article/details/280823558.shtml)
+- 2026-06-29 19:44 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/964776.shtml)

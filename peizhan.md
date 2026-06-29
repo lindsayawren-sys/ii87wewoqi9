@@ -1,59 +1,60 @@
-# 万邦医药：5月13日召开业绩说明会，投资者参与
+# 韩股“AI牛市”急踩刹车！存储双雄领跌，Kospi指数一度跳水6%
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券之星消息，2026年5月13日万邦医药(301520)发布公告称公司于2026年5月13日召开业绩说明会。具体内容如下：问：请贵公司在创新药领域目前有何突破性进展？答：尊敬的投资者您好！公司涵盖临床试验运营、临床试验现场管理、生物样本分析、数据管理与统计分析等全链条环节，持续深耕CNS、自身免疫、代谢、呼吸系统、妇科等领域，
+来源：智通财经网 经历了全球资本市场最令人瞩目的上涨行情之一后，韩国股市正迎来关键压力测试。周五早盘，韩国综合股价指数(KOSPI)盘中一度暴跌6.4%，创下今年以来最大单日盘中跌幅之一，随后跌幅有所收窄。作为指数核心支柱的韩国两大存储芯片巨头——三星电子和SK海力士双双重挫逾7%，引发市场恐慌性抛售。由于股指期货卖压激增，韩国交易所甚至一度启动程序化交易暂停机制，以缓解市场波
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 证券之星消息，2026年5月13日万邦医药(301520)发布公告称公司于2026年5月13日召开业绩说明会。
+来源：智通财经网 经历了全球资本市场最令人瞩目的上涨行情之一后，韩国股市正迎来关键压力测试。
 
-具体内容如下：问：请贵公司在创新药领域目前有何突破性进展？
+周五早盘，韩国综合股价指数(KOSPI)盘中一度暴跌6.4%，创下今年以来最大单日盘中跌幅之一，随后跌幅有所收窄。
 
-答：尊敬的投资者您好！
+作为指数核心支柱的韩国两大存储芯片巨头——三星电子和SK海力士双双重挫逾7%，引发市场恐慌性抛售。
 
-公司涵盖临床试验运营、临床试验现场管理、生物样本分析、数据管理与统计分析等全链条环节，持续深耕CNS、自身免疫、代谢、呼吸系统、妇科等领域，可为创新药客户提供从药学研究、Ⅰ–Ⅲ期临床、上市注册到上市后真实世界研究的一体化服务。
+由于股指期货卖压激增，韩国交易所甚至一度启动程序化交易暂停机制，以缓解市场波动。
 
-此外，在创新药领域，公司将结合自主立项和项目孵化的模式，重点围绕肿瘤、代谢性疾病、自身免疫性疾病、抗衰等具有较大临床需求和市场潜力的领域，积极布局小分子、多肽、抗体、细胞治疗等药物形式，逐步形成梯度管线建设，持续强化技术平台与服务能力不断提升创新药业务竞争力与项目转化效率。
+此次急跌发生在全球半导体板块同步调整的背景下。
 
-感谢您的关注！
+此前一天，美国费城半导体指数(SOX)受博通AI业务指引逊于预期冲击大幅回落，引发投资者对人工智能(AI)产业链估值过热的担忧，并迅速传导至亚洲市场。
 
-2.目前股价如此低迷，有什么提振股价的计划来报投资者呢？
+然而，相较于美国市场的正常回调，韩国市场面临的问题更为复杂——指数过度依赖少数芯片股、杠杆资金快速膨胀，以及潜在的货币政策收紧风险正在形成共振。
 
-尊敬的投资者您好！
+AI狂潮造就“超级牛市” 截至本周四，KOSPI指数年内累计涨幅已超过100%，成为全球表现最强劲的主要股票市场之一。
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 19:12 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 19:28 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 19:16 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 19:17 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 19:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 19:15 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 19:29 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 19:15 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 19:27 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 19:35 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 19:12 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 19:36 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 19:43 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 19:23 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 19:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 19:29 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 19:23 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 19:37 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 19:38 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 19:38 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 19:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 19:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 19:24 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 19:37 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 19:47 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 19:24 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/29190.shtml)
-- 2026-06-29 19:41 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/102477238543.shtml)
-- 2026-06-29 19:37 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/063681045370.shtml)
-- 2026-06-29 19:25 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/679321885632.shtml)
-- 2026-06-29 19:24 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/1454748850.shtml)
-- 2026-06-29 19:30 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/675733867.shtml)
-- 2026-06-29 19:31 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/3702393.shtml)
-- 2026-06-29 19:25 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/8564479.shtml)
-- 2026-06-29 19:23 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/84708092.shtml)
-- 2026-06-29 19:17 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/04216748450.shtml)
-- 2026-06-29 19:14 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/45400977.shtml)
-- 2026-06-29 19:17 - [湖南姑娘被东北同事带偏口音](http://www.share.minike.top/Article/details/416965183.shtml)
-- 2026-06-29 19:12 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/72517.shtml)
-- 2026-06-29 19:39 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/41929076.shtml)
-- 2026-06-29 19:39 - [急先锋](https://www.share.kurohicncr.top/Article/details/6942223284.shtml)
+- 2026-06-29 19:31 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/904615667.shtml)
+- 2026-06-29 19:32 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/72615.shtml)
+- 2026-06-29 19:36 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.kurohicncr.top/Article/details/48549339899.shtml)
+- 2026-06-29 19:45 - [医药生物行业今日涨5.91%](http://www.blog.minike.top/Article/details/276129484010.shtml)
+- 2026-06-29 19:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/794987699.shtml)
+- 2026-06-29 19:21 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/58263.shtml)
+- 2026-06-29 19:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/48040058026.shtml)
+- 2026-06-29 19:39 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/719454580335.shtml)
+- 2026-06-29 19:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/922809341.shtml)
+- 2026-06-29 19:44 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/6067168815.shtml)
+- 2026-06-29 19:35 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/379202.shtml)
+- 2026-06-29 19:21 - [斗破苍穹](https://www.blog.minike.top/Article/details/212912.shtml)
+- 2026-06-29 19:34 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/885069.shtml)
+- 2026-06-29 19:33 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/29803144.shtml)
+- 2026-06-29 19:47 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/66409553.shtml)

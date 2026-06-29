@@ -1,61 +1,57 @@
-# 涉嫌侵犯隐私及诱导沉迷，美得克萨斯州对奈飞提起诉讼
+# 第十四届中国海警论坛：海警法实施五周年来执法效能持续提升
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-当地时间5月11日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）对流媒体企业奈飞（Netflix）提起诉讼，指控该公司在未经同意的情况下非法收集包括儿童在内的消费者数据，并故意在平台设计中植入诱导用户沉迷的功能。 诉状指出，奈飞长期以来向消费者进行虚假陈述，隐瞒其收集和共享用户数据的真实行为。得州方面指控，奈飞对受众的观看习惯和偏好进行持续追踪，并将相关数据出售给
+中新网宁波6月3日电 (李纯 董锰)为期2天的第十四届“中国海警论坛”6月3日在浙江宁波开幕，聚焦“海警法颁布实施五周年回顾与展望”。论坛指出，海警法实施五周年来，中国海警执法效能持续提升，海洋治理成效日益彰显。本届论坛由武警海警学院、中国海警局联合主办，武汉大学、厦门大学、宁波大学、上海海事大学协办，参会代表来自国家政府部门、军队单位、涉海涉法高校、科研院所等。 据论坛介绍，
 
 ## 正文
 
-当地时间5月11日，美国得克萨斯州总检察长肯·帕克斯顿（Ken Paxton）对流媒体企业奈飞（Netflix）提起诉讼，指控该公司在未经同意的情况下非法收集包括儿童在内的消费者数据，并故意在平台设计中植入诱导用户沉迷的功能。
+中新网宁波6月3日电 (李纯 董锰)为期2天的第十四届“中国海警论坛”6月3日在浙江宁波开幕，聚焦“海警法颁布实施五周年回顾与展望”。
 
-诉状指出，奈飞长期以来向消费者进行虚假陈述，隐瞒其收集和共享用户数据的真实行为。
+论坛指出，海警法实施五周年来，中国海警执法效能持续提升，海洋治理成效日益彰显。
 
-得州方面指控，奈飞对受众的观看习惯和偏好进行持续追踪，并将相关数据出售给商业数据经纪商及广告技术公司，借此每年牟取数十亿美元的巨额利润。
+本届论坛由武警海警学院、中国海警局联合主办，武汉大学、厦门大学、宁波大学、上海海事大学协办，参会代表来自国家政府部门、军队单位、涉海涉法高校、科研院所等。
 
-此外，这家总部位于加州洛思加图斯的公司还被控隐蔽使用“暗黑模式”（dark patterns）以增加用户黏性。
+据论坛介绍，海警法的颁布实施是推进海洋强国建设、维护国家主权安全和海洋权益的法治基石，是深化依法治海、提升海洋治理能力的关键一步，标志着中国海上执法体系迈向制度化、规范化、法制化的新阶段。
 
-起诉书提到，奈飞利用“自动播放”等机制，在当前内容结束后直接跳转播放新内容，旨在使消费者保持持续观看状态。
+五年来，中国各级海警机构坚决贯彻海警法精神，坚持依法履职、规范执法，中国海警执法效能不断加强，海上秩序更加规范，国际合作深化拓展，海洋治理成效日益彰显。
 
-针对上述指控，奈飞方面予以否认，并表示将在法庭上进行抗辩。
+本届论坛议程设置了主旨报告、专家访谈、圆桌会议、成果展等四个部分。
 
-奈飞发言人发表声明称，该起诉讼毫无根据，其内容基于不准确和被歪曲的信息。
+其中，主旨报告邀请海警相关负责人、专家从海警法立法、应用、展望等不同视角进行发言；专家访谈环节邀请涉海法律专家和中国海警局执法骨干，围绕海上维权执法中的法律制度、法律适用等问题展开探讨；圆桌会议环节邀请部队代表、专家学者等，就海上安全保卫、海上行政执法、海上犯罪侦查等专题进行交流。
 
-该发言人强调，奈飞高度重视会员隐私，并严格遵守其运营所在地的隐私与数据保护法规。
+《中华人民共和国海警法》自2021年2月1日起施行，旨在明确海警机构的职能定位、权限措施和保障监督，确保海警维权执法、对外合作有法可依，有助于中国海警更好履行自身职责和国际条约下义务，维护海上良好秩序。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 19:18 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 19:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 19:14 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 19:40 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 19:35 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 19:23 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-29 19:13 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 19:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 19:26 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 19:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 19:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 19:13 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 19:15 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 19:23 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 19:20 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 19:18 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 19:42 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 19:30 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 19:27 - [叠纸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 19:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 19:46 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 19:36 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 19:29 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 19:43 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 19:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/9179702305.shtml)
-- 2026-06-29 19:41 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.kurohicncr.top/Article/details/851859718816.shtml)
-- 2026-06-29 19:30 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/66735872360.shtml)
-- 2026-06-29 19:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/8251196.shtml)
-- 2026-06-29 19:28 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/69439.shtml)
-- 2026-06-29 19:14 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/83711.shtml)
-- 2026-06-29 19:20 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/5509952412.shtml)
-- 2026-06-29 19:16 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/0635825281.shtml)
-- 2026-06-29 19:25 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/09941491.shtml)
-- 2026-06-29 19:36 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/882747268218.shtml)
-- 2026-06-29 19:14 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/4353685.shtml)
-- 2026-06-29 19:19 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/32842.shtml)
-- 2026-06-29 19:32 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/7624942617.shtml)
-- 2026-06-29 19:39 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/396112691.shtml)
-- 2026-06-29 19:33 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/1167459095.shtml)
+- 2026-06-29 19:46 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/61997729.shtml)
+- 2026-06-29 19:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/5238680.shtml)
+- 2026-06-29 19:41 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/4002425.shtml)
+- 2026-06-29 19:23 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/653472.shtml)
+- 2026-06-29 19:39 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/86962789302.shtml)
+- 2026-06-29 19:25 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/043890715.shtml)
+- 2026-06-29 19:19 - [《贺子珍》](https://www.share.minike.top/Article/details/285157529377.shtml)
+- 2026-06-29 19:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/803054581680.shtml)
+- 2026-06-29 19:19 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/372323362336.shtml)
+- 2026-06-29 19:30 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/86598689.shtml)
+- 2026-06-29 19:43 - [NBA交易](http://www.blog.minike.top/Article/details/921491959163.shtml)
+- 2026-06-29 19:32 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/0459150883.shtml)
+- 2026-06-29 19:30 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/9989717497.shtml)
+- 2026-06-29 19:37 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/33442.shtml)
+- 2026-06-29 19:33 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/26384755.shtml)

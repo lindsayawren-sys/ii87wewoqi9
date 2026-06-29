@@ -1,56 +1,56 @@
-# 英派药业-B首挂上市 早盘高开76.62%
+# 夏天租房没空调用？这几个避坑技巧一定要知道
 
-> 更新时间：2026-06-29 19:42:03 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-英派药业-B（07630）首挂上市，公告显示，每股定价20.1港元，共发行4197.7万股股份，每手200股，所得款项净额约7.6亿港元。截至发稿，股价上涨76.62%，报35.5港元，成交额2.07亿港元。 公开资料显示，英派药业是一家处于商业化阶段的生物技术公司，致力于在全球范围内推进基于合成致死机制的精准抗癌疗法，打造创新疗法，以满足癌症患者未被满足的医疗需求。公司的核心
+“租房遇见这空调天塌了”——这个话题最近登上了微博热搜，阅读量接近75万，引发了无数租客的共鸣。随着气温一天天升高，很多租客发现自己租的房子空调要么坏了房东不肯修，要么干脆没装空调，找房东沟通要么被敷衍要么直接拉黑。夏天三十多度的高温天里回到家像蒸笼一样，这种体验确实让人崩溃。租房本来就是消费者相对弱势的群体，遇到不负责任的房东更是有苦说不出。 类似的情况其实在租房市场并不少见
 
 ## 正文
 
-英派药业-B（07630）首挂上市，公告显示，每股定价20.1港元，共发行4197.7万股股份，每手200股，所得款项净额约7.6亿港元。
+“租房遇见这空调天塌了”——这个话题最近登上了微博热搜，阅读量接近75万，引发了无数租客的共鸣。
 
-截至发稿，股价上涨76.62%，报35.5港元，成交额2.07亿港元。
+随着气温一天天升高，很多租客发现自己租的房子空调要么坏了房东不肯修，要么干脆没装空调，找房东沟通要么被敷衍要么直接拉黑。
 
-公开资料显示，英派药业是一家处于商业化阶段的生物技术公司，致力于在全球范围内推进基于合成致死机制的精准抗癌疗法，打造创新疗法，以满足癌症患者未被满足的医疗需求。
+夏天三十多度的高温天里回到家像蒸笼一样，这种体验确实让人崩溃。
 
-公司的核心产品塞纳帕利于2025年1月获批用于中国卵巢癌 “全人群” 一线维持治疗后正式启动商业化。
+租房本来就是消费者相对弱势的群体，遇到不负责任的房东更是有苦说不出。
 
-截至最后实际可行日期，英派药业已构建了1款商业化产品、4款临床阶段产品、7款临床前产品的管线矩阵，覆盖PARP1/2、PARP1、 ATR、WEE1、PKMYT1/WEE1等关键合成致死靶点的小分子抑制剂。
+类似的情况其实在租房市场并不少见。
 
-同时布局ADC及蛋白降解剂候选药物等新兴疗法。
+除了空调问题，还有入住后发现家电全是坏的、押金被各种理由克扣、合同到期后房东以“房屋损耗”为由拒不退还押金、二房东卷款跑路留下烂摊子……每一个踩过坑的租客都能讲出一段血泪史。
 
-公司是全球仅有的三家同时拥有商业化阶段PARP1/2抑制剂及临床阶段下一代PARP1选择性抑制剂的企业之一。
+问题的根源在于，租房前大多数人的注意力都集中在价格和地段上，对中介资质、房东信用、房屋真实状况以及周边配套这些关键信息缺乏足够的了解。
 
-责任编辑：卢昱君
+等到住进去发现问题再想维权，往往已经处于被动局面了。
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 19:14 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 19:27 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 19:17 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 19:12 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 19:33 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 19:41 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 19:18 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 19:22 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 19:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 19:25 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 19:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 19:29 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 19:26 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:36 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 19:30 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 19:19 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 19:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 19:25 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/9925853.shtml)
-- 2026-06-29 19:12 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/53045279.shtml)
-- 2026-06-29 19:38 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/4218646.shtml)
-- 2026-06-29 19:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/29750146.shtml)
-- 2026-06-29 19:21 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/9694390.shtml)
-- 2026-06-29 19:36 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/5535748.shtml)
-- 2026-06-29 19:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/33643674245.shtml)
-- 2026-06-29 19:22 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/66974.shtml)
-- 2026-06-29 19:39 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/73117.shtml)
-- 2026-06-29 19:13 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/43212.shtml)
-- 2026-06-29 19:39 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/907584588594.shtml)
-- 2026-06-29 19:35 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/34621102.shtml)
-- 2026-06-29 19:17 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/516817.shtml)
-- 2026-06-29 19:37 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/198153750.shtml)
-- 2026-06-29 19:29 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/8345975.shtml)
+- 2026-06-29 19:29 - [爱很美味](https://www.blog.minike.top/Article/details/354696.shtml)
+- 2026-06-29 19:37 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/1842022456.shtml)
+- 2026-06-29 19:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/8668096372.shtml)
+- 2026-06-29 19:19 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/52682226.shtml)
+- 2026-06-29 19:36 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/95213.shtml)
+- 2026-06-29 19:36 - [一生一世](https://www.share.kurohicncr.top/Article/details/5389018.shtml)
+- 2026-06-29 19:32 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/421364439.shtml)
+- 2026-06-29 19:20 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/048197468947.shtml)
+- 2026-06-29 19:26 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/238171116.shtml)
+- 2026-06-29 19:39 - [黄金也扛不住了](https://www.share.minike.top/Article/details/15831855.shtml)
+- 2026-06-29 19:44 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/13606512.shtml)
+- 2026-06-29 19:20 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/59781825407.shtml)
+- 2026-06-29 19:26 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/66601932070.shtml)
+- 2026-06-29 19:47 - [王楚钦开门红](http://www.share.minike.top/Article/details/934726649.shtml)
+- 2026-06-29 19:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/043839225.shtml)

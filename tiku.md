@@ -1,60 +1,46 @@
-# 出行注意 受大风天气影响新疆部分旅客列车停运
+# 顿涅茨克地区遭袭致7人死亡
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-据新疆维吾尔自治区气象台发布的天气预报，5月12日白天至夜间，南疆西部、巴州北部、东疆等地的部分区域有5～6级西北风，风口风力10～11级，阵风13级。为确保行车安全和旅客生命财产安全，铁路部门预判恶劣天气可能带来的风险因素，动态调整列车运行方案，采取停运措施，主动规避安全风险。 5月12日，乌鲁木齐至兰州西D576次，乌鲁木齐至西安北D2718次，乌鲁木齐至库尔勒C802次、
+中新网6月3日电 据法新社报道，俄罗斯方面任命的顿涅茨克地区领导人普希林3日在社交媒体上说，一架无人机袭击了一辆由莫斯科开往克里米亚辛菲罗波尔的客车，造成7人死亡、11人受伤。 普希林称，袭击发生在顿涅茨克地区叶纳基耶沃，伤者已被送医救治。
 
 ## 正文
 
-据新疆维吾尔自治区气象台发布的天气预报，5月12日白天至夜间，南疆西部、巴州北部、东疆等地的部分区域有5～6级西北风，风口风力10～11级，阵风13级。
+中新网6月3日电 据法新社报道，俄罗斯方面任命的顿涅茨克地区领导人普希林3日在社交媒体上说，一架无人机袭击了一辆由莫斯科开往克里米亚辛菲罗波尔的客车，造成7人死亡、11人受伤。
 
-为确保行车安全和旅客生命财产安全，铁路部门预判恶劣天气可能带来的风险因素，动态调整列车运行方案，采取停运措施，主动规避安全风险。
-
-5月12日，乌鲁木齐至兰州西D576次，乌鲁木齐至西安北D2718次，乌鲁木齐至库尔勒C802次、C806次、C810次、C814次、C818次，乌鲁木齐南至库尔勒C872次，乌鲁木齐至和田T9526次、K9718次旅客列车停运。
-
-5月13日，乌鲁木齐至和田T9526次旅客列车停运。
-
-铁路部门表示：将密切关注天气变化情况，一旦天气好转，将及时恢复列车开行。
-
-已购买停运列车车票的旅客，在收到短信后，可自车票发站乘车日期起30日内(含当日)，通过12306网站(12306手机App)或火车站窗口办理全额退款；联程车票请在开车前与停运列车车票一并办理退票，不收退票费。
-
-具体列车开行信息以12306网站(12306手机App)、车站公告为准。
-
-(央视新闻客户端 总台记者 崔宁 )
+普希林称，袭击发生在顿涅茨克地区叶纳基耶沃，伤者已被送医救治。
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:24 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 19:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 19:27 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 19:32 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 19:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 19:32 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 19:33 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 19:14 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 19:15 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 19:25 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 19:37 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 19:39 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 19:15 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 19:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 19:19 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 19:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 19:18 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 19:30 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 19:36 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 19:46 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 19:22 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 19:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 19:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 19:21 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 19:47 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:16 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/037184620321.shtml)
-- 2026-06-29 19:13 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/56441338957.shtml)
-- 2026-06-29 19:18 - [《贺子珍》](https://www.blog.minike.top/Article/details/216935304289.shtml)
-- 2026-06-29 19:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/3856594.shtml)
-- 2026-06-29 19:41 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/191393.shtml)
-- 2026-06-29 19:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/6156007.shtml)
-- 2026-06-29 19:24 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/446302973818.shtml)
-- 2026-06-29 19:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/9849982.shtml)
-- 2026-06-29 19:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/4047618.shtml)
-- 2026-06-29 19:27 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/96204427.shtml)
-- 2026-06-29 19:21 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/1494025.shtml)
-- 2026-06-29 19:23 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/748789.shtml)
-- 2026-06-29 19:38 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/373163.shtml)
-- 2026-06-29 19:35 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/212623878110.shtml)
-- 2026-06-29 19:32 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/102493448.shtml)
+- 2026-06-29 19:32 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/311448824.shtml)
+- 2026-06-29 19:43 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/93478.shtml)
+- 2026-06-29 19:35 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/639913.shtml)
+- 2026-06-29 19:43 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/02073885.shtml)
+- 2026-06-29 19:28 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/33763.shtml)
+- 2026-06-29 19:31 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/478731.shtml)
+- 2026-06-29 19:43 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/828497912996.shtml)
+- 2026-06-29 19:27 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/793861023276.shtml)
+- 2026-06-29 19:21 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/455950.shtml)
+- 2026-06-29 19:21 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/5706765.shtml)
+- 2026-06-29 19:21 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/28424530.shtml)
+- 2026-06-29 19:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/77878479.shtml)
+- 2026-06-29 19:39 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/546423.shtml)
+- 2026-06-29 19:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/191437903.shtml)
+- 2026-06-29 19:37 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/97102261.shtml)

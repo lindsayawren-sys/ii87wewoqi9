@@ -1,45 +1,57 @@
-# 美国总统特朗普抵达北京开始访华
+# 国家广电总局开展微短剧有害低俗内容和侵权盗版专项治理
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-新华社快讯：应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。
+6月1日，国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理。本次专项治理为期2个月，将依法依规集中治理部分微短剧存在的涉儿童有害、软色情擦边、拜金炫富、畸形婚恋观、封建糟粕、暴力复仇、低俗片名、侵权盗版等8个重点问题，规范微短剧创作传播行为，进一步营造清朗健康的行业发展生态。 广电总局有关负责人表示，本次专项治理对于营造微短剧行业良好内容生态具有重要意义。各省级广电
 
 ## 正文
 
-新华社快讯：应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。
+6月1日，国家广播电视总局部署开展微短剧有害低俗内容和侵权盗版专项治理。
+
+本次专项治理为期2个月，将依法依规集中治理部分微短剧存在的涉儿童有害、软色情擦边、拜金炫富、畸形婚恋观、封建糟粕、暴力复仇、低俗片名、侵权盗版等8个重点问题，规范微短剧创作传播行为，进一步营造清朗健康的行业发展生态。
+
+广电总局有关负责人表示，本次专项治理对于营造微短剧行业良好内容生态具有重要意义。
+
+各省级广电行政主管部门要切实履行属地管理责任，建立巡查与抽查机制，对辖区内平台和制作机构实行全周期、动态化监管；相关平台和制作机构要认真落实主体责任，积极主动开展全面排查，对发现的问题内容即查即改、处置到位。
+
+在扎实开展专项治理的同时，深入实施“微短剧精品创作传播‘五个一批工程’”，着力提升微短剧创作质量。
+
+专项治理结束后，广电总局将及时总结经验，开展常态化监测监管，制定完善法规制度，进一步营造良好网络视听环境。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 19:16 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 19:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 19:34 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 19:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 19:32 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 19:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 19:14 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 19:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 19:28 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 19:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 19:37 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 19:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 19:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 19:24 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:34 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 19:22 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 19:20 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 19:20 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 19:27 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 19:41 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 19:47 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 19:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 19:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 19:31 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 19:39 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 19:18 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 19:33 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/2573610983.shtml)
-- 2026-06-29 19:23 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/8829348659.shtml)
-- 2026-06-29 19:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/049294.shtml)
-- 2026-06-29 19:21 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/4221324.shtml)
-- 2026-06-29 19:13 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/6049702.shtml)
-- 2026-06-29 19:13 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/93501988845.shtml)
-- 2026-06-29 19:32 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/6444512373.shtml)
-- 2026-06-29 19:13 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/22441629780.shtml)
-- 2026-06-29 19:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/85983.shtml)
-- 2026-06-29 19:26 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/362601030387.shtml)
-- 2026-06-29 19:26 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/01859266.shtml)
-- 2026-06-29 19:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/252711319.shtml)
-- 2026-06-29 19:18 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/196590819215.shtml)
-- 2026-06-29 19:29 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/877282.shtml)
-- 2026-06-29 19:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/4175978.shtml)
+- 2026-06-29 19:19 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/4992225435.shtml)
+- 2026-06-29 19:45 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/69496.shtml)
+- 2026-06-29 19:31 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/625449.shtml)
+- 2026-06-29 19:30 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/08070200.shtml)
+- 2026-06-29 19:25 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/56926424034.shtml)
+- 2026-06-29 19:23 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/974580906.shtml)
+- 2026-06-29 19:38 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/211714723.shtml)
+- 2026-06-29 19:21 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/9991342.shtml)
+- 2026-06-29 19:34 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.minike.top/Article/details/95108.shtml)
+- 2026-06-29 19:28 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/267557.shtml)
+- 2026-06-29 19:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/941200387873.shtml)
+- 2026-06-29 19:35 - [小娘惹](http://www.share.kurohicncr.top/Article/details/15703067312.shtml)
+- 2026-06-29 19:43 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/22130.shtml)
+- 2026-06-29 19:47 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/383082443141.shtml)
+- 2026-06-29 19:26 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/10110524.shtml)

@@ -1,56 +1,57 @@
-# 英特尔、高通、AMD股价今日为何下跌？
+# “AI巨头”突发警告！全球芯片集体下挫，规模最大港股通信息技术ETF华宝（159131）跌逾2%
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-在AI和代工业务乐观情绪推动大幅上涨之后，主要半导体公司股价周二大幅回落，投资者正锁定收益。 市场表现 英特尔股价收跌6.82%，此前该股截至周一收盘在过去一个月内已上涨逾一倍。高通下跌超11%，AMD下跌约2.3%。三家公司昨日均创下历史新高。 此番回调之前，半导体板块经历了一轮强劲上涨，iShares半导体ETF今年已上涨77%，投资者大举涌入被视为AI热潮受益者的公司。市
+6月5日早盘，港股芯片半导体板块领跌，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格现跌2.18%，实时成交额5.61亿元。 消息面上，韩国芯片巨头遭遇猛烈抛售，SK海力士暴跌超9%，三星电子大跌超7%，隔夜美股芯片板块亦集体重挫，博通暴跌超12%。据悉，美国AI巨头Anthropic突然发出警告称，AI系统正以如此迅猛的速度进步，以至于它们可能很
 
 ## 正文
 
-在AI和代工业务乐观情绪推动大幅上涨之后，主要半导体公司股价周二大幅回落，投资者正锁定收益。
+6月5日早盘，港股芯片半导体板块领跌，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格现跌2.18%，实时成交额5.61亿元。
 
-市场表现 英特尔股价收跌6.82%，此前该股截至周一收盘在过去一个月内已上涨逾一倍。
+消息面上，韩国芯片巨头遭遇猛烈抛售，SK海力士暴跌超9%，三星电子大跌超7%，隔夜美股芯片板块亦集体重挫，博通暴跌超12%。
 
-高通下跌超11%，AMD下跌约2.3%。
+据悉，美国AI巨头Anthropic突然发出警告称，AI系统正以如此迅猛的速度进步，以至于它们可能很快能够在无需人工干预的情况下自我改进，从而对社会构成重大风险。
 
-三家公司昨日均创下历史新高。
+该公司呼吁全球顶级AI实验室考虑放缓开发步伐。
 
-此番回调之前，半导体板块经历了一轮强劲上涨，iShares半导体ETF今年已上涨77%，投资者大举涌入被视为AI热潮受益者的公司。
+世界半导体贸易统计组织（WSTS）于6月2日发布《WSTS半导体市场预测报告》。
 
-市场人士认为，投资者正从本轮上涨中获利了结。
+该报告大幅上调了全球半导体市场展望：预计2026年全球半导体市场规模同比暴增近90%，达到1.511万亿美元，创历史最大年度增幅；2027年进一步增长26.6%，升至1.914万亿美元。
 
-德意志银行分析师Ross Seymore指出：“尽管当前市场似乎更看重方向性动能而非终点估值，且代工业务动能已有所改善，但我们认为潜在利好已在英特尔当前股价中得到充分反映。
+金融街证券指出，从深层逻辑看，当前半导体板块的上涨有三大支撑。
 
-” 部分分析师也指出，传统计算市场需求出现疲软迹象。
+第一，AI资本开支驱动的新一轮半导体超级周期已确立。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 19:35 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 19:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 19:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 19:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 19:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 19:32 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 19:41 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 19:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 19:26 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 19:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 19:32 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 19:39 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 19:20 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 19:42 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 19:43 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 19:38 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 19:33 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 19:46 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 19:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 19:25 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/9575054.shtml)
-- 2026-06-29 19:29 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/595513.shtml)
-- 2026-06-29 19:28 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/0935305.shtml)
-- 2026-06-29 19:24 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/881198787.shtml)
-- 2026-06-29 19:23 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/106405603408.shtml)
-- 2026-06-29 19:35 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/1462715.shtml)
-- 2026-06-29 19:39 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/155895.shtml)
-- 2026-06-29 19:37 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/98626832899.shtml)
-- 2026-06-29 19:20 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/6624073.shtml)
-- 2026-06-29 19:31 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/1342378119.shtml)
-- 2026-06-29 19:27 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/4179587452.shtml)
-- 2026-06-29 19:32 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/2145253828.shtml)
-- 2026-06-29 19:35 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/46058588447.shtml)
-- 2026-06-29 19:35 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/4582487.shtml)
-- 2026-06-29 19:19 - [老板回应员工光脚清洗土豆](http://www.share.kurohicncr.top/Article/details/75864.shtml)
+- 2026-06-29 19:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/501756541.shtml)
+- 2026-06-29 19:32 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/70146869.shtml)
+- 2026-06-29 19:32 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/1219202488.shtml)
+- 2026-06-29 19:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/18342205.shtml)
+- 2026-06-29 19:27 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/17849732.shtml)
+- 2026-06-29 19:37 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/98570136300.shtml)
+- 2026-06-29 19:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/438355056438.shtml)
+- 2026-06-29 19:21 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/473442.shtml)
+- 2026-06-29 19:24 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/27301459.shtml)
+- 2026-06-29 19:34 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/182292.shtml)
+- 2026-06-29 19:27 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/1621329.shtml)
+- 2026-06-29 19:44 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/93022.shtml)
+- 2026-06-29 19:20 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.minike.top/Article/details/363469.shtml)
+- 2026-06-29 19:18 - [逃狱兄弟](http://www.blog.minike.top/Article/details/3814950.shtml)
+- 2026-06-29 19:44 - [TOP Prada](https://www.share.minike.top/Article/details/7802227.shtml)

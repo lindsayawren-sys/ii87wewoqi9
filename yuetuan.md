@@ -1,61 +1,54 @@
-# DNV预测：到2060年清洁氢能将增长100倍
+# 华润万象生活早盘涨逾4% 大摩给予目标价55.47港元
 
-> 更新时间：2026-06-29 19:42:02 UTC+8
+> 更新时间：2026-06-29 19:48:02 UTC+8
 
 ## 摘要
 
-根据船级社DNV的最新预测，受能源安全关切及中国大规模扩张的推动，到2060年清洁氢能产量预计将增长100倍。 在其最新报告《能源转型展望2026：氢能展望至2060年》中，DNV表示，在3.2万亿美元的累计投资支持下，到2060年全球氢能总量预计将增长170%。 报告称，得益于其占主导地位的电解槽制造基地和不断扩大的可再生能源装机容量，预计在此期间中国将占全球新增氢能产量和需
+华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。 大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。评级增持，目标价55.47港元。 该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱
 
 ## 正文
 
-根据船级社DNV的最新预测，受能源安全关切及中国大规模扩张的推动，到2060年清洁氢能产量预计将增长100倍。
+华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。
 
-在其最新报告《能源转型展望2026：氢能展望至2060年》中，DNV表示，在3.2万亿美元的累计投资支持下，到2060年全球氢能总量预计将增长170%。
+大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。
 
-报告称，得益于其占主导地位的电解槽制造基地和不断扩大的可再生能源装机容量，预计在此期间中国将占全球新增氢能产量和需求增长的35%。
+主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。
 
-报告指出，清洁氢能的需求预计将主要由钢铁制造、航空和航运行业引领，到2060年，这三个行业合计预计将占清洁氢能总使用量的一半以上。
+评级增持，目标价55.47港元。
 
-DNV表示，由于政策支持放缓以及电气化技术取得更大进展，与2022年的展望相比，其对本世纪中叶的氢能预测已下调了35%。
+该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱。
 
-DNV能源系统首席执行官迪特列夫·恩格尔表示：“氢能行业有望实现增长，但这种态势仍很脆弱。
+该行认为公司相对具免疫力，因过去几年已大幅提升在中低端消费以及二线及顶级三线城市的曝光度，预计仍能达到指引的高单位数同店销售增长，估计5月为中单位数，相比首四个月的约10%同比增长，并实现今年介乎约11%至14%的每股盈利增长，主要受惠于持续的市场份额提升、新商场开业，以及营运杠杆带来的利润率扩张。
 
-氢能可以完成许多国家已承诺的脱碳努力中最困难的方面。
-
-通过推动关键领域摆脱对化石燃料的依赖，氢能也为能源安全做出了有意义的贡献。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 19:24 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 19:12 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 19:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 19:22 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 19:38 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 19:12 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 19:30 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 19:16 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 19:36 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 19:12 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 19:39 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 19:21 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 19:35 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 19:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 19:29 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 19:27 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 19:34 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 19:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 19:32 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 19:40 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 19:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 19:33 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 19:35 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 19:30 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/128988601.shtml)
-- 2026-06-29 19:29 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/798126.shtml)
-- 2026-06-29 19:29 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/33297091641.shtml)
-- 2026-06-29 19:18 - [人形机器人](http://www.blog.minike.top/Article/details/43317.shtml)
-- 2026-06-29 19:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/46312976.shtml)
-- 2026-06-29 19:22 - [逃狱兄弟](http://www.blog.minike.top/Article/details/54423737287.shtml)
-- 2026-06-29 19:15 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/14203506070.shtml)
-- 2026-06-29 19:27 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/995082525.shtml)
-- 2026-06-29 19:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/844558026534.shtml)
-- 2026-06-29 19:13 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/3225704.shtml)
-- 2026-06-29 19:14 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/119207072.shtml)
-- 2026-06-29 19:30 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/05575.shtml)
-- 2026-06-29 19:12 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/8592710.shtml)
-- 2026-06-29 19:20 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/777217835378.shtml)
-- 2026-06-29 19:35 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/3169295.shtml)
+- 2026-06-29 19:23 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/246538873012.shtml)
+- 2026-06-29 19:35 - [金刚川](http://www.blog.kurohicncr.top/Article/details/396462036569.shtml)
+- 2026-06-29 19:21 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/42433.shtml)
+- 2026-06-29 19:19 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/51651133025.shtml)
+- 2026-06-29 19:36 - [啊啊啊](https://www.share.minike.top/Article/details/15098907.shtml)
+- 2026-06-29 19:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/97522275406.shtml)
+- 2026-06-29 19:43 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/295766.shtml)
+- 2026-06-29 19:23 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/63138145462.shtml)
+- 2026-06-29 19:43 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/28290092010.shtml)
+- 2026-06-29 19:47 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/0093182876.shtml)
+- 2026-06-29 19:21 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/321172150889.shtml)
+- 2026-06-29 19:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/105061234.shtml)
+- 2026-06-29 19:29 - [周生如故](http://www.blog.kurohicncr.top/Article/details/5162997486.shtml)
+- 2026-06-29 19:27 - [明星大侦探第四季](http://www.share.minike.top/Article/details/968478625132.shtml)
+- 2026-06-29 19:21 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/22898.shtml)
