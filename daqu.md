@@ -1,50 +1,57 @@
-# 银行营业网点校招“限高”？云南农信社回应：岗位要求
+# 高盛：百度集团-SWAI云业务持续强劲 料AI业务年底占比过半
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，近日，云南省农村信用社发布了2026年校园招聘公告，其中，有银行对营业网点员工的招聘要求为全日制硕士研究生及以上学历，同时，男性身高185cm及以上、女性身高175cm及以上，还须持有国家二级及以上运动员证。 来源：云南省农村信用社2026年校园招聘岗位一览表 针对上述问题，金融一线拨打了该农信社披露的相关招聘电话，一名工作人员表示：“不同岗位招聘的人员
+高盛发布研报称，百度集团-SW（09888）今年首季业绩显示云业务收入加速增长，尤其是GPU-based云服务。该行预期，百度人工智能驱动的业务将同比增长超过30%，主要受惠于人工智能云基础设施的稳固增长（同比约50%以上）。该行预计，到2026年底，人工智能驱动业务的贡献将超越传统/其他业务。 管理层在分析师会议上透露，百度目标是在未来数季，云业务增长速度超越市场及主要同业。
 
 ## 正文
 
-4月10日金融一线消息，近日，云南省农村信用社发布了2026年校园招聘公告，其中，有银行对营业网点员工的招聘要求为全日制硕士研究生及以上学历，同时，男性身高185cm及以上、女性身高175cm及以上，还须持有国家二级及以上运动员证。
+高盛发布研报称，百度集团-SW（09888）今年首季业绩显示云业务收入加速增长，尤其是GPU-based云服务。
 
-来源：云南省农村信用社2026年校园招聘岗位一览表 针对上述问题，金融一线拨打了该农信社披露的相关招聘电话，一名工作人员表示：“不同岗位招聘的人员类型有所不同，我们本次招聘的岗位较多，每一个岗位的要求不同，得看您是否符合相关要求，比如，有的要求运动员证，肯定只针对运动员，因此，您只能报名符合相关要求的岗位。
+该行预期，百度人工智能驱动的业务将同比增长超过30%，主要受惠于人工智能云基础设施的稳固增长（同比约50%以上）。
 
-学历也是如此，有的要求本科，有的则要求研究生。
+该行预计，到2026年底，人工智能驱动业务的贡献将超越传统/其他业务。
 
-” 值得一提的是，“银行网点招人要求男185cm女175cm”相关话题已登上微博热搜，引发广大网友热议。
+管理层在分析师会议上透露，百度目标是在未来数季，云业务增长速度超越市场及主要同业。
 
-责任编辑：潘翘楚
+公司观察到，token使用量正从训练转向推理，这有助百度云扩大客户覆盖范围。
+
+该行引述管理层指，Ernie模型目前能力落后，未来研发将聚焦于重振模型能力，优先发展Ernie以推动MaaS（模型即服务）收入。
+
+高盛预期，中期GPU云业务的毛利率目标为35%至40%，而传统CPU及内存服务毛利率为25%至30%。
+
+管理层旨在让人工智能驱动业务占总收入超过50%，并通过核心云/芯片收入快速增长，来减少控股公司折让。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 19:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 19:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 19:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 19:26 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 19:17 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 19:00 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 19:11 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 19:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 19:27 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 19:17 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 19:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 19:10 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 19:27 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 19:15 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 19:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 19:10 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 19:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 19:24 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 19:13 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 19:17 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/047746617303.shtml)
-- 2026-06-29 19:24 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/89087.shtml)
-- 2026-06-29 19:26 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/218621.shtml)
-- 2026-06-29 19:29 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/641269.shtml)
-- 2026-06-29 19:23 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/945727460066.shtml)
-- 2026-06-29 19:13 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/68148001148.shtml)
-- 2026-06-29 19:18 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/87260.shtml)
-- 2026-06-29 19:16 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/39605.shtml)
-- 2026-06-29 19:10 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/812779.shtml)
-- 2026-06-29 19:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/715670.shtml)
-- 2026-06-29 19:23 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/499407547107.shtml)
-- 2026-06-29 19:27 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/416855142074.shtml)
-- 2026-06-29 19:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/3903362248.shtml)
-- 2026-06-29 19:02 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/1195382.shtml)
-- 2026-06-29 19:17 - [《贺子珍》](http://www.blog.minike.top/Article/details/392666374.shtml)
+- 2026-06-29 19:34 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/8310953134.shtml)
+- 2026-06-29 19:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/124763409810.shtml)
+- 2026-06-29 19:07 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/857736964858.shtml)
+- 2026-06-29 19:11 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/2988473857.shtml)
+- 2026-06-29 19:17 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/08625.shtml)
+- 2026-06-29 19:20 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/0590761.shtml)
+- 2026-06-29 19:18 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/307830839.shtml)
+- 2026-06-29 19:17 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/467140.shtml)
+- 2026-06-29 19:16 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/68427141829.shtml)
+- 2026-06-29 19:35 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/1876290.shtml)
+- 2026-06-29 19:14 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/846839.shtml)
+- 2026-06-29 19:07 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/137615.shtml)
+- 2026-06-29 19:13 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/18163224.shtml)
+- 2026-06-29 19:15 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/51334739162.shtml)
+- 2026-06-29 19:28 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/3360403.shtml)

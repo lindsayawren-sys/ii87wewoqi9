@@ -1,60 +1,59 @@
-# 从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景
+# 整治“泡药杨梅”重在从根子上发力
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网齐齐哈尔4月11日电 题：从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景 作者 刘锡菊 张也 曾雪 春耕时节，莽格吐乡莽格吐村的田间地头热闹起来。种植大户徐星冬蹲在自家大棚里，手指轻轻拨开覆膜，看着新移栽的豆角秧苗在泥土里扎下根。“以前种地全凭感觉，哪块地肥、哪种作物值钱，就一窝蜂往上种。等到秋收才发现，种得好不如卖得好。”徐星冬站起身，拍了拍手上的土
+一个让消费者疑虑重重的行业，注定走不长远。眼下，只有痛定思痛，针对“泡药杨梅”病灶靶向施策，才可能挽回公众信任。 近期，媒体反映福建省漳州市部分杨梅收购点存在违规使用添加剂浸泡杨梅的问题，一时间舆论哗然。5月20日，当地食安委办公室发布情况通报，已追回问题杨梅540公斤，查扣违规添加剂20.1公斤，行政立案12起，刑事立案2起、刑事拘留5人。自15日起，漳州市组织开展为期45天
 
 ## 正文
 
-中新网齐齐哈尔4月11日电 题：从“碰运气”到“有底气” 莽格吐乡“订单+复种”绘出产业振兴新图景 作者 刘锡菊 张也 曾雪 春耕时节，莽格吐乡莽格吐村的田间地头热闹起来。
+一个让消费者疑虑重重的行业，注定走不长远。
 
-种植大户徐星冬蹲在自家大棚里，手指轻轻拨开覆膜，看着新移栽的豆角秧苗在泥土里扎下根。
+眼下，只有痛定思痛，针对“泡药杨梅”病灶靶向施策，才可能挽回公众信任。
 
-“以前种地全凭感觉，哪块地肥、哪种作物值钱，就一窝蜂往上种。
+近期，媒体反映福建省漳州市部分杨梅收购点存在违规使用添加剂浸泡杨梅的问题，一时间舆论哗然。
 
-等到秋收才发现，种得好不如卖得好。
+5月20日，当地食安委办公室发布情况通报，已追回问题杨梅540公斤，查扣违规添加剂20.1公斤，行政立案12起，刑事立案2起、刑事拘留5人。
 
-”徐星冬站起身，拍了拍手上的土，“今年不一样了，订单拿到手，种什么都心里有底。
+自15日起，漳州市组织开展为期45天的专项整治行动，时间段覆盖杨梅采摘上市全周期(据5月21日新华社)。
 
-” 订单在手，种地从“碰运气”变“有底气”。
+杨梅上市季，本是广大果农盼望的丰收季，却因个别收购点的“泡药杨梅”，硬生生让消费者对整个行业起了疑心。
 
-徐星冬的底气，来自梅里斯达斡尔族区莽格吐乡党委、政府主动扛起“搭桥人”的职责。
+而这种信任危机，很可能让很多果农一年的心血付诸东流。
 
-该乡立足黑土地资源禀赋，精准对接黑龙江中蓝食品有限公司与辖区种植大户，建立“企业下单、农户种植、定向收购”的闭环模式。
+事实也证明，“泡药杨梅”曝光后，市场销量一落千丈。
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 19:21 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 19:06 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 19:07 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 19:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 19:18 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 19:00 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 19:03 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-29 19:00 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 19:10 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 19:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 19:21 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 19:14 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 19:00 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 19:17 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 19:21 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 19:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 19:15 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 19:11 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 19:12 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 19:28 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 19:35 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 19:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 19:24 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 19:29 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 19:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 19:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/383977.shtml)
-- 2026-06-29 19:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/380712.shtml)
-- 2026-06-29 19:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/47709.shtml)
-- 2026-06-29 19:02 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/5720925.shtml)
-- 2026-06-29 19:23 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/5964459.shtml)
-- 2026-06-29 19:01 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/6283830.shtml)
-- 2026-06-29 19:03 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/51265494527.shtml)
-- 2026-06-29 19:10 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/958280952.shtml)
-- 2026-06-29 19:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/329854.shtml)
-- 2026-06-29 19:13 - [起风了](http://www.blog.kurohicncr.top/Article/details/993236079.shtml)
-- 2026-06-29 19:24 - [斛珠夫人](http://www.share.minike.top/Article/details/008366695.shtml)
-- 2026-06-29 19:24 - [当我回母校教书](https://www.blog.minike.top/Article/details/146901.shtml)
-- 2026-06-29 19:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/770403673.shtml)
-- 2026-06-29 19:26 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/8842588.shtml)
-- 2026-06-29 19:13 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/22630.shtml)
+- 2026-06-29 19:23 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/4583687271.shtml)
+- 2026-06-29 19:11 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/7237189078.shtml)
+- 2026-06-29 19:30 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/6449474830.shtml)
+- 2026-06-29 19:31 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/33989368342.shtml)
+- 2026-06-29 19:06 - [河南四位大妈景区跳舞爆火](http://www.blog.kurohicncr.top/Article/details/293314235.shtml)
+- 2026-06-29 19:20 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/797134826.shtml)
+- 2026-06-29 19:28 - [北京发布地质灾害气象风险蓝色预警](http://www.blog.minike.top/Article/details/96133075.shtml)
+- 2026-06-29 19:19 - [急先锋](http://www.blog.kurohicncr.top/Article/details/43923653.shtml)
+- 2026-06-29 19:06 - [绘画区你赢了](http://www.blog.minike.top/Article/details/31597031242.shtml)
+- 2026-06-29 19:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/02930.shtml)
+- 2026-06-29 19:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/0927407.shtml)
+- 2026-06-29 19:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/129166005640.shtml)
+- 2026-06-29 19:27 - [起风了](http://www.blog.minike.top/Article/details/730102321001.shtml)
+- 2026-06-29 19:25 - [急先锋](https://www.share.kurohicncr.top/Article/details/598699.shtml)
+- 2026-06-29 19:17 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/1839450471.shtml)

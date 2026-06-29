@@ -1,51 +1,54 @@
-# 伊朗议长带遇难儿童照片赴伊斯兰堡与美谈判 称“他们与我同行”
+# 中新健康|小满养生：清湿养心，调志安夏
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网4月11日电 据《联合早报》11日报道，伊朗伊斯兰议会议长卡利巴夫飞往巴基斯坦首都伊斯兰堡时，在飞机上摆放四名在美国袭击中遇难儿童的照片。卡利巴夫说，他们是“我的飞行同伴”。 报道称，卡利巴夫在社媒平台X发布的一张照片显示，他在四个飞机座位上摆放了四名在美国2月28日空袭伊朗首日遇难儿童的照片，座位上还放着他们的书包，每个书包旁边放着一枝鲜花。 卡利巴夫为照片配文“我的飞
+发布时间：2026年05月21日 19:28 来源：中国新闻网 小满养生重在清湿养心、调和情志。此时湿热偏重，易心绪烦闷、身体不适。饮食清淡多食莲子、薏米、冬瓜清心祛湿，忌生冷厚味。作息晚睡早起，午时小憩养心安神。日常宜散步、八段锦等舒缓运动，切忌大汗耗气。放平心态戒躁息怒，顺应天时适度调养，安稳度夏。(张静） 责任编辑：【程春雨】
 
 ## 正文
 
-中新网4月11日电 据《联合早报》11日报道，伊朗伊斯兰议会议长卡利巴夫飞往巴基斯坦首都伊斯兰堡时，在飞机上摆放四名在美国袭击中遇难儿童的照片。
+发布时间：2026年05月21日 19:28 来源：中国新闻网 小满养生重在清湿养心、调和情志。
 
-卡利巴夫说，他们是“我的飞行同伴”。
+此时湿热偏重，易心绪烦闷、身体不适。
 
-报道称，卡利巴夫在社媒平台X发布的一张照片显示，他在四个飞机座位上摆放了四名在美国2月28日空袭伊朗首日遇难儿童的照片，座位上还放着他们的书包，每个书包旁边放着一枝鲜花。
+饮食清淡多食莲子、薏米、冬瓜清心祛湿，忌生冷厚味。
 
-卡利巴夫为照片配文“我的飞行同伴们”“Minab168”，意指伊朗米纳卜小学遭袭遇难的168名儿童。
+作息晚睡早起，午时小憩养心安神。
+
+日常宜散步、八段锦等舒缓运动，切忌大汗耗气。
+
+放平心态戒躁息怒，顺应天时适度调养，安稳度夏。
+
+(张静） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 19:07 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 19:27 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 19:19 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 19:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 19:16 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 19:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 19:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 19:15 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 19:18 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 19:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 19:25 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 19:14 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 19:22 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 19:35 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 19:25 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 19:31 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 19:06 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 19:06 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 19:11 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 19:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 19:15 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 19:18 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/751677.shtml)
-- 2026-06-29 19:27 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/74016041.shtml)
-- 2026-06-29 19:00 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/1591957.shtml)
-- 2026-06-29 19:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/92816.shtml)
-- 2026-06-29 19:13 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/77603313.shtml)
-- 2026-06-29 19:12 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/7064350.shtml)
-- 2026-06-29 19:08 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/246802690.shtml)
-- 2026-06-29 19:11 - [T1零封KC MSI](http://www.share.minike.top/Article/details/036953584074.shtml)
-- 2026-06-29 19:01 - [时光音乐会](http://www.share.minike.top/Article/details/93476449246.shtml)
-- 2026-06-29 19:20 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/23244.shtml)
-- 2026-06-29 19:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/4481310866.shtml)
-- 2026-06-29 19:09 - [流金岁月](https://www.share.minike.top/Article/details/00976.shtml)
-- 2026-06-29 19:15 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/826209085548.shtml)
-- 2026-06-29 19:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/57544097.shtml)
-- 2026-06-29 19:16 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/848799.shtml)
+- 2026-06-29 19:26 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/3053394.shtml)
+- 2026-06-29 19:19 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/06610319.shtml)
+- 2026-06-29 19:14 - [千与千寻](http://www.blog.minike.top/Article/details/5365959.shtml)
+- 2026-06-29 19:35 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/979031516.shtml)
+- 2026-06-29 19:08 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/07938789729.shtml)
+- 2026-06-29 19:13 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/7565173993.shtml)
+- 2026-06-29 19:23 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/34582.shtml)
+- 2026-06-29 19:08 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/21707217.shtml)
+- 2026-06-29 19:11 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/172705.shtml)
+- 2026-06-29 19:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/77904.shtml)
+- 2026-06-29 19:17 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/6334095.shtml)
+- 2026-06-29 19:32 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/330395542.shtml)
+- 2026-06-29 19:26 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/7724821.shtml)
+- 2026-06-29 19:29 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/67661.shtml)
+- 2026-06-29 19:19 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/66653.shtml)

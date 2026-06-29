@@ -1,57 +1,58 @@
-# “不设限”的吴艳妮：一步一栏，跑出自己的新篇章
+# 欧洲债市：美伊谈判前景推动欧债上涨
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网绍兴4月9日电 题：“不设限”的吴艳妮：一步一栏，跑出自己的新篇章 作者 张煜欢 “我今年不想为自己设限，让自己尽力去跑，能跑多快就跑多快。”4月9日，中国女子跨栏名将吴艳妮在接受采访时说道。 当日，2026长三角国际田径钻石赛(上海/绍兴柯桥)启动仪式暨新闻发布会在浙江绍兴柯桥举行，吴艳妮与浙江籍选手奚枭横现场亮相。作为此次赛事上备受关注的中国选手，吴艳妮坦言，“能站在
+对美伊谈判前景的乐观情绪推动欧洲债券上涨，德国10年期国债收益率跌至近两周低点。此前有迹象显示，美伊双方可能接近达成和平协议。 巴基斯坦方面表示，作为华盛顿与德黑兰之间的中间人，该国陆军参谋长正启程前往伊朗，此举预示着旨在结束战争的谈判取得进展。 与此同时，美国国务卿鲁比奥也表示，相关谈判取得“些许进展”。 德国10年期国债收益率一度下跌8个基点至3.02%，创5月11日以来的
 
 ## 正文
 
-中新网绍兴4月9日电 题：“不设限”的吴艳妮：一步一栏，跑出自己的新篇章 作者 张煜欢 “我今年不想为自己设限，让自己尽力去跑，能跑多快就跑多快。
+对美伊谈判前景的乐观情绪推动欧洲债券上涨，德国10年期国债收益率跌至近两周低点。
 
-”4月9日，中国女子跨栏名将吴艳妮在接受采访时说道。
+此前有迹象显示，美伊双方可能接近达成和平协议。
 
-当日，2026长三角国际田径钻石赛(上海/绍兴柯桥)启动仪式暨新闻发布会在浙江绍兴柯桥举行，吴艳妮与浙江籍选手奚枭横现场亮相。
+巴基斯坦方面表示，作为华盛顿与德黑兰之间的中间人，该国陆军参谋长正启程前往伊朗，此举预示着旨在结束战争的谈判取得进展。
 
-作为此次赛事上备受关注的中国选手，吴艳妮坦言，“能站在钻石联赛这样的顶级赛事舞台上，我觉得作为运动员就足够了。
+与此同时，美国国务卿鲁比奥也表示，相关谈判取得“些许进展”。
 
-” 回望2025年，于吴艳妮而言，是收获与遗憾并存的一年。
+德国10年期国债收益率一度下跌8个基点至3.02%，创5月11日以来的最低水平；2年期国债收益率一度下跌8个基点至2.61%。
 
-去年初，吴艳妮在2025南京世界田联室内锦标赛中，以8秒01的成绩打破尘封11年的女子室内60米栏全国纪录。
+货币市场削减了对欧洲央行今年加息幅度的押注，预测年底前加息65个基点，较周四收盘时的预期下调了3个基点。
 
-随后，她在2025年全国田径锦标赛中，以13秒15的成绩获得女子100米栏冠军。
+交易员仍预测6月加息的概率很高。
 
-之后，她在2025年全国田径冠军赛暨全国田径大奖赛总决赛中，以12秒90的成绩夺得女子100米栏冠军。
+英国长期国债收益率有望创下两年多来的最大单周跌幅。
 
 ## 相关推荐
 
-- 2026-06-29 19:04 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 19:11 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 19:09 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 19:22 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 19:25 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 19:27 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 19:10 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 19:15 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 19:07 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 19:02 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 19:22 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 19:21 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 19:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 19:25 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 19:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 19:23 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 19:29 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 19:24 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 19:17 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 19:32 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 19:12 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 19:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-29 19:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/72914.shtml)
-- 2026-06-29 19:09 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/25702663.shtml)
-- 2026-06-29 19:09 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/38145556945.shtml)
-- 2026-06-29 19:28 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/01119047.shtml)
-- 2026-06-29 19:18 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/6928998.shtml)
-- 2026-06-29 19:23 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/924000277.shtml)
-- 2026-06-29 19:16 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/6321604.shtml)
-- 2026-06-29 19:25 - [送你一朵小红花](https://www.blog.minike.top/Article/details/537822437078.shtml)
-- 2026-06-29 19:19 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/102630590.shtml)
-- 2026-06-29 19:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/992132132.shtml)
-- 2026-06-29 19:19 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/58489251.shtml)
-- 2026-06-29 19:22 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/14578101482.shtml)
-- 2026-06-29 19:00 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/051336829.shtml)
-- 2026-06-29 19:09 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/761592847945.shtml)
-- 2026-06-29 19:13 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/1000713.shtml)
+- 2026-06-29 19:29 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/936281639909.shtml)
+- 2026-06-29 19:27 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/552464821069.shtml)
+- 2026-06-29 19:32 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/8138482647.shtml)
+- 2026-06-29 19:14 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/599340.shtml)
+- 2026-06-29 19:34 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/4581468.shtml)
+- 2026-06-29 19:22 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/9602396.shtml)
+- 2026-06-29 19:25 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/1715526.shtml)
+- 2026-06-29 19:17 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/65448.shtml)
+- 2026-06-29 19:27 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/04581.shtml)
+- 2026-06-29 19:18 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/58626849563.shtml)
+- 2026-06-29 19:21 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/96155.shtml)
+- 2026-06-29 19:36 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/91684724.shtml)
+- 2026-06-29 19:27 - [韩国小学生都来吐槽了](http://www.blog.kurohicncr.top/Article/details/40722.shtml)
+- 2026-06-29 19:24 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/639265.shtml)
+- 2026-06-29 19:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/8523883739.shtml)

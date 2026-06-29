@@ -1,58 +1,60 @@
-# 赛力斯总裁何利扬：问界汽车用户大多都会使用辅助驾驶功能
+# 中央音乐学院援助青海化隆六载：让乡村学子的未来有更多可能
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 赛力斯汽车总裁何利扬认为，在汽车产业发展过程中，客观来讲技术迭代速度非常之快，如何不断采用新技术，同时满足老用户的需求，如何把握快速迭代与质量品质的平衡、兼顾用户感受，这始终是一个重要课题。
+中新网青海化隆5月22日电 题：中央音乐学院援助青海化隆六载：让乡村学子的未来有更多可能 作者 李隽 小满时节，碧玺般的黄河岸畔乐曲悠扬。 “弓子拉稳，保持气息，要跟着心里的旋律往前走！”5月21日上午，中央音乐学院派驻青海省海东市化隆回族自治县的新时代文艺宣讲师李沛泽，仔细纠正着几位学员的姿势。 工作之余，李沛泽还组建了化隆县第一支民乐团，让热爱音乐的退休干部、农民、工人从最
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网青海化隆5月22日电 题：中央音乐学院援助青海化隆六载：让乡村学子的未来有更多可能 作者 李隽 小满时节，碧玺般的黄河岸畔乐曲悠扬。
 
-赛力斯汽车总裁何利扬认为，在汽车产业发展过程中，客观来讲技术迭代速度非常之快，如何不断采用新技术，同时满足老用户的需求，如何把握快速迭代与质量品质的平衡、兼顾用户感受，这始终是一个重要课题。
+“弓子拉稳，保持气息，要跟着心里的旋律往前走！
 
-在这个过程中，赛力斯认为无论是新用户还是老用户，都必须享受到高品质的服务和高价值的体验。
+”5月21日上午，中央音乐学院派驻青海省海东市化隆回族自治县的新时代文艺宣讲师李沛泽，仔细纠正着几位学员的姿势。
 
-何利扬分享几个关键数据：五年来，问界汽车获得了超过百万用户的选择。
+工作之余，李沛泽还组建了化隆县第一支民乐团，让热爱音乐的退休干部、农民、工人从最初的业余水准，发展成能登台献艺的专业合奏团队。
 
-在累计行驶里程中，充电行驶里程超过了70%。
+化隆县曾为国家级贫困县，地处高原山区，经济基础薄弱，境内多民族聚居，教育资源匮乏，尤其音乐美育师资短缺、艺术教育发展滞后，本土民族文化传承发展乏力。
 
-他谈到，问界汽车提供的是增程与纯电的双面动力，尤其是今年以来，选择纯电车型的用户比例大幅增加，这也使得累计充电行驶里程占比超过了70%。
+依托国内顶尖音乐教育专业优势，中央音乐学院于2020年正式开启对化隆县的定点帮扶工作。
 
-另外，问界汽车累计辅助驾驶里程中，活跃用户占比超过了97.5%，换句话说，开问界汽车，具备辅助驾驶功能的车型的用户，大多都会使用辅助驾驶功能，这也是一个行业新突破。
+在化隆县群科新区中学，中央音乐学院音乐教育学院的研究生聂培欣和陈昊男正在指导音乐特色班的学生合唱校歌。
 
-他还有两个更重要的数据分享：在过去30天，采用辅助驾驶或相关智能服务的用户中，依靠救援（eCall）的事故百万公里频次为0.13次，同比去年下降了55.2%——这里指的是发生重大碰撞需要拨打救援电话，或后台监测到的重大事故，这说明智能与安全极大地改善了我们的行驶安全。
+课堂上，聂培欣打着拍子，陈昊男一遍又一遍地弹奏着钢琴，眼神与语言的交流让孩子们自信满满，每一张脸上都闪烁着对音乐的热爱。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 19:12 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 19:26 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 19:10 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 19:05 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 19:09 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 19:22 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 19:24 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 19:12 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 19:18 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 19:11 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 19:12 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 19:08 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 19:21 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 19:26 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 19:17 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 19:26 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 19:26 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 19:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 19:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 19:21 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 19:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 19:23 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 19:23 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 19:21 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/958230519717.shtml)
-- 2026-06-29 19:12 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/99840.shtml)
-- 2026-06-29 19:29 - [AG 宫斗](http://www.blog.minike.top/Article/details/642502798910.shtml)
-- 2026-06-29 19:23 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/6867149.shtml)
-- 2026-06-29 19:15 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/313623806.shtml)
-- 2026-06-29 19:20 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/59892520544.shtml)
-- 2026-06-29 19:18 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/9952502992.shtml)
-- 2026-06-29 19:09 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/76605.shtml)
-- 2026-06-29 19:02 - [斗破苍穹](http://www.blog.minike.top/Article/details/59610257666.shtml)
-- 2026-06-29 19:21 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/892312432.shtml)
-- 2026-06-29 19:00 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/5000664070.shtml)
-- 2026-06-29 19:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/7580817.shtml)
-- 2026-06-29 19:03 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/3878081778.shtml)
-- 2026-06-29 19:24 - [极限挑战第一季](http://www.blog.minike.top/Article/details/19385656.shtml)
-- 2026-06-29 19:28 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/064945188718.shtml)
+- 2026-06-29 19:32 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/25676541168.shtml)
+- 2026-06-29 19:33 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/124740996.shtml)
+- 2026-06-29 19:07 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/598031.shtml)
+- 2026-06-29 19:32 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/88454.shtml)
+- 2026-06-29 19:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/607188352793.shtml)
+- 2026-06-29 19:11 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/37183970715.shtml)
+- 2026-06-29 19:24 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/60386246782.shtml)
+- 2026-06-29 19:25 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/68720842.shtml)
+- 2026-06-29 19:11 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/6327002878.shtml)
+- 2026-06-29 19:28 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/171096924392.shtml)
+- 2026-06-29 19:26 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/84161592876.shtml)
+- 2026-06-29 19:25 - [欧洲极端高温如何影响家电股](https://www.share.minike.top/Article/details/85836626379.shtml)
+- 2026-06-29 19:08 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/94750628.shtml)
+- 2026-06-29 19:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/547455238480.shtml)
+- 2026-06-29 19:30 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/06037263746.shtml)

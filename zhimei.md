@@ -1,59 +1,59 @@
-# 工信部：2025年国家高新区实现园区生产总值20.4万亿元
+# 第七届海峡两岸（福州）职工创新创业创造大赛启幕
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 工业和信息化部规划司司长姚珺10日表示，2025年，国家高新区实现园区生产总值20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点；实现税收收入约2.1万亿元，比“十三五”末增长10.6%。4月10日，工业和信息化部举行“推动国家高新区高质量发展”新闻发布会。会上，姚珺称，“十四五”以来，工业和信息化部落实党中央、国务院决策部署，
+中新社福州5月21日电 (郑江洛)第七届海峡两岸(福州)职工创新创业创造大赛21日在福州正式启动。 本届大赛以“集聚两岸匠‘心’，赋能发展向‘新’”为主题，设置“职工四技创造组”“职工就业创业组”“两岸融合协作组”三大赛道，重点聚焦“AI+场景”“新材料+产业”等领域，面向社会公开征集参赛项目，共同推动海峡两岸优质项目落地与产业深度融合。 台青创业者黄俊宏携“流动绿廊——城市交
 
 ## 正文
 
-中新网4月10日电 工业和信息化部规划司司长姚珺10日表示，2025年，国家高新区实现园区生产总值20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点；实现税收收入约2.1万亿元，比“十三五”末增长10.6%。
+中新社福州5月21日电 (郑江洛)第七届海峡两岸(福州)职工创新创业创造大赛21日在福州正式启动。
 
-4月10日，工业和信息化部举行“推动国家高新区高质量发展”新闻发布会。
+本届大赛以“集聚两岸匠‘心’，赋能发展向‘新’”为主题，设置“职工四技创造组”“职工就业创业组”“两岸融合协作组”三大赛道，重点聚焦“AI+场景”“新材料+产业”等领域，面向社会公开征集参赛项目，共同推动海峡两岸优质项目落地与产业深度融合。
 
-会上，姚珺称，“十四五”以来，工业和信息化部落实党中央、国务院决策部署，与各部门、各地方一道，坚持“发展高科技、实现产业化”，推动国家高新区在中国特色高新技术产业化道路上迈出更加坚实的步伐，又“高”又“新”发展的基础更牢、成色更足。
+台青创业者黄俊宏携“流动绿廊——城市交通立体生态改造项目”参赛。
 
-今年2月，国务院批复河北雄安高新区升级为国家高新区，国家高新区总数达179家，已成为科技创新和产业创新深度融合的重要载体和高新技术产业发展的主阵地，为实现高水平科技自立自强、推进新型工业化、发展新质生产力提供了有力支撑。
+该项目是在公交车顶打造微型生态系统的城市立体绿化方案。
 
-主要成效可概括为四个“更加”。
+他受访时表示，希望借助大赛平台，推动项目落地福州，打造绿色的移动城市风景线，为城市生态建设赋能。
 
-第一，经济实力稳步提升，引擎作用更加凸显。
+该大赛此前已举办六届。
 
-持续推动国家高新区科技创新突破、产业转型升级、新型基础设施建设，不断筑牢实体经济的根基。
+六年来，已有126个参赛项目落地福州，总注册资本金突破14.7亿元人民币。
 
-2025年，国家高新区实现园区生产总值20.4万亿元，占全国GDP的比重为14.5%，较“十三五”末提高1.2个百分点；实现税收收入约2.1万亿元，比“十三五”末增长10.6%。
+本届大赛由福州市科学技术局、华榕(集团)有限公司、福州市台胞投资企业协会联合主办。
 
 ## 相关推荐
 
-- 2026-06-29 19:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 19:20 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 19:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 19:00 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 19:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 19:18 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 19:09 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 19:13 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 19:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 19:15 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 19:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 19:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 19:05 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 19:26 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 19:29 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 19:08 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 19:09 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 19:16 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 19:32 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 19:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 19:30 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 19:16 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 19:28 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 19:35 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:20 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 19:32 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/35716905330.shtml)
-- 2026-06-29 19:00 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/04236838899.shtml)
-- 2026-06-29 19:01 - [扬名立万](https://www.blog.minike.top/Article/details/32178216386.shtml)
-- 2026-06-29 19:07 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/94022515.shtml)
-- 2026-06-29 19:11 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/365771.shtml)
-- 2026-06-29 19:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/06672496733.shtml)
-- 2026-06-29 19:03 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/733580.shtml)
-- 2026-06-29 19:07 - [第一炉香](https://www.blog.minike.top/Article/details/28349618231.shtml)
-- 2026-06-29 19:14 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/17613921691.shtml)
-- 2026-06-29 19:19 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/5376884188.shtml)
-- 2026-06-29 19:01 - [逆天祖国人](http://www.blog.minike.top/Article/details/232410297.shtml)
-- 2026-06-29 19:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/02543356.shtml)
-- 2026-06-29 19:22 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/575368.shtml)
-- 2026-06-29 19:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/6412910.shtml)
-- 2026-06-29 19:00 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/58786925.shtml)
+- 2026-06-29 19:10 - [爱很美味](https://www.blog.minike.top/Article/details/824103829329.shtml)
+- 2026-06-29 19:18 - [女心理师](https://www.blog.kurohicncr.top/Article/details/29404333.shtml)
+- 2026-06-29 19:25 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/295380.shtml)
+- 2026-06-29 19:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/93895.shtml)
+- 2026-06-29 19:09 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/17826244097.shtml)
+- 2026-06-29 19:22 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/706060950.shtml)
+- 2026-06-29 19:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/3102357.shtml)
+- 2026-06-29 19:23 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/962782.shtml)
+- 2026-06-29 19:30 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/78082923.shtml)
+- 2026-06-29 19:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/4156568.shtml)
+- 2026-06-29 19:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/58811.shtml)
+- 2026-06-29 19:25 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/69655522237.shtml)
+- 2026-06-29 19:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/23142415505.shtml)
+- 2026-06-29 19:21 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/18536.shtml)
+- 2026-06-29 19:35 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/34804333.shtml)

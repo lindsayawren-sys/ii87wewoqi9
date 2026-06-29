@@ -1,61 +1,57 @@
-# 医院通用人工智能平台在广州发布
+# 欧洲债市：债市震荡 欧洲PMI疲软而油价上涨
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网广州4月10日电 (记者 蔡敏婕)医院通用人工智能平台(Hospital AI Platform，简称：HAIP)10日在广州发布，该平台通过统筹全院算力、数据、模型资源，将分散的AI能力整合为可共享、可进化、可向基层赋能的统一数智化底座，推动医疗AI建设从“单点部署、零散应用”向“统一规划、全域协同”转变。“AI驱动智慧医院建设新范式高峰论坛”当天在广州举行。该论坛由广
+欧元区和英国PMI数据疲弱，一度提振债券；随后，随着美国与伊朗局势持续紧张推高油价，债券转而走弱。 欧元区企业活动以两年多来最快速度萎缩，令市场愈加担心伊朗战争及其导致的能源成本飙升正在对地区经济造成严重冲击；英国企业产出则出现逾一年来首次下滑。 德国2年期国债收益率一度下跌3个基点，至2.63%，但随后升至2.70%。美国与伊朗在关键问题上的僵持推高油价，加剧了市场对通胀以及
 
 ## 正文
 
-中新网广州4月10日电 (记者 蔡敏婕)医院通用人工智能平台(Hospital AI Platform，简称：HAIP)10日在广州发布，该平台通过统筹全院算力、数据、模型资源，将分散的AI能力整合为可共享、可进化、可向基层赋能的统一数智化底座，推动医疗AI建设从“单点部署、零散应用”向“统一规划、全域协同”转变。
+欧元区和英国PMI数据疲弱，一度提振债券；随后，随着美国与伊朗局势持续紧张推高油价，债券转而走弱。
 
-“AI驱动智慧医院建设新范式高峰论坛”当天在广州举行。
+欧元区企业活动以两年多来最快速度萎缩，令市场愈加担心伊朗战争及其导致的能源成本飙升正在对地区经济造成严重冲击；英国企业产出则出现逾一年来首次下滑。
 
-该论坛由广东省卫生健康委员会、广州市卫生健康委员会指导支持，南方医科大学南方医院等共同举办，探讨AI技术在医疗行业规模化落地路径。
+德国2年期国债收益率一度下跌3个基点，至2.63%，但随后升至2.70%。
 
-“过去各个学科打造的都是各自独立的‘烟囱式’AI智能体，HAIP平台就像一条高速公路，建好底座后，不同学科的AI智能体可以高效运行、互通有无。
+美国与伊朗在关键问题上的僵持推高油价，加剧了市场对通胀以及利率将在更长时间内维持高位的担忧。
 
-”南方医科大学南方医院院长孙剑表示，未来在平台上搭载不同专家、不同学科的AI智能体，根据临床场景形成智慧医院模式，“希望把智慧模式复制推广赋能基层，不仅赋能城市医联体，还能赋能城市各行各业，打造城市的HAIP平台”。
+有报道称德黑兰计划保留其铀库存，这被视为达成任何和平协议的潜在障碍。
 
-“数据无法流通、资源不能协同、AI难以融入全流程等是主要挑战。
+英国国债跑赢，2年期收益率仅上升1个基点，至4.38%，而10年期收益率下跌2个基点，至4.97%。
 
-”针对当前医疗AI落地面临的瓶颈，华为副总裁李俊风指出，“该平台的核心就是建立统一数据底座，不打破医院现有流程，让人工智能赋能每个诊疗环节，实现全流程、全科室覆盖，让病人和医生享受普惠的AI服务。
+市场： 德国10年期国债收益率持稳，报3.10%； 德国国债期货上涨13.00个点，报124.86%； 意大利10年期国债收益率上涨2个基点，报3.84%； 意大利与德国国债利差扩大1个基点，报74个基点； 法国10年期国债收益率上涨2个基点，报3.73%； 10年期英国国债收益率下跌2个基点，报4.97%。
 
-” 据介绍，HAIP平台打通全院统一的数据视图，打破科室壁垒与数据孤岛，构建AI训练的“数据粮仓”。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 19:29 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 19:28 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 19:25 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 19:25 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 19:14 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 19:25 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 19:12 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 19:19 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 19:29 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 19:03 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 19:27 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 19:20 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 19:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 19:19 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 19:25 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 19:20 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 19:20 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 19:23 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 19:12 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 19:08 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 19:30 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 19:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 19:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 19:32 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 19:18 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:14 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/71953.shtml)
-- 2026-06-29 19:12 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/210490.shtml)
-- 2026-06-29 19:16 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/3109476.shtml)
-- 2026-06-29 19:24 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/2936964.shtml)
-- 2026-06-29 19:13 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/023611972713.shtml)
-- 2026-06-29 19:23 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/45950017948.shtml)
-- 2026-06-29 19:26 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/109029.shtml)
-- 2026-06-29 19:08 - [周生如故](https://www.share.minike.top/Article/details/78213401.shtml)
-- 2026-06-29 19:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/729414157.shtml)
-- 2026-06-29 19:23 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/025806271.shtml)
-- 2026-06-29 19:06 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/2257355.shtml)
-- 2026-06-29 19:16 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/92305920.shtml)
-- 2026-06-29 19:18 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/724062514457.shtml)
-- 2026-06-29 19:28 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/3601509716.shtml)
-- 2026-06-29 19:07 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/5828731271.shtml)
+- 2026-06-29 19:35 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/15130.shtml)
+- 2026-06-29 19:22 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/45746.shtml)
+- 2026-06-29 19:28 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/08259737527.shtml)
+- 2026-06-29 19:31 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/852485.shtml)
+- 2026-06-29 19:09 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/18443882.shtml)
+- 2026-06-29 19:26 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/739370240.shtml)
+- 2026-06-29 19:13 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/69365810.shtml)
+- 2026-06-29 19:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/653051.shtml)
+- 2026-06-29 19:23 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/4521163.shtml)
+- 2026-06-29 19:16 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/8999225.shtml)
+- 2026-06-29 19:23 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/476158638938.shtml)
+- 2026-06-29 19:31 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/20528.shtml)
+- 2026-06-29 19:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/237400.shtml)
+- 2026-06-29 19:19 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/04038636.shtml)
+- 2026-06-29 19:08 - [扫黑风暴](https://www.blog.minike.top/Article/details/96310.shtml)

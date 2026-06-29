@@ -1,58 +1,57 @@
-# 美联储寻求银行业提供对私募信贷公司的风险敞口详情
+# 首设AI专区，今年链博会将有哪些“黑科技”？
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-知情人士称，在私募信贷基金赎回激增、行业不良贷款上升之际，美联储正要求美国大型银行提供它们的私募信贷敞口详细情况。 知情人士表示，美联储检查人员提出的问题旨在评估私募信贷行业的压力程度及其向更广泛金融体系传导的可能性。 在纳入日常监管流程的一系列问题中，美联储尤其关注私募信贷基金从银行获取的贷款情况。在市场环境良好时，这类行动可以放大回报，使私募信贷基金更具吸引力；但在不利环境
+中新网5月22日电 国新办22日举行新闻发布会，介绍第四届中国国际供应链促进博览会筹备情况。 会上，有记者问：本届链博会首次设立人工智能专区，将呈现从数据、算力到应用的全链条生态，有哪些AI龙头企业确认参展？观众在这个专区将看到或者体验到哪些“黑科技”或者哪些首发首秀的新产品？ 对此，中国贸促会副会长李兴乾表示，人工智能技术应用正在深刻地改变世界。第四届链博会将“数字科技链”升
 
 ## 正文
 
-知情人士称，在私募信贷基金赎回激增、行业不良贷款上升之际，美联储正要求美国大型银行提供它们的私募信贷敞口详细情况。
+中新网5月22日电 国新办22日举行新闻发布会，介绍第四届中国国际供应链促进博览会筹备情况。
 
-知情人士表示，美联储检查人员提出的问题旨在评估私募信贷行业的压力程度及其向更广泛金融体系传导的可能性。
+会上，有记者问：本届链博会首次设立人工智能专区，将呈现从数据、算力到应用的全链条生态，有哪些AI龙头企业确认参展？
 
-在纳入日常监管流程的一系列问题中，美联储尤其关注私募信贷基金从银行获取的贷款情况。
+观众在这个专区将看到或者体验到哪些“黑科技”或者哪些首发首秀的新产品？
 
-在市场环境良好时，这类行动可以放大回报，使私募信贷基金更具吸引力；但在不利环境下，可能使银行面临损失风险。
+对此，中国贸促会副会长李兴乾表示，人工智能技术应用正在深刻地改变世界。
 
-知情人士称，美国财政部也在就保险业对私募信贷的敞口进行问询。
+第四届链博会将“数字科技链”升级为“数智科技链”，是顺应经济发展与科技进步规律的主动作为。
 
-美联储和财政部的代表目前均未置评。
+本届链博会与全球知名的半导体公司共同策划，首次设立人工智能专区，是按照从数据与感知，到算力与算法，再到应用与解决方案的产业演进路径进行的系统化设计。
 
-这些问询表明美国监管机构正努力掌握来自私募信贷领域的潜在压力。
+展陈目标是全链条展现人工智能从数据采集、智能计算到场景落地的完整生态。
 
-该行业规模已膨胀至1.8万亿美元，最初面向机构投资者，如今也越来越多地向个人投资者推广。
+专区集聚了英伟达、英特尔、高通、阿里巴巴等中外人工智能领域的领军企业，本身就是一场人工智能的“华山论剑”。
 
 ## 相关推荐
 
-- 2026-06-29 19:06 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 19:27 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 19:16 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 19:11 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 19:22 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 19:06 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 19:18 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 19:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 19:25 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 19:09 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 19:23 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 19:05 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 19:20 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 19:06 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 19:07 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 19:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 19:12 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 19:08 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 19:24 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 19:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 19:18 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 19:09 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/121489249602.shtml)
-- 2026-06-29 19:09 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/9674439064.shtml)
-- 2026-06-29 19:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/014889.shtml)
-- 2026-06-29 19:12 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/82947.shtml)
-- 2026-06-29 19:19 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/510328.shtml)
-- 2026-06-29 19:23 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/643037981.shtml)
-- 2026-06-29 19:10 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/95416670855.shtml)
-- 2026-06-29 19:02 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/2593620.shtml)
-- 2026-06-29 19:14 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/214996.shtml)
-- 2026-06-29 19:24 - [日本偶像龟梨和也宣布结婚](https://www.blog.minike.top/Article/details/539346.shtml)
-- 2026-06-29 19:15 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/2906428.shtml)
-- 2026-06-29 19:18 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/64485292101.shtml)
-- 2026-06-29 19:02 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/725269348.shtml)
-- 2026-06-29 19:16 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/528924.shtml)
-- 2026-06-29 19:28 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/95221.shtml)
+- 2026-06-29 19:34 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/95561.shtml)
+- 2026-06-29 19:30 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/27864119.shtml)
+- 2026-06-29 19:21 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/47381.shtml)
+- 2026-06-29 19:27 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/9699749800.shtml)
+- 2026-06-29 19:32 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/1540295056.shtml)
+- 2026-06-29 19:19 - [扩军害了世界杯吗](http://www.blog.minike.top/Article/details/958413556.shtml)
+- 2026-06-29 19:21 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/215431626985.shtml)
+- 2026-06-29 19:16 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/72462.shtml)
+- 2026-06-29 19:13 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/897260.shtml)
+- 2026-06-29 19:31 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/17117599.shtml)
+- 2026-06-29 19:17 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/622764.shtml)
+- 2026-06-29 19:19 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/041203336320.shtml)
+- 2026-06-29 19:18 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/0704381.shtml)
+- 2026-06-29 19:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/705371056.shtml)
+- 2026-06-29 19:21 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/3852905766.shtml)

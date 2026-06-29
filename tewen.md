@@ -1,58 +1,56 @@
-# 000586：公司没有算力数据中心相关业务！地缘冲突扰动供应链，铝价持续飙升
+# 资金涌向AI低位标的？华宝基金大数据ETF（516700）近3日吸金1017万元，净流入逐日攀升！
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！申万铝指数再度大涨。 5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。 公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。其中：电力光缆是应用于电力市场的配套光缆；塑
+今日（5月22日）覆盖算力租赁、AI应用等热门概念的大数据ETF华宝（516700）场内涨幅盘中上探1.46%，现涨1.07%，大数据产业相对光模块、半导体等算力硬件，处于相对低位，资金可能出于补涨逻辑考虑，提前进场埋伏！ 资金或涌向AI方向的低位标的！数据显示，大数据ETF华宝（516700）近3日连续吸金，且资金净流入呈现逐日增长态势，合计金额1017万元！ 成份股方面，神
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+今日（5月22日）覆盖算力租赁、AI应用等热门概念的大数据ETF华宝（516700）场内涨幅盘中上探1.46%，现涨1.07%，大数据产业相对光模块、半导体等算力硬件，处于相对低位，资金可能出于补涨逻辑考虑，提前进场埋伏！
 
-申万铝指数再度大涨。
+资金或涌向AI方向的低位标的！
 
-5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。
+数据显示，大数据ETF华宝（516700）近3日连续吸金，且资金净流入呈现逐日增长态势，合计金额1017万元！
 
-公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。
+成份股方面，神州信息领涨超7%，东土科技、奥飞数据涨逾4%，优刻得-W、深信服涨逾3%，科华数据、中科曙光等个股跟涨。
 
-其中：电力光缆是应用于电力市场的配套光缆；塑料光纤系列主要用于装饰照明、工业控制、电力设备、消费电子等领域，而与塑料光纤通信配套用的工控光器件产品（速度在100兆以内）主要用于自动化生产线的传感器单元、高压变频器的控制信号传输等方面（非应用数据中心及AI算力等所需高速光模块）。
+当前算力租赁的核心逻辑在于行业供需错配带来的景气度提升，一方面AI Agent、多模态等新兴应用爆发式拉动算力需求，高端算力芯片供给偏紧推高租赁价格，厂商议价权显著提升；另一方面行业商业模式从单纯裸算力出租升级为模型服务或Token分成，盈利能力迎来质的飞跃，叠加政策推动普惠算力落地，行业长期成长空间打开。
 
-公司注意到，近期市场对光纤产品供需结构改善及算力数据中心相关光纤光缆、光模块产品关注度较高。
+摩根士丹利指出，中国AI的主导叙事不再是能力追赶，而是价值捕获；核心逻辑已从训练转向推理，从技术转向应用，从潜力转向真实盈利；应用层追赶行情或将是下一个核心主线。
 
-公司目前不存在前述领域业务、在手订单及技术储备。
+中邮证券认为，Token调用量指数级增长，标志着数据要素通过可计价模式实现从供给到价值的闭环，大模型竞争正从能力比拼转向用量比拼，而AIInfra作为支撑调用规模扩张的核心环节，意味着算力、网络、数据调度等底层支撑系统必须同步甚至超前扩张，将充分受益于Token需求的持续攀升。
 
-2025年，公司预计实现归母净利润为亏损300万元至150万元，同比减亏67.89%至83.94%。
+华创证券指出，云厂商涨价与AI开支扩张共同重塑AIDC产业逻辑。
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 19:12 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 19:03 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 19:03 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 19:12 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 19:02 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 19:19 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 19:26 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 19:10 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 19:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 19:11 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 19:10 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 19:12 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 19:08 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 19:07 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 19:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 19:11 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 19:15 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 19:28 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 19:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 19:29 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 19:26 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/4648870.shtml)
-- 2026-06-29 19:21 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/61633983.shtml)
-- 2026-06-29 19:06 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.kurohicncr.top/Article/details/5449066554.shtml)
-- 2026-06-29 19:22 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/048825629.shtml)
-- 2026-06-29 19:22 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/3592432715.shtml)
-- 2026-06-29 19:29 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/919018.shtml)
-- 2026-06-29 19:00 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/476351.shtml)
-- 2026-06-29 19:22 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/2955663236.shtml)
-- 2026-06-29 19:21 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/860418738.shtml)
-- 2026-06-29 19:15 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/34394143.shtml)
-- 2026-06-29 19:29 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/6705000.shtml)
-- 2026-06-29 19:15 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/89599.shtml)
-- 2026-06-29 19:13 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/002658.shtml)
-- 2026-06-29 19:07 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/2070364766.shtml)
-- 2026-06-29 19:01 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/6441089.shtml)
+- 2026-06-29 19:33 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/26205.shtml)
+- 2026-06-29 19:22 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/5136988543.shtml)
+- 2026-06-29 19:08 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/274827312684.shtml)
+- 2026-06-29 19:23 - [逆天祖国人](https://www.blog.minike.top/Article/details/232863387.shtml)
+- 2026-06-29 19:08 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/4340423521.shtml)
+- 2026-06-29 19:15 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/94650457590.shtml)
+- 2026-06-29 19:16 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/96239948345.shtml)
+- 2026-06-29 19:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/2236478.shtml)
+- 2026-06-29 19:06 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/612677828020.shtml)
+- 2026-06-29 19:12 - [一生一世](https://www.share.minike.top/Article/details/17733326.shtml)
+- 2026-06-29 19:19 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/72346330.shtml)
+- 2026-06-29 19:25 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/346196.shtml)
+- 2026-06-29 19:28 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/9643772.shtml)
+- 2026-06-29 19:18 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/121180196.shtml)
+- 2026-06-29 19:11 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/752474.shtml)

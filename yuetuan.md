@@ -1,61 +1,57 @@
-# 旅客遇高反 拉萨火车站“铁路人”紧急救助
+# AI制药利好！核心平台将成立，华为也参与！巨头重金布局（附股）
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网拉萨4月10日电 (格桑央金)9日，一名旅客因高原反应，在中国铁路青藏集团有限公司拉萨车站突感不适，后经车站工作人员及时帮助，旅客最终转危为安。 当日，Z223次列车抵达拉萨站。客运员丹增旺杰在站台巡视时，注意到一位老人独自坐在座位上，嘴唇发紫，脸色发白，额头上渗着细密的冷汗。丹增旺杰立刻意识到这是高原反应，他一边用对讲机呼叫客运值班员，一边安抚老人。 不到一分钟，客运值
+医药工业加速拥抱AI。 据 中国信息通信研究院（简称“中国信通院”） 5月21日消息，由中国信通院联合医药龙头企业、AI制药企业、数智化服务企业、科研院所、监管机构、行业协会等产业主体，共同成立“医药工业数智化转型促进中心”，成立大会即将于2026年6月2日举行。 据悉，该中心由工业和信息化部消费品工业司指导，是贯彻落实国家《医药工业数智化转型实施方案（2025—2030年）》
 
 ## 正文
 
-中新网拉萨4月10日电 (格桑央金)9日，一名旅客因高原反应，在中国铁路青藏集团有限公司拉萨车站突感不适，后经车站工作人员及时帮助，旅客最终转危为安。
+医药工业加速拥抱AI。
 
-当日，Z223次列车抵达拉萨站。
+据 中国信息通信研究院（简称“中国信通院”） 5月21日消息，由中国信通院联合医药龙头企业、AI制药企业、数智化服务企业、科研院所、监管机构、行业协会等产业主体，共同成立“医药工业数智化转型促进中心”，成立大会即将于2026年6月2日举行。
 
-客运员丹增旺杰在站台巡视时，注意到一位老人独自坐在座位上，嘴唇发紫，脸色发白，额头上渗着细密的冷汗。
+据悉，该中心由工业和信息化部消费品工业司指导，是贯彻落实国家《医药工业数智化转型实施方案（2025—2030年）》的核心支撑平台， 破解医药企业 数智化 转型不会转、不敢转、转型成本高等难题，加快培育医药产业新质生产力， 夯实健康中国建设产业根基。
 
-丹增旺杰立刻意识到这是高原反应，他一边用对讲机呼叫客运值班员，一边安抚老人。
+根据媒体此前报道，该中心的发起单位包括华润医药、恒瑞医药、复星医药、正大天晴、石药集团、齐鲁制药、康方生物等十余家医药数智化需求侧企业，华为、东富龙、金蝶、奥星、晶泰科技、哲源科技、明度智云等十余家医药数智化供给侧企业。
 
-不到一分钟，客运值班员强久桑布和客运员赵万恩就带着氧气瓶和轮椅赶到了。
+2025年，工业和信息化部等七部门联合发布的《医药工业数智化转型实施方案（2025—2030年）》提出，到2027年，医药工业数智化转型取得重要进展；到2030年，规上医药工业企业基本实现数智化转型全覆盖。
 
-强久桑布打开氧气瓶，赵万恩则蹲在一旁，用纸巾擦拭老人额头的冷汗。
+AI重构制药底层逻辑 传统创新药研发以经验假设、反复试错为核心的底层逻辑，长期深陷“双十困境”：一款新药平均研发周期10年以上、投入超10亿美元，整体成功率仅10%左右；其研发依靠文献经验锁定靶点，通过海量分子筛选、多轮实验验证推进研发，存在周期长、成本高、随机性强的弊端，大量研发资源消耗在无效试错中。
 
-考虑到旅客年事已高且独自出行，赵万恩与强久桑布全程守在身旁，直到救护车的到来。
+AI彻底颠覆了这一传统范式，从药物靶点发现、分子设计，到临床试验优化与药物商业化，AI正改写传统的研发体系。
 
-近年来，拉萨火车站始终坚守“缺氧不缺精神、艰苦不降标准”的初心使命，一线工作人员以快速高效、细致入微的温情服务守护旅客出行安全，用实际行动诠释高原铁路人的责任担当与服务温度，为旅途增添暖心底色。
+在靶点发现阶段，AI可以通过深度学习、知识图谱和多组学数据分析，更快识别疾病关键靶点；在分子筛选阶段，传统研发像“大海捞针”，而AI则能在海量虚拟分子空间中快速锁定高潜力候选分子，甚至直接生成全新药物结构；进入临床阶段，AI还可以优化患者筛选、剂量设计与试验流程，大幅提升研发效率。
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 19:19 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 19:12 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 19:13 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 19:28 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 19:04 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 19:07 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:22 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 19:07 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 19:18 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 19:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 19:13 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 19:08 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 19:16 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 19:19 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:32 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 19:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 19:34 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 19:21 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 19:18 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 19:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 19:11 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 19:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 19:24 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 19:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 19:11 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:13 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/885848404912.shtml)
-- 2026-06-29 19:15 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/7951870704.shtml)
-- 2026-06-29 19:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/2819132.shtml)
-- 2026-06-29 19:14 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/738950849.shtml)
-- 2026-06-29 19:19 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/32448.shtml)
-- 2026-06-29 19:08 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/56103265388.shtml)
-- 2026-06-29 19:07 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/3939679229.shtml)
-- 2026-06-29 19:20 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/50134219271.shtml)
-- 2026-06-29 19:10 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/25855844976.shtml)
-- 2026-06-29 19:19 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/177884.shtml)
-- 2026-06-29 19:15 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/9764626.shtml)
-- 2026-06-29 19:20 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/71169.shtml)
-- 2026-06-29 19:00 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/54563686980.shtml)
-- 2026-06-29 19:01 - [天道](http://www.blog.kurohicncr.top/Article/details/19663152788.shtml)
-- 2026-06-29 19:16 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/45762.shtml)
+- 2026-06-29 19:09 - [金牌调解](http://www.share.minike.top/Article/details/79490.shtml)
+- 2026-06-29 19:10 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/9720072.shtml)
+- 2026-06-29 19:12 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/438211.shtml)
+- 2026-06-29 19:33 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/2516979.shtml)
+- 2026-06-29 19:32 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.kurohicncr.top/Article/details/5394368.shtml)
+- 2026-06-29 19:26 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/2661256349.shtml)
+- 2026-06-29 19:18 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/58546.shtml)
+- 2026-06-29 19:10 - [北京市发布雷电黄色预警](http://www.share.kurohicncr.top/Article/details/53670208.shtml)
+- 2026-06-29 19:28 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/2638222.shtml)
+- 2026-06-29 19:10 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/3205739.shtml)
+- 2026-06-29 19:06 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/10209915616.shtml)
+- 2026-06-29 19:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/28829.shtml)
+- 2026-06-29 19:31 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/2830969173.shtml)
+- 2026-06-29 19:17 - [斛珠夫人](https://www.share.minike.top/Article/details/9010035.shtml)
+- 2026-06-29 19:11 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/21212.shtml)

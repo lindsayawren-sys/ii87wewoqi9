@@ -1,58 +1,60 @@
-# 欧阳明高：增程插电占比下降，纯电动力主导终局会提前到来
+# 长城基金杨建华：科技仍有望是主线
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。清华大学教授欧阳明高出席并演讲。 欧阳明高指出，“十五五”提倡从卷价格到卷价值转变，通常讲的价值包括功能价值和情绪价值。对于零部件厂而言，主要是功能价值，汽车厂商主要是情绪价值，其实还有一个价
+当前市场进入高位宽幅震荡格局，而前期科技则成为绝对主线，存储芯片、AI算力等硬科技板块集体爆发。与此同时，本月进入政策空窗期，中东冲突虽未升级但风险扰动仍在，中美元首会晤成为市场重要关注。 市场高位后，能否继续冲高？在估值分化加剧的背景下，又有哪些投资机会值得关注？ 对此，长城基金副总经理、投资总监杨建华表示，从当前宏观环境看，本月中美元首会晤，会晤前氛围相对友好，国内一季度G
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+当前市场进入高位宽幅震荡格局，而前期科技则成为绝对主线，存储芯片、AI算力等硬科技板块集体爆发。
 
-清华大学教授欧阳明高出席并演讲。
+与此同时，本月进入政策空窗期，中东冲突虽未升级但风险扰动仍在，中美元首会晤成为市场重要关注。
 
-欧阳明高指出，“十五五”提倡从卷价格到卷价值转变，通常讲的价值包括功能价值和情绪价值。
+市场高位后，能否继续冲高？
 
-对于零部件厂而言，主要是功能价值，汽车厂商主要是情绪价值，其实还有一个价值，就是资产价值。
+在估值分化加剧的背景下，又有哪些投资机会值得关注？
 
-他强调，要把功能价值、情绪价值和资产价值同等重视，让三个价值互相耦合。
+对此，长城基金副总经理、投资总监杨建华表示，从当前宏观环境看，本月中美元首会晤，会晤前氛围相对友好，国内一季度GDP增长强劲，中国在地缘政治博弈中保持定力，处于相对有利的位置。
 
-欧阳明高还表示，要从高速发展到高质量发展，安全监管加严、技术门槛提高、舆论环境改善。
+与此同时，上市公司业绩整体回暖，投资者信心在修复。
 
-“最近舆论环境也在改善，有很多技术粉丝在做自媒体，比以前好多了，而且经常看到黑公关被抓，这是好事。
+我们预计短期内行情仍值得期待。
 
-” 他提到，新旧动能转换，纯电动力主导。
+方向上，杨建华认为，科技仍有望是市场主线，看好景气度高、业绩持续兑现的科技成长股，也看好供给受限、需求稳定向上的资源股，短期内需避免估值偏高、竞争格局不友好、业绩兑现度低的高位板块个股。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 19:13 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 19:07 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 19:08 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 19:22 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 19:16 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 19:25 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 19:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 19:27 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 19:22 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 19:27 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 19:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 19:12 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 19:35 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 19:19 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 19:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 19:26 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 19:30 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 19:14 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-29 19:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 19:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 19:34 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:32 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 19:11 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 19:31 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 19:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/360537.shtml)
-- 2026-06-29 19:27 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/0620415692.shtml)
-- 2026-06-29 19:25 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/016847.shtml)
-- 2026-06-29 19:00 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/347425898.shtml)
-- 2026-06-29 19:21 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/30789789455.shtml)
-- 2026-06-29 19:18 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/70712.shtml)
-- 2026-06-29 19:18 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/29972.shtml)
-- 2026-06-29 19:10 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/51284.shtml)
-- 2026-06-29 19:16 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/5391517706.shtml)
-- 2026-06-29 19:00 - [女心理师](http://www.share.kurohicncr.top/Article/details/5913639718.shtml)
-- 2026-06-29 19:14 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/87463759.shtml)
-- 2026-06-29 19:28 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/333417290.shtml)
-- 2026-06-29 19:27 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/018658582622.shtml)
-- 2026-06-29 19:07 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/530682.shtml)
-- 2026-06-29 19:24 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/805416651.shtml)
+- 2026-06-29 19:33 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/32067014.shtml)
+- 2026-06-29 19:14 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/896278.shtml)
+- 2026-06-29 19:24 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/13597342.shtml)
+- 2026-06-29 19:12 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/2910610.shtml)
+- 2026-06-29 19:28 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/04702975977.shtml)
+- 2026-06-29 19:16 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/962447678.shtml)
+- 2026-06-29 19:24 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/11919609.shtml)
+- 2026-06-29 19:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/298994004.shtml)
+- 2026-06-29 19:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/475866189.shtml)
+- 2026-06-29 19:34 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/564987660431.shtml)
+- 2026-06-29 19:12 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/236445773.shtml)
+- 2026-06-29 19:12 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/267863053675.shtml)
+- 2026-06-29 19:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/33052512.shtml)
+- 2026-06-29 19:34 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/938704.shtml)
+- 2026-06-29 19:23 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/811182.shtml)

@@ -1,57 +1,58 @@
-# 2026北京公众考古季启动 构建考古传播新格局
+# 美股基金遭遇资金外流，收益率走高引发市场避险情绪
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电(记者 徐婧)由北京市文物局、北京市丰台区人民政府主办的2026北京公众考古季10日开幕。本届公众考古季以“触摸考古 解读北京”为主题，通过25项活动普及考古和文化遗产知识，让公众在模拟发掘、文物修复体验等实践中感知历史温度。 开幕式发布了全年活动安排，包括考古研学、体验考古、考古展览、考古讲座、考古进校园五大板块，共计25项活动，坚持专业引领与社会参与并
+截至 5 月 20 日当周，美股股票型基金出现九周内第二次资金外流。投资者担忧通胀上行、长期借贷成本飙升，纷纷了结近期行情获利。 伦敦证券交易所集团理柏数据显示，本周美股股票基金净流出资金 120.5 亿美元，创下 3 月中旬单周流出 245.2 亿美元以来最大单周外流规模。 美国 30 年期国债收益率周三攀升至 5.201%，触及 2007 年以来高位，市场担忧其将冲击成长板
 
 ## 正文
 
-中新网北京4月10日电(记者 徐婧)由北京市文物局、北京市丰台区人民政府主办的2026北京公众考古季10日开幕。
+截至 5 月 20 日当周，美股股票型基金出现九周内第二次资金外流。
 
-本届公众考古季以“触摸考古 解读北京”为主题，通过25项活动普及考古和文化遗产知识，让公众在模拟发掘、文物修复体验等实践中感知历史温度。
+投资者担忧通胀上行、长期借贷成本飙升，纷纷了结近期行情获利。
 
-开幕式发布了全年活动安排，包括考古研学、体验考古、考古展览、考古讲座、考古进校园五大板块，共计25项活动，坚持专业引领与社会参与并重，推动市区联动与资源整合，构建起覆盖广泛、共建共享的考古传播新格局。
+伦敦证券交易所集团理柏数据显示，本周美股股票基金净流出资金 120.5 亿美元，创下 3 月中旬单周流出 245.2 亿美元以来最大单周外流规模。
 
-活动带领公众走进考古现场。
+美国 30 年期国债收益率周三攀升至 5.201%，触及 2007 年以来高位，市场担忧其将冲击成长板块行情与企业盈利空间。
 
-北京市考古研究院依托考古资源，面向学校、亲子家庭等开展考古研学实践活动，通过参与体验、发掘等环节，展现考古工作流程，传播考古知识，增强参与者对历史文化的认同感。
+细分规模来看，大盘、中盘、小盘股票基金分别净流出 71.8 亿美元、18.6 亿美元、5.55 亿美元。
 
-北京多家博物馆打破传统单向展陈模式，提升公众互动体验。
+科技板块基金连续第七周吸纳资金，净流入规模达 25.7 亿美元；工业、金融板块基金则分别出现 14.5 亿美元、13.2 亿美元的单周资金流出。
 
-首都博物馆推出国宝“戏”游记，以剧本式体验让文物讲述历史；周口店北京人遗址管理处开展化石修复、模拟发掘等实践活动，让公众在专业指导下体验考古流程。
+美国债券型基金本周净流入 125 亿美元，与上周 128.3 亿美元的净流入规模基本持平。
 
-“考古看北京”展览将和公众见面。
+短期至中期投资级债券基金、短期至中期国债基金、市政债券基金分别迎来 46.3 亿美元、44.3 亿美元、15.3 亿美元可观净流入。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 19:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 19:14 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 19:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 19:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 19:16 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 19:20 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 19:26 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 19:16 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 19:06 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 19:06 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 19:35 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 19:15 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 19:28 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 19:10 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 19:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 19:26 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 19:28 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 19:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 19:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 19:17 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 19:35 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 19:20 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/70603916010.shtml)
-- 2026-06-29 19:28 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/5496387.shtml)
-- 2026-06-29 19:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/785420252758.shtml)
-- 2026-06-29 19:15 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/292516154676.shtml)
-- 2026-06-29 19:16 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/241469743.shtml)
-- 2026-06-29 19:04 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/435158355.shtml)
-- 2026-06-29 19:24 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/3829026.shtml)
-- 2026-06-29 19:09 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/73019700154.shtml)
-- 2026-06-29 19:00 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/592592.shtml)
-- 2026-06-29 19:18 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/7097154.shtml)
-- 2026-06-29 19:28 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.kurohicncr.top/Article/details/89985650755.shtml)
-- 2026-06-29 19:09 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/9573888.shtml)
-- 2026-06-29 19:09 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/69531593908.shtml)
-- 2026-06-29 19:00 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/9307765.shtml)
-- 2026-06-29 19:17 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/199815371402.shtml)
+- 2026-06-29 19:29 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/7448358698.shtml)
+- 2026-06-29 19:24 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/23110.shtml)
+- 2026-06-29 19:28 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/01601.shtml)
+- 2026-06-29 19:07 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/0865377.shtml)
+- 2026-06-29 19:16 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/235214189176.shtml)
+- 2026-06-29 19:09 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/917046179755.shtml)
+- 2026-06-29 19:20 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/712130690507.shtml)
+- 2026-06-29 19:15 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/89121829298.shtml)
+- 2026-06-29 19:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/9726649605.shtml)
+- 2026-06-29 19:21 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/742363159.shtml)
+- 2026-06-29 19:36 - [小众羞耻点是吃麻辣烫](https://www.share.kurohicncr.top/Article/details/14752295.shtml)
+- 2026-06-29 19:06 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/764639563873.shtml)
+- 2026-06-29 19:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/81484161095.shtml)
+- 2026-06-29 19:23 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/053783900698.shtml)
+- 2026-06-29 19:31 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/62657426.shtml)

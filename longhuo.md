@@ -1,58 +1,56 @@
-# 羽毛球亚锦赛：泰国选手昆拉武特晋级四强
+# 广西防城港市强降雨已持续6天 应急响应调整为四级
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中美“乒乓外交”在当下有何特殊意义？“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实困境与未来前景花粉过敏为何越来越普遍？致敏树种能否一砍了之？伊朗高原的一个太子，他的中文译词何以流传千年？超越日本，中国汽车“登顶”全球背后的三重质变全球能源危机下中国电力稳供优势凸显东盟专家盛赞中国优质投资：双边合作结
+中新网防城港5月21日电(翟李强 方平 唐耀原)5月21日，广西防城港市暴雨如注，导致多个区域出现积涝现象；北仑河、防城河等河流水位上涨，出现超警戒洪峰水位。据气象部门测报，防城港市强降雨已持续6天。 21日上午，防城港市防城区人民路的积水已至成人膝盖，防城港市东兴市、上思县部分区域亦出现不同程度的积水。 防城港市交通管理部门当天发布通告称，由于近期降雨量大，县道X255垌美至
 
 ## 正文
 
-中美“乒乓外交”在当下有何特殊意义？
+中新网防城港5月21日电(翟李强 方平 唐耀原)5月21日，广西防城港市暴雨如注，导致多个区域出现积涝现象；北仑河、防城河等河流水位上涨，出现超警戒洪峰水位。
 
-“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实困境与未来前景花粉过敏为何越来越普遍？
+据气象部门测报，防城港市强降雨已持续6天。
 
-致敏树种能否一砍了之？
+21日上午，防城港市防城区人民路的积水已至成人膝盖，防城港市东兴市、上思县部分区域亦出现不同程度的积水。
 
-伊朗高原的一个太子，他的中文译词何以流传千年？
+防城港市交通管理部门当天发布通告称，由于近期降雨量大，县道X255垌美至那垌公路K55+100(扶隆镇那其村)右侧下边坡发生崩塌，半幅路面沉陷，崩塌高度约5米。
 
-超越日本，中国汽车“登顶”全球背后的三重质变全球能源危机下中国电力稳供优势凸显东盟专家盛赞中国优质投资：双边合作结硕果打“飞的”也要去的咖啡馆，卖的只是咖啡吗？
+经过现场研判，在降雨等外力作用下，仍有可能再次崩塌，自2026年5月21日起，对该路段实施交通封闭，禁止通行，待隐患整改完成后恢复通行。
 
-人这一辈子，一定要去一趟雅安！
+当地21日13时发布的水文监测数据显示，过去5小时，东兴市普降暴雨到大暴雨，累计雨量较大的有东兴镇东兴城区247.5毫米、江那村184.5毫米。
 
-“我准备倒闭了！
+受强降雨影响，北仑河东兴城区河段21日出现3.25米的涨幅，北仑河东兴城区河段东兴水文站于当天15时20分出现6.94米的洪峰水位(警戒水位5.5米)，为常遇洪水；江平江江平站4.74米(警戒水位6.0米)，接近洪峰。
 
-”多位书记省长会见一位外企高管美伊以战事真是“文明的冲突”吗？
+目前，防城区人民路等区域的积水已消退，路已通，居民出行顺畅，防城港市防汛抗旱指挥部决定自21日18时30分起将防城港市洪涝灾害三级应急响应调整为四级应急响应。
 
 ## 相关推荐
 
-- 2026-06-29 19:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 19:06 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 19:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 19:09 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 19:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 19:09 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 19:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 19:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 19:17 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 19:06 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 19:20 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 19:10 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 19:25 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 19:24 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 19:26 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 19:06 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 19:19 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 19:17 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 19:08 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 19:08 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 19:09 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 19:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:10 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/144584819637.shtml)
-- 2026-06-29 19:29 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/47354760.shtml)
-- 2026-06-29 19:21 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/7455326616.shtml)
-- 2026-06-29 19:26 - [王楚钦开门红](http://www.share.minike.top/Article/details/4004748.shtml)
-- 2026-06-29 19:14 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/4787308516.shtml)
-- 2026-06-29 19:00 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/838864976.shtml)
-- 2026-06-29 19:14 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/283469283.shtml)
-- 2026-06-29 19:24 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/93316.shtml)
-- 2026-06-29 19:26 - [许建琼任湖南省检察院副检察长](http://www.blog.minike.top/Article/details/911221.shtml)
-- 2026-06-29 19:08 - [夏天被这些虫子咬了可能致命](http://www.blog.minike.top/Article/details/5363884.shtml)
-- 2026-06-29 19:03 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/0314336.shtml)
-- 2026-06-29 19:17 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/40923.shtml)
-- 2026-06-29 19:02 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/24216518871.shtml)
-- 2026-06-29 19:07 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/19278.shtml)
-- 2026-06-29 19:01 - [Ella回应SHE何时合体](http://www.blog.minike.top/Article/details/706214114612.shtml)
+- 2026-06-29 19:32 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/51804835.shtml)
+- 2026-06-29 19:21 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/9162112.shtml)
+- 2026-06-29 19:32 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/14518429.shtml)
+- 2026-06-29 19:26 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/5916534.shtml)
+- 2026-06-29 19:13 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/07647587.shtml)
+- 2026-06-29 19:14 - [一见倾心](http://www.share.minike.top/Article/details/067004.shtml)
+- 2026-06-29 19:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/051200010762.shtml)
+- 2026-06-29 19:22 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/077180484690.shtml)
+- 2026-06-29 19:17 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/765193528.shtml)
+- 2026-06-29 19:29 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/28736.shtml)
+- 2026-06-29 19:35 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/145533.shtml)
+- 2026-06-29 19:23 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/927894.shtml)
+- 2026-06-29 19:35 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/19067.shtml)
+- 2026-06-29 19:23 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/519341938.shtml)
+- 2026-06-29 19:22 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/52234.shtml)

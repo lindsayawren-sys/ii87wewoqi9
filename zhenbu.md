@@ -1,56 +1,45 @@
-# 霍尔木兹海峡油轮通航短期内难以恢复正常，“需数周，甚至数月”
+# 四方股份：聘任付饶为公司副总裁
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-记者：安妮克・鲍、约瑟夫・威尔金斯 核心要点 美国与伊朗达成的 “脆弱停火”，让市场燃起霍尔木兹海峡全面重新开放、终结这场可能重创全球经济的能源供应危机的希望。 但航运与海事专家警告，这条全球关键能源通道的通航短期内无法恢复正常。 美国总统特朗普周二表示，此次停火的前提是霍尔木兹海峡 “全面、立即、安全地开放”。该海峡通常承担着全球约五分之一的石油与天然气供应运输任务。 美国副
+四方股份5月22日公告，公司当天召开第八届董事会第九次会议，审议通过了《关于聘任公司副总裁的议案》，同意聘任付饶为公司副总裁，任期至第八届董事会届满之日。 付饶同时继续兼任公司财务负责人。
 
 ## 正文
 
-记者：安妮克・鲍、约瑟夫・威尔金斯 核心要点 美国与伊朗达成的 “脆弱停火”，让市场燃起霍尔木兹海峡全面重新开放、终结这场可能重创全球经济的能源供应危机的希望。
+四方股份5月22日公告，公司当天召开第八届董事会第九次会议，审议通过了《关于聘任公司副总裁的议案》，同意聘任付饶为公司副总裁，任期至第八届董事会届满之日。
 
-但航运与海事专家警告，这条全球关键能源通道的通航短期内无法恢复正常。
-
-美国总统特朗普周二表示，此次停火的前提是霍尔木兹海峡 “全面、立即、安全地开放”。
-
-该海峡通常承担着全球约五分之一的石油与天然气供应运输任务。
-
-美国副总统 JD・万斯周三重申，伊朗领导层已同意开放霍尔木兹海峡。
-
-然而，伊朗方面明确表示，重新开放附有条件，需与该国武装力量协调，并受技术条件限制。
-
-这份脆弱的停火协议几乎未能重建油轮穿越海峡的信心，尤其是在以色列升级对黎巴嫩的致命袭击、停火协议濒临破裂的背景下。
-
-标普全球市场情报数据显示，霍尔木兹海峡的通航量尚未出现实质性反弹，周三仅记录到 4 艘船只过境。
+付饶同时继续兼任公司财务负责人。
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 19:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 19:25 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 19:14 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 19:03 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 19:24 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 19:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 19:11 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 19:24 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 19:15 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 19:18 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 19:32 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 19:25 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 19:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 19:26 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 19:26 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 19:17 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 19:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 19:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 19:27 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 19:10 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:11 - [逆天祖国人](https://www.blog.minike.top/Article/details/25918.shtml)
-- 2026-06-29 19:05 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/53994645369.shtml)
-- 2026-06-29 19:07 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/248222.shtml)
-- 2026-06-29 19:22 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/76235.shtml)
-- 2026-06-29 19:26 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/835314.shtml)
-- 2026-06-29 19:11 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/4186679.shtml)
-- 2026-06-29 19:17 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.minike.top/Article/details/31890912327.shtml)
-- 2026-06-29 19:13 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/535431536.shtml)
-- 2026-06-29 19:24 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/559813243426.shtml)
-- 2026-06-29 19:10 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/812346130.shtml)
-- 2026-06-29 19:14 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/78991844448.shtml)
-- 2026-06-29 19:24 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/26571607306.shtml)
-- 2026-06-29 19:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/9942892868.shtml)
-- 2026-06-29 19:15 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/687490417746.shtml)
-- 2026-06-29 19:16 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/3806018980.shtml)
+- 2026-06-29 19:13 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/097663.shtml)
+- 2026-06-29 19:16 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/51795029.shtml)
+- 2026-06-29 19:09 - [急先锋](https://www.blog.kurohicncr.top/Article/details/9943340.shtml)
+- 2026-06-29 19:26 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/56972687.shtml)
+- 2026-06-29 19:32 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/52761875098.shtml)
+- 2026-06-29 19:17 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/17205624242.shtml)
+- 2026-06-29 19:23 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/88095.shtml)
+- 2026-06-29 19:06 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/1103014869.shtml)
+- 2026-06-29 19:33 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/886574963853.shtml)
+- 2026-06-29 19:36 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/57575722.shtml)
+- 2026-06-29 19:06 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/776669.shtml)
+- 2026-06-29 19:18 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/633432.shtml)
+- 2026-06-29 19:29 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/37713488.shtml)
+- 2026-06-29 19:22 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/574047.shtml)
+- 2026-06-29 19:15 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/20268.shtml)

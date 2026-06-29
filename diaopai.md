@@ -1,44 +1,56 @@
-# 润泽科技：一季度归母净利润5.82亿元，同比增长35.35%
+# 袁隆平逝世五周年 社会各界追思缅怀
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-润泽科技4月9日公告，2026年第一季度实现营业收入18.4亿元，同比增长53.55%；归属于上市公司股东的净利润5.82亿元，同比增长35.35%；基本每股收益0.36元。
+中新社长沙5月21日电 题：袁隆平逝世五周年 社会各界追思缅怀 中新社记者 唐小晴 徐志雄 5月22日是“杂交水稻之父”袁隆平逝世五周年纪念日。连日来，长沙唐人万寿园的袁隆平纪念墓园，社会各界人士自发来到这里追思缅怀这位“共和国勋章”获得者。 在湖南农业大学留学的马达加斯加青年白泽宇带来了马达加斯加农民收割杂交水稻的照片。“马达加斯加把中国杂交水稻图案印上纸币，表达对中方帮助的
 
 ## 正文
 
-润泽科技4月9日公告，2026年第一季度实现营业收入18.4亿元，同比增长53.55%；归属于上市公司股东的净利润5.82亿元，同比增长35.35%；基本每股收益0.36元。
+中新社长沙5月21日电 题：袁隆平逝世五周年 社会各界追思缅怀 中新社记者 唐小晴 徐志雄 5月22日是“杂交水稻之父”袁隆平逝世五周年纪念日。
+
+连日来，长沙唐人万寿园的袁隆平纪念墓园，社会各界人士自发来到这里追思缅怀这位“共和国勋章”获得者。
+
+在湖南农业大学留学的马达加斯加青年白泽宇带来了马达加斯加农民收割杂交水稻的照片。
+
+“马达加斯加把中国杂交水稻图案印上纸币，表达对中方帮助的感谢之情，杂交水稻也成为加深马中友谊的桥梁。
+
+”他告诉记者，杂交水稻给他的国家带来了巨大改变，解决了许多人粮食短缺问题，还让当地农民提高收入。
+
+“袁隆平是一位享誉世界的伟人，他毕生所做的不只是培育水稻，更是致力于解决全人类的生存难题。
+
+”白泽宇说，他学成回国后，会传承袁隆平的善意与精神，帮助马达加斯加人民开展杂交水稻科研事业。
+
+带着启两优2216杂交稻秧苗，湖南长沙县春华镇75岁的种粮大户龙平鄂和两位农民来到袁隆平墓地感谢“温饱之恩”，回忆了他与袁老的三次见面。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 19:29 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 19:11 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 19:13 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 19:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 19:28 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 19:22 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 19:27 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 19:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 19:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 19:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 19:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 19:32 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 19:26 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 19:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 19:28 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 19:29 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 19:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 19:26 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 19:23 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 19:08 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 19:14 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:13 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/308337.shtml)
-- 2026-06-29 19:19 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/190818982.shtml)
-- 2026-06-29 19:21 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/1731323613.shtml)
-- 2026-06-29 19:03 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/51079.shtml)
-- 2026-06-29 19:02 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/773817515212.shtml)
-- 2026-06-29 19:29 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/234724877.shtml)
-- 2026-06-29 19:07 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/1815134.shtml)
-- 2026-06-29 19:00 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/64497247829.shtml)
-- 2026-06-29 19:24 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/262210518929.shtml)
-- 2026-06-29 19:00 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/82383091.shtml)
-- 2026-06-29 19:17 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/4519693699.shtml)
-- 2026-06-29 19:19 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/06520388487.shtml)
-- 2026-06-29 19:00 - [逃狱兄弟](https://www.blog.minike.top/Article/details/947270071.shtml)
-- 2026-06-29 19:14 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/422796745940.shtml)
-- 2026-06-29 19:27 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/6808986.shtml)
+- 2026-06-29 19:22 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/2814576.shtml)
+- 2026-06-29 19:18 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/968689947102.shtml)
+- 2026-06-29 19:26 - [我们的少年时代2](http://www.blog.minike.top/Article/details/44269529.shtml)
+- 2026-06-29 19:21 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/93325138.shtml)
+- 2026-06-29 19:06 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/86552559087.shtml)
+- 2026-06-29 19:20 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/976871.shtml)
+- 2026-06-29 19:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/028036795828.shtml)
+- 2026-06-29 19:33 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/985783765922.shtml)
+- 2026-06-29 19:30 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/8768768401.shtml)
+- 2026-06-29 19:17 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/0310061852.shtml)
+- 2026-06-29 19:20 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/3992602372.shtml)
+- 2026-06-29 19:20 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/930725.shtml)
+- 2026-06-29 19:17 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/81514630538.shtml)
+- 2026-06-29 19:16 - [逆天祖国人](https://www.share.minike.top/Article/details/23893.shtml)
+- 2026-06-29 19:29 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/28149816.shtml)

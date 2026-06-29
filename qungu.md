@@ -1,59 +1,45 @@
-# 内蒙古“三北”工程一线见闻：为了这片来之不易的绿
+# 中国建设银行广东省分行原资深副经理李宝生接受审查调查
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网乌兰察布4月10日电 题：内蒙古“三北”工程一线见闻：为了这片来之不易的绿 中新网记者 张林虎 春风吹过内蒙古大地，黄河“几”字弯两岸，草方格如金色地毯般向沙漠深处铺展；乌兰察布的山林间，护林员的身影穿梭在林道上，喇叭里反复叮嘱着防火的话语。 从沙进人退到绿进沙退，从满目荒芜到郁郁葱葱，这些变化背后，是无数普通人日复一日的坚守。他们中，有人每天徒步十多公里守护林子，有人蹲
+中新网5月22日电 据中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委消息：中国建设银行广东省分行原资深副经理李宝生涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国建设银行纪检监察组纪律审查和广东省东莞市监察委员会监察调查。
 
 ## 正文
 
-中新网乌兰察布4月10日电 题：内蒙古“三北”工程一线见闻：为了这片来之不易的绿 中新网记者 张林虎 春风吹过内蒙古大地，黄河“几”字弯两岸，草方格如金色地毯般向沙漠深处铺展；乌兰察布的山林间，护林员的身影穿梭在林道上，喇叭里反复叮嘱着防火的话语。
-
-从沙进人退到绿进沙退，从满目荒芜到郁郁葱葱，这些变化背后，是无数普通人日复一日的坚守。
-
-他们中，有人每天徒步十多公里守护林子，有人蹲在沙窝里扎下一个个草方格，还有更多人靠着治沙工程在家门口挣到了实实在在的收入。
-
-生态治理，最终落点是让群众过上好日子——这句话，正一点点变成现实。
-
-一林一木，皆护家园 “老乡，进山可不能带火种，一点火星都可能酿成大祸。
-
-”清晨，乌兰察布市兴和县店子镇的护林员张艾所手持防火宣传喇叭，沿着蜿蜒的林道缓慢前行。
-
-张艾所是兴和县1395名护林员中的一员。
-
-“每天的巡护里程超过10公里，不光要排查火灾隐患、劝阻违规用火、查看苗木长势，防火季还要守住进山道口，严格检查来往人员。
+中新网5月22日电 据中央纪委国家监委驻中国建设银行纪检监察组、广东省纪委监委消息：中国建设银行广东省分行原资深副经理李宝生涉嫌严重违纪违法，目前正接受中央纪委国家监委驻中国建设银行纪检监察组纪律审查和广东省东莞市监察委员会监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 19:08 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 19:01 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 19:19 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-29 19:09 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 19:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 19:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 19:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 19:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 19:19 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 19:12 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 19:09 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 19:25 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 19:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 19:24 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 19:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 19:27 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 19:14 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 19:34 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 19:23 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 19:25 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 19:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 19:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 19:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 19:27 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 19:30 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/86097.shtml)
-- 2026-06-29 19:22 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/61825866438.shtml)
-- 2026-06-29 19:28 - [小众羞耻点是吃麻辣烫](http://www.share.minike.top/Article/details/039429495.shtml)
-- 2026-06-29 19:17 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/043689021.shtml)
-- 2026-06-29 19:26 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/580135551.shtml)
-- 2026-06-29 19:28 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/56191100963.shtml)
-- 2026-06-29 19:23 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/14716657.shtml)
-- 2026-06-29 19:11 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/048055460960.shtml)
-- 2026-06-29 19:06 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/5172515.shtml)
-- 2026-06-29 19:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/55616435.shtml)
-- 2026-06-29 19:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/16611.shtml)
-- 2026-06-29 19:27 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/18765109.shtml)
-- 2026-06-29 19:22 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/436092807.shtml)
-- 2026-06-29 19:10 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/545202819.shtml)
-- 2026-06-29 19:02 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/971804997106.shtml)
+- 2026-06-29 19:23 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/687880.shtml)
+- 2026-06-29 19:32 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/73754012.shtml)
+- 2026-06-29 19:29 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/65773933323.shtml)
+- 2026-06-29 19:33 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.minike.top/Article/details/26862365.shtml)
+- 2026-06-29 19:12 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/92131205.shtml)
+- 2026-06-29 19:30 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/574806269.shtml)
+- 2026-06-29 19:09 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/00907284.shtml)
+- 2026-06-29 19:19 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/15843030443.shtml)
+- 2026-06-29 19:26 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/559783311.shtml)
+- 2026-06-29 19:28 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/6678510.shtml)
+- 2026-06-29 19:07 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/1327895232.shtml)
+- 2026-06-29 19:28 - [这一刀 会很帅](http://www.share.minike.top/Article/details/9132087.shtml)
+- 2026-06-29 19:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/651548171.shtml)
+- 2026-06-29 19:20 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/97339928895.shtml)
+- 2026-06-29 19:31 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/8783625937.shtml)

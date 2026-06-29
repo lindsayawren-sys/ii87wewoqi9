@@ -1,57 +1,57 @@
-# 英国首相斯塔默与特朗普商讨霍尔木兹海峡的军事方案
+# 酒价内参5月22日价格发布：洋河梦之蓝M6+领跌 总价回落至近九日低位
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-英国首相基尔・斯塔默周五表示，他前一天与美国总统唐纳德・特朗普通话时，讨论了霍尔木兹海峡的军事能力及船只通行的后勤保障问题。 斯塔默在访问海湾地区时称：“我们正联合多国组建联盟……制定政治与外交方案，同时也在研究军事能力，以及船只通过霍尔木兹海峡的实际后勤安排。” “昨晚通话的核心正是这一点——既回顾了我的磋商内容，也聚焦于海峡通航的务实方案。”他未透露更多细节。 被问及是否向
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。 今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。上涨方面，青花郎涨幅居前，上涨5元/瓶，重
 
 ## 正文
 
-英国首相基尔・斯塔默周五表示，他前一天与美国总统唐纳德・特朗普通话时，讨论了霍尔木兹海峡的军事能力及船只通行的后勤保障问题。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。
 
-斯塔默在访问海湾地区时称：“我们正联合多国组建联盟……制定政治与外交方案，同时也在研究军事能力，以及船只通过霍尔木兹海峡的实际后勤安排。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。
 
-” “昨晚通话的核心正是这一点——既回顾了我的磋商内容，也聚焦于海峡通航的务实方案。
+市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。
 
-”他未透露更多细节。
+今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
 
-被问及是否向特朗普提及美国威胁退出北约一事，斯塔默未直接回应，仅表示北约符合美欧双方利益。
+上涨方面，青花郎涨幅居前，上涨5元/瓶，重返710元关口，平月内最高价纪录；五粮液普五八代上涨2元/瓶；五粮液1618小幅上涨1元/瓶。
 
-他说：“北约是防御性联盟，数十年来让我们的安全状况远胜以往。
+下跌方面，洋河梦之蓝M6+跌幅居前，下跌6元/瓶，回吐前一日全部涨幅；国窖1573下跌4元/瓶，连续四日回落，价格进一步远离900元关口，回调至月内低位；飞天茅台、精品茅台、古井贡古20与水晶剑南春均下跌2元/瓶；古20遭遇四连阴，价格下探至月内新低；水晶剑南春平近一个月最低价纪录；习酒君品小幅下跌1元/瓶，价格再度回落至月内次低位。
 
-”责任编辑：李肇孚
+青花汾20的价格环比保持不变，平月内最低价纪录。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 19:23 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 19:29 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 19:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 19:13 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 19:02 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 19:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 19:26 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 19:03 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 19:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 19:14 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 19:21 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 19:01 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 19:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 19:27 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 19:35 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 19:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 19:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 19:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 19:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 19:35 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 19:20 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 19:31 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 19:10 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/9879675.shtml)
-- 2026-06-29 19:16 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/290045677.shtml)
-- 2026-06-29 19:15 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/56329.shtml)
-- 2026-06-29 19:04 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.kurohicncr.top/Article/details/831151399.shtml)
-- 2026-06-29 19:10 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/14627625.shtml)
-- 2026-06-29 19:20 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/65450.shtml)
-- 2026-06-29 19:07 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.kurohicncr.top/Article/details/95886.shtml)
-- 2026-06-29 19:09 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/85449467055.shtml)
-- 2026-06-29 19:08 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/075731881788.shtml)
-- 2026-06-29 19:19 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/8280269.shtml)
-- 2026-06-29 19:22 - [王俊凯命名方式](http://www.share.minike.top/Article/details/819661341068.shtml)
-- 2026-06-29 19:13 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/8623568375.shtml)
-- 2026-06-29 19:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0723783936.shtml)
-- 2026-06-29 19:26 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/26791731494.shtml)
-- 2026-06-29 19:04 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/316228.shtml)
+- 2026-06-29 19:19 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/921491145.shtml)
+- 2026-06-29 19:35 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/629122815.shtml)
+- 2026-06-29 19:06 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/854169.shtml)
+- 2026-06-29 19:24 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/3809871.shtml)
+- 2026-06-29 19:27 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/39192.shtml)
+- 2026-06-29 19:28 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/995751174671.shtml)
+- 2026-06-29 19:08 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/79799.shtml)
+- 2026-06-29 19:14 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/132846563570.shtml)
+- 2026-06-29 19:16 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/266135.shtml)
+- 2026-06-29 19:30 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.blog.minike.top/Article/details/08413.shtml)
+- 2026-06-29 19:33 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/43104.shtml)
+- 2026-06-29 19:14 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/9005963680.shtml)
+- 2026-06-29 19:24 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/4075943230.shtml)
+- 2026-06-29 19:31 - [逃狱兄弟](https://www.share.minike.top/Article/details/28877381036.shtml)
+- 2026-06-29 19:21 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/102035982995.shtml)

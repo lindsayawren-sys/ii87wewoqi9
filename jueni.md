@@ -1,61 +1,49 @@
-# 阿联酋国家石油公司CEO：停火后伊朗仍控制霍尔木兹海峡，海峡并未开放
+# 因降雨预警 北京市郊部分列车临时停运
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-阿布扎比国家石油公司首席执行官周四表示，在美伊同意停火两周后，霍尔木兹海峡尚未对船舶交通开放。 “此刻需要 clarity。所以让我们明确一点：霍尔木兹海峡并未开放。通行正受到限制、设定条件和控制，”苏丹·艾哈迈德·阿尔·贾比尔在社交媒体发帖中表示。 伊朗已明确表示，船只必须获得其许可才能通过该海峡，阿尔·贾比尔说。“那不是航行自由。那是胁迫，”这位阿布扎比国家石油公司负责人表
+记者从国铁北京局了解到，‍‍因降雨预警，明天 (5月22日)，北京市郊S2线S201次、S202次、S287次、S288次列车临时停运；怀柔-密云线S501次、S502次列车临时停运。 (总台央视记者 郑连凯)
 
 ## 正文
 
-阿布扎比国家石油公司首席执行官周四表示，在美伊同意停火两周后，霍尔木兹海峡尚未对船舶交通开放。
+记者从国铁北京局了解到，‍‍因降雨预警，明天 (5月22日)，北京市郊S2线S201次、S202次、S287次、S288次列车临时停运；怀柔-密云线S501次、S502次列车临时停运。
 
-“此刻需要 clarity。
-
-所以让我们明确一点：霍尔木兹海峡并未开放。
-
-通行正受到限制、设定条件和控制，”苏丹·艾哈迈德·阿尔·贾比尔在社交媒体发帖中表示。
-
-伊朗已明确表示，船只必须获得其许可才能通过该海峡，阿尔·贾比尔说。
-
-“那不是航行自由。
-
-那是胁迫，”这位阿布扎比国家石油公司负责人表示。
-
-阿布扎比国家石油公司是阿联酋的国有石油公司。
+(总台央视记者 郑连凯)
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 19:12 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 19:22 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 19:25 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 19:20 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 19:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 19:12 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 19:01 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 19:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 19:19 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 19:09 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 19:21 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 19:03 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 19:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 19:12 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 19:27 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 19:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 19:10 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 19:20 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 19:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 19:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 19:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 19:09 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 19:09 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 19:10 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 19:14 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 19:20 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 19:19 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 19:18 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 19:06 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:09 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/846706228.shtml)
-- 2026-06-29 19:27 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/202875792.shtml)
-- 2026-06-29 19:16 - [女心理师](http://www.blog.kurohicncr.top/Article/details/616476.shtml)
-- 2026-06-29 19:17 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/651386594213.shtml)
-- 2026-06-29 19:00 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/687631963.shtml)
-- 2026-06-29 19:16 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/2252369.shtml)
-- 2026-06-29 19:15 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/986462989.shtml)
-- 2026-06-29 19:29 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/0286977843.shtml)
-- 2026-06-29 19:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/367955.shtml)
-- 2026-06-29 19:25 - [扬名立万](http://www.share.kurohicncr.top/Article/details/350499092.shtml)
-- 2026-06-29 19:03 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/11658364419.shtml)
-- 2026-06-29 19:27 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/955575718175.shtml)
-- 2026-06-29 19:26 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/889383585074.shtml)
-- 2026-06-29 19:04 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/04552.shtml)
-- 2026-06-29 19:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/27459947658.shtml)
+- 2026-06-29 19:33 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/795807.shtml)
+- 2026-06-29 19:34 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/66248.shtml)
+- 2026-06-29 19:07 - [逃狱兄弟](http://www.share.minike.top/Article/details/5419741625.shtml)
+- 2026-06-29 19:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/98917241.shtml)
+- 2026-06-29 19:12 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/66329634.shtml)
+- 2026-06-29 19:25 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/008838915720.shtml)
+- 2026-06-29 19:21 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/0482700.shtml)
+- 2026-06-29 19:14 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/7459765512.shtml)
+- 2026-06-29 19:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/011935.shtml)
+- 2026-06-29 19:28 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/522190664822.shtml)
+- 2026-06-29 19:08 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/072086894916.shtml)
+- 2026-06-29 19:10 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/438115231699.shtml)
+- 2026-06-29 19:30 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/99724045140.shtml)
+- 2026-06-29 19:23 - [美人鱼](https://www.share.minike.top/Article/details/30028258.shtml)
+- 2026-06-29 19:32 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/16554123.shtml)

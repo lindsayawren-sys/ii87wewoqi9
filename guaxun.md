@@ -1,61 +1,57 @@
-# 山西“资金+监管+改革”协同发力 托起幸福“夕阳红”
+# “十四五”期间北京生态环境稳中向好 珍稀物种频频现身
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网太原4月9日电 (记者 杨静)养老服务事关千家万户幸福安康。在山西省委宣传部、山西省人民政府新闻办公室9日举行的《山西省深化养老服务改革发展的若干举措》政策吹风会上，山西省财政厅副厅长王娅萍表示，山西将养老服务体系建设摆在财政支出保障的优先位置，通过“资金投入、绩效监管、制度改革”三管齐下，推动全省养老服务高质量发展。 数据显示，“十四五”期间，山西用于养老服务和老年人福
+中新网北京5月22日电 (记者 陈杭)“十四五”以来，北京市坚定不移走生态优先、绿色发展之路，生物多样性保护取得显著成效，生态环境质量稳步改善，有力支撑城市生态品质提升。 这是记者22日从北京市生态环境局获悉的。 深耕空间保护体系 据介绍，北京科学划定保护空间，在全市划定占市域面积27.5%的生态保护红线和19%左右的自然保护地，为生物多样性提供了有效的空间保护；在城市内建设生
 
 ## 正文
 
-中新网太原4月9日电 (记者 杨静)养老服务事关千家万户幸福安康。
+中新网北京5月22日电 (记者 陈杭)“十四五”以来，北京市坚定不移走生态优先、绿色发展之路，生物多样性保护取得显著成效，生态环境质量稳步改善，有力支撑城市生态品质提升。
 
-在山西省委宣传部、山西省人民政府新闻办公室9日举行的《山西省深化养老服务改革发展的若干举措》政策吹风会上，山西省财政厅副厅长王娅萍表示，山西将养老服务体系建设摆在财政支出保障的优先位置，通过“资金投入、绩效监管、制度改革”三管齐下，推动全省养老服务高质量发展。
+这是记者22日从北京市生态环境局获悉的。
 
-数据显示，“十四五”期间，山西用于养老服务和老年人福利方面的支出达50.39亿元，年均增长53%，超过民生支出增幅48个百分点，有力支撑了养老服务供给能力和服务水平的持续提升。
+深耕空间保护体系 据介绍，北京科学划定保护空间，在全市划定占市域面积27.5%的生态保护红线和19%左右的自然保护地，为生物多样性提供了有效的空间保护；在城市内建设生物多样性示范区、生态保育小区等各类自然带700余处，拓展动植物栖息繁衍空间。
 
-加快完善多层次社会保障体系 在提高养老保险待遇水平方面，2025年，山西各级财政累计投入资金37亿元。
+在自然保护地和生态保护红线内开展生态问题常态化监督，实现动态清零。
 
-其中，投入30.7亿元调整退休人员基本养老金，增幅2%，惠及323.36万退休职工。
+北京完善定期评估机制。
 
-“今年将继续提高这一标准。
+对重要生态空间开展系统性、常态化的生态环境质量评价和生态状况变化评估，既科学摸清生态本底，又精准追踪动态变化。
 
-”王娅萍说。
+评估结果显示，潮白河流域生态保护红线内湿地面积显著增加，水系连通性明显提升；百花山自然保护区内的主要保护物种国家一级保护动物褐马鸡种群数量，从2021年的200余只增长至2025年的500只左右，生态系统格局持续优化，保护成效显著。
 
-同时，山西建立了全国唯一的城乡居民补充养老保险制度：年满65周岁的，每人每月发放20元；年满80周岁的，每人每月再提高10元。
+珍稀物种频频现身 “十四五”期间，北京对全市十余个类群开展系统调查，并在此基础上，初步构建了指示生物类群观测体系，即在全市开展鸟类观测，在生态涵养区开展哺乳动物观测，在中心城区开展蝴蝶和蜻蜓观测，形成兼顾水陆、覆盖全市的观测网络。
 
 ## 相关推荐
 
-- 2026-06-29 19:17 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 19:28 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 19:13 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 19:04 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 19:04 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 19:17 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 19:09 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 19:06 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 19:03 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 19:14 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 19:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 19:21 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 19:27 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 19:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 19:21 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-29 19:14 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 19:14 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 19:31 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 19:27 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 19:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 19:14 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 19:25 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 19:13 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 19:31 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 19:26 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 19:21 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/84911945.shtml)
-- 2026-06-29 19:00 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/218048.shtml)
-- 2026-06-29 19:07 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/9481518.shtml)
-- 2026-06-29 19:19 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/76452.shtml)
-- 2026-06-29 19:20 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/905700408818.shtml)
-- 2026-06-29 19:20 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/80653.shtml)
-- 2026-06-29 19:23 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/57860505271.shtml)
-- 2026-06-29 19:24 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/53704330.shtml)
-- 2026-06-29 19:08 - [东宫女主是不是顶级恋爱脑](http://www.blog.kurohicncr.top/Article/details/952368792.shtml)
-- 2026-06-29 19:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/904873.shtml)
-- 2026-06-29 19:12 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/123046.shtml)
-- 2026-06-29 19:20 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/57803275.shtml)
-- 2026-06-29 19:04 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/86618.shtml)
-- 2026-06-29 19:20 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/1851640944.shtml)
-- 2026-06-29 19:15 - [让AI做一个账号，它会做成什么样？](https://www.blog.minike.top/Article/details/488362402.shtml)
+- 2026-06-29 19:12 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/3501685711.shtml)
+- 2026-06-29 19:21 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/806779947965.shtml)
+- 2026-06-29 19:09 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/24271216.shtml)
+- 2026-06-29 19:32 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/9076473668.shtml)
+- 2026-06-29 19:32 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/90355.shtml)
+- 2026-06-29 19:16 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/7235963.shtml)
+- 2026-06-29 19:21 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/180637.shtml)
+- 2026-06-29 19:10 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/216501293105.shtml)
+- 2026-06-29 19:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/78078324412.shtml)
+- 2026-06-29 19:22 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/389840742288.shtml)
+- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/162335868828.shtml)
+- 2026-06-29 19:26 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/61753986884.shtml)
+- 2026-06-29 19:26 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/52970677809.shtml)
+- 2026-06-29 19:30 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/91868740344.shtml)
+- 2026-06-29 19:17 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/001176.shtml)

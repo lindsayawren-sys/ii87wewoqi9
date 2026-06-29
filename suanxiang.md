@@ -1,50 +1,60 @@
-# 香港国际创科展将于4月13日-4月16日举行
+# NRG Energy任命能源行业专家Glenn Wright为独立董事
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-专题：香港国际科创展 香港国际创科展将于4月13日-4月16日在香港会议展览中心举行，全面展示全球创科成果、创新科技、崭新电子产品及尖端科技方案，于多个领域带来新突破，为创科界、商界及不同领域用户带来最新发展动向与合作机遇。 据悉，今年的香港国际创科展更加国际化，汇聚21个国家及地区展商以及来自国内18个展团。此外，华为国际、中国移动香港、科大讯飞、腾讯云国际及联想（香港）等多
+NRG Energy宣布，任命Glenn Wright为公司独立董事，任命自5月26日起生效。Wright的加入使董事会成员增至11人。 Wright在能源领域拥有超过25年的丰富经验，最近在壳牌担任Shell Energy Americas高级副总裁及Shell New Energies美国总裁兼首席执行官，主导了可再生能源发电业务的扩张，并为北美和南美客户提供综合能源解决方
 
 ## 正文
 
-专题：香港国际科创展 香港国际创科展将于4月13日-4月16日在香港会议展览中心举行，全面展示全球创科成果、创新科技、崭新电子产品及尖端科技方案，于多个领域带来新突破，为创科界、商界及不同领域用户带来最新发展动向与合作机遇。
+NRG Energy宣布，任命Glenn Wright为公司独立董事，任命自5月26日起生效。
 
-据悉，今年的香港国际创科展更加国际化，汇聚21个国家及地区展商以及来自国内18个展团。
+Wright的加入使董事会成员增至11人。
 
-此外，华为国际、中国移动香港、科大讯飞、腾讯云国际及联想（香港）等多家重量级科技企业也将参展。
+Wright在能源领域拥有超过25年的丰富经验，最近在壳牌担任Shell Energy Americas高级副总裁及Shell New Energies美国总裁兼首席执行官，主导了可再生能源发电业务的扩张，并为北美和南美客户提供综合能源解决方案。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+此前，他担任Shell Energy Trading Americas副总裁及Shell Energy North America总裁兼首席执行官，负责监管北美和南美的电力与天然气批发交易业务。
 
-责任编辑：王翔
+NRG董事会主席Antonio Carrillo表示，Glenn在电力市场和客户能源解决方案方面拥有丰富经验，并在管理复杂投资组合方面有出色记录，他的视角对NRG持续推进战略将很有价值。
+
+此前，NRG于今年2月任命了Sanjay Kapoor加入董事会。
+
+NRG近期财务表现稳健。
+
+公司重申了2026年全年指引，调整后EBITDA预计为53.25亿至58.25亿美元，调整后每股收益为7.90至9.90美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 19:23 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 19:23 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 19:00 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 19:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 19:19 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 19:27 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 19:16 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 19:20 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 19:06 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 19:28 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 19:29 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 19:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 19:30 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 19:09 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 19:28 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 19:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 19:20 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 19:21 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 19:33 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 19:13 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 19:26 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 19:08 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 19:24 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/5002986.shtml)
-- 2026-06-29 19:18 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/76254758827.shtml)
-- 2026-06-29 19:22 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/89672511055.shtml)
-- 2026-06-29 19:29 - [人形机器人](http://www.share.kurohicncr.top/Article/details/1329795.shtml)
-- 2026-06-29 19:07 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/288471028.shtml)
-- 2026-06-29 19:21 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/478510988949.shtml)
-- 2026-06-29 19:12 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/71062.shtml)
-- 2026-06-29 19:28 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/26237101.shtml)
-- 2026-06-29 19:13 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/550894564387.shtml)
-- 2026-06-29 19:16 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/78159.shtml)
-- 2026-06-29 19:09 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/16679249959.shtml)
-- 2026-06-29 19:26 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/185896563.shtml)
-- 2026-06-29 19:28 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/51338047.shtml)
-- 2026-06-29 19:20 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/38309.shtml)
-- 2026-06-29 19:03 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/3770840.shtml)
+- 2026-06-29 19:35 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/76872.shtml)
+- 2026-06-29 19:09 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/01268.shtml)
+- 2026-06-29 19:15 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/27112.shtml)
+- 2026-06-29 19:20 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/782434927952.shtml)
+- 2026-06-29 19:21 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/2188933389.shtml)
+- 2026-06-29 19:06 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/710484245626.shtml)
+- 2026-06-29 19:24 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/194374657.shtml)
+- 2026-06-29 19:34 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/146083370717.shtml)
+- 2026-06-29 19:12 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/9989554.shtml)
+- 2026-06-29 19:29 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/5731823143.shtml)
+- 2026-06-29 19:22 - [起风了](http://www.share.kurohicncr.top/Article/details/5702331.shtml)
+- 2026-06-29 19:10 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/256679812.shtml)
+- 2026-06-29 19:35 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/012191971.shtml)
+- 2026-06-29 19:22 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/73585936438.shtml)
+- 2026-06-29 19:21 - [沙丘](http://www.blog.kurohicncr.top/Article/details/423627.shtml)

@@ -1,54 +1,51 @@
-# 岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格
+# 西藏察隅布宗村：穿越横断山深处的高原“小江南”
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与媒体对话。 他表示，芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，汽车产业要有利润，否则不符合市场规律，再涨下去会影响汽车终端的价格，岚图尽可能不要影响到用户的购车体验。通过内部管理效率的提升，尽可能降低外部成本的影响，通过扩大规模
+发布时间：2026年05月22日 09:51 来源：中国新闻网 近日，记者走进地处横断山区的西藏自治区林芝市察隅县，航拍镜头下，布宗村静卧贡日嘎布曲河谷，高原“小江南”图景铺展眼前。 布宗村海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层层环抱，村民的院落散落其间，掩映在苍翠林木中。 中国里程最长的国道G219穿谷而过，将这座藏东南山村接入国家公路
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与媒体对话。
+发布时间：2026年05月22日 09:51 来源：中国新闻网 近日，记者走进地处横断山区的西藏自治区林芝市察隅县，航拍镜头下，布宗村静卧贡日嘎布曲河谷，高原“小江南”图景铺展眼前。
 
-他表示，芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，汽车产业要有利润，否则不符合市场规律，再涨下去会影响汽车终端的价格，岚图尽可能不要影响到用户的购车体验。
+布宗村海拔近2300米，平均气温14至16摄氏度，四周森林密布，红豆杉、云杉、冷杉层层环抱，村民的院落散落其间，掩映在苍翠林木中。
 
-通过内部管理效率的提升，尽可能降低外部成本的影响，通过扩大规模对冲原材料上涨的风险。
+中国里程最长的国道G219穿谷而过，将这座藏东南山村接入国家公路网。
 
-另外，岚图也尽可能推动供应链的本地化，能够有限降低国际原材料上涨的影响，去年岚图就做了很多国产替代的事情。
+绿水穿村，林木葱茏，河谷的生机在镜头里徐徐展开。
 
-责任编辑：郝欣煜
+(王临梓 贡嘎来松 陈静) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 19:05 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 19:23 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 19:26 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 19:26 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 19:10 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 19:07 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 19:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 19:24 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-29 19:21 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 19:29 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 19:10 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 19:24 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 19:01 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 19:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 19:25 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 19:35 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 19:32 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 19:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 19:34 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 19:26 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 19:25 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:19 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 19:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 19:35 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/4030595835.shtml)
-- 2026-06-29 19:17 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/5375898.shtml)
-- 2026-06-29 19:00 - [谢依霖夸杨幂靠谱](http://www.blog.minike.top/Article/details/160394474.shtml)
-- 2026-06-29 19:08 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/691121503827.shtml)
-- 2026-06-29 19:18 - [金刚川](http://www.share.minike.top/Article/details/1407217.shtml)
-- 2026-06-29 19:13 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/24894485225.shtml)
-- 2026-06-29 19:10 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/272216416860.shtml)
-- 2026-06-29 19:07 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/7849791189.shtml)
-- 2026-06-29 19:17 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/30829678877.shtml)
-- 2026-06-29 19:13 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/082515008.shtml)
-- 2026-06-29 19:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/1095035973.shtml)
-- 2026-06-29 19:04 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/98198.shtml)
-- 2026-06-29 19:19 - [依法管制阻遏日方军事化危险动向](https://www.blog.kurohicncr.top/Article/details/3705408796.shtml)
-- 2026-06-29 19:06 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/338091778.shtml)
-- 2026-06-29 19:29 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/121707273209.shtml)
+- 2026-06-29 19:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/8075038.shtml)
+- 2026-06-29 19:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/50004.shtml)
+- 2026-06-29 19:07 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/622542808.shtml)
+- 2026-06-29 19:09 - [TOP Prada](http://www.blog.minike.top/Article/details/93302.shtml)
+- 2026-06-29 19:30 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/14337439.shtml)
+- 2026-06-29 19:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/9279020760.shtml)
+- 2026-06-29 19:16 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/14542880475.shtml)
+- 2026-06-29 19:06 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/42271.shtml)
+- 2026-06-29 19:27 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/688504158.shtml)
+- 2026-06-29 19:29 - [请回答王牌2019](https://www.share.minike.top/Article/details/905925477.shtml)
+- 2026-06-29 19:13 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/655674691754.shtml)
+- 2026-06-29 19:26 - [斗破苍穹](https://www.blog.minike.top/Article/details/681572.shtml)
+- 2026-06-29 19:33 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/93564697.shtml)
+- 2026-06-29 19:28 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/84111.shtml)
+- 2026-06-29 19:27 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/41648.shtml)

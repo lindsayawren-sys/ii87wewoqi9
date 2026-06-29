@@ -1,61 +1,59 @@
-# 52岁的刘强东，比32岁时还忙
+# 缅北魏家犯罪集团主案一审开庭 被指诈骗数额超24亿元
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！52岁的刘强东，比32岁时还忙 || 深度 //// 466亿亏损、零售业务下滑、对手步步紧逼、海外市场待开拓、AI浪潮不能掉队……刘强东要同时面对所有。 作者：海棠葉 编辑：陈涧 设计：岚昇 刘强东闲不下来。 4月9日，他和妻子章泽天又成立了一家公司“宿迁天智时代”，注册资本1000万，归两人名下的“天强
+中新社北京5月22日电 (记者 张素)记者从中国最高人民法院获悉，5月19日至22日，福建省泉州市中级人民法院一审公开开庭审理了被告人魏怀仁、廖景芳、康敏诈骗、故意杀人、敲诈勒索、组织他人偷越国(边)境、偷越国(边)境、容留他人吸毒案，以及关联案件被告人陈大卫、熊恒星故意杀人、诈骗案。泉州市人民检察院起诉指控，2019年以来，以被告人魏怀仁等为首要分子的犯罪集团，利用魏家家族在
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月22日电 (记者 张素)记者从中国最高人民法院获悉，5月19日至22日，福建省泉州市中级人民法院一审公开开庭审理了被告人魏怀仁、廖景芳、康敏诈骗、故意杀人、敲诈勒索、组织他人偷越国(边)境、偷越国(边)境、容留他人吸毒案，以及关联案件被告人陈大卫、熊恒星故意杀人、诈骗案。
 
-52岁的刘强东，比32岁时还忙 || 深度 //// 466亿亏损、零售业务下滑、对手步步紧逼、海外市场待开拓、AI浪潮不能掉队……刘强东要同时面对所有。
+泉州市人民检察院起诉指控，2019年以来，以被告人魏怀仁等为首要分子的犯罪集团，利用魏家家族在缅甸果敢地区的军政影响力，通过自行建设、合作开发等方式先后设立多个园区，招揽、吸引“金主”入驻并提供武装庇护，对中国境内公民实施电信网络诈骗，诈骗数额超过24亿元人民币，并造成2名中国公民死亡。
 
-作者：海棠葉 编辑：陈涧 设计：岚昇 刘强东闲不下来。
+陈大卫等伙同他人故意杀人致2名中国公民死亡。
 
-4月9日，他和妻子章泽天又成立了一家公司“宿迁天智时代”，注册资本1000万，归两人名下的“天强系”全资控股。
+魏怀仁等人还实施了组织他人偷越国(边)境、敲诈勒索等多起犯罪。
 
-这是“天强系”资本版图的最新落子。
+检察机关提请以诈骗罪、故意杀人罪等罪名追究魏怀仁、陈大卫等人的刑事责任。
 
-至此，夫妻俩已共同布局了北京天强坤泰、宿迁天强股权、海南天博私募等多家公司，从控股到投资到基金管理，链条越发完整。
+庭审中，检察机关出示了相关证据，各被告人及其辩护人进行了质证，控辩双方在法庭的主持下充分发表了意见，各被告人进行了最后陈述。
 
-一周前，刘强东才杀进美团大本营，上线京东团购，单单送茶饮，首批试运营就是全国百城百万餐饮门店。
+庭审结束后，法庭宣布休庭，将择期宣判。
 
-再往前，3月24日，刚结束欧洲行程回国的刘强东出现在哈尔滨革新大市场，西装革履，身边跟着一群人——不是他的随行团队，而是黑龙江省委书记许勤、省长梁惠玲，全程陪同的还有哈尔滨书记、市长。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 19:11 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 19:10 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 19:28 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 19:18 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 19:27 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 19:21 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 19:26 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 19:03 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 19:28 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 19:09 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 19:27 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 19:23 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 19:14 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 19:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 19:06 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 19:34 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 19:27 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 19:06 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 19:29 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 19:11 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 19:31 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 19:28 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 19:28 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 19:10 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 19:06 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 19:17 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 19:21 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/448556394.shtml)
-- 2026-06-29 19:18 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/605267.shtml)
-- 2026-06-29 19:02 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/81071834.shtml)
-- 2026-06-29 19:03 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/02622272974.shtml)
-- 2026-06-29 19:24 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/423080777485.shtml)
-- 2026-06-29 19:12 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/072705.shtml)
-- 2026-06-29 19:23 - [欧洲极端高温如何影响家电股](https://www.share.minike.top/Article/details/47107652.shtml)
-- 2026-06-29 19:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/36201301.shtml)
-- 2026-06-29 19:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/5608892139.shtml)
-- 2026-06-29 19:01 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/66176065.shtml)
-- 2026-06-29 19:00 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/436103712105.shtml)
-- 2026-06-29 19:19 - [啊啊啊](https://www.blog.minike.top/Article/details/2746553.shtml)
-- 2026-06-29 19:23 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/173009048582.shtml)
-- 2026-06-29 19:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/74877399562.shtml)
-- 2026-06-29 19:27 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/447686.shtml)
+- 2026-06-29 19:15 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/88114883.shtml)
+- 2026-06-29 19:06 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/60148592.shtml)
+- 2026-06-29 19:31 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/608743270820.shtml)
+- 2026-06-29 19:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/70742319.shtml)
+- 2026-06-29 19:35 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/5215976.shtml)
+- 2026-06-29 19:11 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/555885374003.shtml)
+- 2026-06-29 19:26 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/665904443370.shtml)
+- 2026-06-29 19:14 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/4082111298.shtml)
+- 2026-06-29 19:23 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/99886366.shtml)
+- 2026-06-29 19:31 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/985268.shtml)
+- 2026-06-29 19:16 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/035298282.shtml)
+- 2026-06-29 19:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/0069734673.shtml)
+- 2026-06-29 19:09 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/2100649424.shtml)
+- 2026-06-29 19:18 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/8874613.shtml)
+- 2026-06-29 19:33 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/870471773.shtml)

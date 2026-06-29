@@ -1,53 +1,49 @@
-# 浙商银行：吕临华获批担任董事、行长，首席合规官职务同步生效
+# 珀莱雅：拟3.51亿元收购花知晓公司12.55%股份
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，浙商银行今日发布公告称，该行收到《国家金融监督管理总局关于吕临华浙商银行董事、行长任职资格的批复》（金复〔2026〕195 号）。根据有关规定，国家金融监督管理总局已核准吕临华的董事、行长的任职资格。吕临华担任公司首席合规官职务同步生效。 公开资料显示，吕临华，1978 年 5 月出生，硕士研究生。曾任中国保险监督管理委员会浙江监管局统计研究处处长助理，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：蓝鲸新闻 珀莱雅5月21日公告，公司旗下全资子公司珀莱雅（海南）投资有限公司（以下简称“珀莱雅（海南）”），于2026年5月21日与自然人杨子枫，签订了《关于深圳花知晓电子商务有限公司之股权转让协议》，珀莱雅（海南）拟以自有资金通过支付现金方式受让杨子枫持有的花知晓公司12.5479%的股权，交易金额
 
 ## 正文
 
-4月10日金融一线消息，浙商银行今日发布公告称，该行收到《国家金融监督管理总局关于吕临华浙商银行董事、行长任职资格的批复》（金复〔2026〕195 号）。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据有关规定，国家金融监督管理总局已核准吕临华的董事、行长的任职资格。
+来源：蓝鲸新闻 珀莱雅5月21日公告，公司旗下全资子公司珀莱雅（海南）投资有限公司（以下简称“珀莱雅（海南）”），于2026年5月21日与自然人杨子枫，签订了《关于深圳花知晓电子商务有限公司之股权转让协议》，珀莱雅（海南）拟以自有资金通过支付现金方式受让杨子枫持有的花知晓公司12.5479%的股权，交易金额为3.51亿元。
 
-吕临华担任公司首席合规官职务同步生效。
+上述股权转让交割完成后，公司通过全资子公司珀莱雅（海南）持有花知晓公司51%的股权，花知晓公司纳入公司合并报表范围。
 
-公开资料显示，吕临华，1978 年 5 月出生，硕士研究生。
-
-曾任中国保险监督管理委员会浙江监管局统计研究处处长助理，办公室（党委办公室）主任助理、副主任、主任；中国银行保险监督管理委员会浙江监管局政策法规处处长，办公室（党委办公室、党委巡察办公室）主任、一级调研员；浙江农村商业联合银行党委委员、副行长。
-
-责任编辑：曹睿潼
+责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 19:03 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 19:16 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 19:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 19:22 - [TTG KSG](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 19:10 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 19:00 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 19:07 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 19:03 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 19:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 19:11 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 19:34 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 19:11 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 19:12 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 19:19 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 19:27 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 19:25 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 19:29 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 19:15 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 19:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 19:06 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 19:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:21 - [起风了](https://www.blog.minike.top/Article/details/865611.shtml)
-- 2026-06-29 19:07 - [笔记本电脑一年涨价近一倍](https://www.share.kurohicncr.top/Article/details/33034.shtml)
-- 2026-06-29 19:11 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/01114842736.shtml)
-- 2026-06-29 19:19 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/33191.shtml)
-- 2026-06-29 19:28 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/60001173.shtml)
-- 2026-06-29 19:21 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/1099025083.shtml)
-- 2026-06-29 19:12 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/05500441.shtml)
-- 2026-06-29 19:00 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/710465.shtml)
-- 2026-06-29 19:18 - [金牌调解](http://www.share.kurohicncr.top/Article/details/55103984455.shtml)
-- 2026-06-29 19:08 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/423752976.shtml)
-- 2026-06-29 19:28 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/9034963966.shtml)
-- 2026-06-29 19:28 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/91037418267.shtml)
-- 2026-06-29 19:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/158727597.shtml)
-- 2026-06-29 19:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/64690694.shtml)
-- 2026-06-29 19:12 - [金刚川](https://www.share.minike.top/Article/details/638210032895.shtml)
+- 2026-06-29 19:18 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/326491.shtml)
+- 2026-06-29 19:22 - [NBA交易](http://www.blog.minike.top/Article/details/0021092.shtml)
+- 2026-06-29 19:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/6577315394.shtml)
+- 2026-06-29 19:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/40514836.shtml)
+- 2026-06-29 19:21 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/67026.shtml)
+- 2026-06-29 19:33 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/380395592.shtml)
+- 2026-06-29 19:13 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/88771121258.shtml)
+- 2026-06-29 19:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/13405572.shtml)
+- 2026-06-29 19:07 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/7986175384.shtml)
+- 2026-06-29 19:11 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/254854705965.shtml)
+- 2026-06-29 19:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/71086.shtml)
+- 2026-06-29 19:09 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/98131.shtml)
+- 2026-06-29 19:07 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/76213732.shtml)
+- 2026-06-29 19:29 - [沙丘](https://www.share.kurohicncr.top/Article/details/004825521826.shtml)
+- 2026-06-29 19:20 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/6099614.shtml)

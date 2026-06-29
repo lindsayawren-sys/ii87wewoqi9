@@ -1,61 +1,46 @@
-# 若霍尔木兹海峡仍不开放，欧洲机场或在三周内面临航空燃油短缺
+# 伊朗最高领袖称铀必须留在伊朗
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-核心要点 欧洲机场行业警告称，航空燃油短缺可能在三周内出现，扰乱夏季出行并对欧洲经济造成 “显著” 损害。 代表欧盟全境机场的欧洲机场理事会（ACI Europe）周四表示，燃油供应紧张将扰乱机场运营与航空连通性。 该机构在致欧盟可持续交通与旅游专员阿波斯托洛斯・齐齐科斯塔斯的信函中（已向 CNBC 公开）警告，燃油短缺将对欧洲经济产生 “严重的经济影响”。 信函写道：“现阶段
+两位知情人士透露，伊朗最高领袖已下令禁止将该国接近武器级的铀运往国外。 知情人士称，伊朗高层官员认为，将这些铀运往国外会使伊朗未来更容易遭受美国和以色列的袭击 白宫和伊朗外交部均未回应置评请求。责任编辑：刘明亮
 
 ## 正文
 
-核心要点 欧洲机场行业警告称，航空燃油短缺可能在三周内出现，扰乱夏季出行并对欧洲经济造成 “显著” 损害。
+两位知情人士透露，伊朗最高领袖已下令禁止将该国接近武器级的铀运往国外。
 
-代表欧盟全境机场的欧洲机场理事会（ACI Europe）周四表示，燃油供应紧张将扰乱机场运营与航空连通性。
+知情人士称，伊朗高层官员认为，将这些铀运往国外会使伊朗未来更容易遭受美国和以色列的袭击 白宫和伊朗外交部均未回应置评请求。
 
-该机构在致欧盟可持续交通与旅游专员阿波斯托洛斯・齐齐科斯塔斯的信函中（已向 CNBC 公开）警告，燃油短缺将对欧洲经济产生 “严重的经济影响”。
-
-信函写道：“现阶段我们判断，如果未来三周内霍尔木兹海峡的通航无法实现大规模、稳定恢复，欧盟将面临系统性航空燃油短缺。
-
-” 欧洲机场理事会表示，在 “夏季旺季” 来临前，潜在的燃油短缺问题尤为令人担忧，许多欧盟成员国都依赖航空出行增长拉动经济。
-
-据该机构数据，航空连通性为欧洲经济创造 8510 亿欧元（近 1 万亿美元）GDP，并支撑 1400 万个就业岗位。
-
-声明补充道：“因此，欧盟必须将保障航空燃油的充足与稳定供应，作为应对中东冲突引发石油与能源危机的核心举措。
-
-” 2 月 28 日爆发的美国、以色列与伊朗之间的冲突，导致霍尔木兹海峡航运基本中断，国际油价突破每桶 100 美元，能源成本全面攀升。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 19:27 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 19:21 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 19:00 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-29 19:24 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 19:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 19:27 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 19:07 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 19:14 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 19:22 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 19:21 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 19:20 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 19:14 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 19:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 19:22 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 19:11 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 19:07 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 19:28 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 19:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 19:31 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 19:09 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 19:19 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 19:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 19:31 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 19:12 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/81264442989.shtml)
-- 2026-06-29 19:11 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/00401960.shtml)
-- 2026-06-29 19:10 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/449850733.shtml)
-- 2026-06-29 19:13 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/4731578540.shtml)
-- 2026-06-29 19:27 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/423927828.shtml)
-- 2026-06-29 19:06 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/359838991908.shtml)
-- 2026-06-29 19:23 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/67413452738.shtml)
-- 2026-06-29 19:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/62279.shtml)
-- 2026-06-29 19:25 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/687450.shtml)
-- 2026-06-29 19:08 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/5294325196.shtml)
-- 2026-06-29 19:24 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/636361479.shtml)
-- 2026-06-29 19:15 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/12947258.shtml)
-- 2026-06-29 19:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/44608689618.shtml)
-- 2026-06-29 19:15 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/1853126.shtml)
-- 2026-06-29 19:13 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/28444578869.shtml)
+- 2026-06-29 19:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/40414014140.shtml)
+- 2026-06-29 19:16 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/085686.shtml)
+- 2026-06-29 19:32 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/0245097961.shtml)
+- 2026-06-29 19:07 - [伊朗足球队将启程回国](https://www.blog.kurohicncr.top/Article/details/153916.shtml)
+- 2026-06-29 19:11 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/484876460.shtml)
+- 2026-06-29 19:21 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/179775379.shtml)
+- 2026-06-29 19:18 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/8931282817.shtml)
+- 2026-06-29 19:23 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/348525158708.shtml)
+- 2026-06-29 19:24 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/229141317594.shtml)
+- 2026-06-29 19:31 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/402658691.shtml)
+- 2026-06-29 19:34 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/8322902522.shtml)
+- 2026-06-29 19:14 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/972775970688.shtml)
+- 2026-06-29 19:33 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/436819.shtml)
+- 2026-06-29 19:13 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/761450871623.shtml)
+- 2026-06-29 19:23 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/78282190.shtml)

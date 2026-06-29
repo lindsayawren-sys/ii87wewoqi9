@@ -1,56 +1,58 @@
-# Petra Energy获得马来西亚国家石油公司砂拉越天然气项目工作订单
+# “小杂粮王国”山西靠什么打好“特”“优”牌？
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-马来西亚Petra Energy公司已获得价值7，500万美元（2.98亿林吉特）的工作订单，为马来西亚砂拉越的一个天然气项目提供服务。 这些合同由Petra Energy的子公司Petra Resources根据现有的马来西亚全国海上服务协议从马来西亚国家石油公司子公司Petronas Carigali获得。 工作订单涉及为民都鲁综合设施复兴项目二期提供连接和调试服务。 工作
+中新网太原5月21日电 (记者 范丽芳)“人说山西好风光，地肥水美五谷香”，这句歌词唱出了山西特优农业发展优势。“十五五”时期，山西如何把“土特产”做成现代化大产业？21日，山西省副省长朱晓东在“开局起步‘十五五’”专题新闻发布会上给出答案。 山西地貌多元、小气候多样，素有“小杂粮王国”之称，冷凉蔬菜、干鲜果、中药材、畜牧等特色产业在全国也占有重要地位。 一组数据显示，2025
 
 ## 正文
 
-马来西亚Petra Energy公司已获得价值7，500万美元（2.98亿林吉特）的工作订单，为马来西亚砂拉越的一个天然气项目提供服务。
+中新网太原5月21日电 (记者 范丽芳)“人说山西好风光，地肥水美五谷香”，这句歌词唱出了山西特优农业发展优势。
 
-这些合同由Petra Energy的子公司Petra Resources根据现有的马来西亚全国海上服务协议从马来西亚国家石油公司子公司Petronas Carigali获得。
+“十五五”时期，山西如何把“土特产”做成现代化大产业？
 
-工作订单涉及为民都鲁综合设施复兴项目二期提供连接和调试服务。
+21日，山西省副省长朱晓东在“开局起步‘十五五’”专题新闻发布会上给出答案。
 
-工作范围包括大宗材料采购、工程设计活动以及施工和调试服务。
+山西地貌多元、小气候多样，素有“小杂粮王国”之称，冷凉蔬菜、干鲜果、中药材、畜牧等特色产业在全国也占有重要地位。
 
-Petra Energy表示，这些工作订单于2025年12月至2026年1月期间发出，是涵盖砂拉越天然气资产的海上维护、施工、改造以及连接和调试服务的更广泛合同的一部分。
+一组数据显示，2025年，山西农产品出口61.1亿元，增长17.4%，核桃、鲜桃、柿子、苹果出口居全国前列，鲜杏出口量全国第一；现存农作物种质资源8.7万份，其中杂粮种质资源4万余份，居全国第一。
 
-该公司表示，这些合同预计将为截至2026年12月的财政年度及以后的盈利和净资产做出积极贡献。
+大同恒山黄芪总皂苷含量远超药典标准，忻州静乐县成“全国藜麦第一县”。
 
-Petra Energy补充说，这些工作订单不需要股东或监管机构批准，也不会影响其股本或所有权结构。
+这些家底，是山西打好“特”“优”牌的底气。
 
-责任编辑：张俊 SF065
+“发展特优农业，出发点和落脚点是实现农业农村现代化和农民收益最大化。
 
 ## 相关推荐
 
-- 2026-06-29 19:01 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 19:18 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 19:16 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 19:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 19:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 19:16 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 19:14 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 19:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 19:03 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 19:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 19:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 19:20 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 19:25 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 19:29 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 19:18 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 19:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 19:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 19:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 19:25 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 19:34 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 19:28 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 19:31 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/5479449.shtml)
-- 2026-06-29 19:04 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/8015155.shtml)
-- 2026-06-29 19:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/353699107667.shtml)
-- 2026-06-29 19:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/520163.shtml)
-- 2026-06-29 19:04 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/0760575.shtml)
-- 2026-06-29 19:08 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/46997.shtml)
-- 2026-06-29 19:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/827795.shtml)
-- 2026-06-29 19:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/3083527.shtml)
-- 2026-06-29 19:13 - [日本偶像龟梨和也宣布结婚](https://www.share.kurohicncr.top/Article/details/5373260379.shtml)
-- 2026-06-29 19:01 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/33026222461.shtml)
-- 2026-06-29 19:19 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/344794803.shtml)
-- 2026-06-29 19:08 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/83263.shtml)
-- 2026-06-29 19:23 - [一见倾心](https://www.share.minike.top/Article/details/006569192892.shtml)
-- 2026-06-29 19:08 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/68624606.shtml)
-- 2026-06-29 19:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/23823506821.shtml)
+- 2026-06-29 19:12 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/40688.shtml)
+- 2026-06-29 19:26 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/059872052455.shtml)
+- 2026-06-29 19:30 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/2200878171.shtml)
+- 2026-06-29 19:19 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/34368202.shtml)
+- 2026-06-29 19:12 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/92869.shtml)
+- 2026-06-29 19:12 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/14880393.shtml)
+- 2026-06-29 19:09 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/50239.shtml)
+- 2026-06-29 19:07 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/46657098473.shtml)
+- 2026-06-29 19:09 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/943292.shtml)
+- 2026-06-29 19:28 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/58570702974.shtml)
+- 2026-06-29 19:19 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/7813428.shtml)
+- 2026-06-29 19:35 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/547314794198.shtml)
+- 2026-06-29 19:20 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/1165863310.shtml)
+- 2026-06-29 19:26 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/8345186.shtml)
+- 2026-06-29 19:17 - [女生每天戴耳机18小时突发耳聋](http://www.blog.kurohicncr.top/Article/details/271269302744.shtml)

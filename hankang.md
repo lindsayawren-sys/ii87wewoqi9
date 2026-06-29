@@ -1,57 +1,52 @@
-# 首批香港稳定币牌照花落两家发钞行，汇丰计划下半年发币
+# 国际生物多样性日：雪域西藏生态盎然 万物共生尽显生机
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 香港稳定币发行人牌照首批名单正式揭晓。 4月10日，香港金管局宣布，金融管理专员根据《稳定币条例》向碇点金融科技有限公司及香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。牌照于今日生效。 根据持牌人的业务计划，待相关准备工作完成后，它们拟于未来数月内开展业务。 此次获批的两家机构均为市场重量级参与者。香港上海汇
+发布时间：2026年05月22日 13:06 来源：中国新闻网 西藏和平解放75周年纪念日来临之际，适逢5月22日“‌国际生物多样性日”，通过镜头走进壮美雪域西藏。澄澈冰川连绵起伏，辽阔草原绿意盎然，高原湖泊碧水荡漾。广袤天地间生灵自在栖息，藏羚羊肆意奔跑，黑颈鹤临水翩飞，高原狐狸灵动穿梭，牛羊悠然漫步。如今西藏生态环境持续向好，草木愈发繁茂，珍稀物种安稳繁衍，人与自然和谐相融
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 香港稳定币发行人牌照首批名单正式揭晓。
+发布时间：2026年05月22日 13:06 来源：中国新闻网 西藏和平解放75周年纪念日来临之际，适逢5月22日“‌国际生物多样性日”，通过镜头走进壮美雪域西藏。
 
-4月10日，香港金管局宣布，金融管理专员根据《稳定币条例》向碇点金融科技有限公司及香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。
+澄澈冰川连绵起伏，辽阔草原绿意盎然，高原湖泊碧水荡漾。
 
-牌照于今日生效。
+广袤天地间生灵自在栖息，藏羚羊肆意奔跑，黑颈鹤临水翩飞，高原狐狸灵动穿梭，牛羊悠然漫步。
 
-根据持牌人的业务计划，待相关准备工作完成后，它们拟于未来数月内开展业务。
+如今西藏生态环境持续向好，草木愈发繁茂，珍稀物种安稳繁衍，人与自然和谐相融，雪域高原处处焕发蓬勃生机。
 
-此次获批的两家机构均为市场重量级参与者。
-
-香港上海汇丰银行有限公司是汇丰集团的创始成员，也是香港最大的注册银行，作为港币三大发钞行之一，在全球金融与香港经济中具有重要地位。
-
-碇点金融科技有限公司（Anchorpoint）则是一家专为香港合规稳定币业务设立的合资金融科技公司，由渣打银行（香港）、香港电讯（HKT）及安拟集团（Animoca）三方合资组建，资源互补性极强。
-
-金管局总裁余伟文表示，批出稳定币发行人牌照是香港数字资产发展的重要里程碑。
+(贡确 制作 侯诗蕊 部分视频来源 昌都宣传部 安多融媒体中心） 责任编辑：【李岩】
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 19:21 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 19:09 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 19:01 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 19:09 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 19:10 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 19:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-29 19:26 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 19:27 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 19:16 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 19:12 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 19:16 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 19:06 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 19:07 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 19:14 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 19:32 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 19:15 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 19:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 19:21 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 19:33 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 19:11 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 19:28 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:25 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/8379075848.shtml)
-- 2026-06-29 19:06 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/66499814.shtml)
-- 2026-06-29 19:23 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/824443083.shtml)
-- 2026-06-29 19:18 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/6158760980.shtml)
-- 2026-06-29 19:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/922613656.shtml)
-- 2026-06-29 19:09 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/30961.shtml)
-- 2026-06-29 19:10 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/68147547.shtml)
-- 2026-06-29 19:12 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/02607105080.shtml)
-- 2026-06-29 19:19 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/96948.shtml)
-- 2026-06-29 19:12 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/83507.shtml)
-- 2026-06-29 19:12 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/31803515.shtml)
-- 2026-06-29 19:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/82020912528.shtml)
-- 2026-06-29 19:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/845148147.shtml)
-- 2026-06-29 19:10 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/3486011450.shtml)
-- 2026-06-29 19:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/19748547546.shtml)
+- 2026-06-29 19:29 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/926486817.shtml)
+- 2026-06-29 19:14 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/2168165.shtml)
+- 2026-06-29 19:18 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/792002834.shtml)
+- 2026-06-29 19:13 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/6689972693.shtml)
+- 2026-06-29 19:32 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/48659.shtml)
+- 2026-06-29 19:10 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/770607461.shtml)
+- 2026-06-29 19:18 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/9909658.shtml)
+- 2026-06-29 19:33 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/110478.shtml)
+- 2026-06-29 19:26 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/10869.shtml)
+- 2026-06-29 19:21 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/609096114325.shtml)
+- 2026-06-29 19:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/263337.shtml)
+- 2026-06-29 19:07 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/75505179.shtml)
+- 2026-06-29 19:29 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/963225651.shtml)
+- 2026-06-29 19:34 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/622755653873.shtml)
+- 2026-06-29 19:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/034963122915.shtml)

@@ -1,57 +1,56 @@
-# 当故宫遇见联合国：2026年维也纳联合国中文日活动即将启幕
+# 海上能源服务投资商Paratus Energy将于5月29日发布Q1财报并举行电话会
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网柏林4月10日电 中国常驻维也纳代表团公众号消息：以语言为纽带，以文化为桥梁，2026年维也纳联合国中文日系列活动将于4月13日(周一)在维也纳国际中心精彩启幕。 本次活动以“太和充满——在维也纳联合国遇见故宫”为主题，由中国常驻维也纳代表团、故宫博物院和联合国维也纳办事处共同主办。在为期五天的时间里(4月13日至17日)，我们将通过数字技术、实景复原与高端讲座，打破时空
+海上能源服务投资控股公司Paratus Energy Services Ltd．宣布，将于奥斯陆时间5月29日早上7：00公布2026年第一季度未经审计的财务报告，并于当日15：00举行财报网络电话会。公司首席财务官兼临时首席执行官Baton Haxhimehmedi将主持会议并介绍业绩情况。 投资者可通过公司官网投资者关系页面或指定链接注册参与电话会，相关材料将在发布后同步上
 
 ## 正文
 
-中新网柏林4月10日电 中国常驻维也纳代表团公众号消息：以语言为纽带，以文化为桥梁，2026年维也纳联合国中文日系列活动将于4月13日(周一)在维也纳国际中心精彩启幕。
+海上能源服务投资控股公司Paratus Energy Services Ltd．宣布，将于奥斯陆时间5月29日早上7：00公布2026年第一季度未经审计的财务报告，并于当日15：00举行财报网络电话会。
 
-本次活动以“太和充满——在维也纳联合国遇见故宫”为主题，由中国常驻维也纳代表团、故宫博物院和联合国维也纳办事处共同主办。
+公司首席财务官兼临时首席执行官Baton Haxhimehmedi将主持会议并介绍业绩情况。
 
-在为期五天的时间里(4月13日至17日)，我们将通过数字技术、实景复原与高端讲座，打破时空界限，让故宫博物院的百年典藏与建筑美学“穿越”至多瑙河畔，向世界展示中华语言文化的独特魅力与深厚智慧。
+投资者可通过公司官网投资者关系页面或指定链接注册参与电话会，相关材料将在发布后同步上线。
 
-精彩亮点抢先看 启幕华章：中国常驻联合国维也纳办事处和其他国际组织代表李松大使将与故宫博物院苏怡副院长、维也纳各国际组织负责人、各国常驻代表等中外嘉宾共同为2026年维也纳联合国中文日活动启幕。
+Paratus集团的核心资产包括对Fontis Energy的全部持股以及与Seagems成立的各占50%股份的合资企业。
 
-中央民族乐团“故宫之声”特别演出将奏响本次活动序章。
+Fontis Energy在墨西哥运营着五艘高规格自升式钻井平台；Seagems则是巴西领先的水下服务公司，拥有六艘多功能铺管支持船。
 
-看见故宫：“数字化时代的故宫博物院”专题讲座，配合沉浸式数字展览，集中展示书画瑰宝与文物典藏，让您近距离感受紫禁城的庄严与灵动。
+此前的财务沟通显示，2026年第一季度初步数据显示，Seagems贡献营收7500万美元，EBITDA为4800万美元；Fontis贡献营收2900万美元，EBITDA为1200万美元；Paratus层面合约营收总额达1.04亿美元，EBITDA为5600万美元。
 
-听见中国：中央民族乐团将带来“在维也纳联合国听见中国”专场音乐会，用东方旋律奏响文化共鸣。
-
-关于联合国中文日 2010年，联合国新闻部启动联合国语言日，旨在推动六种工作语言平等使用，展现世界文明的多元性。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 19:27 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 19:04 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 19:08 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 19:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 19:17 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 19:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 19:21 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 19:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 19:03 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 19:21 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 19:28 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 19:19 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 19:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 19:16 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 19:06 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 19:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 19:27 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 19:24 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 19:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 19:09 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 19:11 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 19:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/45944071.shtml)
-- 2026-06-29 19:08 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/57037.shtml)
-- 2026-06-29 19:22 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/765899160.shtml)
-- 2026-06-29 19:10 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/5926579555.shtml)
-- 2026-06-29 19:21 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/5823013359.shtml)
-- 2026-06-29 19:16 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/74082985.shtml)
-- 2026-06-29 19:06 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/64804317.shtml)
-- 2026-06-29 19:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/5063460484.shtml)
-- 2026-06-29 19:19 - [爱很美味](https://www.blog.minike.top/Article/details/90706096828.shtml)
-- 2026-06-29 19:27 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/48239839.shtml)
-- 2026-06-29 19:14 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/9556811.shtml)
-- 2026-06-29 19:19 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/48688.shtml)
-- 2026-06-29 19:21 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/61028.shtml)
-- 2026-06-29 19:07 - [周生如故](http://www.share.kurohicncr.top/Article/details/102305796.shtml)
-- 2026-06-29 19:02 - [存储三巨头被告了](http://www.share.minike.top/Article/details/6940824728.shtml)
+- 2026-06-29 19:24 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/654977.shtml)
+- 2026-06-29 19:16 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/1569314152.shtml)
+- 2026-06-29 19:10 - [T1零封KC MSI](http://www.share.minike.top/Article/details/2023735.shtml)
+- 2026-06-29 19:08 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/2018901010.shtml)
+- 2026-06-29 19:20 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/307637.shtml)
+- 2026-06-29 19:25 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/5416150.shtml)
+- 2026-06-29 19:12 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/8574105.shtml)
+- 2026-06-29 19:34 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/889156416.shtml)
+- 2026-06-29 19:23 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/6766971797.shtml)
+- 2026-06-29 19:27 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/490644835.shtml)
+- 2026-06-29 19:27 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/78851.shtml)
+- 2026-06-29 19:10 - [周生如故](http://www.blog.kurohicncr.top/Article/details/53118.shtml)
+- 2026-06-29 19:12 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/706113616.shtml)
+- 2026-06-29 19:14 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/25722597.shtml)
+- 2026-06-29 19:14 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/25496.shtml)

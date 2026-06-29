@@ -1,58 +1,57 @@
-# 农工党“参政为公、实干为民”主题教育动员部署会在京召开
+# 本土创新药企迎收获期：抗肿瘤药守阵地，慢病领域拓新局
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 “中国农工民主党开展‘参政为公、实干为民’主题教育动员部署会”4月9日以线上线下相结合方式在京召开。 会议深入学习贯彻习近平总书记关于树立和践行正确政绩观的重要要求。农工党中央主席何维出席并讲话，农工党中央常务副主席杨震出席并传达有关会议精神。农工党中央副主席王路、焦红、吕忠梅、杨关林、但彦铮、张全、王金南、邓蓉玲分别在主会场或分会场出席会议。会议由杨关
+当前，我国创新药产业在BD（商务拓展）出海与本土商业化放量的驱动下，产业结构加速优化，本土创新药从研发投入期转向价值收获期。 日前，药智网数据显示，2025年国内创新药销售收入TOP10药企合计营收突破千亿元大关。百济神州、恒瑞医药、中国生物制药、翰森制药、信达生物迈过创新药收入百亿元门槛。同时，百济神州、信达生物更是实现扭亏为盈，打破“国产创新药只烧钱不赚钱”的魔咒。 同期，
 
 ## 正文
 
-中新网北京4月10日电 “中国农工民主党开展‘参政为公、实干为民’主题教育动员部署会”4月9日以线上线下相结合方式在京召开。
+当前，我国创新药产业在BD（商务拓展）出海与本土商业化放量的驱动下，产业结构加速优化，本土创新药从研发投入期转向价值收获期。
 
-会议深入学习贯彻习近平总书记关于树立和践行正确政绩观的重要要求。
+日前，药智网数据显示，2025年国内创新药销售收入TOP10药企合计营收突破千亿元大关。
 
-农工党中央主席何维出席并讲话，农工党中央常务副主席杨震出席并传达有关会议精神。
+百济神州、恒瑞医药、中国生物制药、翰森制药、信达生物迈过创新药收入百亿元门槛。
 
-农工党中央副主席王路、焦红、吕忠梅、杨关林、但彦铮、张全、王金南、邓蓉玲分别在主会场或分会场出席会议。
+同时，百济神州、信达生物更是实现扭亏为盈，打破“国产创新药只烧钱不赚钱”的魔咒。
 
-会议由杨关林主持。
+同期，在中国市场创新药销售额TOP10榜单中，入围门槛已提升至17亿元，总销售额超265亿元，且国产创新药以压倒性优势占据9个席位，彰显了中国医药创新实力。
 
-何维要求，农工党全党要深刻认识、准确把握开展“参政为公、实干为民”主题教育的重要意义，充分认识这是把握正确政治方向，巩固多党合作共同思想政治基础的需要；是牢记多党合作初心，树立和践行正确政绩观的需要；是坚持服务中心大局，推进“十五五”高质量开局的需要；是纵深推进廉洁建设、作风建设，持续加强中国特色社会主义参政党建设的需要，以更坚定的政治自觉完成好这次重大政治任务。
+而从治疗领域分布看，肿瘤领域仍是创新药研发与商业化的主战场，上述销售额TOP10榜单中就包含6款抗肿瘤药物；与此同时，慢病领域药物也崭露头角。
 
-何维强调，要深刻认识、准确把握主题教育“学思想、讲大局、重实干、出实绩”的总体要求，不折不扣落实主题教育各项重点任务。
+肿瘤领域创新成果持续兑现 在头部创新药企中，百济神州的表现尤为突出。
 
-要持续强化理论武装，坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，传承优良作风，涵养清廉生态，牢固树立和践行正确政绩观；要突出问题导向，聚焦在政治建设、履职尽责、作风纪律等方面存在的薄弱环节，全面排查形成问题清单；要狠抓整改整治，强化落实明确责任清单；要健全长效机制，做实整改后半篇文章；要持续提升履职能力，更加自觉把农工党所长与中心大局所需紧密结合，展现参政履职新作为。
+2025年，其产品收入达377.70亿元，同比增长39.9%，创新药收入占总营收比重高达99%，是国内创新药企“聚焦创新”的代表之一。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 19:12 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 19:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-29 19:20 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 19:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 19:29 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 19:16 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 19:29 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 19:02 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 19:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 19:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 19:27 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 19:09 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 19:18 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 19:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 19:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 19:23 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 19:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 19:12 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 19:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 19:27 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 19:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 19:17 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/81084871.shtml)
-- 2026-06-29 19:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/48726190962.shtml)
-- 2026-06-29 19:11 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/922088.shtml)
-- 2026-06-29 19:23 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/75057862.shtml)
-- 2026-06-29 19:20 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/50555184.shtml)
-- 2026-06-29 19:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/6316630036.shtml)
-- 2026-06-29 19:04 - [起风了](https://www.share.kurohicncr.top/Article/details/1251723.shtml)
-- 2026-06-29 19:08 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/78277989.shtml)
-- 2026-06-29 19:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/0202512.shtml)
-- 2026-06-29 19:25 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/79590420.shtml)
-- 2026-06-29 19:26 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/84612.shtml)
-- 2026-06-29 19:02 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/22983.shtml)
-- 2026-06-29 19:03 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/3496649.shtml)
-- 2026-06-29 19:09 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/2490211.shtml)
-- 2026-06-29 19:11 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/071479753497.shtml)
+- 2026-06-29 19:28 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/58628.shtml)
+- 2026-06-29 19:25 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/8599045746.shtml)
+- 2026-06-29 19:29 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/6464923120.shtml)
+- 2026-06-29 19:26 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/9048393.shtml)
+- 2026-06-29 19:18 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/78284.shtml)
+- 2026-06-29 19:35 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/4934619358.shtml)
+- 2026-06-29 19:16 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/41828980.shtml)
+- 2026-06-29 19:35 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/557478833485.shtml)
+- 2026-06-29 19:07 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/35603.shtml)
+- 2026-06-29 19:17 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/4284072.shtml)
+- 2026-06-29 19:11 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/94602876527.shtml)
+- 2026-06-29 19:17 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/762834.shtml)
+- 2026-06-29 19:07 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/97114645365.shtml)
+- 2026-06-29 19:20 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/1833544.shtml)
+- 2026-06-29 19:28 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/346591.shtml)

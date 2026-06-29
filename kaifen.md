@@ -1,54 +1,56 @@
-# A股开盘：三大指数集体高开，超4400只个股上涨，券商、半导体板块领涨
+# 买百万医疗险被中国人寿拒赔 祸起短信通知方式 究竟怎么回事？
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-10日，A股三大指数集体高开。Wind数据显示，上证指数高开0.49%，深证成指涨0.73%，创业板指涨0.96%。全市超4400只个股上涨。 板块方面，券商、半导体、存储芯片、芯片封装、光伏逆变器、稀土概念涨幅居前，油气、海运板块低迷。 来源：中新经纬微信公众号
+来源：险联社 “1965年出生老人购买中国人寿百万医疗险，未能按时续保，认为是保险公司未能尽到告知义务，应该承担缔约过失责任，中国人寿则认为，其在中国人寿投保多份保险，应当知晓电子投保的操作流程，到期前已经通过短信多次提醒续保。” 中国人寿一款百万医疗险理赔事宜引发纠纷，对于未能按时续保的责任，双方对簿公堂。 今年61岁的田某军通过代理人邰某英在中国人寿常州分公司购买了多份保险
 
 ## 正文
 
-10日，A股三大指数集体高开。
+来源：险联社 “1965年出生老人购买中国人寿百万医疗险，未能按时续保，认为是保险公司未能尽到告知义务，应该承担缔约过失责任，中国人寿则认为，其在中国人寿投保多份保险，应当知晓电子投保的操作流程，到期前已经通过短信多次提醒续保。
 
-Wind数据显示，上证指数高开0.49%，深证成指涨0.73%，创业板指涨0.96%。
+” 中国人寿一款百万医疗险理赔事宜引发纠纷，对于未能按时续保的责任，双方对簿公堂。
 
-全市超4400只个股上涨。
+今年61岁的田某军通过代理人邰某英在中国人寿常州分公司购买了多份保险。
 
-板块方面，券商、半导体、存储芯片、芯片封装、光伏逆变器、稀土概念涨幅居前，油气、海运板块低迷。
+2018年又购买了一份百万医疗险，一直是从银行账户划转保费，自动续保。
 
-来源：中新经纬微信公众号
+2021年，原银保监会规范短期健康险业务，要求短期健康险不能自动续保，需要投保人重新申请投保，缴纳保险费，才能获得新的保险合同。
+
+2022年5月，中国人寿多次向田某军发送续保短信，田某军未予回复，导致脱保。
+
+2024年11月，田某军患乙状结肠恶性肿瘤住院。
+
+田某军要求中国人寿常州分公司承担的系缔约过失责任，支付医疗费58291.02元，住院定额给付保险金5200元。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 19:14 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 19:14 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 19:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 19:23 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 19:20 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 19:06 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 19:03 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 19:26 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 19:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 19:14 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 19:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 19:01 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 19:06 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 19:18 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 19:11 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 19:22 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 19:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 19:21 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 19:16 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 19:24 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 19:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 19:17 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-29 19:12 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/229099386190.shtml)
-- 2026-06-29 19:11 - [沉睡花园](https://www.blog.minike.top/Article/details/4671336887.shtml)
-- 2026-06-29 19:15 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/28536.shtml)
-- 2026-06-29 19:08 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/0237019.shtml)
-- 2026-06-29 19:29 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/92536.shtml)
-- 2026-06-29 19:11 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/5103206.shtml)
-- 2026-06-29 19:04 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/722054185.shtml)
-- 2026-06-29 19:16 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/82859.shtml)
-- 2026-06-29 19:27 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/743620266.shtml)
-- 2026-06-29 19:05 - [张杰我九岁就跟你了](http://www.share.kurohicncr.top/Article/details/621232587743.shtml)
-- 2026-06-29 19:20 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/43534376.shtml)
-- 2026-06-29 19:18 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/097057.shtml)
-- 2026-06-29 19:24 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/63081252.shtml)
-- 2026-06-29 19:10 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/297546.shtml)
-- 2026-06-29 19:22 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/4601360.shtml)
+- 2026-06-29 19:16 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/43345.shtml)
+- 2026-06-29 19:17 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/2135325691.shtml)
+- 2026-06-29 19:35 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/572565.shtml)
+- 2026-06-29 19:11 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/085796214.shtml)
+- 2026-06-29 19:21 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/5837896461.shtml)
+- 2026-06-29 19:06 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/0764922.shtml)
+- 2026-06-29 19:33 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/7099129344.shtml)
+- 2026-06-29 19:17 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/97829.shtml)
+- 2026-06-29 19:23 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/1129753.shtml)
+- 2026-06-29 19:21 - [永远有话聊的原因](https://www.share.kurohicncr.top/Article/details/696786.shtml)
+- 2026-06-29 19:24 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/957649383843.shtml)
+- 2026-06-29 19:25 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/91984.shtml)
+- 2026-06-29 19:24 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/345835.shtml)
+- 2026-06-29 19:27 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/9584614.shtml)
+- 2026-06-29 19:13 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/2851145.shtml)

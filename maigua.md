@@ -1,56 +1,59 @@
-# 利率不确定性导致收益率剧烈波动，国债市场波动已成“新常态”
+# 宁波组织开展2026年全市民族宗教系统信息宣传工作培训
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-要点 受中东脆弱停火协议持续扰动市场情绪影响，欧洲国债周四扭转前一交易日的暴跌走势，收益率上行。 债券交易员正应对异常剧烈的市场波动，这让英国央行与欧洲央行的利率政策前景变得更加模糊。 作为英国国债基准的10 年期英国金边债券收益率周四上涨逾 6 个基点至 4.775%，前一交易日曾暴跌 21 个基点。2 年期英国金边债券收益率上行 7 个基点至 4.245%，此前一天大跌 2
+为进一步提升民族宗教系统信息宣传工作质效，聚焦宣传好宁波民族宗教工作成果，助力民族宗教工作“两个先行市”建设提速提质。5月14日至15日，宁波市民宗局组织开展2026年全市民族宗教系统信息宣传工作培训。宁波市民宗局副局长董奕玮出席培训班并讲话，各区(县、市)民宗局分管领导、信息宣传员及重点乡镇(街道)宣传信息员等50余人参加培训。培训强调，2025年宁波民族宗教信息宣传供稿规模
 
 ## 正文
 
-要点 受中东脆弱停火协议持续扰动市场情绪影响，欧洲国债周四扭转前一交易日的暴跌走势，收益率上行。
+为进一步提升民族宗教系统信息宣传工作质效，聚焦宣传好宁波民族宗教工作成果，助力民族宗教工作“两个先行市”建设提速提质。
 
-债券交易员正应对异常剧烈的市场波动，这让英国央行与欧洲央行的利率政策前景变得更加模糊。
+5月14日至15日，宁波市民宗局组织开展2026年全市民族宗教系统信息宣传工作培训。
 
-作为英国国债基准的10 年期英国金边债券收益率周四上涨逾 6 个基点至 4.775%，前一交易日曾暴跌 21 个基点。
+宁波市民宗局副局长董奕玮出席培训班并讲话，各区(县、市)民宗局分管领导、信息宣传员及重点乡镇(街道)宣传信息员等50余人参加培训。
 
-2 年期英国金边债券收益率上行 7 个基点至 4.245%，此前一天大跌 25 个基点。
+培训强调，2025年宁波民族宗教信息宣传供稿规模持续扩容，稿件质量稳步提升。
 
-德国国债走势类似。
+信息宣传工作要提高政治站位，切实增强做好信息宣传工作的责任感使命感，充分认清信息宣传工作是保持上下联系沟通的重要渠道和平台，也是锻炼干部、提升干部能力素质的方式。
 
-10 年期德债收益率上涨近 5 个基点至 2.9886%，周三曾下跌近 17 个基点。
+要坚持守正创新，全面提升信息宣传工作层次水平和实际成效，明确目标，精准选题，简练文字，增强信息工作的主动性和敏锐性，牢牢掌握信息工作要点，提升信息质量。
 
-与此同时，前一交易日大跌 28 个基点的 2 年期德债收益率反弹 6 个基点至 2.5549%。
+要加强组织领导，为信息宣传工作高质量发展提供坚强保障，把信息宣传工作摆在重要位置，与业务工作同谋划、同部署、同推进，形成人人关心、人人支持的良好局面。
 
-债券收益率与价格呈反向变动，1 个基点等于 0.01%。
+培训期间，邀请了省民宗委、宁波市府办及民宗局相关负责人就民宗系统宣传工作、政府信息报送工作等作专题辅导，部分区(县、市)信息宣传员进行了经验分享，全体学员围绕提升2026年信息宣传工作质效进行了交流讨论。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 19:28 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 19:25 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 19:23 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 19:10 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 19:21 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 19:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 19:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 19:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 19:28 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 19:09 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 19:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 19:08 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 19:27 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 19:07 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 19:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 19:10 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 19:32 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 19:10 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 19:22 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 19:09 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 19:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 19:14 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/6671635353.shtml)
-- 2026-06-29 19:27 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/02605.shtml)
-- 2026-06-29 19:22 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/43138649.shtml)
-- 2026-06-29 19:08 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/23894552.shtml)
-- 2026-06-29 19:25 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/91031.shtml)
-- 2026-06-29 19:04 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/143310480309.shtml)
-- 2026-06-29 19:22 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/180687218.shtml)
-- 2026-06-29 19:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/8760567.shtml)
-- 2026-06-29 19:21 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/891508.shtml)
-- 2026-06-29 19:19 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/21737593184.shtml)
-- 2026-06-29 19:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/3292612.shtml)
-- 2026-06-29 19:08 - [爱很美味](http://www.share.kurohicncr.top/Article/details/595046364.shtml)
-- 2026-06-29 19:22 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/10781899.shtml)
-- 2026-06-29 19:29 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/8657495491.shtml)
-- 2026-06-29 19:09 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/44227349.shtml)
+- 2026-06-29 19:16 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/44627544.shtml)
+- 2026-06-29 19:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/72802.shtml)
+- 2026-06-29 19:17 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/2064594607.shtml)
+- 2026-06-29 19:10 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/581108.shtml)
+- 2026-06-29 19:23 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/92579.shtml)
+- 2026-06-29 19:15 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/7460315037.shtml)
+- 2026-06-29 19:11 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/1720517.shtml)
+- 2026-06-29 19:30 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/8564490732.shtml)
+- 2026-06-29 19:09 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/0667853265.shtml)
+- 2026-06-29 19:08 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/784019044.shtml)
+- 2026-06-29 19:07 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.kurohicncr.top/Article/details/006890797.shtml)
+- 2026-06-29 19:32 - [斛珠夫人](https://www.blog.minike.top/Article/details/5530064480.shtml)
+- 2026-06-29 19:10 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/2413114878.shtml)
+- 2026-06-29 19:26 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/38380534099.shtml)
+- 2026-06-29 19:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/4061892.shtml)

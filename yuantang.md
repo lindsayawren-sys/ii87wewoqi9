@@ -1,60 +1,57 @@
-# 德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键
+# 加码防卫费 日本执意扩武拖累经济民生
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。德赛西威董事长兼总裁高大鹏出席并演讲。 高大鹏表示，出海不单单是中国品牌的出海，而是中国汽车产业链的整体出海，包括自主品牌、合资品牌、外资品牌。“中国市场本就是多元参与、协同共生，才有了现在的
+近日，日本经济发展面临多重冲击，但政府却依然图谋上调防卫费，此举引发日本舆论深度忧虑，民间反对之声日益高涨。 分析指出巨额防卫费或令日本防卫更加不稳定 总台记者 何欣蕾：针对日本政府加速推动修改“安保三文件”，进一步增加防卫费等举动，日本京都新闻近期社论指出，日本应该关注无止境军备竞赛以及紧张局势升级而带来的风险，并重新制定作为和平国家的外交战略。京都新闻进一步分析认为，未来，
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+近日，日本经济发展面临多重冲击，但政府却依然图谋上调防卫费，此举引发日本舆论深度忧虑，民间反对之声日益高涨。
 
-德赛西威董事长兼总裁高大鹏出席并演讲。
+分析指出巨额防卫费或令日本防卫更加不稳定 总台记者 何欣蕾：针对日本政府加速推动修改“安保三文件”，进一步增加防卫费等举动，日本京都新闻近期社论指出，日本应该关注无止境军备竞赛以及紧张局势升级而带来的风险，并重新制定作为和平国家的外交战略。
 
-高大鹏表示，出海不单单是中国品牌的出海，而是中国汽车产业链的整体出海，包括自主品牌、合资品牌、外资品牌。
+京都新闻进一步分析认为，未来，日本可能进一步将防卫费提高至GDP的3.5%。
 
-“中国市场本就是多元参与、协同共生，才有了现在的成就。
+然而，在人口持续减少的日本，是否能够长期承担每年的巨额开支？
 
-所以，我们应该摒弃门户之见，这是中国产业链共同繁荣的关键。
+如果不顾国家实际承受能力、一味追求增加防卫预算，反而可能使日本的防卫更加不稳定。
 
-” 他认为，中国新能源智能网联车走在世界前列有三个驱动力。
+扩军备武叠加民生承压 自民党执政前景堪忧 总台记者 何欣蕾：可以看到在日本扩军备武的动向之下，为了保证防卫费预算而逐步推行相关增税政策，使得民生状况进一步承压。
 
-一是开放市场酝酿的企业产业生命力，即政策定力。
+而中东局势的长期化，给日本经济带来的影响也在不断显现。
 
-他提到，过去20年，中国汽车产业政策相对其他市场非常稳定，这让所有市场参与方有了更大的确定性，敢于投入，从而获得更多创新基础。
+日本朝日新闻前记者佐藤章在社交媒体评论称，高市(领导下的)自民党的衰退已势不可挡，在地方选举连战连败，支持率日渐下跌。
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 19:08 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 19:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 19:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 19:26 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 19:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 19:05 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 19:18 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 19:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 19:07 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 19:17 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 19:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 19:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 19:27 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 19:28 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 19:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 19:17 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 19:35 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 19:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 19:17 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 19:14 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 19:32 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 19:11 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 19:31 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 19:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/366913438.shtml)
-- 2026-06-29 19:16 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/450613.shtml)
-- 2026-06-29 19:21 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/94206.shtml)
-- 2026-06-29 19:27 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/685256599802.shtml)
-- 2026-06-29 19:29 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/190083629436.shtml)
-- 2026-06-29 19:25 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/46877091245.shtml)
-- 2026-06-29 19:25 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/44492645015.shtml)
-- 2026-06-29 19:17 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/854554.shtml)
-- 2026-06-29 19:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/0460087.shtml)
-- 2026-06-29 19:05 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/58708440.shtml)
-- 2026-06-29 19:02 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/54553267146.shtml)
-- 2026-06-29 19:06 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/79541.shtml)
-- 2026-06-29 19:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/012201746.shtml)
-- 2026-06-29 19:04 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/085394.shtml)
-- 2026-06-29 19:00 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/287094.shtml)
+- 2026-06-29 19:23 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/501287555271.shtml)
+- 2026-06-29 19:30 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/786286.shtml)
+- 2026-06-29 19:16 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/857328.shtml)
+- 2026-06-29 19:17 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/55799188.shtml)
+- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/80580.shtml)
+- 2026-06-29 19:13 - [乔家的儿女](https://www.blog.minike.top/Article/details/488741.shtml)
+- 2026-06-29 19:16 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/621095682375.shtml)
+- 2026-06-29 19:16 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/6602341957.shtml)
+- 2026-06-29 19:32 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/5001084.shtml)
+- 2026-06-29 19:24 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/7408627735.shtml)
+- 2026-06-29 19:23 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/855958516808.shtml)
+- 2026-06-29 19:14 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/87402.shtml)
+- 2026-06-29 19:09 - [毒液2](http://www.blog.minike.top/Article/details/5619078.shtml)
+- 2026-06-29 19:21 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/87636.shtml)
+- 2026-06-29 19:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/424495246.shtml)

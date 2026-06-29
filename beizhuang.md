@@ -1,58 +1,57 @@
-# 广西东兴互市区新增8个查验库为东盟水果通关提速
+# 让法治成为护航企业高质量发展最可靠保障——国新办发布会介绍规范涉企行政执法专项行动有关情况
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网广西东兴4月10日电(杨陈 谭家锋)东南亚水果旺季来临，进出境的冷链司机和货主们最担心的是“排队等查验”。 记者10日从广西北投建设投资有限公司获悉，在海关、边检等联检部门指导下，该公司为东兴边民互市贸易区查验库拓容，新改扩建的8个水果查验库日前正式投用，为进口水果快速通关提供硬件保障。 东兴边民互市贸易区眼下一派繁忙景象，一辆辆满载越南菠萝蜜、火龙果等热带水果的货车有序
+行政检查是行政机关重要的监管方式，与企业生产经营关系极为密切。国务院新闻办公室5月21日上午举行新闻发布会，介绍规范涉企行政执法专项行动开展一年来的有关情况。 动真碰硬纠治涉企执法突出问题 “规范涉企行政执法专项行动的主要任务，是动真碰硬纠治涉企执法突出问题，维护企业合法权益。”司法部副部长胡卫列表示。 从去年3月开始到今年3月底，全国共查纠涉企行政执法突出问题的案件线索6.6
 
 ## 正文
 
-中新网广西东兴4月10日电(杨陈 谭家锋)东南亚水果旺季来临，进出境的冷链司机和货主们最担心的是“排队等查验”。
+行政检查是行政机关重要的监管方式，与企业生产经营关系极为密切。
 
-记者10日从广西北投建设投资有限公司获悉，在海关、边检等联检部门指导下，该公司为东兴边民互市贸易区查验库拓容，新改扩建的8个水果查验库日前正式投用，为进口水果快速通关提供硬件保障。
+国务院新闻办公室5月21日上午举行新闻发布会，介绍规范涉企行政执法专项行动开展一年来的有关情况。
 
-东兴边民互市贸易区眼下一派繁忙景象，一辆辆满载越南菠萝蜜、火龙果等热带水果的货车有序列队，平稳驶入全新投用的水果查验库。
+动真碰硬纠治涉企执法突出问题 “规范涉企行政执法专项行动的主要任务，是动真碰硬纠治涉企执法突出问题，维护企业合法权益。
 
-此前，东兴边民互市贸易区仅配备4个水果查验库，在水果进口旺季通关能力有限。
+”司法部副部长胡卫列表示。
 
-为突破这一瓶颈，广西北投建设投资有限公司将闲置的非舱单通道改造为舱单通道，同步推进8个查验库及配套设施建设，让查验库总数增至12个，整体库容能力提升超过2倍，实现入境车辆整体通关效率成倍提升。
+从去年3月开始到今年3月底，全国共查纠涉企行政执法突出问题的案件线索6.6万多件，为企业挽回经济损失307亿元；各地开展“综合查一次”、分级分类检查、“扫码入企”等，行政检查的总量同比下降34%；排查违规异地行政执法案件600多件，各地出台异地执法协作制度机制610多项。
 
-据悉，下一步东兴边民互市贸易区将持续精准对接通关需求，深化与联检部门的协同联动，不断优化通关环境与园区配套，同时探索智慧查验、预约通关等更多便利化举措，推动互市贸易从“通道经济”向“口岸经济”“落地加工经济”转型，让更多新鲜的东南亚水果更快端上中国消费者的餐桌。
+在着力提升执法理念方面，发布行政执法人员行为准则，清理不符合法定条件的行政执法主体7000多个，清理不必要的执法事项40多万项。
 
-(完)
+有关部门依法查处执法不作为等案件1700多起。
+
+同时，各地依法适用首违不罚、轻微不罚，免除罚款总计110多亿元。
 
 ## 相关推荐
 
-- 2026-06-29 19:16 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 19:05 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 19:15 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 19:23 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 19:28 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 19:22 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 19:18 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 19:07 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 19:12 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 19:19 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 19:22 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-29 19:07 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 19:27 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 19:22 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 19:16 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 19:07 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 19:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 19:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 19:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 19:14 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 19:29 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 19:16 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 19:34 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 19:14 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 19:21 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:19 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/56191055815.shtml)
-- 2026-06-29 19:24 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/555409130771.shtml)
-- 2026-06-29 19:09 - [时光音乐会](http://www.blog.minike.top/Article/details/24552.shtml)
-- 2026-06-29 19:26 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/99876482953.shtml)
-- 2026-06-29 19:06 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/75155197.shtml)
-- 2026-06-29 19:21 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.kurohicncr.top/Article/details/49673637973.shtml)
-- 2026-06-29 19:08 - [7款高价创新药有望降价](https://www.blog.minike.top/Article/details/3346225.shtml)
-- 2026-06-29 19:17 - [扩军害了世界杯吗](https://www.share.kurohicncr.top/Article/details/9899859.shtml)
-- 2026-06-29 19:20 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/349805214.shtml)
-- 2026-06-29 19:09 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/88102656765.shtml)
-- 2026-06-29 19:23 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/08843391919.shtml)
-- 2026-06-29 19:27 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/85860026896.shtml)
-- 2026-06-29 19:00 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/1165102.shtml)
-- 2026-06-29 19:20 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/344385886.shtml)
-- 2026-06-29 19:22 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/11128.shtml)
+- 2026-06-29 19:28 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/870070.shtml)
+- 2026-06-29 19:29 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/38755848.shtml)
+- 2026-06-29 19:19 - [叠纸](http://www.blog.kurohicncr.top/Article/details/133362.shtml)
+- 2026-06-29 19:21 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/1775088727.shtml)
+- 2026-06-29 19:18 - [C罗10球7球对垫底队](http://www.share.kurohicncr.top/Article/details/643773.shtml)
+- 2026-06-29 19:19 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/7296618.shtml)
+- 2026-06-29 19:18 - [当家电外通风口出现鸟窝](http://www.share.minike.top/Article/details/786518268.shtml)
+- 2026-06-29 19:20 - [海清4次陪跑白玉兰](https://www.blog.minike.top/Article/details/73288725.shtml)
+- 2026-06-29 19:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/3055210.shtml)
+- 2026-06-29 19:12 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/289249336.shtml)
+- 2026-06-29 19:07 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/281157.shtml)
+- 2026-06-29 19:15 - [伊朗足球队将启程回国](http://www.blog.minike.top/Article/details/6221774612.shtml)
+- 2026-06-29 19:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/93949.shtml)
+- 2026-06-29 19:13 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/4666401062.shtml)
+- 2026-06-29 19:16 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/18316.shtml)

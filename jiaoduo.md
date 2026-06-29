@@ -1,58 +1,58 @@
-# 国际观察：日本“新型军国主义”亮出吃人獠牙
+# 青年如何接好文化传承“这一棒”？演员于适这样说
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-张军社 3月31日，日本宣布在熊本县和静冈县部署射程约1000公里的具备所谓“对敌基地攻击能力”的远程导弹。这是日本首次明确部署远程攻击导弹，标志着日本作为二战“轴心国”和战败国在战后长期奉行的“专守防卫”政策发生根本性转变，日本“新型军国主义”已经成为赤裸裸的现实威胁，严重威胁他国安全，严重破坏地区和平稳定。 首先，日本打着“防卫反击”的幌子部署远程导弹，远远超出“自卫”和“
+中新网南宁5月21日电(记者 刘越)“当青年遇见世界，文明究竟会变成什么样子？” 5月19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，青年演员于适站在聚光灯下，向台下和屏幕前的观众抛出这样一个问题。 他的答案，藏在一段策马飞驰的短视频里，藏在一首红色摇滚的旋律中，也藏在他作为青年一代对传统文化的理解、践行与对外传播之中。 一次“意外”的出圈 2025年，于适以
 
 ## 正文
 
-张军社 3月31日，日本宣布在熊本县和静冈县部署射程约1000公里的具备所谓“对敌基地攻击能力”的远程导弹。
+中新网南宁5月21日电(记者 刘越)“当青年遇见世界，文明究竟会变成什么样子？
 
-这是日本首次明确部署远程攻击导弹，标志着日本作为二战“轴心国”和战败国在战后长期奉行的“专守防卫”政策发生根本性转变，日本“新型军国主义”已经成为赤裸裸的现实威胁，严重威胁他国安全，严重破坏地区和平稳定。
+” 5月19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，青年演员于适站在聚光灯下，向台下和屏幕前的观众抛出这样一个问题。
 
-首先，日本打着“防卫反击”的幌子部署远程导弹，远远超出“自卫”和“专守防卫”的范畴。
+他的答案，藏在一段策马飞驰的短视频里，藏在一首红色摇滚的旋律中，也藏在他作为青年一代对传统文化的理解、践行与对外传播之中。
 
-据日本媒体报道，日本在3月31日部署的具有所谓“反击能力”的远程攻击导弹，分别称为“25式地对舰导弹”和“25式高速滑翔弹”。
+一次“意外”的出圈 2025年，于适以中国代表队领队的身份，率队前往哈萨克斯坦参加亚洲青少年骑射锦标赛，最终取得一金一银的成绩。
 
-其中，“25式地对舰导弹”此前被称为“陆基改进型12式反舰导弹”。
+同年12月，他代表中国站上环球骑射大师赛赛场，一段策马执旗的短视频在海外平台迅速传播。
 
-这种巡航导弹射程约1000公里，不仅可以攻击他国海上舰船，还可打击他国陆上设施。
+画面中，他身姿挺拔、控马如风，许多海外网友透过镜头第一次真切“看见”中国骑射，读懂了中华传统文化中刚健洒脱、稳健从容的精神气韵。
 
-“25式高速滑翔弹”此前被称为“岛屿防卫用高速滑翔弹”，射程数百公里。
+“那次的‘小火’是一个意外。
 
-日本目前正研发射程约2000公里的升级版本。
+”于适回忆道，“当时我代表中国参赛，举着五星红旗在赛场上飞驰。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 19:24 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 19:01 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 19:05 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 19:18 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 19:14 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 19:02 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 19:17 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 19:21 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 19:14 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 19:18 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 19:25 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 19:15 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 19:25 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 19:17 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 19:22 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 19:08 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 19:27 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 19:14 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 19:22 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 19:10 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 19:32 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 19:26 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 19:30 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:00 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/99590178630.shtml)
-- 2026-06-29 19:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/1215437823.shtml)
-- 2026-06-29 19:26 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/3558658.shtml)
-- 2026-06-29 19:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/98102.shtml)
-- 2026-06-29 19:22 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/3029947562.shtml)
-- 2026-06-29 19:07 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/855267.shtml)
-- 2026-06-29 19:16 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/4890881.shtml)
-- 2026-06-29 19:06 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/723597083.shtml)
-- 2026-06-29 19:06 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/632741788.shtml)
-- 2026-06-29 19:10 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/948048.shtml)
-- 2026-06-29 19:00 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/81785.shtml)
-- 2026-06-29 19:02 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/847175950242.shtml)
-- 2026-06-29 19:02 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/294774.shtml)
-- 2026-06-29 19:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/7551016416.shtml)
-- 2026-06-29 19:25 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/09782191.shtml)
+- 2026-06-29 19:28 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/580068.shtml)
+- 2026-06-29 19:33 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/2801721843.shtml)
+- 2026-06-29 19:12 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/52249.shtml)
+- 2026-06-29 19:23 - [韩国队主帅遭极端网友死亡威胁](http://www.share.minike.top/Article/details/2754756108.shtml)
+- 2026-06-29 19:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/497752390368.shtml)
+- 2026-06-29 19:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/50907.shtml)
+- 2026-06-29 19:35 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/457984.shtml)
+- 2026-06-29 19:07 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/6351061.shtml)
+- 2026-06-29 19:34 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/4946486.shtml)
+- 2026-06-29 19:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/7268866022.shtml)
+- 2026-06-29 19:06 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/44753393.shtml)
+- 2026-06-29 19:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/4023560103.shtml)
+- 2026-06-29 19:23 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/2282344.shtml)
+- 2026-06-29 19:07 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/272814098.shtml)
+- 2026-06-29 19:23 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/006623983161.shtml)

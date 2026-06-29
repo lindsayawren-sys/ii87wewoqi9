@@ -1,50 +1,61 @@
-# 人民币兑美元中间价报6.8654，下调5点
+# 杠杆资金持续买进！这条赛道调整后仍有大级别上涨机会！
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-4月10日，人民币兑美元中间价报6.8654，下调5点。 美联储4月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储4月加息25个基点的概率为1.6%，维持利率不变的概率为98.4%。美联储到6月累计降息25个基点的概率为2.1%，维持利率不变的概率为96.3%，累计加息25个基点的概率为1.5%。责任编辑：郭建
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 | 尚扬 近期，A股市场走势颇有特点，大盘反复震荡，热点轮动加速，但有一条主线仍相对稳健，那就是以算力、光通信、半导体为核心的AI科技赛道。 结合融资净买入金额来看，杠杆资金正在积极布局科技硬件，用实打实的资金投票，告诉市场：新一轮科技革命的红利已经开启。 产业趋势依然完美 周
 
 ## 正文
 
-4月10日，人民币兑美元中间价报6.8654，下调5点。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美联储4月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储4月加息25个基点的概率为1.6%，维持利率不变的概率为98.4%。
+来源：证券市场周刊市场号 文 | 尚扬 近期，A股市场走势颇有特点，大盘反复震荡，热点轮动加速，但有一条主线仍相对稳健，那就是以算力、光通信、半导体为核心的AI科技赛道。
 
-美联储到6月累计降息25个基点的概率为2.1%，维持利率不变的概率为96.3%，累计加息25个基点的概率为1.5%。
+结合融资净买入金额来看，杠杆资金正在积极布局科技硬件，用实打实的资金投票，告诉市场：新一轮科技革命的红利已经开启。
 
-责任编辑：郭建
+产业趋势依然完美 周四，受隔夜英伟达业绩超预期、海外半导体大涨催化，早盘AI产业全线高开走强，科创50快速冲高，算力芯片、先进封装、光通信等龙头公司集体拉升，澜起科技、兆易创新等融资重仓标的早盘再创新高，并带动AI硬件板块情绪达到峰值。
+
+但随后行情开始反转，科技板块率先走弱，几大主要股指也相继冲高回落，全天以回撤收盘（见附图）。
+
+但拉长周期来看，最近一段时间，A股整体呈现了“指数磨人、主线吃肉”的格局。
+
+消费、地产等传统周期波澜不惊、走势平淡，AI产业链却走出了独立强势行情，光模块、先进封装、AI芯片等领域的龙头公司持续走强，板块活跃度遥遥领先。
+
+简单来说，别的板块还在纠结涨跌时，AI赛道已经开启了一轮长牛行情。
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 19:06 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 19:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 19:05 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 19:08 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-29 19:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 19:22 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 19:14 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 19:17 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 19:05 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 19:27 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 19:19 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 19:29 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 19:16 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 19:06 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 19:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 19:28 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:31 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 19:28 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 19:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 19:10 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 19:07 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 19:11 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 19:15 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 19:12 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 19:21 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 19:12 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/18163.shtml)
-- 2026-06-29 19:03 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/261574.shtml)
-- 2026-06-29 19:05 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/65862785525.shtml)
-- 2026-06-29 19:08 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/48830752220.shtml)
-- 2026-06-29 19:16 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/316899498.shtml)
-- 2026-06-29 19:27 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/464275742.shtml)
-- 2026-06-29 19:19 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/8266600.shtml)
-- 2026-06-29 19:07 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/0417803.shtml)
-- 2026-06-29 19:00 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/2837632653.shtml)
-- 2026-06-29 19:10 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/7213457.shtml)
-- 2026-06-29 19:23 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/26871.shtml)
-- 2026-06-29 19:18 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/7126736821.shtml)
-- 2026-06-29 19:05 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/3227570194.shtml)
-- 2026-06-29 19:12 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/5392682.shtml)
-- 2026-06-29 19:16 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/6144018.shtml)
+- 2026-06-29 19:25 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/7826210.shtml)
+- 2026-06-29 19:12 - [千与千寻](https://www.share.minike.top/Article/details/114621199.shtml)
+- 2026-06-29 19:33 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/88942.shtml)
+- 2026-06-29 19:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/8824093.shtml)
+- 2026-06-29 19:35 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/030157825.shtml)
+- 2026-06-29 19:06 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/487314692.shtml)
+- 2026-06-29 19:13 - [金牌调解](http://www.blog.minike.top/Article/details/267501914.shtml)
+- 2026-06-29 19:33 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/38517.shtml)
+- 2026-06-29 19:31 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/441847.shtml)
+- 2026-06-29 19:15 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/22219350.shtml)
+- 2026-06-29 19:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/95837609.shtml)
+- 2026-06-29 19:15 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/079009719.shtml)
+- 2026-06-29 19:10 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/311503182.shtml)
+- 2026-06-29 19:20 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/9216019550.shtml)
+- 2026-06-29 19:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/723525552458.shtml)

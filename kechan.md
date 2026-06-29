@@ -1,57 +1,60 @@
-# 华泰期货：美伊谈判进程似有反复 贵金属市场不确定性仍强
+# “扫码送礼”可能骗走你的个人信息 这些泄露渠道要警惕
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场分析 地缘上，特朗普和以色列方面均表示，两周的停火期限并不包括黎巴嫩。以色列军方还对黎巴嫩真主党发动本轮冲突以来最大规模空袭。伊朗知情人士称，若黎巴嫩持续遭袭，伊朗将考虑退出停火协议，同时伊朗正在敲定对以色列军事目标实施“威慑行动”的计划。此外，霍尔木兹海峡已再次关闭。据海上交通追踪系统数据显示，原本驶向霍尔木兹海峡出口处的油轮“AUROURA
+法治在线丨“扫码送礼”可能骗走你的个人信息 这些泄露渠道要警惕 在电信网络诈骗犯罪中，犯罪分子能得手，很大程度上源于他们对被害人身份信息的精准利用。随着相关部门对非法获取公民个人信息犯罪打击力度越来越大，犯罪分子套取个人信息的手法也越来越隐蔽了。最近，四川乐山警方就成功打掉了一个伪装成购物平台工作人员，以“注册送礼品”为诱饵，套取群众个人信息的团伙。 “注册送礼”？地推活动实为
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场分析 地缘上，特朗普和以色列方面均表示，两周的停火期限并不包括黎巴嫩。
+法治在线丨“扫码送礼”可能骗走你的个人信息 这些泄露渠道要警惕 在电信网络诈骗犯罪中，犯罪分子能得手，很大程度上源于他们对被害人身份信息的精准利用。
 
-以色列军方还对黎巴嫩真主党发动本轮冲突以来最大规模空袭。
+随着相关部门对非法获取公民个人信息犯罪打击力度越来越大，犯罪分子套取个人信息的手法也越来越隐蔽了。
 
-伊朗知情人士称，若黎巴嫩持续遭袭，伊朗将考虑退出停火协议，同时伊朗正在敲定对以色列军事目标实施“威慑行动”的计划。
+最近，四川乐山警方就成功打掉了一个伪装成购物平台工作人员，以“注册送礼品”为诱饵，套取群众个人信息的团伙。
 
-此外，霍尔木兹海峡已再次关闭。
+“注册送礼”？
 
-据海上交通追踪系统数据显示，原本驶向霍尔木兹海峡出口处的油轮“AUROURA”号，在穆桑代姆半岛海岸附近突然改变航向，在完成180度掉头后返回波斯湾深处。
+地推活动实为收集个人信息 乐山市公安局高新区分局接到线索，辖区内疑似存在“地推”黑灰产团伙。
 
-消息称，在以色列袭击黎巴嫩之后，伊朗叫停了霍尔木兹海峡油轮通行。
+该团伙伪装成某购物平台工作人员，在人流密集场所，以“注册账号免费送礼品”为噱头，吸引大量过路群众注册账号。
 
-期货行情与成交量： 2026-04-08，沪金主力合约开于1032.98元/克，收于1062.00元/克，较前一交易日收盘变动2.68%。
+市民 赵先生：他摆一个摊，我看到他的牌子好像是京东牌子的，穿着工作人员衣服，他有招牌，我心里好像就没有什么顾虑，觉得是正规的。
 
-当日成交量为41087手，持仓量为129725手。
+他就问我，来扫一下，有福利的，我说我整不来。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-29 19:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 19:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-29 19:10 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 19:20 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 19:02 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 19:26 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 19:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 19:11 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 19:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 19:10 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 19:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 19:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 19:33 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 19:22 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 19:25 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 19:28 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 19:33 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 19:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 19:15 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 19:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 19:19 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 19:07 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 19:35 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 19:22 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/8179592872.shtml)
-- 2026-06-29 19:29 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/7836863.shtml)
-- 2026-06-29 19:12 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/831716539247.shtml)
-- 2026-06-29 19:15 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/30591041360.shtml)
-- 2026-06-29 19:08 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/9398473.shtml)
-- 2026-06-29 19:17 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/08209559264.shtml)
-- 2026-06-29 19:04 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/402416194163.shtml)
-- 2026-06-29 19:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/3092555142.shtml)
-- 2026-06-29 19:15 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/5052437.shtml)
-- 2026-06-29 19:04 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/0661318952.shtml)
-- 2026-06-29 19:10 - [女心理师](https://www.blog.minike.top/Article/details/55096035.shtml)
-- 2026-06-29 19:15 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/33265.shtml)
-- 2026-06-29 19:15 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/0503157.shtml)
-- 2026-06-29 19:08 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/2168949.shtml)
-- 2026-06-29 19:22 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/898501180533.shtml)
+- 2026-06-29 19:18 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/430782.shtml)
+- 2026-06-29 19:34 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/756099100.shtml)
+- 2026-06-29 19:16 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/3847842.shtml)
+- 2026-06-29 19:30 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/889131969.shtml)
+- 2026-06-29 19:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/727826.shtml)
+- 2026-06-29 19:15 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/0375383492.shtml)
+- 2026-06-29 19:10 - [LPL第三赛段赛制公布](http://www.share.kurohicncr.top/Article/details/2506078017.shtml)
+- 2026-06-29 19:29 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/397005.shtml)
+- 2026-06-29 19:28 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/447557975590.shtml)
+- 2026-06-29 19:23 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/7527180.shtml)
+- 2026-06-29 19:23 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/01479747.shtml)
+- 2026-06-29 19:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/390787475.shtml)
+- 2026-06-29 19:15 - [勇敢的心第二部](http://www.share.minike.top/Article/details/73257833.shtml)
+- 2026-06-29 19:15 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/714340.shtml)
+- 2026-06-29 19:34 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/10691175696.shtml)

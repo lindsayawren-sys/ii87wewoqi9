@@ -1,59 +1,59 @@
-# 长江有色：10日铅价小跌 贸易商贴水甩货观望情绪浓
+# 曹操出行将以香港为桥头堡拓展全球Robotaxi右舵市场，盘中一度涨逾10%
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-今日沪期铅走势：今日沪期铅小跌，沪铅主力合约2605开盘报16710元，高点报16765元，低点16575元，结算价16675元，收盘16685元/吨，跌85元，跌幅为0.51%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16630-16730元/吨，均价16680元，较前一日价格下跌20元；广东现货市场1#铅报16560-16660元/吨，均价16610元，较前一
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新浪科技讯 5月21日下午消息，今日，曹操出行股价表现强势，早间盘中一度涨超10%，截至收盘涨3.25%，报每股24.16港元，涨幅居港股出行板块前列。 消息面上，吉利控股集团高级副总裁杨学良在2026香港车博会新闻发布会上透露，曹操出行将在香港车博会上重点展出中国首款原生开发Robotaxi原型车，并计划
 
 ## 正文
 
-今日沪期铅走势：今日沪期铅小跌，沪铅主力合约2605开盘报16710元，高点报16765元，低点16575元，结算价16675元，收盘16685元/吨，跌85元，跌幅为0.51%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今日ccmn铅价统计，今日ccmn长江综合1#铅价报16630-16730元/吨，均价16680元，较前一日价格下跌20元；广东现货市场1#铅报16560-16660元/吨，均价16610元，较前一日价格下跌25元。
+新浪科技讯 5月21日下午消息，今日，曹操出行股价表现强势，早间盘中一度涨超10%，截至收盘涨3.25%，报每股24.16港元，涨幅居港股出行板块前列。
 
-今日现货铅市场报价在16525-16730元/吨之间，对比沪期铅2604合约贴水175-升水30元/吨，沪期铅2605合约贴水215-贴水10元/吨。
+消息面上，吉利控股集团高级副总裁杨学良在2026香港车博会新闻发布会上透露，曹操出行将在香港车博会上重点展出中国首款原生开发Robotaxi原型车，并计划在香港布局Robotaxi业务，以香港作为拓展全球右舵市场的战略桥头堡。
 
-ccmn铅市分析：宏观面，今日（2026 年 4 月 10 日）铅价延续偏弱震荡格局，核心拖累来自宏观面：美国 2 月 PCE 数据显示通胀粘性仍存，核心商品价格环比回升叠加关税传导压力，市场对美联储降息预期进一步延后，美元走强、美股承压，直接压制以美元计价的基本金属；同时伊朗霍尔木兹海峡局势升温引发避险情绪，资金撤离风险资产，进一步加剧铅价下行压力。
+据了解，该原型车融合了曹操出行在定制车研发与十年出行运营的经验积累，代表吉利控股集团在Robotaxi商业化方向的最新探索。
 
-基本面供需端暂无强驱动，整体呈现宏观主导、偏弱运行的态势。
+按照规划，曹操出行深度定制版Robotaxi将于2027年量产，到2030年累计投放10万辆。
 
-供需端：供增需弱格局固化，库存高位压制上行 需求端，电动自行车进入传统消费淡季，汽车产销增速回落带动启动电池刚需减弱，叠加电池出口承压，电池企业普遍下调生产计划，需求端持续疲软。
+市场人士表示，香港不仅是国际金融中心，也是连接东南亚、中东等右舵市场的重要窗口。
 
-供应端，电解铅炼厂逐步复产，再生铅炼厂受利润约束复工不及预期，总供应维持边际增加。
+若Robotaxi业务率先在香港实现商业化落地，将为曹操出行后续全球化拓展打开空间。
 
-供增需弱背景下，铅锭库存维持高位窄幅波动，彻底封杀铅价进一步上涨空间，盘整成为主基调。
+作为吉利控股集团Robotaxi最重要的商业化载体，曹操出行已形成“智能定制车+智能驾驶技术+智能运营”三位一体的Robotaxi全要素闭环生态系统。
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 19:13 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 19:11 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 19:18 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 19:29 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 19:18 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 19:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 19:23 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 19:23 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 19:25 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 19:05 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 19:24 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 19:23 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 19:22 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 19:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 19:21 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 19:23 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 19:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 19:34 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 19:19 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 19:32 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 19:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 19:16 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 19:18 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 19:25 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 19:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/11073.shtml)
-- 2026-06-29 19:07 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/79863.shtml)
-- 2026-06-29 19:15 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/29844720.shtml)
-- 2026-06-29 19:08 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/460190204035.shtml)
-- 2026-06-29 19:10 - [天道](http://www.blog.kurohicncr.top/Article/details/46415580982.shtml)
-- 2026-06-29 19:26 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/89567142266.shtml)
-- 2026-06-29 19:08 - [送你一朵小红花](http://www.share.minike.top/Article/details/5570340234.shtml)
-- 2026-06-29 19:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/65432.shtml)
-- 2026-06-29 19:29 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/42873292.shtml)
-- 2026-06-29 19:21 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/467853.shtml)
-- 2026-06-29 19:10 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/0609370031.shtml)
-- 2026-06-29 19:07 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/16625606762.shtml)
-- 2026-06-29 19:25 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/18928.shtml)
-- 2026-06-29 19:19 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/354906.shtml)
-- 2026-06-29 19:00 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/2544640827.shtml)
+- 2026-06-29 19:16 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/17724989375.shtml)
+- 2026-06-29 19:32 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/181254977.shtml)
+- 2026-06-29 19:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/18462.shtml)
+- 2026-06-29 19:28 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/875535591667.shtml)
+- 2026-06-29 19:24 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/55609323.shtml)
+- 2026-06-29 19:20 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/37063.shtml)
+- 2026-06-29 19:22 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/79446.shtml)
+- 2026-06-29 19:27 - [极限挑战第一季](http://www.blog.minike.top/Article/details/345894.shtml)
+- 2026-06-29 19:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/0739388.shtml)
+- 2026-06-29 19:28 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/69343322783.shtml)
+- 2026-06-29 19:24 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/222718075618.shtml)
+- 2026-06-29 19:12 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/782421812659.shtml)
+- 2026-06-29 19:18 - [啊啊啊](https://www.blog.minike.top/Article/details/85693.shtml)
+- 2026-06-29 19:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/662851373.shtml)
+- 2026-06-29 19:10 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/16301.shtml)

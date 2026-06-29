@@ -1,56 +1,58 @@
-# 中国国防部：敦促菲方停止“倚外闹海”，否则只会自食苦果
+# 科技股普跌拖累大盘，摩根大通：AI产业链并未严重高估
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 (记者 李纯)中国国防部新闻发言人张晓刚9日就近期涉军问题发布消息。他表示，中方敦促菲方停止“倚外闹海”、制造事端，否则只会自食苦果、得不偿失。 有记者问，据报道，菲律宾海军称中国可能正在利用国际社会对中东冲突的关注，在南海升级对菲“骚扰”活动。菲国家海事委员会称，中方近期多次在南海对菲舰船和人员实施“危险操作”。请问对此有何评论？ 张晓刚指出，近来，菲方
+记者|王海慜 编辑|彭水萍 5月21日，A股市场上演“过山车”行情，早盘各大指数集体高开冲高，午后却风云突变，AI产业链领衔重挫引发市场全面调整。截至收盘，上证指数跌2.04%，报4077.28 点，跌破4100点整数关口，创下今年3月24日以来的最大单日跌幅；深证成指跌2.07%，报15247.27点；创业板指跌 2.35%，科创100指数跌幅更是高达5.23%，成为今日跌幅
 
 ## 正文
 
-中新社北京4月9日电 (记者 李纯)中国国防部新闻发言人张晓刚9日就近期涉军问题发布消息。
+记者|王海慜 编辑|彭水萍 5月21日，A股市场上演“过山车”行情，早盘各大指数集体高开冲高，午后却风云突变，AI产业链领衔重挫引发市场全面调整。
 
-他表示，中方敦促菲方停止“倚外闹海”、制造事端，否则只会自食苦果、得不偿失。
+截至收盘，上证指数跌2.04%，报4077.28 点，跌破4100点整数关口，创下今年3月24日以来的最大单日跌幅；深证成指跌2.07%，报15247.27点；创业板指跌 2.35%，科创100指数跌幅更是高达5.23%，成为今日跌幅最大的主要指数。
 
-有记者问，据报道，菲律宾海军称中国可能正在利用国际社会对中东冲突的关注，在南海升级对菲“骚扰”活动。
+对于AI产业链究竟是否已经高估的话题，有头部外资券商策略分析师向记者表示，AI产业链的业绩增长消化了估值，目前并不算高估。
 
-菲国家海事委员会称，中方近期多次在南海对菲舰船和人员实施“危险操作”。
+此外，中国股票市场外资回流趋势明显，偏好也从消费转向科技、先进制造。
 
-请问对此有何评论？
+市场调整后仍存结构性机会。
 
-张晓刚指出，近来，菲方侵闯中国黄岩岛、南沙岛礁海空域，蓄意冲闯中方演训区，甚至危险接近中方舰艇，一再对中方侵权滋扰，在亚太地区制造不安全、不稳定风险。
+今日早盘，市场在券商、人形机器人等板块带动下一度走强，午后则迅速转为跌势，AI产业链成为重灾区，而部分防御性板块和新兴赛道逆势走强。
 
-张晓刚说，我们敦促菲方停止“倚外闹海”、制造事端，否则只会自食苦果、得不偿失。
+有分析认为，前期AI板块涨幅较大，估值处于高位，资金借今日市场波动有一定获利了结的意愿。
 
-中方维护自身领土主权和海洋权益的决心坚定不移，将继续坚决回击任何侵权挑衅行径。
+此外，今日AI产业链的大跌也不乏一些产业层面的“催化剂”。
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 19:12 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-29 19:08 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 19:24 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 19:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 19:23 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 19:20 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 19:28 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 19:12 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 19:23 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 19:21 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 19:29 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 19:23 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 19:34 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 19:21 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 19:17 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 19:21 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 19:19 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 19:32 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 19:15 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 19:14 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 19:28 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:13 - [乔家的儿女](http://www.share.minike.top/Article/details/91369626.shtml)
-- 2026-06-29 19:08 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/45131374.shtml)
-- 2026-06-29 19:23 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/0914430.shtml)
-- 2026-06-29 19:03 - [周生如故](http://www.blog.kurohicncr.top/Article/details/450435111563.shtml)
-- 2026-06-29 19:13 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/327287.shtml)
-- 2026-06-29 19:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/181895947254.shtml)
-- 2026-06-29 19:17 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/737506971.shtml)
-- 2026-06-29 19:17 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/4253791.shtml)
-- 2026-06-29 19:10 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/87275096.shtml)
-- 2026-06-29 19:04 - [7款高价创新药有望降价](https://www.blog.minike.top/Article/details/580869915449.shtml)
-- 2026-06-29 19:16 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/10010.shtml)
-- 2026-06-29 19:25 - [四川达州发生一起交通事故致2死](http://www.blog.kurohicncr.top/Article/details/404561828524.shtml)
-- 2026-06-29 19:08 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/07566121.shtml)
-- 2026-06-29 19:10 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/39276692446.shtml)
-- 2026-06-29 19:05 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/322235.shtml)
+- 2026-06-29 19:25 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/60174.shtml)
+- 2026-06-29 19:19 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/88793384.shtml)
+- 2026-06-29 19:15 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/540948.shtml)
+- 2026-06-29 19:06 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/048477136.shtml)
+- 2026-06-29 19:33 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/79543343475.shtml)
+- 2026-06-29 19:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/36116422497.shtml)
+- 2026-06-29 19:12 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/24504296822.shtml)
+- 2026-06-29 19:34 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/39499.shtml)
+- 2026-06-29 19:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/0622868.shtml)
+- 2026-06-29 19:12 - [金牌调解](https://www.share.kurohicncr.top/Article/details/0095917849.shtml)
+- 2026-06-29 19:30 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/856771939.shtml)
+- 2026-06-29 19:08 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/468994231981.shtml)
+- 2026-06-29 19:28 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/02076640515.shtml)
+- 2026-06-29 19:21 - [无畏为自己的猫正名了](https://www.blog.minike.top/Article/details/414870136.shtml)
+- 2026-06-29 19:13 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.kurohicncr.top/Article/details/837360805223.shtml)

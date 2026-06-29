@@ -1,48 +1,57 @@
-# 连云港东方农村商业银行被罚97.31万元：违反金融统计相关规定等
+# 美国20亿美元“入股”量子计算，量子概念股集体狂欢
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-4月10日金融一线消息，中国人民银行连云港市分行行政处罚决定信息公示表显示，连云港东方农村商业银行股份有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币反假规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定报告可疑交易；为身份不明的客户提供服务、与其进行交易，受到警告，并处罚款97.3075万元。 序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为
+量子产业链概念股集体爆发 当地时间5月21日，美国政府宣布将向九家量子计算公司提供20亿美元的资助，以换取这些公司的股权。美国商务部已同意向IBM提供其中的10亿美元资助，IBM同时表示将自行投资10亿美元，建立首家专用量子计算芯片制造工厂。其他获得资助的企业包括格芯（Global Foundries）、D-Wave Quantum、Rigetti Computing和Infl
 
 ## 正文
 
-4月10日金融一线消息，中国人民银行连云港市分行行政处罚决定信息公示表显示，连云港东方农村商业银行股份有限公司因违反金融统计相关规定；违反账户管理规定；违反人民币反假规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定报告可疑交易；为身份不明的客户提供服务、与其进行交易，受到警告，并处罚款97.3075万元。
+量子产业链概念股集体爆发 当地时间5月21日，美国政府宣布将向九家量子计算公司提供20亿美元的资助，以换取这些公司的股权。
 
-序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚决定日期 公示期限（自公示起计算） 备注 1 连云港东方农村商业银行股份有限公司 连银罚决字〔2026〕1号 违反金融统计相关规定；违反账户管理规定；违反人民币反假规定；违反信用信息采集、提供、查询及相关管理规定；未按照规定报告可疑交易；为身份不明的客户提供服务、与其进行交易。
+美国商务部已同意向IBM提供其中的10亿美元资助，IBM同时表示将自行投资10亿美元，建立首家专用量子计算芯片制造工厂。
 
-警告，并处罚款97.3075万元。
+其他获得资助的企业包括格芯（Global Foundries）、D-Wave Quantum、Rigetti Computing和Infleqtion等。
 
-中国人民银行连云港市分行 2026年3月26日 三年 责任编辑：曹睿潼
+市场认为，这是特朗普政府持续推进通过入股科技及工业制造企业战略的一部分。
+
+周四美股开盘后，量子计算概念股暴涨，IBM股价涨超4.6%，格芯股价同样大涨，开盘后上涨约12%。
+
+D-Wave Quantum上涨33.54%，Rigetti上涨28%，Infleqtion飙升42%。
+
+国内市场方面，5月22日，量子产业链概念股集体爆发，国盾量子（688027.SH）、科大国创（300520.SZ）涨超10%，神州信息（000555.SZ）涨超7%，四方达（300179.SZ）、黄河旋风（600172.SH）涨停，惠丰钻石（920725.BJ）涨逾10%。
+
+市场情绪的热烈，反映出全球对量子计算战略价值的共识。
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 19:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 19:19 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 19:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 19:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 19:26 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-29 19:24 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 19:09 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 19:12 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 19:29 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 19:06 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 19:18 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 19:25 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 19:23 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 19:10 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 19:34 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 19:24 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 19:28 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 19:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 19:14 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 19:15 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/9942658140.shtml)
-- 2026-06-29 19:14 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/07938.shtml)
-- 2026-06-29 19:22 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/64230591.shtml)
-- 2026-06-29 19:18 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/04797760.shtml)
-- 2026-06-29 19:21 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/8031772.shtml)
-- 2026-06-29 19:04 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/731078017581.shtml)
-- 2026-06-29 19:04 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/89044.shtml)
-- 2026-06-29 19:18 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/254288176.shtml)
-- 2026-06-29 19:17 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/4480988754.shtml)
-- 2026-06-29 19:23 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/240575.shtml)
-- 2026-06-29 19:29 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/356181384927.shtml)
-- 2026-06-29 19:08 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/90023465233.shtml)
-- 2026-06-29 19:16 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/63082187632.shtml)
-- 2026-06-29 19:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/910733539275.shtml)
-- 2026-06-29 19:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/110525994.shtml)
+- 2026-06-29 19:23 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/67736204071.shtml)
+- 2026-06-29 19:15 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1631446.shtml)
+- 2026-06-29 19:09 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/126715280.shtml)
+- 2026-06-29 19:07 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/702196481631.shtml)
+- 2026-06-29 19:28 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/739093.shtml)
+- 2026-06-29 19:28 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/8794096.shtml)
+- 2026-06-29 19:24 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/67779341066.shtml)
+- 2026-06-29 19:12 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/34639.shtml)
+- 2026-06-29 19:25 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/12648112574.shtml)
+- 2026-06-29 19:11 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/3228879.shtml)
+- 2026-06-29 19:18 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/594304733579.shtml)
+- 2026-06-29 19:11 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/9621092.shtml)
+- 2026-06-29 19:08 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/524801360.shtml)
+- 2026-06-29 19:35 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/04789.shtml)
+- 2026-06-29 19:07 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/848251888.shtml)

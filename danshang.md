@@ -1,58 +1,56 @@
-# 第一季度全球PC市场报告发布 预计今年电脑还要继续涨价
+# 斯特兰蒂斯瞄准北美销量提升35%，依托公羊皮卡与克莱斯勒品牌复苏驱动
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：第一财经 作者：刘佳 本文字数：1293，阅读时长大约2分钟 4月10日，国际数据公司（IDC）与市场研究机构Omdia先后公布今年第一季度全球PC市场报告。尽管统计口径有所差异，但两份报告指向的趋势一致：第一季度PC市场实现温和增长，而这很可能是2026年全年的高点，一场由供应链引发的市场洗牌即将到
+核心要点 斯特兰蒂斯计划 2030 年前实现北美销量上涨 35%，同时推动处境低迷的克莱斯勒品牌重振，该品牌多年来仅有一款车型支撑市场。 本次销量增长聚焦旗下美式经典品牌，克莱斯勒与公羊皮卡销量目标提升 60%，道奇性能系列提升 10%，吉普品牌提升 15%。菲亚特、阿尔法・罗密欧在北美市场销量占比较低，官方暂未公布二者增长指标。 公羊品牌总裁蒂姆・库尼斯基同时统管集团其他美式
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+核心要点 斯特兰蒂斯计划 2030 年前实现北美销量上涨 35%，同时推动处境低迷的克莱斯勒品牌重振，该品牌多年来仅有一款车型支撑市场。
 
-来源：第一财经 作者：刘佳 本文字数：1293，阅读时长大约2分钟 4月10日，国际数据公司（IDC）与市场研究机构Omdia先后公布今年第一季度全球PC市场报告。
+本次销量增长聚焦旗下美式经典品牌，克莱斯勒与公羊皮卡销量目标提升 60%，道奇性能系列提升 10%，吉普品牌提升 15%。
 
-尽管统计口径有所差异，但两份报告指向的趋势一致：第一季度PC市场实现温和增长，而这很可能是2026年全年的高点，一场由供应链引发的市场洗牌即将到来，今年PC还要继续涨价。
+菲亚特、阿尔法・罗密欧在北美市场销量占比较低，官方暂未公布二者增长指标。
 
-IDC统计显示，第一季度全球PC出货量为6560万台，同比增长2.5%；Omdia最新研究显示，第一季度台式机、笔记本和工作站的总出货量达到6480万台，同比增长3.2%。
+公羊品牌总裁蒂姆・库尼斯基同时统管集团其他美式品牌业务。
 
-第一季度的PC增长并非源于需求端的根本性回暖，而是多重短期因素叠加的结果。
+他表示，行业整体销量预计将维持 2000 万辆规模、增长停滞，在此背景下，旗下美式品牌销量要从去年的 140 万辆增至 2030 年的 190 万辆。
 
-Omdia分析称，厂商和渠道伙伴普遍预期元器件价格将进一步上涨，在第一季度提前拉动订单，同时Windows 10更换周期仍在推动企业更新预算，再加上春季如Windows OEM和苹果新品集中上市，共同构成了这一波增长的三大引擎。
+周四投资者大会上，集团公布由首席执行官安东尼奥・菲洛萨主导、总额 600 亿欧元（折合 697 亿美元）的五年转型规划。
 
-几家行业巨头在市场份额的表现分化，是本季度最直观的信号。
+库尼斯基称，车企主要依靠推出全新车型拓宽市场覆盖范围，达成销量目标。
 
-两家机构数据都显示，市场份额前五分别是联想、惠普、戴尔、苹果和华硕。
+菲洛萨谈及北美业务时表示：“我们不会在增长与盈利之间二选一，将同步推动两项指标稳步向好。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 19:00 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 19:09 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 19:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 19:08 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 19:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 19:04 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 19:14 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 19:16 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 19:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 19:00 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 19:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 19:10 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 19:09 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 19:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 19:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 19:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 19:27 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 19:20 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 19:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 19:20 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 19:14 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/672865.shtml)
-- 2026-06-29 19:03 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/282742.shtml)
-- 2026-06-29 19:02 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/83999.shtml)
-- 2026-06-29 19:16 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/0025905.shtml)
-- 2026-06-29 19:24 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/975366349.shtml)
-- 2026-06-29 19:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/550690672606.shtml)
-- 2026-06-29 19:08 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/1086475.shtml)
-- 2026-06-29 19:17 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/80028245.shtml)
-- 2026-06-29 19:20 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/35722665994.shtml)
-- 2026-06-29 19:16 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/1054521096.shtml)
-- 2026-06-29 19:30 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/132505322.shtml)
-- 2026-06-29 19:25 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/89217893987.shtml)
-- 2026-06-29 19:18 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/561672245.shtml)
-- 2026-06-29 19:19 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/98164.shtml)
-- 2026-06-29 19:23 - [爱很美味](http://www.share.kurohicncr.top/Article/details/217562114.shtml)
+- 2026-06-29 19:08 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/31068.shtml)
+- 2026-06-29 19:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/222170642.shtml)
+- 2026-06-29 19:35 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/79556214710.shtml)
+- 2026-06-29 19:07 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/00008878.shtml)
+- 2026-06-29 19:31 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/14342.shtml)
+- 2026-06-29 19:34 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/2960329355.shtml)
+- 2026-06-29 19:24 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/64084223.shtml)
+- 2026-06-29 19:29 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/956309592.shtml)
+- 2026-06-29 19:14 - [绘画区你赢了](http://www.blog.minike.top/Article/details/33633366.shtml)
+- 2026-06-29 19:10 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/54789.shtml)
+- 2026-06-29 19:09 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/2682879559.shtml)
+- 2026-06-29 19:34 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/57464680696.shtml)
+- 2026-06-29 19:30 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/3091445353.shtml)
+- 2026-06-29 19:06 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/6364174056.shtml)
+- 2026-06-29 19:34 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/454751278.shtml)

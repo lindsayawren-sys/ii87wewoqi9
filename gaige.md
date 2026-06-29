@@ -1,60 +1,58 @@
-# 特朗普发文提振股价后，迈克尔・伯里称仍在做空帕兰提尔
+# 李寒穷“接棒”雅戈尔，李如成留下多少家底？
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-核心要点 尽管总统唐纳德・特朗普公开背书提振了股价，迈克尔・伯里仍坚持看空帕兰提尔技术公司。 这位因《大空头》闻名的投资者周五在 Substack 发文称，他继续持有这家人工智能软件公司的长期看跌期权。伯里表示，他于 2025 年秋季开始做空该公司，并多次展期头寸。 “我目前持有 2027 年 6 月 17 日到期、行权价 50 美元的看跌期权，以及 2026 年 12 月 1
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：野马财经 作者 | 于婞 高远山 雅戈尔进入“李寒穷时代”。 尽管起名叫“寒”、“穷”，但作为雅戈尔创始人李如成的闺女，李寒穷既不寒也不穷。而且，刚刚从老爸手里接过一个市值340亿元的知名上市公司。 5月21日，雅戈尔（600177.SH）发布公告称，公司创始人李如成之女李寒穷正式接任董事长和总裁。与
 
 ## 正文
 
-核心要点 尽管总统唐纳德・特朗普公开背书提振了股价，迈克尔・伯里仍坚持看空帕兰提尔技术公司。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这位因《大空头》闻名的投资者周五在 Substack 发文称，他继续持有这家人工智能软件公司的长期看跌期权。
+来源：野马财经 作者 | 于婞 高远山 雅戈尔进入“李寒穷时代”。
 
-伯里表示，他于 2025 年秋季开始做空该公司，并多次展期头寸。
+尽管起名叫“寒”、“穷”，但作为雅戈尔创始人李如成的闺女，李寒穷既不寒也不穷。
 
-“我目前持有 2027 年 6 月 17 日到期、行权价 50 美元的看跌期权，以及 2026 年 12 月 19 日到期、行权价 100 美元的看跌期权。
+而且，刚刚从老爸手里接过一个市值340亿元的知名上市公司。
 
-我今日不会卖出这些期权，” 伯里写道。
+5月21日，雅戈尔（600177.SH）发布公告称，公司创始人李如成之女李寒穷正式接任董事长和总裁。
 
-伯里发表评论前，特朗普周五在 Truth Social 称赞帕兰提尔，推动该股从日内低点回升。
+与很多海外求学归来“空降”的“富二代”不同，李寒穷的接班路，是从基层干起，一步一个脚印“熬”出来的。
 
-尽管如此，该股本周仍预计下跌约 13%，2026 年以来累计跌幅约 28%。
+如今，49岁的李寒穷正在主导品牌年轻化，努力逆转品牌老化的固有印象。
 
-特朗普写道：“帕兰提尔技术公司（PLTR）已被证明拥有强大的作战能力与装备。
+75岁的李如成也宣告“功成身退”，给闺女留下一个“服装+零售+投资”的商业帝国，包括银泰百货、宁波银行、中信证券等核心资产。
 
 ## 相关推荐
 
-- 2026-06-29 19:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 19:00 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 19:09 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 19:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 19:25 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 19:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 19:29 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 19:10 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 19:00 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 19:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 19:08 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 19:09 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 19:27 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 19:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 19:07 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 19:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 19:09 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 19:28 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 19:06 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 19:34 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 19:26 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 19:27 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 19:35 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 19:10 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 19:32 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 19:10 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:22 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/92500226.shtml)
-- 2026-06-29 19:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/656617.shtml)
-- 2026-06-29 19:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/5216494797.shtml)
-- 2026-06-29 19:04 - [东方风云榜](http://www.share.minike.top/Article/details/6003461676.shtml)
-- 2026-06-29 19:20 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/7554557038.shtml)
-- 2026-06-29 19:15 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/250451.shtml)
-- 2026-06-29 19:27 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/7293593.shtml)
-- 2026-06-29 19:22 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/4298247979.shtml)
-- 2026-06-29 19:17 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/87608.shtml)
-- 2026-06-29 19:16 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/675042657479.shtml)
-- 2026-06-29 19:19 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/06101.shtml)
-- 2026-06-29 19:13 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/83179082.shtml)
-- 2026-06-29 19:28 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/024851913473.shtml)
-- 2026-06-29 19:26 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/2361022.shtml)
-- 2026-06-29 19:20 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/471766.shtml)
+- 2026-06-29 19:17 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/279790.shtml)
+- 2026-06-29 19:30 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/887892.shtml)
+- 2026-06-29 19:35 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/867080803138.shtml)
+- 2026-06-29 19:12 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/737359645.shtml)
+- 2026-06-29 19:19 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/5214074372.shtml)
+- 2026-06-29 19:13 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/3676107049.shtml)
+- 2026-06-29 19:20 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/841567601214.shtml)
+- 2026-06-29 19:24 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/839988817712.shtml)
+- 2026-06-29 19:13 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/374689299335.shtml)
+- 2026-06-29 19:25 - [美人鱼](https://www.share.minike.top/Article/details/129805297.shtml)
+- 2026-06-29 19:29 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/066472393.shtml)
+- 2026-06-29 19:24 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/579281458682.shtml)
+- 2026-06-29 19:28 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/010215.shtml)
+- 2026-06-29 19:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/022001.shtml)
+- 2026-06-29 19:27 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/6802578.shtml)

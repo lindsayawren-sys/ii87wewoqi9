@@ -1,60 +1,45 @@
-# 伊朗战事引发全球抢油潮 美国4月石油出口量将创历史新高
+# 联合国秘书长发言人表示：埃博拉疫情持续扩散 或加剧当地粮食危机
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-受伊朗战事影响，亚洲客户正疯狂抢购石油以替代从中东断供的原油，美国4月原油出口量预计将创下历史新高。 石油研究机构Kpler估计，本月美国原油出口量将从3月的每日390万桶激增近三分之一，达到每日520万桶。其中，来自亚洲客户的需求将暴涨82%，至每日250万桶。 据Kpler统计，目前已有68艘空载油轮正驶向美国，而2月28日战争爆发前一周仅为24艘，去年的平均水平更是只有2
+发布时间：2026年05月21日 13:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-受伊朗战事影响，亚洲客户正疯狂抢购石油以替代从中东断供的原油，美国4月原油出口量预计将创下历史新高。
-
-石油研究机构Kpler估计，本月美国原油出口量将从3月的每日390万桶激增近三分之一，达到每日520万桶。
-
-其中，来自亚洲客户的需求将暴涨82%，至每日250万桶。
-
-据Kpler统计，目前已有68艘空载油轮正驶向美国，而2月28日战争爆发前一周仅为24艘，去年的平均水平更是只有27艘。
-
-Kpler的数据基于油轮预订情况和预计到港量。
-
-Kpler分析师马特·史密斯（Matt Smith）表示：“一支庞大的油轮舰队正朝美国驶来。
-
-” 此次出口激增凸显了美国日益重要的全球“摇摆供应国”地位。
-
-但来自亚洲的激烈竞争也可能推高美国国内油价，加剧市场对特朗普总统发动的伊朗战争引发新一轮通胀的担忧。
+发布时间：2026年05月21日 13:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 19:02 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 19:18 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 19:00 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 19:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 19:28 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-29 19:25 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 19:14 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 19:10 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 19:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 19:16 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 19:09 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 19:16 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 19:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 19:26 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 19:22 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 19:08 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 19:15 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 19:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 19:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 19:07 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 19:24 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 19:15 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 19:35 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 19:06 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 19:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 19:12 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 19:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/972546.shtml)
-- 2026-06-29 19:07 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/5188290.shtml)
-- 2026-06-29 19:18 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/521002.shtml)
-- 2026-06-29 19:21 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/69888.shtml)
-- 2026-06-29 19:14 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/1460398121.shtml)
-- 2026-06-29 19:22 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/39322978063.shtml)
-- 2026-06-29 19:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/188172083.shtml)
-- 2026-06-29 19:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/497011.shtml)
-- 2026-06-29 19:01 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/949722681857.shtml)
-- 2026-06-29 19:06 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/2916886.shtml)
-- 2026-06-29 19:17 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/83519.shtml)
-- 2026-06-29 19:15 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/573268.shtml)
-- 2026-06-29 19:27 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/16072833.shtml)
-- 2026-06-29 19:02 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/6025738.shtml)
-- 2026-06-29 19:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/928988817.shtml)
+- 2026-06-29 19:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/7499411772.shtml)
+- 2026-06-29 19:07 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/540056033.shtml)
+- 2026-06-29 19:18 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1931213.shtml)
+- 2026-06-29 19:07 - [一生一世](http://www.blog.minike.top/Article/details/62120.shtml)
+- 2026-06-29 19:32 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/946770829673.shtml)
+- 2026-06-29 19:32 - [时光音乐会](http://www.share.minike.top/Article/details/698678680.shtml)
+- 2026-06-29 19:19 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/4159806.shtml)
+- 2026-06-29 19:06 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/6743729567.shtml)
+- 2026-06-29 19:19 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/671281341.shtml)
+- 2026-06-29 19:30 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/288664.shtml)
+- 2026-06-29 19:25 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/35478.shtml)
+- 2026-06-29 19:07 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/831115494.shtml)
+- 2026-06-29 19:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/6130833565.shtml)
+- 2026-06-29 19:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/3412895.shtml)
+- 2026-06-29 19:10 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/546578365.shtml)

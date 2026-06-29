@@ -1,57 +1,48 @@
-# 国泰君安期货：焦煤持续下跌，交易逻辑发生了哪些变化？
+# 广西财政国库再向柳州调度抗震救灾资金3000万元
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 近期焦煤期货主力合约价格持续下挫，今天盘面减仓下行，跌破前低位置，收报1056.5元/吨。此前焦煤上涨的主要逻辑在于“能源替代预期”，也就是油气价格大幅抬升，市场预期煤炭作为替代能源的需求可能增加，从而推高价格。而当前焦煤价格已经回落至地缘冲突开始前的水平，交易逻辑发生了哪些变化？ 主要驱动： 1． 情绪退潮，溢价
+记者从广西壮族自治区财政厅获悉，5月21日，国家防灾减灾救灾委员会针对柳州市柳南区连续发生5.2级地震启动国家四级救灾应急响应。广西壮族自治区财政国库再次向柳州市紧急调度应急救灾资金3000万元，累计专项调度资金5000万元，支持柳州市统筹做好转移安置受灾人员、排危除险等应急处置工作，开展次生灾害隐患排查、倒损民房修复和受灾群众救助等工作，全力保障人民群众生命财产安全。 (总台
 
 ## 正文
 
-国泰君安期货市场分析师 陈骏昊 投资咨询证号：Z0021546 近期焦煤期货主力合约价格持续下挫，今天盘面减仓下行，跌破前低位置，收报1056.5元/吨。
+记者从广西壮族自治区财政厅获悉，5月21日，国家防灾减灾救灾委员会针对柳州市柳南区连续发生5.2级地震启动国家四级救灾应急响应。
 
-此前焦煤上涨的主要逻辑在于“能源替代预期”，也就是油气价格大幅抬升，市场预期煤炭作为替代能源的需求可能增加，从而推高价格。
+广西壮族自治区财政国库再次向柳州市紧急调度应急救灾资金3000万元，累计专项调度资金5000万元，支持柳州市统筹做好转移安置受灾人员、排危除险等应急处置工作，开展次生灾害隐患排查、倒损民房修复和受灾群众救助等工作，全力保障人民群众生命财产安全。
 
-而当前焦煤价格已经回落至地缘冲突开始前的水平，交易逻辑发生了哪些变化？
-
-主要驱动： 1． 情绪退潮，溢价回吐：随着近期美伊达成临时停火协议，油价短期出现快速回落，市场情绪降温，“能源替代预期”支撑松动，投机资金快速离场，盘面价格波动逐渐回归至自身基本面逻辑。
-
-2． 临近交割，压力凸显：05合约临近交割，多头接货意愿较弱，部分选择离场或移仓，近月合约支撑削弱；同时，此前焦煤期货价格上涨后升水现货，而当情绪转弱，价格出现回落，盘面上卖出套保压力逐渐显现，令价格进一步承压。
-
-3． 供应宽松，需求放缓：从基本面看，煤炭供应保持高位，国内煤矿复产推进，产量回升；蒙煤通关创历史新高，库存高位。
-
-需求端，钢厂利润低位，终端需求较弱，影响焦煤的采购节奏和价格接受度；同时情绪降温，投机需求也出现明显消退。
-
-整体来说，焦煤的交易逻辑从前期的能源替代预期切换为交割和基本面的现实压力。
+(总台记者 李健飞 孔祥新)
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 19:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 19:28 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 19:17 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 19:02 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 19:08 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 19:21 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 19:09 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 19:01 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 19:04 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 19:20 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 19:22 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 19:09 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 19:34 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 19:13 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 19:27 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 19:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 19:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 19:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 19:19 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 19:08 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 19:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 19:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/9038963.shtml)
-- 2026-06-29 19:06 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/74614618.shtml)
-- 2026-06-29 19:17 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/28918875.shtml)
-- 2026-06-29 19:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/07684.shtml)
-- 2026-06-29 19:21 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/877157209.shtml)
-- 2026-06-29 19:03 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/940947412005.shtml)
-- 2026-06-29 19:02 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/311210806074.shtml)
-- 2026-06-29 19:11 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/21640373.shtml)
-- 2026-06-29 19:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/04059800889.shtml)
-- 2026-06-29 19:00 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/05079078.shtml)
-- 2026-06-29 19:18 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/245935708985.shtml)
-- 2026-06-29 19:23 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/736005680999.shtml)
-- 2026-06-29 19:09 - [斛珠夫人](https://www.blog.minike.top/Article/details/130259203972.shtml)
-- 2026-06-29 19:02 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/06667.shtml)
-- 2026-06-29 19:12 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/25623383774.shtml)
+- 2026-06-29 19:15 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/37717409362.shtml)
+- 2026-06-29 19:17 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/45237474.shtml)
+- 2026-06-29 19:25 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/4528893598.shtml)
+- 2026-06-29 19:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/662501940791.shtml)
+- 2026-06-29 19:17 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/1044122186.shtml)
+- 2026-06-29 19:18 - [斛珠夫人](http://www.share.minike.top/Article/details/902418.shtml)
+- 2026-06-29 19:32 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/372232996553.shtml)
+- 2026-06-29 19:17 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/37131906241.shtml)
+- 2026-06-29 19:17 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/8094049905.shtml)
+- 2026-06-29 19:15 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/227559447.shtml)
+- 2026-06-29 19:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/029598049377.shtml)
+- 2026-06-29 19:35 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/5705386.shtml)
+- 2026-06-29 19:30 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/264963.shtml)
+- 2026-06-29 19:14 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/768903307036.shtml)
+- 2026-06-29 19:26 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/040584990.shtml)

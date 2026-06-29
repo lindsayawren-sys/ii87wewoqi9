@@ -1,58 +1,58 @@
-# 阿联酋石油CEO：停火后伊朗仍控制通行，霍尔木兹海峡并未开放
+# 华泰期货：当前集运欧线基本面偏强，远月合约计价更多涨价
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-要点 阿布扎比国家石油公司（ADNOC）首席执行官周四表示，在美国与伊朗达成为期两周的停火协议后，霍尔木兹海峡并未恢复通航。 “此刻需要明确事实，” 苏丹・艾哈迈德・贾比尔在社交媒体发文称，“所以我们直言不讳：霍尔木兹海峡并未开放。通行受到限制、附加条件并被严格控制。” 贾比尔指出，伊朗已明确要求，船只必须获得其许可方可通过海峡。“这不是航行自由，这是强制管控。” ADNOC
+来源：华泰期货 作者： 高聪 市场分析 线上报价方面。 Gemini Cooperation：马士基上海-鹿特丹WEEK23周报价2645/3820（上海至安特卫普2360/3500、伦敦口岸港价格2360/3500，汉堡港价格2760/3900）；HPL 5月下半月船期报价介于2800-3500美元/FEU，6月上半月船期报价3800-3900美元/FEU，6月下半月船期报价
 
 ## 正文
 
-要点 阿布扎比国家石油公司（ADNOC）首席执行官周四表示，在美国与伊朗达成为期两周的停火协议后，霍尔木兹海峡并未恢复通航。
+来源：华泰期货 作者： 高聪 市场分析 线上报价方面。
 
-“此刻需要明确事实，” 苏丹・艾哈迈德・贾比尔在社交媒体发文称，“所以我们直言不讳：霍尔木兹海峡并未开放。
+Gemini Cooperation：马士基上海-鹿特丹WEEK23周报价2645/3820（上海至安特卫普2360/3500、伦敦口岸港价格2360/3500，汉堡港价格2760/3900）；HPL 5月下半月船期报价介于2800-3500美元/FEU，6月上半月船期报价3800-3900美元/FEU，6月下半月船期报价4200-4500美元/FEU。
 
-通行受到限制、附加条件并被严格控制。
+马士基6月份涨价函价格2470/3800． MSC+Premier Alliance：MSC 5月下半月船期报价1760/2940；ONE 5月下半月船期报价2841美元/FEU，6月上半月船期报价3541美元/FEU，6月下半月船期报价3541美元/FEU；HMM5月下半月船期报价1694/2958，6月上半月船期报价2194/3958；YML 5/23-5/31日船期报价3000美元/FEU，其中5/23日船期报价1550/2600。
 
-” 贾比尔指出，伊朗已明确要求，船只必须获得其许可方可通过海峡。
+MSC 6月份涨价函价格2820/4700． Ocean Alliance：CMA 上海-鹿特丹5月下半月船期报价3575美元/FEU，6月上半月船期报价4746-5008美元/FEU；EMC 5月下半月船期报价介于3160-3260美元/FEU，6月上半月船期报价4560美元/FEU；OOCL 6月上半月船期报价4400-4700美元/FEU。
 
-“这不是航行自由，这是强制管控。
+地缘端：据半岛电视台报道，也门胡塞武装领导人重申全力支持伊朗，称近期事态表明，尽管以色列拥有军事力量并与美国结盟，但其仍可能被击败。
 
-” ADNOC 是阿联酋国有石油公司。
+胡塞武装最高政治委员会主席马赫迪·马沙特表示，“美国-犹太复国主义对伊朗的侵略，源于其想要清除美以实施计划和阴谋的主要障碍”。
 
-阿联酋是欧佩克第三大产油国，2 月 28 日战争爆发前，日均产量达 340 万桶。
+他敦促地区各国政府团结起来，而不是与美以政策结盟，并警告说，保持中立就等同于同谋。
 
-美国总统特朗普周二曾表示，停火协议的前提是伊朗同意全面、立即、安全地开放霍尔木兹海峡。
+马沙特还补充说：“如今，保持中立就是叛国行为，因为协助敌人被视为最严重的叛国行为。
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 19:04 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 19:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 19:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 19:07 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 19:11 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 19:28 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 19:16 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 19:20 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 19:12 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 19:00 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 19:15 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 19:35 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 19:26 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 19:18 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 19:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 19:21 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 19:32 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 19:18 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 19:27 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 19:31 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 19:17 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 19:13 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/358237961.shtml)
-- 2026-06-29 19:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/2921295339.shtml)
-- 2026-06-29 19:01 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/1849242.shtml)
-- 2026-06-29 19:03 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/08594.shtml)
-- 2026-06-29 19:29 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/48447584680.shtml)
-- 2026-06-29 19:16 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/37424.shtml)
-- 2026-06-29 19:26 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/35546159.shtml)
-- 2026-06-29 19:00 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/990563461496.shtml)
-- 2026-06-29 19:04 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/684240427.shtml)
-- 2026-06-29 19:01 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/05574363685.shtml)
-- 2026-06-29 19:09 - [急先锋](http://www.share.kurohicncr.top/Article/details/583936753.shtml)
-- 2026-06-29 19:07 - [小娘惹](https://www.share.minike.top/Article/details/12701988.shtml)
-- 2026-06-29 19:03 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/57863.shtml)
-- 2026-06-29 19:01 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/55105876.shtml)
-- 2026-06-29 19:02 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/06671.shtml)
+- 2026-06-29 19:33 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/28530144.shtml)
+- 2026-06-29 19:11 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/526950988603.shtml)
+- 2026-06-29 19:30 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/40626.shtml)
+- 2026-06-29 19:27 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/3602471.shtml)
+- 2026-06-29 19:31 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/847482.shtml)
+- 2026-06-29 19:34 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/45893844.shtml)
+- 2026-06-29 19:21 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/848099658108.shtml)
+- 2026-06-29 19:07 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/54522333.shtml)
+- 2026-06-29 19:30 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/438630.shtml)
+- 2026-06-29 19:09 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/845010485173.shtml)
+- 2026-06-29 19:10 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/348898655.shtml)
+- 2026-06-29 19:17 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/70360956.shtml)
+- 2026-06-29 19:29 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/053417.shtml)
+- 2026-06-29 19:23 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/5222209430.shtml)
+- 2026-06-29 19:21 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/4453634.shtml)

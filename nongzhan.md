@@ -1,56 +1,58 @@
-# 金融支持零碳园区建设论坛举办 聚焦零碳园区建设与绿色金融创新融合
+# 耗材降价潮来袭 对上市公司影响几何？
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-4月9日，由中央财经大学绿色金融国际研究院主办，中国太保及旗下中国太保产险协办的“金融支持零碳园区建设”论坛在北京经开区举行。来自国家发改委能源研究所、北京经开区、苏州工业园区、浙江温岭经开区、北京绿色交易所、中国质量认证中心、中再产险、兴业银行、国网英大、国家电投等政府有关部门、金融机构、科研院所及实体企业的70余位代表出席本次活动，共同探讨金融如何赋能零碳园区建设，以推动产
+2026年5月31日，将成为医用耗材行业又一个关键的“价格切换日”。 近日，深圳公共资源交易中心发布一批新通知，明确多个集采项目将落地或启动接续采购，执行时间统一锁定在今年5月31日。这其中包括首次落地的第六批耗材国采（药物涂层球囊、泌尿介入）、福建结构性心脏病封堵器联盟集采、京津冀“3+N”联盟止血材料集采，以及河南牵头的通用介入、神经外科、血液透析三大类耗材的接续采购。 在
 
 ## 正文
 
-4月9日，由中央财经大学绿色金融国际研究院主办，中国太保及旗下中国太保产险协办的“金融支持零碳园区建设”论坛在北京经开区举行。
+2026年5月31日，将成为医用耗材行业又一个关键的“价格切换日”。
 
-来自国家发改委能源研究所、北京经开区、苏州工业园区、浙江温岭经开区、北京绿色交易所、中国质量认证中心、中再产险、兴业银行、国网英大、国家电投等政府有关部门、金融机构、科研院所及实体企业的70余位代表出席本次活动，共同探讨金融如何赋能零碳园区建设，以推动产业低碳转型绿色升级、应对国际绿色贸易壁垒。
+近日，深圳公共资源交易中心发布一批新通知，明确多个集采项目将落地或启动接续采购，执行时间统一锁定在今年5月31日。
 
-中央财经大学校长助理、国家财经战略研究院院长王红梅指出，零碳园区是产业绿色转型、实现“双碳”目标的核心抓手，已被纳入国家重点工作部署。
+这其中包括首次落地的第六批耗材国采（药物涂层球囊、泌尿介入）、福建结构性心脏病封堵器联盟集采、京津冀“3+N”联盟止血材料集采，以及河南牵头的通用介入、神经外科、血液透析三大类耗材的接续采购。
 
-零碳园区建设兼具公共属性与市场属性，在能源结构、产业模式、价值链条上深刻变革，当前面临前期投资大、回报周期长、碳资产估值不健全、风险识别与分散机制缺失等突出瓶颈。
+在业内看来，此次多项目集中落地，不仅意味着相关高值与低值耗材的价格“水分”被进一步挤出，更标志着集采常态化机制下，从国家层面到省际联盟的降价规则正趋于成熟，联动效应也在不断增强，行业竞争逻辑彻底从“渠道红利”转向“成本管控+临床价值”的硬核比拼。
 
-金融作为支撑经济社会发展的重要手段，需提升资源配置、风险定价与产品创新能力，打通资金精准落地堵点，服务零碳园区建设及“双碳”目标实现。
+第六批国采落地 作为国家层面的重磅动作，第六批耗材国采覆盖了药物涂层球囊（药涂球囊）与泌尿介入两大类多种耗材。
 
-中国太保产险总经理陈辉表示，零碳园区是推动工业绿色转型、落实“十五五”降碳目标的关键载体，建设过程涉及能源、产业、基建、技术等多个环节，风险保障与专业配套服务至关重要。
+随着各地执行通知下发，此前未完全公开的拟中选价格也正式浮出水面：药物涂层球囊类中选价格范围为1677元—6015元，泌尿介入类耗材中选价格范围为60元—1537元，涉及企业包括贝朗医疗、波士顿科学、先瑞达、乐普、归创通桥、新光维医疗、欣格誉、埃尔顿、驼人等国内外主流厂商。
 
-保险机构可以通过强化风险保障、做强风险减量、提升碳综合服务，全方位护航零碳园区高质量建设。
+以药物涂层球囊为例，该品类常用于冠脉及外周血管狭窄病变，被称为“介入无植入”的代表性产品，此前终端价格较高。
 
-中国太保产险作为行业头部保险机构和负责任的险企，始终把绿色发展融入经营全局，将助力“双碳”目标实现作为重要政治责任和发展使命。
+此次集采后，主流产品价格明确，将极大降低患者的支付负担，同时也给相关企业带来确定性的市场准入机会——中标意味着拿到全国大部分公立医院的“入场券”，但未中标者则面临市场份额急剧萎缩的风险。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 19:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 19:28 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 19:16 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 19:27 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 19:01 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 19:14 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 19:23 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 19:08 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 19:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 19:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 19:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 19:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 19:27 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 19:35 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 19:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 19:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 19:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 19:26 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 19:22 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 19:22 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 19:24 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/463707.shtml)
-- 2026-06-29 19:20 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/253431627.shtml)
-- 2026-06-29 19:11 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/77203121135.shtml)
-- 2026-06-29 19:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/5091583.shtml)
-- 2026-06-29 19:21 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/5008149.shtml)
-- 2026-06-29 19:29 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/437135728.shtml)
-- 2026-06-29 19:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/9858083357.shtml)
-- 2026-06-29 19:22 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/385703.shtml)
-- 2026-06-29 19:13 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/964315365.shtml)
-- 2026-06-29 19:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/405444974288.shtml)
-- 2026-06-29 19:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/72831413.shtml)
-- 2026-06-29 19:11 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/8516817621.shtml)
-- 2026-06-29 19:08 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/9154634.shtml)
-- 2026-06-29 19:00 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/75228348573.shtml)
-- 2026-06-29 19:13 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/148589.shtml)
+- 2026-06-29 19:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/33848560929.shtml)
+- 2026-06-29 19:21 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/167927.shtml)
+- 2026-06-29 19:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/827915.shtml)
+- 2026-06-29 19:32 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/1403430312.shtml)
+- 2026-06-29 19:16 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/753430.shtml)
+- 2026-06-29 19:25 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/5517820833.shtml)
+- 2026-06-29 19:17 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/3255235.shtml)
+- 2026-06-29 19:21 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/39417906.shtml)
+- 2026-06-29 19:21 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/8797226248.shtml)
+- 2026-06-29 19:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/4617622.shtml)
+- 2026-06-29 19:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/144586908125.shtml)
+- 2026-06-29 19:13 - [人形机器人](http://www.share.kurohicncr.top/Article/details/76334658096.shtml)
+- 2026-06-29 19:16 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/024532370.shtml)
+- 2026-06-29 19:18 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/32084.shtml)
+- 2026-06-29 19:34 - [扬名立万](http://www.blog.minike.top/Article/details/941598892.shtml)

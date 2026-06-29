@@ -1,61 +1,57 @@
-# 风波中的华创证券！代销债券又违约，唱多通策医疗遭市场“打脸”！
+# 《给阿嬷的情书》导演：真实是我们作品的生命线
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 独角金融 作者 | 付影 2026年的春天，对华创证券而言并不平静。 一面是在口腔医疗服务龙头通策医疗（600763.SH）股价高位时，华创证券发布一则关于通策医疗的研究报告，将其评级从“推荐”上调至“强推”。22天后，通策医疗公告了一笔溢价超过10倍的关联收购，而同一天，上交所对其发出问询。从研
+发布时间：2026年05月22日 13:37 来源：中国新闻网 5月22日，电影业高质量发展论坛在广东深圳举办，电影《给阿嬷的情书》导演蓝鸿春分享了自己的电影创作经验和心得。他表示：真实是我们作品的生命线。小到百年前的一张电影票的价格，大到海外华人教育的艰难起步，所有的细节我们都会去一一考据核实。我们力求不杜撰历史，不虚构生活，不曲解情怀，让每一个镜头、每段情节都扎根生活，源于
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月22日 13:37 来源：中国新闻网 5月22日，电影业高质量发展论坛在广东深圳举办，电影《给阿嬷的情书》导演蓝鸿春分享了自己的电影创作经验和心得。
 
-来源 | 独角金融 作者 | 付影 2026年的春天，对华创证券而言并不平静。
+他表示：真实是我们作品的生命线。
 
-一面是在口腔医疗服务龙头通策医疗（600763.SH）股价高位时，华创证券发布一则关于通策医疗的研究报告，将其评级从“推荐”上调至“强推”。
+小到百年前的一张电影票的价格，大到海外华人教育的艰难起步，所有的细节我们都会去一一考据核实。
 
-22天后，通策医疗公告了一笔溢价超过10倍的关联收购，而同一天，上交所对其发出问询。
+我们力求不杜撰历史，不虚构生活，不曲解情怀，让每一个镜头、每段情节都扎根生活，源于真实的人生。
 
-从研报发布到4月9日收盘，该股累计下跌超17%；另一面是华创证券数年前债券代销及资产管理业务埋下的风险逐步发酵、多起诉讼持续消耗公司资源。
+这也是我们 10 年来的创作理念。
 
-当高位看多，代销的债券和资管业务违约，自营、投行业务、资管业务收入纷纷下滑同时指向华创证券，这家券商正站在一个被市场多重审视的关口。
+真实是我们作品的生命线，求真求实也让我们作品去掉了悬浮的滤镜，饱含人间烟火，可以打动人心。
 
-1 高位“强推”通策医疗，高溢价并购遭监管问询 回顾2026年3月2日晚间，华创证券发布了关于通策医疗深度研报，题为《沉舟侧畔千帆过，口腔医疗服务龙头再起航》。
-
-报告将通策医疗评级从“推荐”上调至“强推”，目标价67元/股。
+(记者 蔡敏婕 制作 田媛媛 王雪尔） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 19:13 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 19:05 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 19:19 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 19:08 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 19:22 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 19:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 19:05 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 19:21 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 19:05 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 19:24 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 19:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 19:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 19:23 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 19:13 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 19:12 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 19:21 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 19:07 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 19:07 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 19:24 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 19:08 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 19:11 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 19:17 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 19:29 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 19:11 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 19:35 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 19:17 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 19:26 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/8547406869.shtml)
-- 2026-06-29 19:27 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/46773125.shtml)
-- 2026-06-29 19:01 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/2179850566.shtml)
-- 2026-06-29 19:21 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/220232562231.shtml)
-- 2026-06-29 19:25 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/491640394189.shtml)
-- 2026-06-29 19:04 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/7375642895.shtml)
-- 2026-06-29 19:09 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/232450.shtml)
-- 2026-06-29 19:13 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/48250852259.shtml)
-- 2026-06-29 19:23 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/422364.shtml)
-- 2026-06-29 19:17 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/95620.shtml)
-- 2026-06-29 19:00 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/1613941552.shtml)
-- 2026-06-29 19:02 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/3094016746.shtml)
-- 2026-06-29 19:09 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/22730.shtml)
-- 2026-06-29 19:20 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/9652365808.shtml)
-- 2026-06-29 19:28 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/593336.shtml)
+- 2026-06-29 19:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/278763411481.shtml)
+- 2026-06-29 19:08 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/6515276.shtml)
+- 2026-06-29 19:33 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/55480726085.shtml)
+- 2026-06-29 19:22 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/83765872614.shtml)
+- 2026-06-29 19:19 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/5046351016.shtml)
+- 2026-06-29 19:27 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/266356609.shtml)
+- 2026-06-29 19:25 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/024988005020.shtml)
+- 2026-06-29 19:26 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/26091957401.shtml)
+- 2026-06-29 19:20 - [乔家的儿女](http://www.share.minike.top/Article/details/77812.shtml)
+- 2026-06-29 19:11 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/3295704.shtml)
+- 2026-06-29 19:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/03735.shtml)
+- 2026-06-29 19:09 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/4704433811.shtml)
+- 2026-06-29 19:16 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/073277780.shtml)
+- 2026-06-29 19:30 - [周生如故](http://www.blog.kurohicncr.top/Article/details/4561606384.shtml)
+- 2026-06-29 19:12 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/75694.shtml)

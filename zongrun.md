@@ -1,56 +1,61 @@
-# 中国五部门要求有效防范利用人工智能学术造假等问题
+# 英国电信集团高管警示：人工智能热潮将推高手机售价
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月10日电 (记者 曾玥)记者10日从中国教育部获悉，教育部等五部门近日联合印发《“人工智能+教育”行动计划》，其中要求健全人工智能评估备案、技术监测、风险预警、应急响应机制，有效防范利用人工智能伪造诈骗、学术造假、应试内卷、泄露隐私等问题。行动计划要求筑牢“人工智能+教育”安全屏障，提出建立人工智能教育应用的安全防护体系，分类分级确定安全防护标准。深化建立教育大模
+英国电信首席执行官艾莉森・柯克比警示，人工智能领域投资热潮引发大范围芯片短缺，手机价格即将迎来上涨。 周四英国电信发布年度业绩后，柯克比在电话会议上表示：“如今各行各业普遍出现芯片紧缺，这将对部分市场品类形成涨价压力，影响范围不止电信行业。” 柯克比称：“高端手机厂商大概率会把成本压力转嫁给消费者，这也是行业一贯做法，只是目前尚未出现明显涨价动作。”英国电信旗下EE移动通信品牌
 
 ## 正文
 
-中新社北京4月10日电 (记者 曾玥)记者10日从中国教育部获悉，教育部等五部门近日联合印发《“人工智能+教育”行动计划》，其中要求健全人工智能评估备案、技术监测、风险预警、应急响应机制，有效防范利用人工智能伪造诈骗、学术造假、应试内卷、泄露隐私等问题。
+英国电信首席执行官艾莉森・柯克比警示，人工智能领域投资热潮引发大范围芯片短缺，手机价格即将迎来上涨。
 
-行动计划要求筑牢“人工智能+教育”安全屏障，提出建立人工智能教育应用的安全防护体系，分类分级确定安全防护标准。
+周四英国电信发布年度业绩后，柯克比在电话会议上表示：“如今各行各业普遍出现芯片紧缺，这将对部分市场品类形成涨价压力，影响范围不止电信行业。
 
-深化建立教育大模型安全审核机制，确保生成内容积极健康、向上向善。
+” 柯克比称：“高端手机厂商大概率会把成本压力转嫁给消费者，这也是行业一贯做法，只是目前尚未出现明显涨价动作。
 
-建立人工智能教育应用的安全测评标准，一体保障模型算法、数据资源、基础设施、应用系统等安全，确保技术应用符合教育规律。
+”英国电信旗下EE移动通信品牌也在售手机产品。
 
-对于推动人工智能人才培养与素养提升，行动计划提出，基础教育阶段确保开齐开足开好人工智能课程，着力培养学生智能思维；高等教育阶段将人工智能纳入公共基础课程体系；职业教育阶段推动传统产业相关专业的智能转型，培养适应产业变革的高技能人才；终身教育阶段汇聚开发优质教育资源，确保全体学习者享有平等学习人工智能的机会；同时，全面提升教师的数字素养和技能，充分激发其应用人工智能创新教育教学模式的内生动力。
+当下各行各业都面临存储芯片供应紧张的困境，大批企业为搭建数据中心、快速落地人工智能业务，大肆抢购囤积存储芯片，进一步加剧缺货局面。
 
-聚焦培育面向智能时代的高层次人才，行动计划明确，推动人工智能成为高校公共基础课，按学科专业分类编写课程教材，推动全体学生掌握人工智能知识。
+分析师预测，苹果即将推出的iPhone18售价或将上调约100美元，该公司今年3月已率先上调MacBookAir与MacBookPro笔记本电脑价格。
 
-优化传统学科专业人才培养方案，指导高校开设人工智能交叉融合课程，丰富跨学科、跨专业课程群，培养复合型交叉人才。
+柯克比表示，行业会尽力将成本上涨带来的负面影响降至最低。
 
-根据产业结构智能升级优化调整学科专业设置，新设一批适应新技术、新产业、新业态的学科专业。
+英国电信财报同时显示，截至3月底的过去一年里，旗下Openreach宽带业务流失82.5万用户，优于分析师此前预估的84.4万流失量。
 
 ## 相关推荐
 
-- 2026-06-29 19:05 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 19:15 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 19:26 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 19:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 19:25 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 19:15 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 19:12 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 19:11 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 19:14 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:07 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 19:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 19:09 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 19:25 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 19:29 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 19:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 19:26 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 19:07 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 19:30 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 19:11 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 19:19 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 19:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 19:19 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 19:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 19:28 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 19:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/1929192.shtml)
-- 2026-06-29 19:28 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/702043669808.shtml)
-- 2026-06-29 19:19 - [7月1日起一批新规即将落地](http://www.share.minike.top/Article/details/45730.shtml)
-- 2026-06-29 19:02 - [金刚川](http://www.share.kurohicncr.top/Article/details/85020.shtml)
-- 2026-06-29 19:19 - [啊啊啊](https://www.share.minike.top/Article/details/5355581655.shtml)
-- 2026-06-29 19:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/1912301855.shtml)
-- 2026-06-29 19:07 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/28762113866.shtml)
-- 2026-06-29 19:21 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/63807.shtml)
-- 2026-06-29 19:01 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/665643147409.shtml)
-- 2026-06-29 19:26 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/10107.shtml)
-- 2026-06-29 19:19 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/26777075878.shtml)
-- 2026-06-29 19:06 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/7188016607.shtml)
-- 2026-06-29 19:19 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/829431.shtml)
-- 2026-06-29 19:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/39500.shtml)
-- 2026-06-29 19:24 - [内马尔打日本前先买百万美元豪表](http://www.blog.kurohicncr.top/Article/details/995626404.shtml)
+- 2026-06-29 19:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/052306843.shtml)
+- 2026-06-29 19:06 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/31781487244.shtml)
+- 2026-06-29 19:06 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/111962374.shtml)
+- 2026-06-29 19:13 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.minike.top/Article/details/320092214959.shtml)
+- 2026-06-29 19:30 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/323739.shtml)
+- 2026-06-29 19:30 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/56688560.shtml)
+- 2026-06-29 19:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/356380978.shtml)
+- 2026-06-29 19:22 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/52462653.shtml)
+- 2026-06-29 19:13 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/01612340.shtml)
+- 2026-06-29 19:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/23702.shtml)
+- 2026-06-29 19:12 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/39901453.shtml)
+- 2026-06-29 19:17 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/79199155.shtml)
+- 2026-06-29 19:21 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/51417.shtml)
+- 2026-06-29 19:07 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/0479608449.shtml)
+- 2026-06-29 19:33 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/57469665664.shtml)

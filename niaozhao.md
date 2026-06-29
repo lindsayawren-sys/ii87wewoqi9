@@ -1,57 +1,59 @@
-# 中国国家卫健委：警惕私域营销侵害老年人健康权益
+# “为党而歌”红色研学活动在“没有共产党就没有新中国”革命歌曲纪念馆举行
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月9日电 (记者 李纯)中国国家卫生健康委员会9日举行新闻发布会，新闻发言人胡强强提示，警惕私域直播、社群营销专门针对老年人进行保健产品等推销，侵害老年人的健康权益和财产安全。 胡强强说，近期一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！你的股票和黄金，后市怎么走？郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，
 
 ## 正文
 
-中新社北京4月9日电 (记者 李纯)中国国家卫生健康委员会9日举行新闻发布会，新闻发言人胡强强提示，警惕私域直播、社群营销专门针对老年人进行保健产品等推销，侵害老年人的健康权益和财产安全。
+国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
 
-胡强强说，近期一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。
+618大战，为何先从手机降价开始？
 
-有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年人的健康权益和财产安全。
+埃及胡夫金字塔如何抗震？
 
-胡强强表示，国家卫健委提示，凡是打着“专家讲座”“白大褂推荐”等旗号销售相关产品的，都要提高警惕，更不要因所谓专家的“头衔包装”和虚假的“案例见证”而盲目下单。
+国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
 
-所谓“专家”标榜的“头衔”越多越大，往往欺诈可能性越高。
+你的股票和黄金，后市怎么走？
 
-国家卫健委提示，警惕“送礼品、领红包、听课领福利”等引流手段。
+郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
 
-此类私域营销往往先以小恩小惠的形式获取信任，再通过反复宣讲、情感拉近、焦虑渲染等方式推销。
+建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
 
-家属要多关注老年人的入群、听课、下单等情况。
+最高法案例“划重点”黄金，再跌也不能买了？
 
 ## 相关推荐
 
-- 2026-06-29 19:03 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 19:00 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 19:16 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 19:14 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 19:14 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 19:27 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 19:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 19:01 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 19:07 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 19:22 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 19:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 19:32 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 19:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 19:11 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 19:28 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 19:35 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 19:08 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 19:06 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 19:35 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 19:32 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 19:12 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 19:16 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 19:32 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 19:19 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/6293220.shtml)
-- 2026-06-29 19:12 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/782208774464.shtml)
-- 2026-06-29 19:22 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/46904969971.shtml)
-- 2026-06-29 19:11 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/9769656784.shtml)
-- 2026-06-29 19:05 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/98056.shtml)
-- 2026-06-29 19:01 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/8800019.shtml)
-- 2026-06-29 19:10 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/97139028.shtml)
-- 2026-06-29 19:02 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/738012.shtml)
-- 2026-06-29 19:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/68702.shtml)
-- 2026-06-29 19:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/73199033077.shtml)
-- 2026-06-29 19:12 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/761360696618.shtml)
-- 2026-06-29 19:12 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/728746.shtml)
-- 2026-06-29 19:20 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/948742184.shtml)
-- 2026-06-29 19:05 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/99119297445.shtml)
-- 2026-06-29 19:01 - [我们的少年时代2](https://www.blog.minike.top/Article/details/5796997.shtml)
+- 2026-06-29 19:30 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/03270605.shtml)
+- 2026-06-29 19:18 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/851080562540.shtml)
+- 2026-06-29 19:10 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/68827963586.shtml)
+- 2026-06-29 19:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/62877047.shtml)
+- 2026-06-29 19:30 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/5772549.shtml)
+- 2026-06-29 19:18 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/847831.shtml)
+- 2026-06-29 19:09 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/07850.shtml)
+- 2026-06-29 19:20 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/328171.shtml)
+- 2026-06-29 19:32 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/0658197858.shtml)
+- 2026-06-29 19:06 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/482563104.shtml)
+- 2026-06-29 19:12 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/71699.shtml)
+- 2026-06-29 19:25 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/32418.shtml)
+- 2026-06-29 19:33 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/623776891057.shtml)
+- 2026-06-29 19:15 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/850131185.shtml)
+- 2026-06-29 19:35 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/83115.shtml)

@@ -1,58 +1,49 @@
-# 京东汽车总裁缪钦：国民好车90%的用户是全程线上决策并完成交易
+# 央行：2026年4月沪深两市日均成交额23437.9亿元 环比增加1.3%
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 京东集团副总裁、京东汽车总裁缪钦表示，大家见到我的第一句话，问的都是“你们去年造的那台国民好车卖得怎么样”。 “我一想，完蛋了，连续三年在这里跟大家汇报工作，效果没达成——很多听众和用户，还
+5月22日金融一线消息，央行发布2026年4月金融市场运行情况。2026年4月末，上证指数收于4112.2点，环比上涨5.7%；深证成指收于15107.6点，环比上涨12.1%。2026年4月，两市日均成交额23437.9亿元，环比增加1.3%。责任编辑：王馨茹
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+5月22日金融一线消息，央行发布2026年4月金融市场运行情况。
 
-京东集团副总裁、京东汽车总裁缪钦表示，大家见到我的第一句话，问的都是“你们去年造的那台国民好车卖得怎么样”。
+2026年4月末，上证指数收于4112.2点，环比上涨5.7%；深证成指收于15107.6点，环比上涨12.1%。
 
-“我一想，完蛋了，连续三年在这里跟大家汇报工作，效果没达成——很多听众和用户，还是带着他们自己对京东汽车的固有理解，没有真正了解我们的业务核心。
+2026年4月，两市日均成交额23437.9亿元，环比增加1.3%。
 
-我深刻反省，我们的用户思维没有做好。
-
-”他说。
-
-他谈到，现在行业确实太卷了，但大家的共识是：中国的汽车产业真的不缺产能，也不缺技术，我们缺的是增量，缺的是对用户需求的洞察和真正的满足。
-
-他认为，市场不是你有我无的零和博弈，在理解用户的基础上，开发一个好的产品并不断迭代，是最基础的工作；而贯穿用户全生命周期，满足他们买车、用车、养车、改装、换车的综合服务需求，不仅是巨大的中国消费增量，也是决定中国新能源产业全球竞争力发展的关键。
-
-“我们要做到全链协同、开放生态，核心还是以用户体验作为我们市场的增量。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 19:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 19:02 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 19:19 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 19:05 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 19:04 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 19:25 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 19:13 - [毒液2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 19:00 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 19:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 19:04 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 19:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 19:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 19:23 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 19:06 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 19:11 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 19:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 19:17 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 19:31 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 19:33 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 19:32 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 19:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 19:18 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 19:34 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:01 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/67665574.shtml)
-- 2026-06-29 19:20 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/788309.shtml)
-- 2026-06-29 19:18 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/511157.shtml)
-- 2026-06-29 19:11 - [沙丘](https://www.share.minike.top/Article/details/459220530464.shtml)
-- 2026-06-29 19:27 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/931933.shtml)
-- 2026-06-29 19:06 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/613652543001.shtml)
-- 2026-06-29 19:22 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/88867048516.shtml)
-- 2026-06-29 19:06 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/02780.shtml)
-- 2026-06-29 19:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/4978168871.shtml)
-- 2026-06-29 19:11 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/59195817.shtml)
-- 2026-06-29 19:03 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/266322707743.shtml)
-- 2026-06-29 19:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/1510292632.shtml)
-- 2026-06-29 19:23 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/14603111321.shtml)
-- 2026-06-29 19:29 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/534202240.shtml)
-- 2026-06-29 19:19 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/716488513176.shtml)
+- 2026-06-29 19:29 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/94195.shtml)
+- 2026-06-29 19:19 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/84749.shtml)
+- 2026-06-29 19:13 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/87556674563.shtml)
+- 2026-06-29 19:17 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/30058.shtml)
+- 2026-06-29 19:07 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/995594071.shtml)
+- 2026-06-29 19:25 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/86220757.shtml)
+- 2026-06-29 19:30 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/05664436920.shtml)
+- 2026-06-29 19:18 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/916382395.shtml)
+- 2026-06-29 19:33 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/0242518.shtml)
+- 2026-06-29 19:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/48659360485.shtml)
+- 2026-06-29 19:28 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/488905.shtml)
+- 2026-06-29 19:13 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/74775492.shtml)
+- 2026-06-29 19:17 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/78626508.shtml)
+- 2026-06-29 19:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/020418.shtml)
+- 2026-06-29 19:17 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/52423263.shtml)

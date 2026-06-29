@@ -1,58 +1,57 @@
-# 长江有色: 宏观谨慎与供应扰动预期博弈 10日铝价或存上行预期
+# 越南车企VinFast重组剥离近70亿美元债务 复杂关联交易引发市场关注
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-长江铝价alu.ccmn.cn短评：美PCE环比增幅符合预期令宽松利率预期受限，隔夜伦铝收跌 0.79%；国内旺季消费需求复苏迟缓，社库持续累积施压，今现铝或涨跌有限。 【铝期货市场】：美PCE环比增幅符合预期令宽松利率预期受限，隔夜伦铝偏弱震荡，最新收盘报价3448美元/吨，收跌27美元，跌幅0.79%，成交量25765手减少4253手，持仓量673388手减少1882手。晚
+为减轻财务压力并加速向“轻资产”模式转型，越南电动汽车制造商VinFast日前宣布，计划以5.06亿美元及债务转移的方式，出售其位于越南本土的制造业务核心资产。此举将帮助该公司剥离约69亿美元的巨额债务，但其背后复杂的交易架构及关联方的高度参与，引发了外界对母公司温纳集团（Vingroup）及创始人范日旺在企业治理方面的广泛关注。 根据上周公布的多方交易方案，VinFast将以
 
 ## 正文
 
-长江铝价alu.ccmn.cn短评：美PCE环比增幅符合预期令宽松利率预期受限，隔夜伦铝收跌 0.79%；国内旺季消费需求复苏迟缓，社库持续累积施压，今现铝或涨跌有限。
+为减轻财务压力并加速向“轻资产”模式转型，越南电动汽车制造商VinFast日前宣布，计划以5.06亿美元及债务转移的方式，出售其位于越南本土的制造业务核心资产。
 
-【铝期货市场】：美PCE环比增幅符合预期令宽松利率预期受限，隔夜伦铝偏弱震荡，最新收盘报价3448美元/吨，收跌27美元，跌幅0.79%，成交量25765手减少4253手，持仓量673388手减少1882手。
+此举将帮助该公司剥离约69亿美元的巨额债务，但其背后复杂的交易架构及关联方的高度参与，引发了外界对母公司温纳集团（Vingroup）及创始人范日旺在企业治理方面的广泛关注。
 
-晚间沪铝低开拉涨后偏强运行，主力月2603合约最新收盘价报24670元/吨，涨95元，涨幅0.39%。
+根据上周公布的多方交易方案，VinFast将以13.3万亿越南盾（约合5.06亿美元）的价格，将其本土制造业务出售给特定的投资财团，该财团将同步承接约69亿美元的债务。
 
-伦敦金属交易所（LME）4月9日伦铝最新库存量报401625公吨，较上个交易日减少2250公吨，跌幅0.56%。
+温纳集团在声明中指出，剥离制造业务后，VinFast将基本实现零负债运营，并将企业发展重心全面转向研发与产品设计。
 
-长江铝业网讯：4月9日现货铝价，长江现货A00铝锭价报24400元/吨，跌160元；广东现货A00铝锭价报24290元/吨，跌190元。
+财务数据显示，高昂的制造成本是导致VinFast去年亏损39亿美元的主要原因，该公司自2017年成立至今尚未实现盈利。
 
-宏观层面，地缘局势与通胀预期交织，市场情绪趋于谨慎。
+此次重组后，VinFast将仅保留在印度尼西亚和印度的组装工厂及新一代电动汽车专利。
 
-中东停火协议的脆弱性和以色列对黎巴嫩的袭击及伊朗的强硬回应令协议的可持续性存疑，霍尔木兹海峡的运输风险仍是市场焦点。
+尽管此项重组在财务减负层面具有一定的逻辑合理性，但交易结构的复杂性及浓厚的关联交易色彩引发了部分分析机构与投资者的质疑。
 
-同时，美国2月PCE物价指数环比增0.4%符合预期，显示通胀压力稳定，限制了美联储短期大幅降息的空间。
+据披露，接盘财团的核心主导者为房地产商人阮怀南，其目前担任温纳集团原旗下商业地产板块的董事。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 19:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 19:22 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 19:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-29 19:21 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 19:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 19:14 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 19:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 19:19 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 19:04 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 19:02 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 19:27 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 19:18 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 19:28 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 19:27 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 19:19 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 19:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 19:27 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 19:12 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 19:09 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 19:25 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 19:27 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 19:26 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [小娘惹](https://www.blog.minike.top/Article/details/65596.shtml)
-- 2026-06-29 19:18 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/88704854.shtml)
-- 2026-06-29 19:16 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/724508629503.shtml)
-- 2026-06-29 19:00 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/63625740.shtml)
-- 2026-06-29 19:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/808520887083.shtml)
-- 2026-06-29 19:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/616430364802.shtml)
-- 2026-06-29 19:23 - [V8](https://www.share.minike.top/Article/details/404506787.shtml)
-- 2026-06-29 19:27 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/2318927718.shtml)
-- 2026-06-29 19:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/003989990.shtml)
-- 2026-06-29 19:29 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/258372139.shtml)
-- 2026-06-29 19:22 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/9377228.shtml)
-- 2026-06-29 19:08 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.kurohicncr.top/Article/details/100823002.shtml)
-- 2026-06-29 19:07 - [绘画区你赢了](https://www.share.minike.top/Article/details/416211.shtml)
-- 2026-06-29 19:05 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/0740408504.shtml)
-- 2026-06-29 19:07 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/568647951.shtml)
+- 2026-06-29 19:26 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/31138613229.shtml)
+- 2026-06-29 19:21 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/606199055430.shtml)
+- 2026-06-29 19:35 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/448464845.shtml)
+- 2026-06-29 19:16 - [黄金也扛不住了](http://www.share.minike.top/Article/details/472737409971.shtml)
+- 2026-06-29 19:31 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/3218276.shtml)
+- 2026-06-29 19:09 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/949739514.shtml)
+- 2026-06-29 19:09 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/42358591.shtml)
+- 2026-06-29 19:15 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/62121130185.shtml)
+- 2026-06-29 19:29 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/035554146.shtml)
+- 2026-06-29 19:29 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/8536200.shtml)
+- 2026-06-29 19:14 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/331615.shtml)
+- 2026-06-29 19:16 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/882622990.shtml)
+- 2026-06-29 19:32 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/78721058.shtml)
+- 2026-06-29 19:35 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/92422.shtml)
+- 2026-06-29 19:13 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/5241398545.shtml)

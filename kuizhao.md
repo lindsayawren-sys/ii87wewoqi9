@@ -1,57 +1,61 @@
-# 中汽协：一季度新能源汽车出口同比增长超过一倍
+# 国际油价直线上涨，美股芯片股盘前多数飘红，中概股走弱，蔚来逆势涨近5%
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电(记者 张尼)10日，“中汽协会数据”微信公众号发布3月汽车工业产销情况。数据显示，2026年1-3月，新能源汽车出口95.4万辆，同比增长1.2倍。 数据显示，2026年3月，汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%，同比分别下降3%和0.6%。 1-3月，汽车产销分别完成703.9万辆和704.8万辆，同比分别
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！北京时间5月21日傍晚，美股三大期货全线转跌，截至18点40分，道指期货跌0.28%，标普500期货跌0.42%，纳指期货跌0.59%。 芯片股盘前多数上涨，美光科技、ARM涨超2%，闪迪、迈威尔科技涨超1%，英伟达涨约0.7%，希捷科技、西部数据等同步上涨。昨夜大涨的英特尔、AMD盘前回落。 量子计算概念
 
 ## 正文
 
-中新网北京4月10日电(记者 张尼)10日，“中汽协会数据”微信公众号发布3月汽车工业产销情况。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-数据显示，2026年1-3月，新能源汽车出口95.4万辆，同比增长1.2倍。
+北京时间5月21日傍晚，美股三大期货全线转跌，截至18点40分，道指期货跌0.28%，标普500期货跌0.42%，纳指期货跌0.59%。
 
-数据显示，2026年3月，汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%，同比分别下降3%和0.6%。
+芯片股盘前多数上涨，美光科技、ARM涨超2%，闪迪、迈威尔科技涨超1%，英伟达涨约0.7%，希捷科技、西部数据等同步上涨。
 
-1-3月，汽车产销分别完成703.9万辆和704.8万辆，同比分别下降6.9%和5.6%。
+昨夜大涨的英特尔、AMD盘前回落。
 
-一季度，汽车出口高速增长，新能源汽车表现亮眼。
+量子计算概念股盘前集体大涨，IBM大涨8%，RGTI、QBTS、QUBT涨超10%。
 
-1-3月，汽车出口222.6万辆，同比增长56.7%，其中，3月汽车出口87.5万辆，环比增长30.2%，同比增长72.7%。
+据报道，美国将向9家量子计算公司划拨20亿美元，政府将获得股权。
 
-1-3月，新能源汽车出口95.4万辆，同比增长1.2倍；传统燃料汽车出口127.1万辆，同比增长29.9%。
+中概股方面，蔚来美股盘前上涨近5%，据证券时报，蔚来一季度实现经营利润6680万元，连续两个季度盈利；一季度总营收255.3亿元，同比增长112.2%。
 
-据中国汽车工业协会分析，春节后，企业生产经营活动加快，市场活跃度提升。
+其他热门中概股走弱，阿里巴巴、百度跌超4%，哔哩哔哩跌近4%，贝壳、网易跌超3%。
 
 ## 相关推荐
 
-- 2026-06-29 19:15 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 19:28 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 19:07 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 19:10 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 19:00 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 19:14 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 19:25 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 19:01 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 19:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 19:26 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 19:24 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 19:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 19:16 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 19:33 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 19:19 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 19:23 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 19:35 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 19:28 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 19:30 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 19:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 19:31 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 19:28 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 19:34 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 19:08 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 19:18 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 19:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:12 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/73655.shtml)
-- 2026-06-29 19:20 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/6046620825.shtml)
-- 2026-06-29 19:18 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/84310.shtml)
-- 2026-06-29 19:21 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/5799392.shtml)
-- 2026-06-29 19:06 - [扩军害了世界杯吗](http://www.blog.minike.top/Article/details/432565175.shtml)
-- 2026-06-29 19:09 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/536846.shtml)
-- 2026-06-29 19:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/80927011389.shtml)
-- 2026-06-29 19:22 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/1292783.shtml)
-- 2026-06-29 19:13 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/441756790.shtml)
-- 2026-06-29 19:01 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/32845918444.shtml)
-- 2026-06-29 19:20 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/985708.shtml)
-- 2026-06-29 19:17 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.kurohicncr.top/Article/details/3554791.shtml)
-- 2026-06-29 19:20 - [时光音乐会](https://www.blog.minike.top/Article/details/85809231116.shtml)
-- 2026-06-29 19:21 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/61531289.shtml)
-- 2026-06-29 19:12 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/70041852.shtml)
+- 2026-06-29 19:28 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/4288622.shtml)
+- 2026-06-29 19:20 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/87617.shtml)
+- 2026-06-29 19:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/4239690683.shtml)
+- 2026-06-29 19:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/2246607.shtml)
+- 2026-06-29 19:29 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/444541469.shtml)
+- 2026-06-29 19:30 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/47746820185.shtml)
+- 2026-06-29 19:21 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/6718725148.shtml)
+- 2026-06-29 19:16 - [金刚川](http://www.share.kurohicncr.top/Article/details/772145524.shtml)
+- 2026-06-29 19:21 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/12560699895.shtml)
+- 2026-06-29 19:26 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/0501892892.shtml)
+- 2026-06-29 19:34 - [扫黑风暴](https://www.blog.minike.top/Article/details/919572257.shtml)
+- 2026-06-29 19:24 - [小娘惹](https://www.share.minike.top/Article/details/1240602.shtml)
+- 2026-06-29 19:06 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/21619.shtml)
+- 2026-06-29 19:22 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/7040283456.shtml)
+- 2026-06-29 19:12 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/557802967.shtml)

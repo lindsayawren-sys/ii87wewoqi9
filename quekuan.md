@@ -1,57 +1,56 @@
-# 四川修订气象灾害防御条例 科技赋能“主动防御”
+# 多条两岸直航航线将恢复 业者指“契合市场需求”
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新网成都4月10日电 (单鹏)四川省人大常委会10日在成都举行新闻发布会，介绍新修订的《四川省气象灾害防御条例》(以下简称《条例》)。《条例》提出，将进一步推动科技赋能，鼓励气象灾害防御科研创新和成果转化，强化重点行业领域气象服务保障。四川是全国气象灾害最严重的省份之一，气象灾害种类多、强度大、范围广、频率高，严重威胁民众生命财产安全和经济社会高质量发展。 据了解，《条例》自
+中新社台北5月22日电 (记者 陈建新)“我们7月23日起即将复航台中至青岛航线，每周四(执飞)一班。”负责山东航空在台销售业务的黄鸿斌22日在台北介绍，该航线有助于缓解台北至青岛航线的客运压力，让台湾中南部旅客能更便捷地去往山东。东方航空、春秋航空、山东航空拟自今年7月起，分别恢复开通成都至台中、宁波至高雄、青岛至台中直航航线，受到两岸民众及业界关注。在22日开幕的“2026
 
 ## 正文
 
-中新网成都4月10日电 (单鹏)四川省人大常委会10日在成都举行新闻发布会，介绍新修订的《四川省气象灾害防御条例》(以下简称《条例》)。
+中新社台北5月22日电 (记者 陈建新)“我们7月23日起即将复航台中至青岛航线，每周四(执飞)一班。
 
-《条例》提出，将进一步推动科技赋能，鼓励气象灾害防御科研创新和成果转化，强化重点行业领域气象服务保障。
+”负责山东航空在台销售业务的黄鸿斌22日在台北介绍，该航线有助于缓解台北至青岛航线的客运压力，让台湾中南部旅客能更便捷地去往山东。
 
-四川是全国气象灾害最严重的省份之一，气象灾害种类多、强度大、范围广、频率高，严重威胁民众生命财产安全和经济社会高质量发展。
+东方航空、春秋航空、山东航空拟自今年7月起，分别恢复开通成都至台中、宁波至高雄、青岛至台中直航航线，受到两岸民众及业界关注。
 
-据了解，《条例》自2006年7月施行以来，在依法规范四川气象灾害监测、预报、预警和应急处置，提高气象灾害防御能力、避免或减轻气象灾害造成的损失等方面，发挥了重要作用。
+在22日开幕的“2026台北观光博览会”现场，中新社记者看到，不少民众及业者在海峡两岸旅游交流协会所设展区咨询了解航班及大陆热门旅游线路规划。
 
-近年来，在全球气候变化的大背景下，四川各地极端天气频率明显加大，暴雨、高温、干旱、大风等气象灾害显著增多，现行条例已不适应气象灾害防御的新情况、新变化、新规定。
+前来参展的黄鸿斌告诉记者，目前山东航空执飞的台北至青岛航线，航班平均客座率可达九成。
 
-四川省人大农业农村委副主任委员涂扬举在介绍法规修订背景时表示，《条例》专门针对近年发生的气象灾害事故，综合分析、查漏补缺，进一步突出了气象灾害防御对民生与经济的重大作用，明确了相关部门的工作职责，完善了防御标准和指南的相关要求，优化了应急物资储备与调配体系，为有效预防和应对各类天气气候事件，避免和减轻气象灾害造成的损失。
+此次恢复开通台中至青岛航线消息公布后，市场反响热烈，不少民众已早早订票，台中、高雄等地观光业者也来洽谈订票事宜。
 
-四川省人大法制工作委员会副主任杨阖表示，《条例》分6章，共50条，包含健全气象灾害防御责任机制，加强气象灾害预防与隐患治理，完善监测、预报和预警体系，规范气象灾害应急处置措施等内容。
+“恢复两岸直航航点，有助于促进观光交流，加深彼此了解。
 
-在加强气象灾害预防与隐患治理方面，《条例》规定，完善气象灾害普查、防御规划编制规定，强化防御设施建设；突出灾害隐患排查治理，分区域、分灾种规定针对性的防御措施，明确雷电灾害防御管理责任；建立统一协调的人工影响天气指挥作业体系，加强作业流程规范化，完善气候可行性论证制度。
+”在他看来，山东有诸多历史文化及自然景观，“台湾旅客也希望尽快恢复济南、烟台等城市的两岸航班”。
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 19:19 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 19:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 19:18 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 19:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 19:10 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 19:17 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 19:21 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 19:02 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 19:23 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 19:22 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 19:21 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 19:15 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 19:34 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 19:13 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 19:07 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 19:08 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 19:24 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 19:25 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 19:29 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 19:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/96868233745.shtml)
-- 2026-06-29 19:21 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/16658.shtml)
-- 2026-06-29 19:19 - [人形机器人](https://www.blog.minike.top/Article/details/15755790.shtml)
-- 2026-06-29 19:14 - [TFING全员黑西装](https://www.share.minike.top/Article/details/0724922.shtml)
-- 2026-06-29 19:00 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/21701.shtml)
-- 2026-06-29 19:22 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/377485529462.shtml)
-- 2026-06-29 19:25 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/20869702.shtml)
-- 2026-06-29 19:04 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/390721792377.shtml)
-- 2026-06-29 19:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/283183.shtml)
-- 2026-06-29 19:21 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/7773645.shtml)
-- 2026-06-29 19:05 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/980992.shtml)
-- 2026-06-29 19:25 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/544022.shtml)
-- 2026-06-29 19:07 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/410550388.shtml)
-- 2026-06-29 19:25 - [请回答王牌2019](https://www.blog.minike.top/Article/details/427877441.shtml)
-- 2026-06-29 19:12 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/3832445.shtml)
+- 2026-06-29 19:32 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/44641649.shtml)
+- 2026-06-29 19:10 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/449782876.shtml)
+- 2026-06-29 19:31 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/522720060.shtml)
+- 2026-06-29 19:11 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/71006362.shtml)
+- 2026-06-29 19:30 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/2559971838.shtml)
+- 2026-06-29 19:23 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/2678036.shtml)
+- 2026-06-29 19:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/7973298691.shtml)
+- 2026-06-29 19:07 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/604887.shtml)
+- 2026-06-29 19:28 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/798575057133.shtml)
+- 2026-06-29 19:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/23515518792.shtml)
+- 2026-06-29 19:32 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/3233344.shtml)
+- 2026-06-29 19:35 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/33572.shtml)
+- 2026-06-29 19:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/218552102015.shtml)
+- 2026-06-29 19:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/74462.shtml)
+- 2026-06-29 19:29 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/0814902655.shtml)

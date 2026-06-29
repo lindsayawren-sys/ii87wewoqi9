@@ -1,51 +1,60 @@
-# 伊朗代表团强调解冻资产及实现黎巴嫩“真正停火”
+# 中国足协：17人被终身禁止从事任何与足球有关的活动
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-专题：美伊谈判最新进展 新华社德黑兰4月11日电（记者陈霄沙达提）伊朗伊斯兰共和国广播电视台11日报道，伊朗谈判代表团当天与巴基斯坦官员在伊斯兰堡闭门会谈，伊方强调解冻资产及实现黎巴嫩“真正停火”。 报道说，由伊朗议会议长卡利巴夫率领、外长阿拉格齐随行的伊朗谈判代表团当天与巴基斯坦方面举行了会晤。 该报道还提及，美方官员表示同意解冻伊朗相关资产，但具体细节仍有待进一步明确。不过
+中新网北京5月21日电 中国足球协会21日公布第三批行业处罚名单，此次处罚涉及65人，其中17人被给予终身禁止从事任何与足球有关的活动的处罚，48人被给予禁止从事任何与足球有关的活动五年或以下的处罚。 中国足球协会先后于2024年9月、2026年1月公布了前两批行业处罚名单。在其21日发布的关于第三批行业处罚情况的相关通报中称，中国足球协会纪律与道德委员会近期对现已掌握的足球行
 
 ## 正文
 
-专题：美伊谈判最新进展 新华社德黑兰4月11日电（记者陈霄沙达提）伊朗伊斯兰共和国广播电视台11日报道，伊朗谈判代表团当天与巴基斯坦官员在伊斯兰堡闭门会谈，伊方强调解冻资产及实现黎巴嫩“真正停火”。
+中新网北京5月21日电 中国足球协会21日公布第三批行业处罚名单，此次处罚涉及65人，其中17人被给予终身禁止从事任何与足球有关的活动的处罚，48人被给予禁止从事任何与足球有关的活动五年或以下的处罚。
 
-报道说，由伊朗议会议长卡利巴夫率领、外长阿拉格齐随行的伊朗谈判代表团当天与巴基斯坦方面举行了会晤。
+中国足球协会先后于2024年9月、2026年1月公布了前两批行业处罚名单。
 
-该报道还提及，美方官员表示同意解冻伊朗相关资产，但具体细节仍有待进一步明确。
+在其21日发布的关于第三批行业处罚情况的相关通报中称，中国足球协会纪律与道德委员会近期对现已掌握的足球行业“假赌黑”问题案件材料进行系统梳理和认真研究，按照《中国足球协会纪律准则》等相关规定，完成对涉案人员及涉案俱乐部的行业处罚审议工作。
 
-不过，美国白宫对此说法予以否认。
+为严肃行业纪律，净化足球环境，维护竞赛公平，中国足球协会通报了如下处罚决定： 一、对涉案人员的处罚决定 (一)对经人民法院认定构成犯罪的丁勇、吴静博等17名从业人员，给予终身禁止从事任何与足球有关的活动的处罚。
 
-（完）责任编辑：赵思远
+(二)对严重违反行业纪律的高寒、王波等48名从业人员，根据其行为性质、涉案金额、违规频次、主观恶性等因素，相应给予禁止从事任何与足球有关的活动五年或以下的处罚。
+
+二、对涉案俱乐部的处罚决定 根据最新掌握的刑事司法判决材料，发现梅州客家足球俱乐部还存在其他严重违规违纪行为，参照过往对涉案俱乐部的行业处罚原则，现决定对梅州客家足球俱乐部追加扣除2026年职业联赛积分6分并罚款人民币80万元。
+
+中国足球协会表示，各会员单位、各俱乐部及相关从业人员应深刻汲取教训、切实以案为鉴、时刻警钟长鸣，做到知敬畏、存戒惧、守底线，坚决杜绝“假赌黑”、不正当交易等破坏竞赛公平的行为。
+
+中国足球协会同时强调，将始终保持战略定力和高压态势，认真推进体育领域“深化治理年”行动，强化行业纪律建设，完善长效监管机制，推动足球行业风气实现根本好转。
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 19:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 19:00 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 19:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 19:28 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 19:27 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 19:15 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 19:06 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 19:20 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 19:19 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 19:07 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 19:27 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 19:34 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 19:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 19:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 19:35 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 19:30 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 19:14 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 19:18 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 19:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 19:11 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 19:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 19:23 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 19:18 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 19:13 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [乔家的儿女](http://www.share.minike.top/Article/details/239972600.shtml)
-- 2026-06-29 19:02 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/5025543.shtml)
-- 2026-06-29 19:09 - [存储三巨头被告了](https://www.share.minike.top/Article/details/95026.shtml)
-- 2026-06-29 19:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/731308143376.shtml)
-- 2026-06-29 19:14 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/66785634759.shtml)
-- 2026-06-29 19:23 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/3139297.shtml)
-- 2026-06-29 19:01 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/87181.shtml)
-- 2026-06-29 19:03 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/440143109442.shtml)
-- 2026-06-29 19:22 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/637560850508.shtml)
-- 2026-06-29 19:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/542896.shtml)
-- 2026-06-29 19:29 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/878893.shtml)
-- 2026-06-29 19:18 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/29598166141.shtml)
-- 2026-06-29 19:00 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/51385.shtml)
-- 2026-06-29 19:12 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/259411359.shtml)
-- 2026-06-29 19:01 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/332440160650.shtml)
+- 2026-06-29 19:12 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/23777.shtml)
+- 2026-06-29 19:28 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/964372574.shtml)
+- 2026-06-29 19:08 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/3328564.shtml)
+- 2026-06-29 19:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/263675563.shtml)
+- 2026-06-29 19:11 - [伊朗足球队将启程回国](https://www.blog.minike.top/Article/details/223762356387.shtml)
+- 2026-06-29 19:35 - [王俊凯命名方式](https://www.blog.minike.top/Article/details/571535736342.shtml)
+- 2026-06-29 19:30 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/844768852362.shtml)
+- 2026-06-29 19:22 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/87345.shtml)
+- 2026-06-29 19:11 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/097933684480.shtml)
+- 2026-06-29 19:11 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/045925259.shtml)
+- 2026-06-29 19:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/42342808231.shtml)
+- 2026-06-29 19:23 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/9801037.shtml)
+- 2026-06-29 19:35 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/5522046.shtml)
+- 2026-06-29 19:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/358142243382.shtml)
+- 2026-06-29 19:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/89248.shtml)

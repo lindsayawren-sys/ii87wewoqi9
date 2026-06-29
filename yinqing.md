@@ -1,58 +1,54 @@
-# 台积电获华尔街最高目标价600美元 分析师预计到2028年利润增长两倍
+# 日本机构预计今夏日本CPI将升至2%以上
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-根据周四流传的一份研究报告，Aletheia Capital将台积电的目标价从500美元上调至600美元。新的目标价意味着该股可能从当前交易水平上涨约64%。 该机构维持其“买入”评级不变，并将台积电列入其高确信度的“Alpha Generation”名单。 这一评级背后的逻辑很简单：台积电正在加快增长。这家芯片制造巨头似乎正在提前推进先进生产阶段性目标和先进封装技术的产能计划
+日本日生基础研究所经济学家Taro Saito日前表示，受产业链上游成本传导加快及企业提价意愿增强等因素综合影响，前期涨势放缓的日本食品价格预计将在今年夏季前后再度加速，该国核心消费者物价指数（CPI）涨幅或将重返2%以上。 斋藤太郎指出，自2022年以来，日本社会持续面临通胀压力，这使得日本企业近期的产品提价策略更趋激进。他强调，当前由国际原油成本飙升引发的涨价效应正迅速从产
 
 ## 正文
 
-根据周四流传的一份研究报告，Aletheia Capital将台积电的目标价从500美元上调至600美元。
+日本日生基础研究所经济学家Taro Saito日前表示，受产业链上游成本传导加快及企业提价意愿增强等因素综合影响，前期涨势放缓的日本食品价格预计将在今年夏季前后再度加速，该国核心消费者物价指数（CPI）涨幅或将重返2%以上。
 
-新的目标价意味着该股可能从当前交易水平上涨约64%。
+斋藤太郎指出，自2022年以来，日本社会持续面临通胀压力，这使得日本企业近期的产品提价策略更趋激进。
 
-该机构维持其“买入”评级不变，并将台积电列入其高确信度的“Alpha Generation”名单。
+他强调，当前由国际原油成本飙升引发的涨价效应正迅速从产业链上游向下游传导，其实际转嫁的幅度与蔓延速度均可能超出以往水平。
 
-这一评级背后的逻辑很简单：台积电正在加快增长。
+针对未来物价走势，该机构预测，在此轮成本传导的推动下，日本剔除生鲜食品的核心消费者物价涨幅将由今年4月的1.4%进一步显著攀升，预计在夏季期间将突破2.0%关口。
 
-这家芯片制造巨头似乎正在提前推进先进生产阶段性目标和先进封装技术的产能计划。
-
-这些新增产能中的大部分预计将在2027年和2028年投产。
-
-如果这些生产线全力运转，在已经预测到2027年复合年增长率超过30%的基础上，台积电可能会迎来另一轮爆发式的收入增长。
-
-该分析师认为，到2028年，公司利润可能比2025年的水平增长近两倍。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 19:18 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 19:27 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 19:22 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 19:11 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 19:00 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 19:17 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 19:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 19:01 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 19:15 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 19:16 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 19:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 19:11 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 19:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 19:18 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 19:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 19:30 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 19:13 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 19:22 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 19:08 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 19:23 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 19:31 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 19:21 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 19:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 19:13 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 19:13 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:17 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/0437928805.shtml)
-- 2026-06-29 19:23 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/814073165.shtml)
-- 2026-06-29 19:01 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/7455834670.shtml)
-- 2026-06-29 19:19 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/1507627.shtml)
-- 2026-06-29 19:01 - [金牌调解](https://www.share.minike.top/Article/details/60950136739.shtml)
-- 2026-06-29 19:20 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/69889525.shtml)
-- 2026-06-29 19:15 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/1140425.shtml)
-- 2026-06-29 19:20 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/5822571058.shtml)
-- 2026-06-29 19:16 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/87810.shtml)
-- 2026-06-29 19:21 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/290320.shtml)
-- 2026-06-29 19:17 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/6073800665.shtml)
-- 2026-06-29 19:09 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/9820458.shtml)
-- 2026-06-29 19:25 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/152770307845.shtml)
-- 2026-06-29 19:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/5659260.shtml)
-- 2026-06-29 19:22 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/208316415476.shtml)
+- 2026-06-29 19:32 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/95043714864.shtml)
+- 2026-06-29 19:25 - [流金岁月](https://www.share.minike.top/Article/details/2717731.shtml)
+- 2026-06-29 19:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/2160695.shtml)
+- 2026-06-29 19:11 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/7397842670.shtml)
+- 2026-06-29 19:23 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/5515859.shtml)
+- 2026-06-29 19:11 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/558733.shtml)
+- 2026-06-29 19:19 - [美人鱼](http://www.share.kurohicncr.top/Article/details/7512444184.shtml)
+- 2026-06-29 19:33 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/906097799640.shtml)
+- 2026-06-29 19:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/01415.shtml)
+- 2026-06-29 19:35 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/7741004810.shtml)
+- 2026-06-29 19:21 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/37063929275.shtml)
+- 2026-06-29 19:23 - [人形机器人](https://www.share.minike.top/Article/details/70169.shtml)
+- 2026-06-29 19:12 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/30506328239.shtml)
+- 2026-06-29 19:34 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/032908.shtml)
+- 2026-06-29 19:19 - [绘画区你赢了](http://www.blog.minike.top/Article/details/5681651187.shtml)

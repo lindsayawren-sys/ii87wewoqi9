@@ -1,59 +1,54 @@
-# 上海率先创建个人本外币兑换特许行业自律机制
+# 外交部：摩尔多瓦副总理兼外长波普绍伊访华将有利于增进中摩互信
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-来源：中国人民银行上海总部 为落实国家外汇管理局总局防风险、强监管、促高质量发展要求，推动上海市个人本外币兑换特许行业健康可持续发展，3月19日，国家外汇管理局上海市分局指导成立全国首个个人本外币兑换特许行业自律协作组，探索行业自律规范发展模式，提升金融治理现代化水平。 一是立足上海实际、强化源头治理。2025年，上海地区兑换特许机构兑换业务规模共计2.2亿美元，服务人数56.
+中新网北京5月21日电 (记者 谢雁冰)中国外交部发言人郭嘉昆21日主持例行记者会。有记者就摩尔多瓦副总理兼外长波普绍伊将访华提问。 郭嘉昆：中国和摩尔多瓦是传统友好伙伴。近年来，中摩友好合作关系稳定发展，两国各领域合作扎实推进。我们相信，波普绍伊副总理兼外长对中国的正式访问将有利于增进中摩的互信与合作。(完)
 
 ## 正文
 
-来源：中国人民银行上海总部 为落实国家外汇管理局总局防风险、强监管、促高质量发展要求，推动上海市个人本外币兑换特许行业健康可持续发展，3月19日，国家外汇管理局上海市分局指导成立全国首个个人本外币兑换特许行业自律协作组，探索行业自律规范发展模式，提升金融治理现代化水平。
+中新网北京5月21日电 (记者 谢雁冰)中国外交部发言人郭嘉昆21日主持例行记者会。
 
-一是立足上海实际、强化源头治理。
+有记者就摩尔多瓦副总理兼外长波普绍伊将访华提问。
 
-2025年，上海地区兑换特许机构兑换业务规模共计2.2亿美元，服务人数56.6万人，在上海涉外支付服务等方面发挥重要作用。
+郭嘉昆：中国和摩尔多瓦是传统友好伙伴。
 
-在行业发展的同时，部分机构也在一些方面存在风险隐患。
+近年来，中摩友好合作关系稳定发展，两国各领域合作扎实推进。
 
-自律协作组通过制定自律公约，以合规经营、公平竞争、客户权益保护“三条底线”切实提升行业整体合规水平。
+我们相信，波普绍伊副总理兼外长对中国的正式访问将有利于增进中摩的互信与合作。
 
-二是推动行业从被动监管向主动规范转型。
-
-自律协作组通过构建轮值组长制度、同业交流与监督、公平投诉处理、行业信息统一发布与舆情管理“四大自律机制”，坚持“契约化、轻量化、务实共赢”原则，不增设常设专职机构，推动行业从“被动合规”向“主动自律”转变，以契约精神实现行业自我管理与共同提升。
-
-三是实现防风险与促发展有机统一。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 19:03 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 19:06 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 19:07 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 19:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 19:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 19:10 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 19:17 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 19:02 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 19:26 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 19:17 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 19:14 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 19:28 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 19:12 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 19:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 19:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 19:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 19:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 19:27 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:11 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 19:24 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 19:26 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 19:08 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 19:35 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 19:20 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/1581275295.shtml)
-- 2026-06-29 19:03 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/25711.shtml)
-- 2026-06-29 19:29 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/6421254.shtml)
-- 2026-06-29 19:12 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/2688176.shtml)
-- 2026-06-29 19:23 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/109731420.shtml)
-- 2026-06-29 19:10 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/366914.shtml)
-- 2026-06-29 19:13 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/2131999.shtml)
-- 2026-06-29 19:24 - [斗破苍穹](http://www.share.minike.top/Article/details/6424586436.shtml)
-- 2026-06-29 19:02 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/50455.shtml)
-- 2026-06-29 19:23 - [2026世界杯谁能一黑到底](http://www.share.kurohicncr.top/Article/details/84614781855.shtml)
-- 2026-06-29 19:18 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/809507550.shtml)
-- 2026-06-29 19:00 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/042406840.shtml)
-- 2026-06-29 19:24 - [金刚川](http://www.share.minike.top/Article/details/28772997886.shtml)
-- 2026-06-29 19:29 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/04621583704.shtml)
-- 2026-06-29 19:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/31257068501.shtml)
+- 2026-06-29 19:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/16695.shtml)
+- 2026-06-29 19:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/89111671.shtml)
+- 2026-06-29 19:20 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/325030.shtml)
+- 2026-06-29 19:08 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/380593.shtml)
+- 2026-06-29 19:13 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/07469151.shtml)
+- 2026-06-29 19:13 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/34129107.shtml)
+- 2026-06-29 19:23 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.kurohicncr.top/Article/details/816867327197.shtml)
+- 2026-06-29 19:09 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/02307366432.shtml)
+- 2026-06-29 19:11 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.minike.top/Article/details/486790149.shtml)
+- 2026-06-29 19:12 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/9090363.shtml)
+- 2026-06-29 19:25 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/80235692.shtml)
+- 2026-06-29 19:17 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/280442.shtml)
+- 2026-06-29 19:18 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/6322516274.shtml)
+- 2026-06-29 19:27 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/1609957.shtml)
+- 2026-06-29 19:25 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/1645990895.shtml)

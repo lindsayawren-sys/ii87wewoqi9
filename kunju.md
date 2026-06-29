@@ -1,58 +1,47 @@
-# 问界M6上市，赛力斯股价为何还是如此萎靡？
+# 视频|香港艺人黄百鸣涉内幕交易罪名成立，曾套现5亿港元离场
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：翠鸟资本 文|翠鸟资本 3月23日，华为春季发布会“下饺子”般密集落子，其中最瞩目的一颗，是问界M6。 24小时，小定突破6万台。这个数字放在行业不算差，但放在问界自己的坐标系里，尴尬得刺眼——去年9月，问界新M7上市24小时，订单15万台。同样头顶华为光环，不到一年，热度腰斩。 更刺痛投资者的是股价
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：直播淮安 责任编辑：杨赐
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：翠鸟资本 文|翠鸟资本 3月23日，华为春季发布会“下饺子”般密集落子，其中最瞩目的一颗，是问界M6。
-
-24小时，小定突破6万台。
-
-这个数字放在行业不算差，但放在问界自己的坐标系里，尴尬得刺眼——去年9月，问界新M7上市24小时，订单15万台。
-
-同样头顶华为光环，不到一年，热度腰斩。
-
-更刺痛投资者的是股价反应。
-
-发布会次日，赛力斯（601127.SH）盘中跌超4%，随后连阴数日。
-
-截至3月底，股价较历史高点回撤超44%，连续8个交易日下跌。
+来源：直播淮安 责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 19:21 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 19:29 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 19:06 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 19:24 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 19:21 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 19:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 19:29 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 19:27 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 19:26 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 19:00 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 19:04 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 19:35 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 19:34 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 19:29 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 19:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 19:15 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 19:16 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 19:26 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 19:15 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 19:11 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 19:12 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 19:33 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 19:28 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 19:30 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:15 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/2952735097.shtml)
-- 2026-06-29 19:11 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/74775025.shtml)
-- 2026-06-29 19:02 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/565127.shtml)
-- 2026-06-29 19:27 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/739955539101.shtml)
-- 2026-06-29 19:07 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/85112.shtml)
-- 2026-06-29 19:27 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/98179984104.shtml)
-- 2026-06-29 19:00 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/469663.shtml)
-- 2026-06-29 19:05 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/81875488.shtml)
-- 2026-06-29 19:05 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/291268.shtml)
-- 2026-06-29 19:18 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/529644513390.shtml)
-- 2026-06-29 19:23 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/943568.shtml)
-- 2026-06-29 19:12 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/8183828954.shtml)
-- 2026-06-29 19:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/830806390813.shtml)
-- 2026-06-29 19:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/370526.shtml)
-- 2026-06-29 19:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/258782.shtml)
+- 2026-06-29 19:21 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/416951.shtml)
+- 2026-06-29 19:06 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/02692.shtml)
+- 2026-06-29 19:17 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/81020720.shtml)
+- 2026-06-29 19:30 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/350246473082.shtml)
+- 2026-06-29 19:21 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/822683.shtml)
+- 2026-06-29 19:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/581751.shtml)
+- 2026-06-29 19:27 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/85486241506.shtml)
+- 2026-06-29 19:33 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/6035162.shtml)
+- 2026-06-29 19:07 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/7809015547.shtml)
+- 2026-06-29 19:11 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/99903762.shtml)
+- 2026-06-29 19:19 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/049786011.shtml)
+- 2026-06-29 19:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/1360648191.shtml)
+- 2026-06-29 19:23 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/667252088.shtml)
+- 2026-06-29 19:30 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/8415685224.shtml)
+- 2026-06-29 19:30 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/670891000864.shtml)

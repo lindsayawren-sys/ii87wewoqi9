@@ -1,43 +1,59 @@
-# 巴基斯坦总理同伊朗谈判代表团的会见已结束
+# 巴西税收创历史新高，受石油暴利推动
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-新华社快讯：据消息人士告诉新华社记者，巴基斯坦总理夏巴兹11日同伊朗谈判代表团的会见已结束。
+周四公布的官方数据显示，受与石油相关的收入增加推动，巴西4月份联邦税收大幅增长。与美国和以色列对伊朗战争相关的原油价格上涨，提升了总统Luiz Inacio Lula da Silva领导下的政府财政收入。 总税收达到2788.23亿雷亚尔（558.6亿美元），经通胀调整后同比增长7.82%，创下该月份的历史新高，延续了今年迄今为止每个月都出现的创纪录态势。 4月份由联邦税务局
 
 ## 正文
 
-新华社快讯：据消息人士告诉新华社记者，巴基斯坦总理夏巴兹11日同伊朗谈判代表团的会见已结束。
+周四公布的官方数据显示，受与石油相关的收入增加推动，巴西4月份联邦税收大幅增长。
+
+与美国和以色列对伊朗战争相关的原油价格上涨，提升了总统Luiz Inacio Lula da Silva领导下的政府财政收入。
+
+总税收达到2788.23亿雷亚尔（558.6亿美元），经通胀调整后同比增长7.82%，创下该月份的历史新高，延续了今年迄今为止每个月都出现的创纪录态势。
+
+4月份由联邦税务局管理的税收收入经通胀调整后增长7.31%，而主要由石油特许权使用费推动的其他机构征收的收入则跃升14.89%。
+
+作为石油净出口国，这个拉丁美洲最大的经济体一直预期在中东冲突相关的商品价格波动中获得更高的收入。
+
+税务局表示，在各行业中，“石油和天然气开采”的税款缴纳较上年同期飙升约541%，是所有行业中百分比增幅最大的。
+
+政府还指出，企业所得税征收增加、社会保障收入提高以及对固定收益投资征税增加是推动4月份业绩的关键因素。
+
+Lula政府一直在寻求主要通过增加收入来改善公共财政，此前政府提高了部分税收并取消了税收减免。
 
 ## 相关推荐
 
-- 2026-06-29 19:11 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 19:15 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 19:10 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 19:10 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 19:02 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 19:23 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 19:04 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 19:29 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 19:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 19:29 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 19:23 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 19:21 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 19:18 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 19:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 19:28 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 19:09 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 19:10 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 19:14 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 19:16 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 19:08 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 19:20 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 19:17 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 19:15 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 19:07 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:07 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/73702308572.shtml)
-- 2026-06-29 19:20 - [逆天祖国人](http://www.blog.minike.top/Article/details/0980405470.shtml)
-- 2026-06-29 19:15 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/756050.shtml)
-- 2026-06-29 19:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/8813601393.shtml)
-- 2026-06-29 19:16 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.minike.top/Article/details/3466152.shtml)
-- 2026-06-29 19:12 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/1639408443.shtml)
-- 2026-06-29 19:29 - [美人鱼](http://www.share.kurohicncr.top/Article/details/397918368853.shtml)
-- 2026-06-29 19:01 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/3898740181.shtml)
-- 2026-06-29 19:14 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/777418256.shtml)
-- 2026-06-29 19:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/042996693.shtml)
-- 2026-06-29 19:00 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/507134934.shtml)
-- 2026-06-29 19:00 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/209847.shtml)
-- 2026-06-29 19:22 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/83378632320.shtml)
-- 2026-06-29 19:28 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/1369696454.shtml)
-- 2026-06-29 19:21 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/7591524.shtml)
+- 2026-06-29 19:21 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/040621.shtml)
+- 2026-06-29 19:07 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/43506971448.shtml)
+- 2026-06-29 19:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/198859.shtml)
+- 2026-06-29 19:26 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/225004.shtml)
+- 2026-06-29 19:14 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/7473449.shtml)
+- 2026-06-29 19:29 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/60329754.shtml)
+- 2026-06-29 19:22 - [金牌调解](https://www.blog.minike.top/Article/details/9340209.shtml)
+- 2026-06-29 19:34 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/76283089388.shtml)
+- 2026-06-29 19:20 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/403203203.shtml)
+- 2026-06-29 19:21 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/086693.shtml)
+- 2026-06-29 19:29 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/0294145.shtml)
+- 2026-06-29 19:35 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/9923739.shtml)
+- 2026-06-29 19:29 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/914523.shtml)
+- 2026-06-29 19:12 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/019183.shtml)
+- 2026-06-29 19:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/22495227.shtml)

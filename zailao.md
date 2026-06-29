@@ -1,59 +1,59 @@
-# *ST熊猫收到行政处罚事先告知书 投资者可参与索赔
+# 《我记得你眼里的光芒》用25位文化名人访谈见证一个时代
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-2026年4月8日晚间，*ST熊猫（维权）发布关于收到中国证监会湖南监管局《行政处罚事先告知书》的公告。公告显示：熊猫金控股份有限公司于 2025 年12 月29 日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0132025017 号），2026 年 4 月 8 日，公司收到中国证监会湖南监管局下发的《行政处罚事先告知书》〔2026〕4 号。 根据湖南证监局
+中新网北京5月21日电 (记者 应妮)《我记得你眼里的光芒》日前由生活·读书·新知三联书店出版。书中收录了女作家淡巴菰于2002至2005年间对25位中国文化人物的深度访谈——陈忠实、余光中、史铁生、黄永玉、周汝昌、汪国真、葛存壮……这些名字串联起的是一段从20世纪中叶绵延至今的文化记忆。 21日的新书发布会上，久未露面的演员葛优和作家陈建功双双现身。 葛存壮演了一辈子反派，却
 
 ## 正文
 
-2026年4月8日晚间，*ST熊猫（维权）发布关于收到中国证监会湖南监管局《行政处罚事先告知书》的公告。
+中新网北京5月21日电 (记者 应妮)《我记得你眼里的光芒》日前由生活·读书·新知三联书店出版。
 
-公告显示：熊猫金控股份有限公司于 2025 年12 月29 日收到中国证券监督管理委员会下发的《立案告知书》（编号：证监立案字0132025017 号），2026 年 4 月 8 日，公司收到中国证监会湖南监管局下发的《行政处罚事先告知书》〔2026〕4 号。
+书中收录了女作家淡巴菰于2002至2005年间对25位中国文化人物的深度访谈——陈忠实、余光中、史铁生、黄永玉、周汝昌、汪国真、葛存壮……这些名字串联起的是一段从20世纪中叶绵延至今的文化记忆。
 
-根据湖南证监局下达的行政处罚事先告知书显示，*ST熊猫涉及的违规主要为：2023 年 4 月 4 日，*ST 熊猫披露了《关于逐步缩减小贷业务规模并加强小贷业务风险控制的公告》，称全资子公司广州市熊猫互联网小额贷款有限公司（以下简称广州小贷）和西藏熊猫小额贷款有限公司（以下简称西藏小贷）拟分别与昆朋资产管理股份有限公司（以下简称昆朋资产）签署《债权转让合同》，将广州小贷和西藏小贷的债权本金余额及交易基准日后相关权益分别以 198，075，000 元、215，840，000 元的价格转让给昆朋资产。
+21日的新书发布会上，久未露面的演员葛优和作家陈建功双双现身。
 
-上述交易金额占*ST 熊猫最近一期经审计净资产的58.97%。
+葛存壮演了一辈子反派，却说当年的表演“有些脸谱化，包括我演的反面形象也太过夸张”。
 
-经查，*ST 熊猫与昆朋资产的债权转让为虚假交易，*ST 熊猫为债权转让提供资金，后续通过资金拆借掩盖虚假交易，上述债权由国峻实业控股有限公司代持。
+他认为儿子葛优“算不上最好”，比不上陈道明、姜文、李保田。
 
-在收到证监会行政处罚事先告知书的同晚，*ST熊猫披露了2025年年报审计进展，利安达会计师事务所称，根据现场获取的审计证据，将对公司2025年度财务报告出具无法表示意见，将对公司2025年度内部控制审计报告出具否定意见。
+葛优说：“演员，在荧屏里演的是人，在生活中没有理由不像人。
 
-*ST熊猫提示，如年审会计师对公司2025年财务报告出具无法表示意见以及对公司2025年度内部控制审计报告出具否定意见，公司股票存在重大退市风险。
+……老爷子教我八个字——谦虚谨慎，戒骄戒躁。
 
-江苏振泽律师事务所合伙人张云律师表示，*ST熊猫收到行政处罚事先告知书，投资者可参与索赔。
+”他在现场回忆家中趣事，“我爸平时总会说我，你现在有点出息了，院子里见到叔叔阿姨要叫”。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 19:22 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 19:10 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 19:23 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 19:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 19:19 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 19:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 19:16 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 19:15 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 19:20 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 19:17 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 19:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 19:26 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 19:27 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 19:22 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 19:30 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 19:18 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 19:23 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 19:27 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 19:34 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 19:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 19:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 19:18 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 19:29 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 19:16 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 19:21 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:21 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/913263267035.shtml)
-- 2026-06-29 19:27 - [斛珠夫人](http://www.blog.minike.top/Article/details/551878397.shtml)
-- 2026-06-29 19:22 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/958318.shtml)
-- 2026-06-29 19:22 - [人形机器人](http://www.share.kurohicncr.top/Article/details/0866641039.shtml)
-- 2026-06-29 19:13 - [金刚川](https://www.blog.kurohicncr.top/Article/details/735830908130.shtml)
-- 2026-06-29 19:12 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/8136830409.shtml)
-- 2026-06-29 19:19 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/15051.shtml)
-- 2026-06-29 19:04 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/7732325752.shtml)
-- 2026-06-29 19:04 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/943454.shtml)
-- 2026-06-29 19:28 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/962397.shtml)
-- 2026-06-29 19:11 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/1292408.shtml)
-- 2026-06-29 19:13 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/15962725569.shtml)
-- 2026-06-29 19:21 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/59401225363.shtml)
-- 2026-06-29 19:00 - [斛珠夫人](https://www.share.minike.top/Article/details/96921302305.shtml)
-- 2026-06-29 19:16 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/00017.shtml)
+- 2026-06-29 19:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/9831804.shtml)
+- 2026-06-29 19:31 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/229229035339.shtml)
+- 2026-06-29 19:18 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/55744.shtml)
+- 2026-06-29 19:23 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/9837981319.shtml)
+- 2026-06-29 19:24 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/75354709.shtml)
+- 2026-06-29 19:17 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/8912763769.shtml)
+- 2026-06-29 19:11 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/08253.shtml)
+- 2026-06-29 19:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/409566504257.shtml)
+- 2026-06-29 19:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/78443546314.shtml)
+- 2026-06-29 19:25 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.minike.top/Article/details/412035630.shtml)
+- 2026-06-29 19:30 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/301548416899.shtml)
+- 2026-06-29 19:33 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.minike.top/Article/details/565865641.shtml)
+- 2026-06-29 19:08 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/5195868.shtml)
+- 2026-06-29 19:07 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/271915835721.shtml)
+- 2026-06-29 19:33 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/5217933.shtml)

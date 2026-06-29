@@ -1,57 +1,61 @@
-# OpenAI“星际之门”核心负责人离职 数据中心战略再迎重大调整
+# 603256，年内大涨超330%！这一概念集体爆发，多只翻倍股诞生
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-据多名知情人士透露，曾参与启动OpenAI首个“星际之门”（Stargate）数据中心项目的三位高管已离职，或将于近日离开这家ChatGPT开发公司。 其中一位知情人士称，在推动“星际之门”落地过程中发挥关键作用的OpenAI高管彼得·赫舍尔（Peter Hoeschele）已离职。另有两位消息人士表示，负责算力战略与业务拓展的沙梅兹·赫马尼（Shamez Hemani）、Op
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周，A股大幅震荡，上证指数回撤至4100点附近整固，科创综指在连续创历史新高后短线也出现一定回吐，深证成指、创业板指均在高位震荡，周成交略减少至15.23万亿元，仍位居历史周成交第四。 虽然本周市场有一定调整，但杠杆资金继续加仓A股，再度融资净买入逾191亿元，连续第7周净买入，融资余额不断刷新历史纪录。
 
 ## 正文
 
-据多名知情人士透露，曾参与启动OpenAI首个“星际之门”（Stargate）数据中心项目的三位高管已离职，或将于近日离开这家ChatGPT开发公司。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-其中一位知情人士称，在推动“星际之门”落地过程中发挥关键作用的OpenAI高管彼得·赫舍尔（Peter Hoeschele）已离职。
+本周，A股大幅震荡，上证指数回撤至4100点附近整固，科创综指在连续创历史新高后短线也出现一定回吐，深证成指、创业板指均在高位震荡，周成交略减少至15.23万亿元，仍位居历史周成交第四。
 
-另有两位消息人士表示，负责算力战略与业务拓展的沙梅兹·赫马尼（Shamez Hemani）、OpenAI算力部门另一位负责人阿努杰·萨哈兰（Anuj Saharan）也已向同事宣布离职。
+虽然本周市场有一定调整，但杠杆资金继续加仓A股，再度融资净买入逾191亿元，连续第7周净买入，融资余额不断刷新历史纪录。
 
-一位知情人士透露，这三位离职高管将加入同一家新公司，但该公司名称暂未获悉。
+电子行业一枝独秀，获得逾205亿元净买入，超过其他行业净买入总和，通信获得逾30亿元净买入，机械设备获得逾12亿元净买入，基础化工、医药生物等也获得超亿元净买入。
 
-基础设施团队一直是OpenAI及其竞争对手面临的最大挑战核心：如何以初创企业可承受的成本，获取充足算力以满足AI产品暴涨的需求。
+有色金属遭融资净卖出逾28亿元，国防军工、电力设备均净卖出超10亿元。
 
-OpenAI曾表示，计划未来五年内投入超6000亿美元用于算力建设；这一支出计划促使其与甲骨文、亚马逊云科技等一众芯片及云服务巨头达成合作协议。
+另据Wind数据统计，电子行业依旧遥遥领先，全周获得逾1297亿元主力资金净流入，机械设备获得逾454亿元净流入，电力设备获得逾237亿元净流入，基础化工、汽车、有色金属、计算机四行业也获得超百亿元净流入。
 
-此次高管离职前，OpenAI已对基础设施业务进行全面重组。
+建筑装饰遭主力资金净流出逾31亿元，农林牧渔、通信均净流出超20亿元，银行、石油石化也都净流出超10亿元。
 
-去年年底，公司聘请前英特尔高管萨钦·卡蒂（Sachin Katti）担任算力与基础设施负责人。
+概念板块方面，消费电子板块本周获得逾888亿元主力资金净流入，华为概念获得逾795亿元净流入，AI手机获得逾672亿元净流入，5G概念获得逾596亿元净流入。
 
 ## 相关推荐
 
-- 2026-06-29 19:22 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 19:17 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 19:03 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 19:09 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 19:28 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 19:12 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 19:24 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 19:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 19:24 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 19:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 19:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 19:18 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 19:14 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 19:21 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 19:08 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 19:30 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 19:11 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 19:27 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 19:13 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 19:34 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 19:31 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 19:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 19:08 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 19:13 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 19:29 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 19:34 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:05 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/09752289348.shtml)
-- 2026-06-29 19:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/024916801807.shtml)
-- 2026-06-29 19:16 - [周生如故](http://www.blog.kurohicncr.top/Article/details/9339460212.shtml)
-- 2026-06-29 19:15 - [NBA交易](https://www.share.minike.top/Article/details/990030.shtml)
-- 2026-06-29 19:06 - [第一炉香](https://www.share.minike.top/Article/details/48997638.shtml)
-- 2026-06-29 19:10 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/35937.shtml)
-- 2026-06-29 19:10 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/7175847.shtml)
-- 2026-06-29 19:21 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/85327605355.shtml)
-- 2026-06-29 19:22 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/47406.shtml)
-- 2026-06-29 19:24 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/890024.shtml)
-- 2026-06-29 19:26 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/619199978.shtml)
-- 2026-06-29 19:10 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/048997298.shtml)
-- 2026-06-29 19:13 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/50873325.shtml)
-- 2026-06-29 19:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/0514592422.shtml)
-- 2026-06-29 19:09 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/42683854324.shtml)
+- 2026-06-29 19:29 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/137103487.shtml)
+- 2026-06-29 19:25 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/4304422.shtml)
+- 2026-06-29 19:32 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/90104783827.shtml)
+- 2026-06-29 19:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/825520299.shtml)
+- 2026-06-29 19:24 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/48272.shtml)
+- 2026-06-29 19:25 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/62853.shtml)
+- 2026-06-29 19:28 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/16081028.shtml)
+- 2026-06-29 19:06 - [AG 宫斗](http://www.share.minike.top/Article/details/9425621319.shtml)
+- 2026-06-29 19:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/276615.shtml)
+- 2026-06-29 19:25 - [T1零封KC MSI](http://www.share.minike.top/Article/details/65134902330.shtml)
+- 2026-06-29 19:23 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/42030594.shtml)
+- 2026-06-29 19:15 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/15177109610.shtml)
+- 2026-06-29 19:29 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/359465.shtml)
+- 2026-06-29 19:21 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/3330197.shtml)
+- 2026-06-29 19:13 - [主力抛售电子和通信板块](http://www.blog.kurohicncr.top/Article/details/5696985.shtml)

@@ -1,56 +1,57 @@
-# 厄瓜多尔将哥伦比亚进口商品税率提高至100%
+# 乐聚智能IPO：多项指标远逊宇树科技 越卖越亏可估值半年翻倍
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新社北京4月10日电 综合消息：厄瓜多尔政府当地时间9日宣布，将针对哥伦比亚进口商品征收的税率从50%上调至100%，今年5月1日起生效。 综合路透社、半岛电视台等媒体消息，厄政府9日发表声明称，由于哥伦比亚未能实施“具体有效的边境安全措施”，厄瓜多尔被迫采取行动。 哥伦比亚方面目前未宣布对等措施，但哥伦比亚总统佩特罗及多名高级官员已发声表示反对。佩特罗在社交媒体上说，厄瓜多
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 人形机器人，先后排队IPO。 近日，创业板第四套上市标准启用后的首单企业——乐聚智能（深圳）股份有限公司（下称“乐聚智能”）IPO申请获受理。 与宇树科技相比，乐聚智能多项财务指标处于劣势，包括但不限于营收、净利润及增速、毛利率、净利率、研发投入、研
 
 ## 正文
 
-中新社北京4月10日电 综合消息：厄瓜多尔政府当地时间9日宣布，将针对哥伦比亚进口商品征收的税率从50%上调至100%，今年5月1日起生效。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-综合路透社、半岛电视台等媒体消息，厄政府9日发表声明称，由于哥伦比亚未能实施“具体有效的边境安全措施”，厄瓜多尔被迫采取行动。
+出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 人形机器人，先后排队IPO。
 
-哥伦比亚方面目前未宣布对等措施，但哥伦比亚总统佩特罗及多名高级官员已发声表示反对。
+近日，创业板第四套上市标准启用后的首单企业——乐聚智能（深圳）股份有限公司（下称“乐聚智能”）IPO申请获受理。
 
-佩特罗在社交媒体上说，厄瓜多尔此举“简直是骇人听闻”，表明安第斯共同体(安共体)对哥伦比亚已失去意义。
+与宇树科技相比，乐聚智能多项财务指标处于劣势，包括但不限于营收、净利润及增速、毛利率、净利率、研发投入、研发人员数量、出货量等核心指标，从商业化和市场规模来看，其能否在行业内站稳脚跟还有待时间给出答案。
 
-哥伦比亚矿业和能源部长埃德温·帕尔马称，厄瓜多尔再次提高税率的决定是“对历史上一直携手并进的兄弟民族的明显侵略”。
+不过，乐聚智能的研发费用率及发明专利数量比宇树科技高。
 
-安共体是拉美地区重要的区域经济一体化组织，厄瓜多尔和哥伦比亚均为正式成员国。
+招股书显示，乐聚智能陷入营收越增长、亏损越大的困境之中，而宇树科技已经扭亏并实现巨额盈利。
 
-一段时间以来，厄瓜多尔与哥伦比亚的紧张局势不断升级。
+在亏损越来越严重的背景下，乐聚智能的IPO预估值却高达百亿元之上，而半年前的增资投后估值43.27 亿元，半年增长140%。
 
-今年1月，厄瓜多尔政府宣布，鉴于厄哥两国边境安全局势严峻及跨境执法合作不力，自2月1日起，对哥伦比亚进口商品征收30%的“安全税”。
+多项重要指标不及宇树科技 招股书显示，乐聚智能主营业务为人形机器人的研发、生产和销售，专注于人形机器人“大脑—小脑—本体”的全栈式技术研发、整机生产与销售以及应用方案提供。
 
 ## 相关推荐
 
-- 2026-06-29 19:09 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 19:22 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 19:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 19:06 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 19:11 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 19:09 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 19:17 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 19:02 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 19:16 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 19:28 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 19:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 19:13 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 19:06 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 19:08 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 19:06 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 19:21 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 19:26 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:10 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 19:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 19:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 19:10 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:21 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/8388980883.shtml)
-- 2026-06-29 19:27 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/89970.shtml)
-- 2026-06-29 19:17 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/43688.shtml)
-- 2026-06-29 19:24 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/19536420786.shtml)
-- 2026-06-29 19:25 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/697014886.shtml)
-- 2026-06-29 19:19 - [上海小区惊现鳄鱼](https://www.share.minike.top/Article/details/2769986.shtml)
-- 2026-06-29 19:22 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/135086912.shtml)
-- 2026-06-29 19:19 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/574436786454.shtml)
-- 2026-06-29 19:06 - [绘画区你赢了](http://www.blog.minike.top/Article/details/124609257431.shtml)
-- 2026-06-29 19:23 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/5988800.shtml)
-- 2026-06-29 19:01 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/288909850078.shtml)
-- 2026-06-29 19:29 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/59794548.shtml)
-- 2026-06-29 19:11 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/5948358400.shtml)
-- 2026-06-29 19:21 - [音乐人屠颖离世家属追责涉事酒店](http://www.blog.minike.top/Article/details/674648472597.shtml)
-- 2026-06-29 19:26 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.minike.top/Article/details/92240.shtml)
+- 2026-06-29 19:19 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/16400605.shtml)
+- 2026-06-29 19:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/514763.shtml)
+- 2026-06-29 19:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/45675425.shtml)
+- 2026-06-29 19:13 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/7888669.shtml)
+- 2026-06-29 19:20 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/331121534.shtml)
+- 2026-06-29 19:26 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/21888384.shtml)
+- 2026-06-29 19:11 - [王俊凯命名方式](http://www.share.minike.top/Article/details/655571.shtml)
+- 2026-06-29 19:11 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/2555058337.shtml)
+- 2026-06-29 19:21 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/125219211942.shtml)
+- 2026-06-29 19:21 - [周生如故](http://www.share.minike.top/Article/details/02605148.shtml)
+- 2026-06-29 19:35 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/28391825052.shtml)
+- 2026-06-29 19:10 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/33379525.shtml)
+- 2026-06-29 19:35 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/88894.shtml)
+- 2026-06-29 19:30 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/62515.shtml)
+- 2026-06-29 19:19 - [急先锋](https://www.share.kurohicncr.top/Article/details/891140293985.shtml)

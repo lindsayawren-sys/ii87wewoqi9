@@ -1,61 +1,58 @@
-# “南京—克拉克”全货机航线开通
+# 富兰克林新兴市场收益基金月度派息升至0.054美元
 
-> 更新时间：2026-06-29 19:30:02 UTC+8
+> 更新时间：2026-06-29 19:36:02 UTC+8
 
 ## 摘要
 
-中新社南京4月10日电 (记者 朱晓颖)一架满载“中国制造”商品的全货机10日从南京禄口国际机场起飞，前往菲律宾克拉克国际机场，标志着“南京—克拉克”全货机航线开通并完成首航试运行。该航线的开通，为长三角联通菲律宾及东南亚市场新增了一条空中物流通道。 据介绍，“南京—克拉克”全货机航线由波音B737-800F全货机执飞，当日可完成从南京进出空港。其中，出港的班次以跨境电商载货为
+富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。 根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支
 
 ## 正文
 
-中新社南京4月10日电 (记者 朱晓颖)一架满载“中国制造”商品的全货机10日从南京禄口国际机场起飞，前往菲律宾克拉克国际机场，标志着“南京—克拉克”全货机航线开通并完成首航试运行。
+富兰克林邓普顿于5月21日宣布，旗下Templeton Emerging Markets Income Fund将月度股息上调13.7%，从原先的每股0.0475美元提高至0.054美元，交易代码为TEI。
 
-该航线的开通，为长三角联通菲律宾及东南亚市场新增了一条空中物流通道。
+此次上调后的年化派息率约为10.37%，将于7月至9月期间执行。
 
-据介绍，“南京—克拉克”全货机航线由波音B737-800F全货机执飞，当日可完成从南京进出空港。
+根据公告，7月份派息的除息日和登记日均为7月24日，支付日为7月31日；8月份除息日和登记日为8月24日，支付日为8月31日；9月份除息日和登记日为9月23日，支付日为9月30日。
 
-其中，出港的班次以跨境电商载货为主，主要为服饰、鞋包、饰品等品类；进港的班次以菲律宾生鲜、水果等产品为主。
+该基金是一只封闭式管理投资公司，主要投资于新兴市场国家的主权或主权相关实体及私营公司发行的收益性证券。
 
-该航线将逐步打造长三角制造产品“出海”、菲律宾生鲜产品进口的双向流通格局，以进一步提升区域供应链运行效率。
+基金的投资目标以获取高额当期收入为主，资本增值为辅。
 
-截至目前，南京禄口国际机场稳定运营南京至澳大利亚悉尼、墨尔本，南京至法国巴黎等航线，已恢复南京至意大利米兰航线。
+根据基金的管理分配政策，为保持稳定的分配水平，当可分配收益不足时，基金将通过分配长期资本利得或返还本金来维持既定派息率。
 
-今年1月，南京—台北全货机定班航线开通。
+数据显示，基金近五年按资产净值计算的平均年化总回报率为6.22%，当前按资产净值计算的分配率为8.70%。
 
-中新社记者从东部机场集团有限公司获悉，本月，南京将陆续开通多条客运、货运航线。
+富兰克林邓普顿表示，董事会可随时修改、终止或暂停管理分配政策，任何此类变动可能对基金股价产生不利影响。
 
 ## 相关推荐
 
-- 2026-06-29 19:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 19:15 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 19:27 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-29 19:04 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 19:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 19:15 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 19:04 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 19:20 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 19:16 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 19:04 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 19:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 19:20 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 19:12 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 19:16 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 19:02 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 19:32 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 19:31 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 19:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 19:12 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 19:18 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 19:27 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 19:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 19:19 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 19:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 19:20 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 19:19 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 19:13 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:06 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/1884701.shtml)
-- 2026-06-29 19:05 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/97828542.shtml)
-- 2026-06-29 19:26 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/73339.shtml)
-- 2026-06-29 19:20 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/0641325985.shtml)
-- 2026-06-29 19:25 - [毒液2](http://www.blog.kurohicncr.top/Article/details/3943537.shtml)
-- 2026-06-29 19:16 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/941412.shtml)
-- 2026-06-29 19:02 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/94595.shtml)
-- 2026-06-29 19:14 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/47444909705.shtml)
-- 2026-06-29 19:14 - [天道](http://www.blog.kurohicncr.top/Article/details/94884.shtml)
-- 2026-06-29 19:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/6250505.shtml)
-- 2026-06-29 19:17 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/02267.shtml)
-- 2026-06-29 19:02 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/919683165246.shtml)
-- 2026-06-29 19:17 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/263928.shtml)
-- 2026-06-29 19:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/63691601196.shtml)
-- 2026-06-29 19:14 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/975342.shtml)
+- 2026-06-29 19:07 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/5449629916.shtml)
+- 2026-06-29 19:22 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/84209611.shtml)
+- 2026-06-29 19:13 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/484096.shtml)
+- 2026-06-29 19:20 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/5331659.shtml)
+- 2026-06-29 19:24 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/51460.shtml)
+- 2026-06-29 19:08 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/607602612.shtml)
+- 2026-06-29 19:21 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/5186723.shtml)
+- 2026-06-29 19:28 - [T1零封KC MSI](http://www.share.minike.top/Article/details/5314066.shtml)
+- 2026-06-29 19:28 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/76990991.shtml)
+- 2026-06-29 19:35 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/948547086.shtml)
+- 2026-06-29 19:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/193099697.shtml)
+- 2026-06-29 19:09 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/2012945.shtml)
+- 2026-06-29 19:17 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/575339246.shtml)
+- 2026-06-29 19:22 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/420388788746.shtml)
+- 2026-06-29 19:09 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/974893988496.shtml)
