@@ -1,51 +1,59 @@
-# 不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩
+# 小金属被AI算力逼到“断货”？稀土龙头显著领涨，盛和资源涨停！华宝基金有色ETF（159876）冲击6连阳！
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-一代丹青大家黄胄，以炎黄之名立志，以笔墨扎根山河人民，绘边疆风情、叙家国情怀，用一幅幅经典画作，镌刻时代记忆与民族同心。 1949年 东方雄狮豁然觉醒 神州大地万众同心 人人满怀热忱与期盼 有一位画家 以丹青描绘山河新气象 歌颂时代新风貌 这位画家，便是黄胄 毛主席曾评价 “黄胄是新中国自己培养出来的有为的青年画家 他能画我们的人民。” 走进炎黄艺术馆 一幅幅笔法奔放，刻画生动
+今日（6月16日）有色金属板块继续上涨，同标的指数规模最大*的有色ETF华宝（159876）场内价格盘中摸高0.47%，现涨0.19%，冲击日线6连阳！ 低位攀升的右侧信号显现？数据显示，有色ETF华宝（159876）近5个交易日累计吸金5199万元！ 成份股方面，有研新材、盛和资源、厦门钨业、华钰矿业4股涨停。稀土龙头显著领涨，中稀有色涨超8%，中国稀土涨逾5%，北方稀土、中
 
 ## 正文
 
-一代丹青大家黄胄，以炎黄之名立志，以笔墨扎根山河人民，绘边疆风情、叙家国情怀，用一幅幅经典画作，镌刻时代记忆与民族同心。
+今日（6月16日）有色金属板块继续上涨，同标的指数规模最大*的有色ETF华宝（159876）场内价格盘中摸高0.47%，现涨0.19%，冲击日线6连阳！
 
-1949年 东方雄狮豁然觉醒 神州大地万众同心 人人满怀热忱与期盼 有一位画家 以丹青描绘山河新气象 歌颂时代新风貌 这位画家，便是黄胄 毛主席曾评价 “黄胄是新中国自己培养出来的有为的青年画家 他能画我们的人民。
+低位攀升的右侧信号显现？
 
-” 走进炎黄艺术馆 一幅幅笔法奔放，刻画生动的人物画展现眼前 艺术馆的“镇馆之宝” 是创作于1976年9月的《日夜想念毛主席》 画面里 维吾尔族老人弹奏冬不拉 骑驴坚定向东而行 这位老人 是新疆的库尔班·吐鲁木 他自幼沦为孤儿 在地主压迫下长大 羊圈是他的居所 后来新疆解放了 中国共产党让穷苦百姓翻身做主 生活随之变好的他许下心愿 一定要去北京，当面见见毛主席 北京何其远 他意志坚定 只要毛驴不倒 一路前行，终能抵达北京 “能让我亲眼见见毛主席 我这辈子也就心满意足了。
+数据显示，有色ETF华宝（159876）近5个交易日累计吸金5199万元！
 
-” 最终，库尔班跟随观礼团奔赴首都 1958年6月28日 库尔班如愿受到毛主席亲切接见 经典瞬间被摄影师定格留存 王洛宾以此创作歌曲 黄胄也深受触动，提笔作画 记录这份跨越山河的赤诚与感恩 黄胄原名梁淦堂 年少亲历日军战机轰炸潼关和西安 一次校园体育比赛中 收获一面写着“炎黄之胄”的锦旗 读懂词义，心有共鸣 他毅然改名黄胄 以炎黄后裔自勉 立志做有志有为的中华儿女 二十世纪五十年代 新中国建设事业蒸蒸日上 黄胄跑遍祖国各地 紧紧围绕当时的重大事件 用画作描绘 昂扬的民族自信心和向上的时代面貌 黄胄的创作中 边疆人物是重要主题之一 青海、新疆、西藏、海南...... 祖国各地都有他写生的足迹 家国热爱、民族团结、烟火生活 是他作品的内核 他热爱新疆 一生七次赴疆写生 “新疆图画”成了他极具代表性的艺术符号 他一改学院画固定模特的习惯 画中人物均来自真实
+成份股方面，有研新材、盛和资源、厦门钨业、华钰矿业4股涨停。
+
+稀土龙头显著领涨，中稀有色涨超8%，中国稀土涨逾5%，北方稀土、中国铀业等个股跟涨。
+
+消息面上，6月15日《矿产资源法实施条例》正式施行，金、钼、稀土、钴、锂、镓、锗、钨等36种矿产被纳入战略性矿产目录。
+
+该条例的实施强化了对战略性矿产资源的管控，市场预期稀土等关键矿产的供给将受到更严格的约束。
+
+国金证券表示，全面看好AI赋能的锡稀土钨钼。
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 12:53 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 13:05 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 12:50 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 12:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 13:09 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 12:57 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 13:12 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 13:06 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 13:03 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 12:58 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 13:00 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 13:19 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 13:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:04 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 13:08 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 13:03 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 13:05 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:13 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 13:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 13:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 13:01 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 13:15 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 13:27 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 13:25 - [DeepSeek联合北京大学发布论文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 13:15 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/31424477.shtml)
-- 2026-06-29 13:05 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/923692.shtml)
-- 2026-06-29 13:16 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/67058.shtml)
-- 2026-06-29 13:11 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/067264.shtml)
-- 2026-06-29 13:06 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/643142630877.shtml)
-- 2026-06-29 13:08 - [明星大侦探第一季](http://www.share.minike.top/Article/details/59694278.shtml)
-- 2026-06-29 12:57 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/98201482760.shtml)
-- 2026-06-29 13:15 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/73804904.shtml)
-- 2026-06-29 13:13 - [农业谣言岂能如此“变态”](https://www.share.kurohicncr.top/Article/details/250227858918.shtml)
-- 2026-06-29 13:17 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/85956616239.shtml)
-- 2026-06-29 13:00 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/915270798.shtml)
-- 2026-06-29 13:06 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/82490027.shtml)
-- 2026-06-29 13:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/8135953188.shtml)
-- 2026-06-29 12:54 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/973346371393.shtml)
-- 2026-06-29 13:10 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/493818225890.shtml)
+- 2026-06-29 13:15 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/7246416.shtml)
+- 2026-06-29 13:27 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/5120627208.shtml)
+- 2026-06-29 13:19 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/540745402.shtml)
+- 2026-06-29 13:29 - [乌拉圭出局之路](https://www.blog.minike.top/Article/details/823998.shtml)
+- 2026-06-29 13:08 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/64423.shtml)
+- 2026-06-29 13:00 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/7853816864.shtml)
+- 2026-06-29 13:09 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/54774667.shtml)
+- 2026-06-29 13:23 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/33928057619.shtml)
+- 2026-06-29 13:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/1657043.shtml)
+- 2026-06-29 13:02 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/214435.shtml)
+- 2026-06-29 13:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/297117126.shtml)
+- 2026-06-29 13:11 - [普京称俄处于命运攸关之际](https://www.share.kurohicncr.top/Article/details/50033.shtml)
+- 2026-06-29 13:19 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/5809085895.shtml)
+- 2026-06-29 13:04 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/916844.shtml)
+- 2026-06-29 13:21 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/6882077.shtml)

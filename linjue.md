@@ -1,58 +1,58 @@
-# 任天堂下调Switch 2销量及净利润预期
+# SpaceX大涨17%市值超微软，专家：目前明显被高估了
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 这家日本企业正努力在电子游戏之外实现收入来源多元化 内容概要 任天堂预计本财年净利润下滑 27% 至 3100 亿日元，营收同比下降 11%。 在刚交出亮眼全年业绩后，任天堂预计新财年经营表现走弱，Switch 2 销量及净利润均将下滑。 截至 3 月的过去 12 个月，这家日本游戏厂商净利润同比大增 52%，达4240.6 亿日元（约合
+记者丨周蕊 北京时间6月16日晚，SpaceX股价连续第三日大涨。截至22：07，涨幅进一步扩大至17%，总市值达2.97万亿美元，继超过亚马逊后，进一步超越微软。 然而，在市场热烈追捧的背后，其高估值也引发了华尔街关于泡沫、市场集中度以及长期盈利能力的讨论。 前The Motley Fool科技投资分析师、投资研究机构7investing创始人Simon Erickson认为
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 这家日本企业正努力在电子游戏之外实现收入来源多元化 内容概要 任天堂预计本财年净利润下滑 27% 至 3100 亿日元，营收同比下降 11%。
+记者丨周蕊 北京时间6月16日晚，SpaceX股价连续第三日大涨。
 
-在刚交出亮眼全年业绩后，任天堂预计新财年经营表现走弱，Switch 2 销量及净利润均将下滑。
+截至22：07，涨幅进一步扩大至17%，总市值达2.97万亿美元，继超过亚马逊后，进一步超越微软。
 
-截至 3 月的过去 12 个月，这家日本游戏厂商净利润同比大增 52%，达4240.6 亿日元（约合 27 亿美元），高于数据机构 Visible Alpha 分析师预期的 4186 亿日元；全年营收近乎翻倍，至2.313 万亿日元。
+然而，在市场热烈追捧的背后，其高估值也引发了华尔街关于泡沫、市场集中度以及长期盈利能力的讨论。
 
-从 4 月开启的本财年，任天堂预计： 营收下滑 11%，至2.050 万亿日元； 净利润下滑 27%，至3100 亿日元。
+前The Motley Fool科技投资分析师、投资研究机构7investing创始人Simon Erickson认为，当前SpaceX明显被高估。
 
-公司周五公布，预计本财年Switch 2 主机销量 1650 万台，低于上一财年的 1990 万台； 新机游戏软件销量预计达 6000 万份，高于上年的 4870 万份。
+本次IPO定价明显偏高 南方财经：SpaceX刚刚完成了历史上规模最大的IPO。
 
-任天堂于去年 6 月正式发售 Switch 2，初衷是接续初代机型的辉煌 —— 初代销量曾受益于疫情带动的游戏热潮而大爆。
+你对这次上市整体有什么评价？
 
-这款主机美国零售价约 450 美元，配备更大、触控更灵敏的屏幕，图形性能也得到升级。
+Simon Erickson：SpaceX是一家令人惊叹的公司，但我认为这次IPO定价明显偏高，而这其实也是许多大型科技公司上市时的共同特征。
 
-总部位于京都的任天堂，一直致力于摆脱单一游戏业务、拓展多元收入。
+从某种意义上说，SpaceX更像是埃隆·马斯克多个项目的集合体。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 13:18 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-29 13:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 13:06 - [刘宇宁现偶我就不要了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 13:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 12:56 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 13:01 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 12:58 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 13:01 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 13:12 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 13:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 12:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 13:23 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 13:05 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 13:12 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 13:03 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 13:08 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 13:04 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 13:10 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 13:26 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 13:01 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 13:27 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 13:08 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 13:15 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/7219074143.shtml)
-- 2026-06-29 13:08 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/86725918736.shtml)
-- 2026-06-29 12:52 - [《贺子珍》](http://www.share.minike.top/Article/details/667975581596.shtml)
-- 2026-06-29 12:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/49084.shtml)
-- 2026-06-29 13:08 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/19064352.shtml)
-- 2026-06-29 13:13 - [金牌调解](https://www.share.minike.top/Article/details/3640339346.shtml)
-- 2026-06-29 13:13 - [ENC瓦中国香港负印度数据图](http://www.blog.kurohicncr.top/Article/details/49823.shtml)
-- 2026-06-29 13:08 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/7158251191.shtml)
-- 2026-06-29 12:57 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/003335.shtml)
-- 2026-06-29 12:56 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/5828613.shtml)
-- 2026-06-29 13:03 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/991856319.shtml)
-- 2026-06-29 13:09 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/9373493.shtml)
-- 2026-06-29 12:53 - [俄称继续推进 乌称打击俄军设施](http://www.blog.minike.top/Article/details/94418699.shtml)
-- 2026-06-29 13:03 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/606209588726.shtml)
-- 2026-06-29 12:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/09627688837.shtml)
+- 2026-06-29 13:21 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.kurohicncr.top/Article/details/299884.shtml)
+- 2026-06-29 13:16 - [小娘惹](http://www.share.minike.top/Article/details/85293057418.shtml)
+- 2026-06-29 13:14 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/63432467.shtml)
+- 2026-06-29 13:05 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/6659469560.shtml)
+- 2026-06-29 13:05 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/3505546685.shtml)
+- 2026-06-29 13:04 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/279575773149.shtml)
+- 2026-06-29 13:10 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/06811664186.shtml)
+- 2026-06-29 13:23 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/36909.shtml)
+- 2026-06-29 13:01 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/801238967.shtml)
+- 2026-06-29 13:28 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/81331561.shtml)
+- 2026-06-29 13:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/141541706.shtml)
+- 2026-06-29 13:03 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/03657581827.shtml)
+- 2026-06-29 13:03 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/34819045.shtml)
+- 2026-06-29 13:24 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/162308144.shtml)
+- 2026-06-29 13:04 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/45122.shtml)

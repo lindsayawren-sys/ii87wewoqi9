@@ -1,61 +1,57 @@
-# 世卫组织：汉坦病毒向普通人群传播风险“极低”
+# 全球资本市场瞩目！超级央行周来袭，美联储新主席首秀，核心看点一文全梳理
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 日内瓦消息：世界卫生组织(下称“世卫组织”)当地时间8日在瑞士日内瓦就“洪迪厄斯”号邮轮病毒感染事件表示，汉坦病毒向普通人群传播的风险“极低”。 据世卫组织官网消息，世卫组织发言人林德迈尔表示，截至8日，“洪迪厄斯”号邮轮共报告8例汉坦病毒确诊和疑似病例，3人死亡。该情况已触发涉及欧洲、非洲、南美洲多国的重大国际公共卫生紧急响应。世卫组织正与佛得角、西班牙
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周，全球主要央行将迎来密集议息窗口。 北京时间6月15日至16日，日本央行召开政策会议；6月18日凌晨，美联储将公布最新利率决议；英国央行、瑞士央行、挪威央行、瑞典央行等也将陆续公布利率决定。 本轮超级央行周看点颇多。在中东地缘冲突缓和的背景下，凯文·沃什（Kevin Warsh）将迎来就任美联储主席后的
 
 ## 正文
 
-中新社北京5月9日电 日内瓦消息：世界卫生组织(下称“世卫组织”)当地时间8日在瑞士日内瓦就“洪迪厄斯”号邮轮病毒感染事件表示，汉坦病毒向普通人群传播的风险“极低”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据世卫组织官网消息，世卫组织发言人林德迈尔表示，截至8日，“洪迪厄斯”号邮轮共报告8例汉坦病毒确诊和疑似病例，3人死亡。
+本周，全球主要央行将迎来密集议息窗口。
 
-该情况已触发涉及欧洲、非洲、南美洲多国的重大国际公共卫生紧急响应。
+北京时间6月15日至16日，日本央行召开政策会议；6月18日凌晨，美联储将公布最新利率决议；英国央行、瑞士央行、挪威央行、瑞典央行等也将陆续公布利率决定。
 
-世卫组织正与佛得角、西班牙、荷兰、南非、英国和阿根廷的相关部门，以及欧洲疾病预防控制中心密切合作，持续协调应对措施。
+本轮超级央行周看点颇多。
 
-世卫组织同时强调，汉坦病毒向普通人群传播的风险“极低”，其传播方式与公众熟悉的新冠病毒“截然不同”。
+在中东地缘冲突缓和的背景下，凯文·沃什（Kevin Warsh）将迎来就任美联储主席后的首场联邦公开市场委员会（FOMC）会议，而日本央行则有望将利率上调至1995年以来最高水平。
 
-林德迈尔表示，汉坦病毒虽然危险，但只对已感染人群构成威胁，其传播需要“密切且长时间”接触，传染可能发生在家庭成员、伴侣或医护人员间。
+经历欧洲央行加息后，全球货币政策走向再度成为市场焦点，资本市场也将迎来考验。
 
-目前，有与感染患者有过密切接触的人病毒检测结果为阴性，也有与感染患者同住一个船舱未被传染的情况。
+美联储新主席首秀 北京时间6月18日凌晨2点，美联储将公布利率决议。
 
-世卫组织研判认为，对普通人群而言，感染汉坦病毒的风险依然“极低”。
+这也是凯文·沃什5月22日宣誓就任美联储主席后，首次主持FOMC会议。
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 13:00 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 12:51 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 13:11 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:52 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 12:57 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 13:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-29 12:50 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 12:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 13:11 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 13:06 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 12:58 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 13:07 - [功率半导体缺货涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 13:00 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 13:12 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 13:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 13:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 13:26 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 13:03 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 13:29 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 13:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 13:24 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 13:13 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 13:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 13:07 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 13:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [第一炉香](http://www.blog.minike.top/Article/details/9903282124.shtml)
-- 2026-06-29 13:17 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/22671434396.shtml)
-- 2026-06-29 12:53 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/0723150687.shtml)
-- 2026-06-29 13:16 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/83892183.shtml)
-- 2026-06-29 12:58 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.minike.top/Article/details/00080112026.shtml)
-- 2026-06-29 13:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/4023354363.shtml)
-- 2026-06-29 13:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/6981368201.shtml)
-- 2026-06-29 13:03 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/82971634.shtml)
-- 2026-06-29 12:54 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/457349126373.shtml)
-- 2026-06-29 13:03 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/31325.shtml)
-- 2026-06-29 13:09 - [急先锋](https://www.blog.kurohicncr.top/Article/details/731892790.shtml)
-- 2026-06-29 13:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/43663971.shtml)
-- 2026-06-29 13:18 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/81193.shtml)
-- 2026-06-29 13:08 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/23177.shtml)
-- 2026-06-29 12:56 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/4247256.shtml)
+- 2026-06-29 13:23 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/503170860639.shtml)
+- 2026-06-29 13:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/303793318948.shtml)
+- 2026-06-29 13:08 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/10601271.shtml)
+- 2026-06-29 13:11 - [强⁶](http://www.share.minike.top/Article/details/039556444.shtml)
+- 2026-06-29 13:29 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/18708.shtml)
+- 2026-06-29 13:14 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/715108159753.shtml)
+- 2026-06-29 13:06 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/18685620.shtml)
+- 2026-06-29 13:19 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/682591.shtml)
+- 2026-06-29 13:13 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/6739572026.shtml)
+- 2026-06-29 13:15 - [双高胎](http://www.share.minike.top/Article/details/066119119992.shtml)
+- 2026-06-29 13:09 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/74429601.shtml)
+- 2026-06-29 13:14 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/11468029494.shtml)
+- 2026-06-29 13:26 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/3177086.shtml)
+- 2026-06-29 13:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/86948913.shtml)
+- 2026-06-29 13:05 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.kurohicncr.top/Article/details/414637.shtml)

@@ -1,56 +1,56 @@
-# 今年开分最高的国产电影，每一件道具都是华侨的情书
+# 广东广西重庆等地有强降雨 东北华北等地多雷阵雨
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 题：今年开分最高的国产电影，每一件道具都是华侨的情书 中新网记者 韩辉 电影《给阿嬷的情书》上映以来，口碑一路走高。截至5月6日20:00，在某电影评分网站上，超5.5万观众打出9.0的高分，成为今年开分最高的国产电影。 在广州华侨博物馆，一场以电影《给阿嬷的情书》为主题的特展正在展出。展览结合历史资料、影片美术道具及影视剧照，对相关历史场景进行还原。 “
+中新网6月17日电 据中央气象台网站消息，昨日，广东、广西等地出现暴雨或大暴雨、局地特大暴雨。预计17日广西、广东、福建、重庆、贵州等地部分地区有强降雨，18日起主雨带北抬，贵州、广西至江南等地有持续强降雨，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。东北、华北等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。 广东广西
 
 ## 正文
 
-中新网北京5月8日电 题：今年开分最高的国产电影，每一件道具都是华侨的情书 中新网记者 韩辉 电影《给阿嬷的情书》上映以来，口碑一路走高。
+中新网6月17日电 据中央气象台网站消息，昨日，广东、广西等地出现暴雨或大暴雨、局地特大暴雨。
 
-截至5月6日20:00，在某电影评分网站上，超5.5万观众打出9.0的高分，成为今年开分最高的国产电影。
+预计17日广西、广东、福建、重庆、贵州等地部分地区有强降雨，18日起主雨带北抬，贵州、广西至江南等地有持续强降雨，各地需关注可能引发的山洪、地质灾害，以及对交通运输、农业生产、户外活动等的影响。
 
-在广州华侨博物馆，一场以电影《给阿嬷的情书》为主题的特展正在展出。
+东北、华北等地多雷阵雨，局地伴有雷暴大风等强对流天气，关注对交通、城市运行等影响。
 
-展览结合历史资料、影片美术道具及影视剧照，对相关历史场景进行还原。
+广东广西重庆等地有强降雨 6月13日以来，广西中东部、广东等地先后出现了暴雨到大暴雨，局地特大暴雨。
 
-“一舟赴番邦 赤手筑他乡” 近代中国内忧外患，民生多艰，无数潮汕男子被迫告别妻儿，远赴暹罗(今泰国)求生。
+6月17日8时至18日8时，广西中南部、广东大部、福建东南部以及重庆西部、贵州西部、云南东部等地部分地区有大到暴雨，其中，广西南部沿海、广东沿海、重庆西部等地部分地区有大暴雨，局地特大暴雨(250～350毫米)。
 
-他们从事最艰苦的劳作：修铁路、踩三轮、扛货物、做杂工。
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-用一身汗水化作家用，将异乡荒土建设成新城。
+中央气象台6月17日6时继续发布暴雨橙色预警。
 
-《给阿嬷的情书》中，阿公郑木生便是万千潮汕侨胞的缩影。
+18日起，强降雨带将北抬到江南北部至长江中下游沿江地区。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 13:19 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 13:07 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 12:53 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 12:51 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 13:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 13:12 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 13:13 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 12:58 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 12:50 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 13:13 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 13:12 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 13:12 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 13:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 13:17 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 13:14 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 13:11 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 13:18 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 13:24 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 13:21 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/899699.shtml)
-- 2026-06-29 12:55 - [爱情有烟火你是知道我爱看什么的](https://www.blog.minike.top/Article/details/12851668.shtml)
-- 2026-06-29 13:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/327832394.shtml)
-- 2026-06-29 13:07 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/28631816.shtml)
-- 2026-06-29 13:18 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/4131832.shtml)
-- 2026-06-29 13:00 - [送你一朵小红花](http://www.blog.minike.top/Article/details/4151919376.shtml)
-- 2026-06-29 12:52 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.kurohicncr.top/Article/details/5884035.shtml)
-- 2026-06-29 13:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/780595.shtml)
-- 2026-06-29 13:10 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.minike.top/Article/details/01823668690.shtml)
-- 2026-06-29 13:11 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/05975317.shtml)
-- 2026-06-29 12:59 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/25430805.shtml)
-- 2026-06-29 13:01 - [F1奥地利大奖赛正赛集锦](http://www.blog.minike.top/Article/details/24191.shtml)
-- 2026-06-29 12:55 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/6638719.shtml)
-- 2026-06-29 12:51 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/05326032701.shtml)
-- 2026-06-29 13:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/10913.shtml)
+- 2026-06-29 13:11 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/7705375413.shtml)
+- 2026-06-29 13:22 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/329616.shtml)
+- 2026-06-29 13:05 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/31531280.shtml)
+- 2026-06-29 13:19 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/46180625420.shtml)
+- 2026-06-29 13:12 - [毕业寄几百斤快递回家女生发声](https://www.blog.minike.top/Article/details/342684.shtml)
+- 2026-06-29 13:00 - [三轮车被自家狗“推”进池塘](http://www.share.kurohicncr.top/Article/details/309558292021.shtml)
+- 2026-06-29 13:01 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/362447422884.shtml)
+- 2026-06-29 13:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/96296818.shtml)
+- 2026-06-29 13:04 - [毒液2](https://www.blog.kurohicncr.top/Article/details/71648186930.shtml)
+- 2026-06-29 13:04 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/52506709.shtml)
+- 2026-06-29 13:21 - [女生雨天开车发现雨刮条被掰走](https://www.share.minike.top/Article/details/40435962628.shtml)
+- 2026-06-29 13:01 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/729363035870.shtml)
+- 2026-06-29 13:01 - [A股](http://www.blog.minike.top/Article/details/48455916172.shtml)
+- 2026-06-29 13:05 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/90761447.shtml)
+- 2026-06-29 13:03 - [速度与激情9](https://www.blog.minike.top/Article/details/322477092494.shtml)

@@ -1,60 +1,59 @@
-# 中国算力平台算力超市中小企业专区上线 提供普惠算力服务
+# 广东：以“高效办成一件事”重塑税费服务新体验
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中国算力平台算力超市中小企业专区上线 提供普惠算力服务 《人民日报》（2026年05月10日 第 02 版） 本报石家庄5月9日电 （记者邵玉姿）中国算力平台算力超市·中小企业专区9日上线，推行按“卡时”、“核时”及词元计费等多元化付费模式，支持中小企业通过跨区域、跨周期调度实现算力资源灵活取用。 专区围绕算力供需对接、行业场景赋能、政策补贴落地3个方向构建功能板块，为中小企业
+中新网广州6月16日电 (郭军 岳瑞轩)从“多窗往返”到“一窗通办”，从“纸质流转”到“全程网办”，从“跨境奔波”到“指尖办结”……记者16日从国家税务总局广东省税务局了解到，广东税务部门聚焦税费服务集成、业务协同和数智赋能，推出一系列便民创新举措，推动办税缴费从“多头跑、多次跑、纸质办”向“一窗办、数据跑、掌上办、跨境办”转变，以税费服务提质增效赋能营商环境优化。 “我工作在
 
 ## 正文
 
-中国算力平台算力超市中小企业专区上线 提供普惠算力服务 《人民日报》（2026年05月10日 第 02 版） 本报石家庄5月9日电 （记者邵玉姿）中国算力平台算力超市·中小企业专区9日上线，推行按“卡时”、“核时”及词元计费等多元化付费模式，支持中小企业通过跨区域、跨周期调度实现算力资源灵活取用。
+中新网广州6月16日电 (郭军 岳瑞轩)从“多窗往返”到“一窗通办”，从“纸质流转”到“全程网办”，从“跨境奔波”到“指尖办结”……记者16日从国家税务总局广东省税务局了解到，广东税务部门聚焦税费服务集成、业务协同和数智赋能，推出一系列便民创新举措，推动办税缴费从“多头跑、多次跑、纸质办”向“一窗办、数据跑、掌上办、跨境办”转变，以税费服务提质增效赋能营商环境优化。
 
-专区围绕算力供需对接、行业场景赋能、政策补贴落地3个方向构建功能板块，为中小企业提供普惠算力服务。
+“我工作在澳门，居住在内地。
 
-其中，供需匹配板块，专区汇聚多元算力资源、先进模型能力与专业服务力量，通过“模创空间”“算力底座”等路径，实现算力资源一站式采购、模型开箱即用、训推环境快速部署。
+原本以为办理社保会很麻烦，没想到税务部门告知可以通过电子税务局在线办理粤澳两地社保业务。
 
-同时，专区建立大中小企业“1+N”结对帮扶机制，推动大型企业将闲置算力与专业技术经验精准赋能中小企业，形成以大带小、协同发展的良性生态。
+我试了试，很快就办好了。
 
-当日，2026普惠算力赋能中小企业发展大会在河北雄安新区举办。
+”澳门居民张涛在电子税务局先后办理了澳门央积金供款(澳门社会保障公共服务事项)和内地个人社保缴款，体验了粤澳政务服务一体化的高效与便捷。
 
-本次大会以“算力惠企 智启中小”为主题，由中国通信标准化协会主办、中国信息通信研究院承办。
+目前，每年像张涛一样在珠海参保的澳门居民超过7万人。
 
-来自产业链上下游的企业代表围绕高性能存储、存算协同、算网融合、大模型算力等前沿议题展开交流，探索普惠算力赋能中小企业发展的创新路径与实践方案。
+这一便捷体验的背后，是粤澳两地持续深化规则衔接、机制对接的积极探索。
 
-责任编辑：石秀珍 SF183
+围绕跨境一体化服务，广东税务部门将“跨境通办”事项清单迭代为“跨境无忧”系列场景，依托广东电子税务局，新增澳门社保业务栏目，一网通办广东76项和澳门31项社保服务，澳门社保办理时长压缩80%以上，构建起立体集成互通的粤澳社保跨境服务体系。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 13:01 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 13:18 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 13:13 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 13:14 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 12:56 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 12:59 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 12:50 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 12:52 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 12:51 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 13:09 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 13:07 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 13:13 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 13:16 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 13:02 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 13:12 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 13:08 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 13:10 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 13:13 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 13:18 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 13:18 - [大罗力挺内马尔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 13:00 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 13:12 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 13:10 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 13:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 13:17 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 13:17 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/001463175719.shtml)
-- 2026-06-29 13:11 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/68593193.shtml)
-- 2026-06-29 13:10 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/769512.shtml)
-- 2026-06-29 13:00 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/365658343.shtml)
-- 2026-06-29 12:53 - [双高胎](http://www.share.minike.top/Article/details/25189.shtml)
-- 2026-06-29 12:51 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/23738.shtml)
-- 2026-06-29 13:14 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/567535939045.shtml)
-- 2026-06-29 13:10 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/28485774879.shtml)
-- 2026-06-29 13:16 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/06856135536.shtml)
-- 2026-06-29 13:08 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/0303438.shtml)
-- 2026-06-29 12:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/749888321.shtml)
-- 2026-06-29 13:10 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/54855969942.shtml)
-- 2026-06-29 12:58 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/59210.shtml)
-- 2026-06-29 13:07 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/6614571.shtml)
-- 2026-06-29 13:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/44273.shtml)
+- 2026-06-29 13:01 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/26652.shtml)
+- 2026-06-29 13:12 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/6453056.shtml)
+- 2026-06-29 13:28 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/3409996999.shtml)
+- 2026-06-29 13:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/6852000.shtml)
+- 2026-06-29 13:21 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/77021.shtml)
+- 2026-06-29 13:14 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.minike.top/Article/details/31935128.shtml)
+- 2026-06-29 13:27 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/18824722829.shtml)
+- 2026-06-29 13:27 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/550932496.shtml)
+- 2026-06-29 13:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/254895072959.shtml)
+- 2026-06-29 13:15 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/594901101.shtml)
+- 2026-06-29 13:05 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/931177.shtml)
+- 2026-06-29 13:14 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/460535687494.shtml)
+- 2026-06-29 13:09 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/12792.shtml)
+- 2026-06-29 13:27 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.share.minike.top/Article/details/1665427707.shtml)
+- 2026-06-29 13:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/65785007.shtml)

@@ -1,60 +1,56 @@
-# 德国商业银行高管表态：在意大利裕信银行收购博弈中捍卫股东权益
+# 专家称中国服务外包从“拼人力”转为“拼技术”
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 德国商业银行表示，对于意大利裕信银行试图增持股份、谋求取得这家德国同业控股权的举动，该行仍愿意与其展开磋商。 但该行首席执行官贝蒂娜・奥洛普称，收购方必须给出合理收购溢价，匹配本行具备发展前景的商业模式价值。 这家德国银行于周五公布一季度营业利润达 13.6 亿欧元。 德国商业银行首席执行官贝蒂娜・奥洛普周五表示，在与意大利裕信银
+中新网武汉6月16日电 (记者 武一力)第十五届中国国际服务外包交易博览会16日在武汉开幕。中国国际投资促进会会长房爱卿在开幕式上表示，在人工智能迅猛发展的今天，中国服务外包产业加速从“拼人力”跃升为“拼技术”。今年是中国服务外包“千百十”工程启动实施20周年。中国国际投资促进会数据显示，2006年至2025年，中国服务外包产业合同执行额从13.8亿美元激增至3032.4亿美元
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 德国商业银行表示，对于意大利裕信银行试图增持股份、谋求取得这家德国同业控股权的举动，该行仍愿意与其展开磋商。
+中新网武汉6月16日电 (记者 武一力)第十五届中国国际服务外包交易博览会16日在武汉开幕。
 
-但该行首席执行官贝蒂娜・奥洛普称，收购方必须给出合理收购溢价，匹配本行具备发展前景的商业模式价值。
+中国国际投资促进会会长房爱卿在开幕式上表示，在人工智能迅猛发展的今天，中国服务外包产业加速从“拼人力”跃升为“拼技术”。
 
-这家德国银行于周五公布一季度营业利润达 13.6 亿欧元。
+今年是中国服务外包“千百十”工程启动实施20周年。
 
-德国商业银行首席执行官贝蒂娜・奥洛普周五表示，在与意大利裕信银行持续的收购争夺战中，该行将全力维护股东利益。
+中国国际投资促进会数据显示，2006年至2025年，中国服务外包产业合同执行额从13.8亿美元激增至3032.4亿美元；市场主体从约500家扩容至9万余家；从业人员从不足6万人攀升至1765.5万人；业务范围覆盖近200个国家和地区。
 
-奥洛普做客美国消费者新闻与商业频道《欧洲财经早间秀》节目时称，德国商业银行并不拒绝与裕信银行继续谈判，但她强调，这家总部位于米兰的银行在新一轮洽谈中，必须认可德商银行稳健且具备成长性的独立经营战略优势。
+房爱卿指出，中国服务外包产业已不单是帮助企业降本增效的“战术工具”，更是驱动企业智能转型、价值创造的引擎，呈现三大发展趋势：数智化推动业务向研发外包、工业设计等高附加值领域跃升；绿色化赋能全行业低碳转型，成为新的核心竞争力；融合化打破产业边界，“服务外包+”模式持续释放增长动能。
 
-德国商业银行一季度财报显示，当期营业利润达 13.6 亿欧元（折合 16 亿美元）；同时设定目标：到 2030 年有形股本净回报率达到 21%，预计 2026 年净利息收入约 86 亿欧元。
+中国宏观经济研究院研究员张燕生认为，中国发展人工智能服务外包具备独特优势：超大规模终端市场为人工智能应用提供了丰富的落地场景，完备的产业体系支撑人工智能解决方案快速迭代，产业化工程化能力突出。
 
-为达成业绩目标，该行还计划裁员约 3000 人。
+未来，企业应依托人工智能技术加快向知识密集、技术密集的高端服务升级，凭借“人工智能+产业”的差异化方案参与全球服务分工。
 
-早盘交易时段，德国商业银行股价下跌 2.6%，裕信银行股价下跌 1.9%。
+“未来5年至10年，中国服务外包产业有望完成从‘世界工厂’向高端‘世界办公室’的关键一跃。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-29 13:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 12:51 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 12:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 13:16 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 13:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 13:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 13:09 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 12:53 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 13:04 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 13:19 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 12:55 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 12:54 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 13:16 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 13:18 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 13:02 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 13:12 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 13:09 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 13:25 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 13:00 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 13:02 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 13:17 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:23 - [我们注定是一撮县城葱姜蒜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 13:11 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [初心如磐 红色足迹](http://www.blog.minike.top/Article/details/49602.shtml)
-- 2026-06-29 12:52 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/6973499.shtml)
-- 2026-06-29 13:06 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/26891.shtml)
-- 2026-06-29 12:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/676807428.shtml)
-- 2026-06-29 12:55 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/75874480.shtml)
-- 2026-06-29 12:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/735370.shtml)
-- 2026-06-29 12:50 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/254026250.shtml)
-- 2026-06-29 13:10 - [韩国队启程回国众将回避镜头](http://www.share.minike.top/Article/details/361588060.shtml)
-- 2026-06-29 12:54 - [埃博拉为何再次袭击非洲](https://www.share.minike.top/Article/details/754589.shtml)
-- 2026-06-29 13:12 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/22166.shtml)
-- 2026-06-29 12:52 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/9065265.shtml)
-- 2026-06-29 13:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/029561740.shtml)
-- 2026-06-29 12:59 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/4115715.shtml)
-- 2026-06-29 12:58 - [女心理师](http://www.share.minike.top/Article/details/072836078243.shtml)
-- 2026-06-29 12:53 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/64116171820.shtml)
+- 2026-06-29 13:05 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/20539575.shtml)
+- 2026-06-29 13:23 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/171406075.shtml)
+- 2026-06-29 13:28 - [2025年人口增长10强城市出炉](https://www.blog.minike.top/Article/details/1018202.shtml)
+- 2026-06-29 13:15 - [林诗栋晋级WTT美国大满贯男单32强](http://www.blog.minike.top/Article/details/275393311.shtml)
+- 2026-06-29 13:16 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.kurohicncr.top/Article/details/5729576863.shtml)
+- 2026-06-29 13:24 - [乌拉圭出局之路](https://www.blog.minike.top/Article/details/682089.shtml)
+- 2026-06-29 13:17 - [普京称俄处于命运攸关之际](http://www.blog.minike.top/Article/details/53859810.shtml)
+- 2026-06-29 13:23 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/530717658685.shtml)
+- 2026-06-29 13:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/27523386567.shtml)
+- 2026-06-29 13:01 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/841843.shtml)
+- 2026-06-29 13:24 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/64254.shtml)
+- 2026-06-29 13:06 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/42664602256.shtml)
+- 2026-06-29 13:22 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/81588.shtml)
+- 2026-06-29 13:24 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/8109630.shtml)
+- 2026-06-29 13:08 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/6276072.shtml)

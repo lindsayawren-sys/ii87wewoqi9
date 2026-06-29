@@ -1,60 +1,58 @@
-# 英超俱乐部伯恩茅斯调查社交媒体帖文，希门尼斯暂被移出阵容
+# 青海：多项核心技术保护冬虫夏草种质资源
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-英超俱乐部伯恩茅斯周四宣布，前锋劳尔·希门尼斯因社交媒体上出现的“可能具有冒犯性的历史帖文”而被暂时移出球队阵容，俱乐部已对此展开内部调查。 事件经过 伯恩茅斯在声明中表示，俱乐部获悉近日流传的与希门尼斯相关的社交媒体历史内容后，决定立即将他从一线队阵容中撤下，直至调查完成。俱乐部强调“高度重视所有球员和工作人员的言行责任”，并将全力配合相关机构核查事实。 31岁的希门尼斯于2
+中新网青海玉树6月16日电 (记者 孙睿)青海省科技厅16日在青海冬虫夏草推介暨玉树“鲜草季”系列活动中对外公布冬虫夏草科技创新与资源保护工作进展。当地持续加大科研扶持力度，同时严防盗种、基因污染等风险，保障高原道地冬虫夏草资源永续发展。 “十四五”期间，青海省科技厅组织冬虫夏草相关省级科技计划项目5项，累计支持经费近1600万元。 据介绍，青海省科研团队建立了冬虫夏草生态抚育
 
 ## 正文
 
-英超俱乐部伯恩茅斯周四宣布，前锋劳尔·希门尼斯因社交媒体上出现的“可能具有冒犯性的历史帖文”而被暂时移出球队阵容，俱乐部已对此展开内部调查。
+中新网青海玉树6月16日电 (记者 孙睿)青海省科技厅16日在青海冬虫夏草推介暨玉树“鲜草季”系列活动中对外公布冬虫夏草科技创新与资源保护工作进展。
 
-事件经过 伯恩茅斯在声明中表示，俱乐部获悉近日流传的与希门尼斯相关的社交媒体历史内容后，决定立即将他从一线队阵容中撤下，直至调查完成。
+当地持续加大科研扶持力度，同时严防盗种、基因污染等风险，保障高原道地冬虫夏草资源永续发展。
 
-俱乐部强调“高度重视所有球员和工作人员的言行责任”，并将全力配合相关机构核查事实。
+“十四五”期间，青海省科技厅组织冬虫夏草相关省级科技计划项目5项，累计支持经费近1600万元。
 
-31岁的希门尼斯于2024年夏天从富勒姆自由转会加盟伯恩茅斯，本赛季代表球队出场30次，贡献7球3助攻，是球队保级路上的重要球员。
+据介绍，青海省科研团队建立了冬虫夏草生态抚育技术，在不破坏原有生态环境的前提下，通过冬虫夏草繁育所需环境的保护和恢复，增加“菌-虫-草”资源，从而增加野生环境中冬虫夏草数量，实现青海道地冬虫夏草资源抚育；同时突破了野生与人工冬虫夏草的鉴别技术，建立了覆盖“光谱学-化学-影像学-遗传学”的四维冬虫夏草鉴定方法，解决了野生与人工繁育冬虫夏草鉴定技术难题；还建立了冬虫夏草追溯码系统，研究开发了野生、野生抚版、人工3个版本的溯源码。
 
-他因伤缺席了最近两场比赛，但此前一直在随队训练。
+浙江、上海等地科研机构、企业在青海省畜牧兽医科学院、珠峰药业等成果基础上，通过优化培养基配方，实现了冬虫夏草菌菌丝体的高密度发酵，满足《中国药典》冬虫夏草腺苷含量最低要求。
 
-球员回应 希门尼斯通过个人社交媒体发文表示，他“从未有意冒犯任何群体”，并对由此引发的混乱表示遗憾。
+为守住技术与资源优势，青海省科技厅将进一步加强冬虫夏草菌虫品种保护研究和加快野生和人工冬虫夏草鉴别研究。
 
-“有些内容发布于多年前，被断章取义或脱离原始语境传播。
-
-我愿意配合俱乐部的任何调查，澄清事实。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 13:13 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 13:00 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 13:07 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:52 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-29 12:56 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 13:01 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 13:18 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 13:04 - [加拿大92分钟绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 13:15 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 12:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 13:13 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 12:58 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:21 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 13:05 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 13:23 - [韩红携4000万物资抵呼和浩特](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 13:24 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 13:06 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 13:12 - [乌拉圭出局之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 13:22 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 13:08 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 13:06 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 13:25 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 13:12 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 13:28 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 13:17 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:03 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.kurohicncr.top/Article/details/3145830319.shtml)
-- 2026-06-29 13:07 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/566473185590.shtml)
-- 2026-06-29 13:08 - [我们注定是一撮县城葱姜蒜](https://www.blog.kurohicncr.top/Article/details/110026179.shtml)
-- 2026-06-29 13:12 - [网友偶遇胡军和李乃文](http://www.share.kurohicncr.top/Article/details/945407531218.shtml)
-- 2026-06-29 13:04 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.minike.top/Article/details/2179071.shtml)
-- 2026-06-29 12:52 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/287106225.shtml)
-- 2026-06-29 13:08 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/285967.shtml)
-- 2026-06-29 13:12 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/4686806617.shtml)
-- 2026-06-29 12:57 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/784593.shtml)
-- 2026-06-29 13:15 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.kurohicncr.top/Article/details/632832637693.shtml)
-- 2026-06-29 13:11 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/01892.shtml)
-- 2026-06-29 13:03 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/48179510450.shtml)
-- 2026-06-29 13:00 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/0261875596.shtml)
-- 2026-06-29 13:02 - [女心理师](https://www.share.minike.top/Article/details/89656.shtml)
-- 2026-06-29 13:15 - [白鹿呵呵挽手比心](http://www.blog.minike.top/Article/details/7337695500.shtml)
+- 2026-06-29 13:17 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/20960991.shtml)
+- 2026-06-29 13:10 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/0102948.shtml)
+- 2026-06-29 13:14 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/94271937414.shtml)
+- 2026-06-29 13:10 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/449894733.shtml)
+- 2026-06-29 13:22 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/034313.shtml)
+- 2026-06-29 13:28 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/57347687041.shtml)
+- 2026-06-29 13:25 - [国乒全主力参加美国大满贯](http://www.blog.minike.top/Article/details/478874201633.shtml)
+- 2026-06-29 13:07 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/32515603.shtml)
+- 2026-06-29 13:05 - [乔家的儿女](https://www.blog.minike.top/Article/details/70897.shtml)
+- 2026-06-29 13:00 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/22731151879.shtml)
+- 2026-06-29 13:01 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/422449.shtml)
+- 2026-06-29 13:15 - [张真源解读相思锁](https://www.share.kurohicncr.top/Article/details/280431747.shtml)
+- 2026-06-29 13:29 - [欧洲热死人不是开玩笑](https://www.blog.kurohicncr.top/Article/details/749114.shtml)
+- 2026-06-29 13:16 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/2839908.shtml)
+- 2026-06-29 13:06 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/706748372.shtml)

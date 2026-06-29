@@ -1,60 +1,54 @@
-# 合合信息梁子攸：可信金融智能体——以多模态文档解析与商业大数据构筑专业壁垒
+# 北京通惠河畔竞舟逐浪 2026“京杭大运河”皮划艇马拉松系列赛开赛
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。合合信息智能解决方案事业部解决方案专家梁子攸出席并以《可信金融智能体：以多模态文档解析与商业大数据构筑专业壁垒》为题发表演讲。 以下为演讲实录： 梁子攸：尊敬的各位领导、各位来宾，大家下午好，我是来自合合信息智能解决方案事业部解决方案的梁子攸，今天下午听到了很多专家和行业
+发布时间：2026年06月15日 23:20 来源：中国新闻网 6月15日，2026年“京杭大运河”皮划艇马拉松系列赛(北京·高碑店站)开幕式在朝阳区高碑店乡半壁店村通惠河畔举行。作为“大运河文旅消费季系列活动”的重要板块、2026年北京CBD论坛年会的分会场，本次活动以“国际会客厅 潮起通惠河”为主题，以文化聚势、以体育会友，迎接八方来客。 北京市朝阳区高碑店乡半壁店村党总支
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
+发布时间：2026年06月15日 23:20 来源：中国新闻网 6月15日，2026年“京杭大运河”皮划艇马拉松系列赛(北京·高碑店站)开幕式在朝阳区高碑店乡半壁店村通惠河畔举行。
 
-合合信息智能解决方案事业部解决方案专家梁子攸出席并以《可信金融智能体：以多模态文档解析与商业大数据构筑专业壁垒》为题发表演讲。
+作为“大运河文旅消费季系列活动”的重要板块、2026年北京CBD论坛年会的分会场，本次活动以“国际会客厅 潮起通惠河”为主题，以文化聚势、以体育会友，迎接八方来客。
 
-以下为演讲实录： 梁子攸：尊敬的各位领导、各位来宾，大家下午好，我是来自合合信息智能解决方案事业部解决方案的梁子攸，今天下午听到了很多专家和行业老师做的分享，我今天分享的主题是《可信金融智能体：以多模态文档解析与商业大数据构筑专业壁垒》。
+北京市朝阳区高碑店乡半壁店村党总支书记陈洋介绍，活动期间，6月14日至16日举行皮划艇马拉松系列赛、14日至18日开启运河市集、18日将举行第六届大运河龙舟友谊赛暨端午节龙舟全民水上体验日、19日将举行2026首都高校龙舟邀请赛，打造集国家级水上赛事、端午龙舟文化体验、中外交流、运河市集于一体的“文商旅体展”融合盛会。
 
-作为一家科技公司，刚才大家都已经提到了AI的进展越来越快，技术发展越来越快，到底会对我们的行业产生什么样的影响？
+陈洋表示，通过借助通惠河的水面资源，打造差异化节庆活动，提升通惠河岸边经济的活力，并希望借此活动，“向全世界展示近年来首都的乡村在治理运河生态体现的一些直观成效。
 
-刚才各位专家都已经总结了很多，我不做过多的赘述。
-
-我换一个视角，作为一家科技公司，对金融行业提供了大量的支撑和相关能力的落地，我们到底是怎么看待AI和行业现在的关系？
-
-我们总结了三个点： 一是从工具走向业务，我相信大家对我们有了解，应该知道合合信息原来是做OCR起家的，有很多客户一开始就买我们的识别能力，我们在系统建设和信息化、数字化转型之中的其中一个基础能力，其实在这个过程中，我们就发现了，在这个业务流中，购买我们的OCR能力的客户，到底要识别之后去做什么？
-
-看的核心内容到底和你的业务是怎么样的挂钩？
+”(记者 董泽宇) 责任编辑：【曲克】
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 13:18 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 13:04 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 13:01 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 13:03 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 12:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:00 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 13:01 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 13:00 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 13:17 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 13:06 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 12:55 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 13:16 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 13:00 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:27 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 13:28 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 13:09 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 13:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 13:12 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 13:03 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 13:20 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 13:22 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 13:03 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 13:19 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 13:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 13:19 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 13:07 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 13:20 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:58 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/430849.shtml)
-- 2026-06-29 13:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/05822.shtml)
-- 2026-06-29 13:13 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.kurohicncr.top/Article/details/23981.shtml)
-- 2026-06-29 13:11 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/0627351.shtml)
-- 2026-06-29 12:55 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/631857719265.shtml)
-- 2026-06-29 12:50 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/63659.shtml)
-- 2026-06-29 12:58 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/430612259.shtml)
-- 2026-06-29 13:19 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/067874084.shtml)
-- 2026-06-29 13:04 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/2030964887.shtml)
-- 2026-06-29 13:00 - [大罗力挺内马尔](http://www.blog.minike.top/Article/details/07009792755.shtml)
-- 2026-06-29 12:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/3150958989.shtml)
-- 2026-06-29 13:13 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/05021.shtml)
-- 2026-06-29 13:10 - [广州某高校辟谣禁止小米汽车入校](https://www.share.minike.top/Article/details/8005858942.shtml)
-- 2026-06-29 13:07 - [小娘惹](http://www.share.minike.top/Article/details/050162407.shtml)
-- 2026-06-29 13:05 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/74219552.shtml)
+- 2026-06-29 13:08 - [6月我国降水为何偏多](http://www.blog.minike.top/Article/details/99188410219.shtml)
+- 2026-06-29 13:08 - [2026年Mac能玩游戏了吗](https://www.blog.minike.top/Article/details/656359657.shtml)
+- 2026-06-29 13:23 - [强⁶](https://www.blog.kurohicncr.top/Article/details/36647067.shtml)
+- 2026-06-29 13:03 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/306307711.shtml)
+- 2026-06-29 13:27 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/741582185.shtml)
+- 2026-06-29 13:08 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/479697.shtml)
+- 2026-06-29 13:11 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/414621203405.shtml)
+- 2026-06-29 13:11 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/39242079059.shtml)
+- 2026-06-29 13:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/516749.shtml)
+- 2026-06-29 13:23 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/815283120.shtml)
+- 2026-06-29 13:13 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/8578059146.shtml)
+- 2026-06-29 13:10 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/472547364.shtml)
+- 2026-06-29 13:13 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/913719464793.shtml)
+- 2026-06-29 13:20 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/722006.shtml)
+- 2026-06-29 13:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/30396549077.shtml)

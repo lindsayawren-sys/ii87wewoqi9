@@ -1,59 +1,58 @@
-# 上海将承办2028年奥运会资格系列赛
+# 缅甸侨领林文猛的东盟华商会之行：赴商约 叙情谊
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网上海5月8日电 (记者 缪璐)国际奥委会7日宣布，中国上海、日本东京、加拿大蒙特利尔、美国奥兰多将分别承办一站2028年洛杉矶奥运会资格系列赛，举办时间为2028年5月至6月。这是继2024年巴黎奥运会资格系列赛后，该项赛事再次落户上海。其中，资格系列赛将于2028年5月4日至7日在东京举行第一站；2028年5月11日至14日登陆上海；2028年6月1日至4日前往蒙特利尔
+中新网昆明6月16日电 题：缅甸侨领林文猛的东盟华商会之行：赴商约 叙情谊 作者 陆希成 陈静 6月16日，第22届东盟华商会在云南省省会昆明市开幕。茶歇时，一位精神矍铄的长者刚步入会场，便有人隔着圆桌招手——“林会长来了”。年近七旬的缅甸侨领林文猛微笑颔首，握手、寒暄，像赴一场相熟多年的老友之约。 林文猛现任缅甸中华总商会会长、福兴兄弟集团董事长。1948年，其父自中国福建赴
 
 ## 正文
 
-中新网上海5月8日电 (记者 缪璐)国际奥委会7日宣布，中国上海、日本东京、加拿大蒙特利尔、美国奥兰多将分别承办一站2028年洛杉矶奥运会资格系列赛，举办时间为2028年5月至6月。
+中新网昆明6月16日电 题：缅甸侨领林文猛的东盟华商会之行：赴商约 叙情谊 作者 陆希成 陈静 6月16日，第22届东盟华商会在云南省省会昆明市开幕。
 
-这是继2024年巴黎奥运会资格系列赛后，该项赛事再次落户上海。
+茶歇时，一位精神矍铄的长者刚步入会场，便有人隔着圆桌招手——“林会长来了”。
 
-其中，资格系列赛将于2028年5月4日至7日在东京举行第一站；2028年5月11日至14日登陆上海；2028年6月1日至4日前往蒙特利尔；2028年6月8日至11日在奥兰多收官。
+年近七旬的缅甸侨领林文猛微笑颔首，握手、寒暄，像赴一场相熟多年的老友之约。
 
-每站赛事的具体项目设置还待确认，目前计划设项包括三人篮球、沙滩排球、自由式小轮车、攀岩、腰旗橄榄球和滑板。
+林文猛现任缅甸中华总商会会长、福兴兄弟集团董事长。
 
-其中，自由式小轮车、攀岩和滑板是2024年首届奥运会资格系列赛项目，三人篮球、沙滩排球和腰旗橄榄球则是新加入的项目。
+1948年，其父自中国福建赴缅甸经商；十年后，他在缅甸出生，少年时回中国求学，学成返缅，于1988年创立福兴兄弟集团。
 
-为在奥运会举办的十几天之外持续保持奥林匹克运动的热度，并吸引更多青年人的关注，国际奥委会在巴黎奥运周期创办了奥运会资格系列赛。
+如今他仍每年多次往返中缅。
 
-创立这一赛事，也是奥林匹克运动改革路线图《奥林匹克2020+5议程》中的一项重要举措。
+在林文猛看来，年年如约而至的东盟华商会，恰如中缅经贸往来——一年热过一年，一程近过一程。
 
-国际奥委会主席柯丝蒂·考文垂说：“本届资格系列赛是通往洛杉矶奥运会道路上一项激动人心的全球赛事。
+他回忆，早年大家多关注农业、旅游；这两年，话题一路延伸到低空经济、绿色能源等新赛道，高新科技成色越来越足。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 12:50 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 13:13 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 13:10 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 12:53 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 13:09 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 12:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 13:07 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 12:53 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 13:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 13:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 12:59 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 13:29 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 13:21 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:02 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 13:26 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 13:22 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 13:29 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 13:17 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 13:18 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 13:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 13:04 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 13:18 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 13:17 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/9310130637.shtml)
-- 2026-06-29 12:57 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/6044102127.shtml)
-- 2026-06-29 13:10 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/708328859.shtml)
-- 2026-06-29 12:55 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.minike.top/Article/details/831323397744.shtml)
-- 2026-06-29 13:18 - [詹姆斯下赛季会在哪里](http://www.share.minike.top/Article/details/96063.shtml)
-- 2026-06-29 13:03 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/16534560.shtml)
-- 2026-06-29 13:10 - [去美国加油？部分加拿大球迷陷入纠结](http://www.blog.kurohicncr.top/Article/details/62908597.shtml)
-- 2026-06-29 13:17 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/37560.shtml)
-- 2026-06-29 12:59 - [千与千寻](https://www.share.kurohicncr.top/Article/details/8367345869.shtml)
-- 2026-06-29 13:09 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/0356726.shtml)
-- 2026-06-29 13:11 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.minike.top/Article/details/886028852.shtml)
-- 2026-06-29 13:06 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/6620339923.shtml)
-- 2026-06-29 13:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/876096.shtml)
-- 2026-06-29 12:51 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/462843449564.shtml)
-- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.kurohicncr.top/Article/details/3484338.shtml)
+- 2026-06-29 13:20 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/5485877.shtml)
+- 2026-06-29 13:01 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/52639856993.shtml)
+- 2026-06-29 13:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/576037711.shtml)
+- 2026-06-29 13:01 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/55787660442.shtml)
+- 2026-06-29 13:01 - [韩媒破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/32579.shtml)
+- 2026-06-29 13:04 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/71804420.shtml)
+- 2026-06-29 13:07 - [时光音乐会](http://www.blog.minike.top/Article/details/64579272.shtml)
+- 2026-06-29 13:07 - [民进党为什么拼命抹黑统战](http://www.blog.minike.top/Article/details/54421.shtml)
+- 2026-06-29 13:21 - [世界杯打成了欧洲杯和美洲杯](https://www.share.minike.top/Article/details/52026782.shtml)
+- 2026-06-29 13:25 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/0342343.shtml)
+- 2026-06-29 13:29 - [亚洲成世界杯最大失意者联盟](http://www.share.minike.top/Article/details/331003.shtml)
+- 2026-06-29 13:13 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/30625823.shtml)
+- 2026-06-29 13:14 - [白鹿呵呵挽手比心](https://www.share.kurohicncr.top/Article/details/652329.shtml)
+- 2026-06-29 13:24 - [严浩翔FIY断层第一](http://www.share.kurohicncr.top/Article/details/52972198361.shtml)
+- 2026-06-29 13:05 - [扬名立万](https://www.blog.minike.top/Article/details/246711146.shtml)

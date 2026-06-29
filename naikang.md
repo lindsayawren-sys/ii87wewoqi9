@@ -1,54 +1,60 @@
-# 特朗普：与伊朗的停火依然有效
+# 高盛下调油价预测，因美伊达成协议有望重开霍尔木兹海峡
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普告诉美国广播公司（ABC），“停火在进行。已经生效了。” ABC记者在X上发布对特朗普的电话采访。 他告诉ABC，对伊朗目标的报复性打击不过是“轻轻一碰”。责任编辑：陈钰嘉
+高盛将第四季布伦特原油价格预测从之前的90美元下调至80美元，并将2027年布伦特原油平均价格预测从80美元下调至75美元，此前美国与伊朗签署了一项初步协议以重开霍尔木兹海峡。 这家投行的分析师在周一晚间发布的研究报告中表示，目前预计海湾地区的原油出口将在7月底前恢复至战前水平，而此前预期为8月底。 油价周二回落，此前在美国总统特朗普表示已签署谅解备忘录以结束美以与伊朗的冲突后
 
 ## 正文
 
-美国总统特朗普告诉美国广播公司（ABC），“停火在进行。
+高盛将第四季布伦特原油价格预测从之前的90美元下调至80美元，并将2027年布伦特原油平均价格预测从80美元下调至75美元，此前美国与伊朗签署了一项初步协议以重开霍尔木兹海峡。
 
-已经生效了。
+这家投行的分析师在周一晚间发布的研究报告中表示，目前预计海湾地区的原油出口将在7月底前恢复至战前水平，而此前预期为8月底。
 
-” ABC记者在X上发布对特朗普的电话采访。
+油价周二回落，此前在美国总统特朗普表示已签署谅解备忘录以结束美以与伊朗的冲突后，油价一度下跌近5%，至3月10日以来的最低水平。
 
-他告诉ABC，对伊朗目标的报复性打击不过是“轻轻一碰”。
+这场冲突导致霍尔木兹海峡基本关闭。
 
-责任编辑：陈钰嘉
+在冲突之前，全球约五分之一的石油及液化天然气需经该海峡运输，其关闭导致每日约1400万桶产量被迫中断。
+
+高盛预计，WTI期货今年第四季度均价为75美元，2027年均价为70美元。
+
+该行还预计，随着可负担性改善，2026年下半年至2027年期间需求复苏将略有增强。
+
+高盛表示，中东石油供应前景面临双向风险，并指出，如果霍尔木兹海峡运输量较当前水平增加1200万桶/日，海湾产油国的出口有望恢复至战前水平。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 13:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 12:57 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 12:54 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 13:16 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 13:10 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 12:55 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 13:08 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 13:14 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 12:55 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 12:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 13:06 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 13:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 13:12 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 13:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 13:08 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 13:20 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 13:29 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 13:07 - [医护人员观影《四渡》传承长征精神](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 13:26 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 13:20 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-29 13:14 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 13:00 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 13:27 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 13:08 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 13:06 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:12 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 13:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:03 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/64623554.shtml)
-- 2026-06-29 12:50 - [黄金大跌带崩“黄金爱马仕”老铺黄金](http://www.share.kurohicncr.top/Article/details/9079649.shtml)
-- 2026-06-29 13:19 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/000964932231.shtml)
-- 2026-06-29 13:16 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/5994463296.shtml)
-- 2026-06-29 13:12 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/3880488.shtml)
-- 2026-06-29 13:06 - [欧洲极端高温东扩](http://www.blog.minike.top/Article/details/57011863.shtml)
-- 2026-06-29 13:07 - [游戏数据竟被用于军事目的](http://www.share.minike.top/Article/details/4824945919.shtml)
-- 2026-06-29 12:53 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/481814.shtml)
-- 2026-06-29 13:02 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/638456.shtml)
-- 2026-06-29 13:03 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/9295742535.shtml)
-- 2026-06-29 13:01 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/61818161.shtml)
-- 2026-06-29 13:04 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/829729492052.shtml)
-- 2026-06-29 12:55 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/684145168.shtml)
-- 2026-06-29 13:12 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/978135.shtml)
-- 2026-06-29 13:10 - [女心理师](https://www.blog.minike.top/Article/details/805999.shtml)
+- 2026-06-29 13:28 - [女心理师](https://www.blog.kurohicncr.top/Article/details/998688.shtml)
+- 2026-06-29 13:22 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/24754.shtml)
+- 2026-06-29 13:27 - [网友偶遇胡军和李乃文](https://www.blog.minike.top/Article/details/310301056.shtml)
+- 2026-06-29 13:26 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/2507266.shtml)
+- 2026-06-29 13:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/902347.shtml)
+- 2026-06-29 13:15 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/919357065794.shtml)
+- 2026-06-29 13:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/225399566.shtml)
+- 2026-06-29 13:05 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/442611008.shtml)
+- 2026-06-29 13:09 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/26150382.shtml)
+- 2026-06-29 13:18 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/46361.shtml)
+- 2026-06-29 13:09 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/26562855.shtml)
+- 2026-06-29 13:13 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/357231858.shtml)
+- 2026-06-29 13:28 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/87865.shtml)
+- 2026-06-29 13:00 - [谢霆锋演唱会变大型呲水现场](http://www.blog.minike.top/Article/details/28669.shtml)
+- 2026-06-29 13:29 - [大罗力挺内马尔](https://www.share.kurohicncr.top/Article/details/54411985277.shtml)

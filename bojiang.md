@@ -1,58 +1,61 @@
-# 一季报证伪“模型吞噬”，美图本周涨超25%
+# 铅锂并行拓新局、智造循环双发力 天能引领轻型动力电池产业新高度
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-5月8日下午消息，近日，美图公布2026年第一季度业务数据。数据公布后，美图股价今日一度涨超15%，最高报5.48港元，成交额超10亿。近5个交易日内，美图股价涨超25%。 公告显示，截至2026年3月，美图公司付费订阅用户数同比增长30.2%至超1790万，影像与设计产品收入8.52亿元，同比增长34.3%。此外，美图首次披露，截至2026年3月，其AI生产力应用 ARR 约
+6月15日，“聚力向上，开启新纪元”天能新能源2026年度榜样共赢商暨全球战略新品首发盛典在重庆启幕。恰逢天能集团创立四十周年，此次集中亮出技术、产品、制造、全球化四大板块全新布局，也清晰勾勒出中国轻型动力电池产业告别低价内卷、转向价值竞争、加速全球突围的全新发展脉络。 历经四十年深耕，天能从传统铅蓄电池作坊起步，如今已搭建起锂电、氢能、钠电、固态电池协同发展的多元技术矩阵，形
 
 ## 正文
 
-5月8日下午消息，近日，美图公布2026年第一季度业务数据。
+6月15日，“聚力向上，开启新纪元”天能新能源2026年度榜样共赢商暨全球战略新品首发盛典在重庆启幕。
 
-数据公布后，美图股价今日一度涨超15%，最高报5.48港元，成交额超10亿。
+恰逢天能集团创立四十周年，此次集中亮出技术、产品、制造、全球化四大板块全新布局，也清晰勾勒出中国轻型动力电池产业告别低价内卷、转向价值竞争、加速全球突围的全新发展脉络。
 
-近5个交易日内，美图股价涨超25%。
+历经四十年深耕，天能从传统铅蓄电池作坊起步，如今已搭建起锂电、氢能、钠电、固态电池协同发展的多元技术矩阵，形成动力电池、储能系统、资源循环三大核心产业格局。
 
-公告显示，截至2026年3月，美图公司付费订阅用户数同比增长30.2%至超1790万，影像与设计产品收入8.52亿元，同比增长34.3%。
+数据显示，2025年天能集团营收突破2200亿元，位列中国企业500强第127位，手握超9000项国内外专利，牵头及参与制定270余项行业标准，综合实力稳居行业第一梯队。
 
-此外，美图首次披露，截至2026年3月，其AI生产力应用 ARR 约为5.8亿元，同比增长56.2%。
+依托扎实的产业积淀，天能本次明确打出铅锂同行核心战略，为行业技术路线选择提供全新范本。
 
-影像与设计产品的AI算力点消耗金额较2025年12月增长59%，开拍、RoboNeo均增长超300%。
+天能锂电集团轻型动力电池公司总经理袁将表示，当下轻型动力市场需求呈现明显分化，大众化市场看重成本与稳定性，高端智能化场景则追求能量密度与轻量化。
 
-知名投资机构a16z最新观点认为，AI市场并没有收敛到每个赛道只剩一个模型产品，AI应用的护城河在于成熟的工作流编排、垂直行业积累和数据闭环。
+基于这一市场特征，天能坚持铅酸、锂电两大技术路线长期共存、互补发展。
 
-责任编辑：石秀珍 SF183
+铅蓄电池凭借成熟工艺、高可靠性持续深耕大众市场，旗下濮阳基地年产3200万 KVAh动力铅蓄电池，获评“超级能效工厂”；锂电业务则发力高端领域，湖州锂电智能工厂建成完整电芯、储能产品线，顺利入选省级智能工厂。
 
 ## 相关推荐
 
-- 2026-06-29 12:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 13:02 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:08 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 12:50 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 13:16 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 12:51 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 12:52 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 13:04 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 12:52 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 13:16 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 13:16 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 12:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 13:18 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 13:04 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 13:21 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 13:09 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 13:25 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:27 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 13:13 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:07 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 13:21 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 13:09 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 13:10 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 13:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 13:04 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 13:06 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 13:27 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/85039878578.shtml)
-- 2026-06-29 13:10 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/1474585.shtml)
-- 2026-06-29 13:19 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/26649.shtml)
-- 2026-06-29 13:04 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/667944793.shtml)
-- 2026-06-29 12:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/631095.shtml)
-- 2026-06-29 12:56 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/24838711227.shtml)
-- 2026-06-29 13:17 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/2579925394.shtml)
-- 2026-06-29 13:03 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/602804854227.shtml)
-- 2026-06-29 13:02 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/0524446584.shtml)
-- 2026-06-29 13:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/30166.shtml)
-- 2026-06-29 13:14 - [第一炉香](https://www.share.kurohicncr.top/Article/details/65904821617.shtml)
-- 2026-06-29 12:53 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/9111258467.shtml)
-- 2026-06-29 13:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/500596786.shtml)
-- 2026-06-29 13:12 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/5904107.shtml)
-- 2026-06-29 13:01 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/02317551.shtml)
+- 2026-06-29 13:13 - [灿如繁星定档](https://www.blog.minike.top/Article/details/974147.shtml)
+- 2026-06-29 13:02 - [普京称俄处于命运攸关之际](https://www.share.minike.top/Article/details/909695091645.shtml)
+- 2026-06-29 13:19 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/72477024286.shtml)
+- 2026-06-29 13:24 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/04838132864.shtml)
+- 2026-06-29 13:30 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/533466.shtml)
+- 2026-06-29 13:26 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/102121376686.shtml)
+- 2026-06-29 13:07 - [薛之谦演唱会](http://www.blog.kurohicncr.top/Article/details/298101.shtml)
+- 2026-06-29 13:17 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/936552.shtml)
+- 2026-06-29 13:14 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/2347438.shtml)
+- 2026-06-29 13:14 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/66167018.shtml)
+- 2026-06-29 13:00 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/9823475412.shtml)
+- 2026-06-29 13:13 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/340974.shtml)
+- 2026-06-29 13:22 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/2400020916.shtml)
+- 2026-06-29 13:18 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/70129.shtml)
+- 2026-06-29 13:01 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/4891325630.shtml)

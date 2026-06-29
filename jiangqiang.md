@@ -1,59 +1,57 @@
-# 济安金信｜2026年一季度公募基金评级报告
+# 全球脑机接口×医保创新场景大赛启动 前沿技术赋能医疗
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-来源：济安金信基金评价中心 公募基金是各类资金参与资本市场的重要间接投资工具。基金产品作为一类信托资产，其保值增值是基金投资者的共同期望。遵守各种法律法规的规定和基金契约是基金运作的两个刚性约束，在此基础上，根据基金的风险收益特征，济安评级将基金分为货币型、纯债型、一级债、二级债、混合型、股票型、封闭式、指数型、基金中基金（FOF）和QDII十种类型。 济安基金综合评价体系分别
+中新网杭州6月16日电(张煜欢)16日，全球脑机接口×医保创新场景大赛新闻发布会在杭州举行。该赛事由国家医疗保障局、浙江省人民政府联合主办，以“脑想事成 机联未来”为主题，即日起正式启动报名。赛事旨在以医保场景牵引脑机接口技术落地，推动前沿科技从实验室走向千家万户。 脑机接口作为前沿颠覆性突破技术，今年首次写入国务院政府工作报告，与量子科技、具身智能、6G等并列布局，被列入“十
 
 ## 正文
 
-来源：济安金信基金评价中心 公募基金是各类资金参与资本市场的重要间接投资工具。
+中新网杭州6月16日电(张煜欢)16日，全球脑机接口×医保创新场景大赛新闻发布会在杭州举行。
 
-基金产品作为一类信托资产，其保值增值是基金投资者的共同期望。
+该赛事由国家医疗保障局、浙江省人民政府联合主办，以“脑想事成 机联未来”为主题，即日起正式启动报名。
 
-遵守各种法律法规的规定和基金契约是基金运作的两个刚性约束，在此基础上，根据基金的风险收益特征，济安评级将基金分为货币型、纯债型、一级债、二级债、混合型、股票型、封闭式、指数型、基金中基金（FOF）和QDII十种类型。
+赛事旨在以医保场景牵引脑机接口技术落地，推动前沿科技从实验室走向千家万户。
 
-济安基金综合评价体系分别从基金盈利能力、抗风险能力、业绩稳定性、选股能力、择时能力、选基能力、基准跟踪能力、超额收益能力和整体费用九方面，对基金产品和基金管理团队投资运作的综合管理能力进行考察。
+脑机接口作为前沿颠覆性突破技术，今年首次写入国务院政府工作报告，与量子科技、具身智能、6G等并列布局，被列入“十五五”规划的六大未来产业。
 
-对于有违反法律法规、偏离基金合同约定、或由于其他原因难以评级的基金我公司将不予评价。
+当前，国家多部门密集出台多项政策，推动技术从基础研究迈向临床应用、从概念探索走向产业落地。
 
-根据济安金信基金评价中心一季度评级结果，满足评级年限并获得济安评级的公募基金产品共9266只，较前一季度增加了192只。
+特别是医保部门，紧扣民生保障职能，充分发挥资源优势，携手各方搭建国际化平台，以医保场景牵引技术落地、赋能产业发展，让前沿技术普惠大众。
 
-本期获得五星评级的基金共950只，具体到各产品类型中，货币型五星基金共29只，纯债型五星基金共202只，一级债型五星基金共32只，二级债型五星基金共49只，混合型五星基金共391只，股票型五星基金共48只，封闭式五星基金共7只，指数型五星基金共143只，QDII型五星基金共18只，FOF型五星基金共31只。
+国家医疗保障局大数据中心主任付超奇在发布会上介绍，本次大赛特色鲜明，主要体现在三个方面：锚定民生本源，拓展前沿技术普惠应用新场景；依托医保赋能，构建产学研用协同发展新生态；深化数智融合，探索医疗卫生事业高质量发展新路径。
 
-更多详细内容请参阅附件。
+大赛重点聚焦非侵入式脑机接口主流技术路线，设置脑控无人机、脑控运动轮椅、脑控机械臂、脑控机器狗、脑控打字、虚拟任务等6大任务竞技类赛道，以及健康监测与早期预警、功能康复与智能照护2个场景应用类赛道，并专设前沿技术突破和创新创业项目展示。
 
 ## 相关推荐
 
-- 2026-06-29 13:03 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 12:57 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 13:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 12:55 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 12:52 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 13:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:16 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 13:11 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 13:11 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 13:05 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 13:05 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 12:52 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 13:03 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 13:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:03 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 13:24 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 13:18 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 13:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 13:05 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 13:09 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 13:04 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 13:05 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 13:11 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 13:24 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/8980167.shtml)
-- 2026-06-29 12:57 - [美加墨世界杯首支16强诞生](https://www.blog.minike.top/Article/details/3335564909.shtml)
-- 2026-06-29 12:58 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/473226852456.shtml)
-- 2026-06-29 12:53 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/34761959.shtml)
-- 2026-06-29 13:00 - [普京称俄处于命运攸关之际](https://www.share.minike.top/Article/details/3123250.shtml)
-- 2026-06-29 12:55 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/072768.shtml)
-- 2026-06-29 12:51 - [天道](https://www.share.kurohicncr.top/Article/details/711328.shtml)
-- 2026-06-29 13:10 - [宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/6299727.shtml)
-- 2026-06-29 13:01 - [医药股集体爆发](http://www.blog.minike.top/Article/details/857016.shtml)
-- 2026-06-29 13:09 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/17971838462.shtml)
-- 2026-06-29 13:12 - [第一炉香](https://www.share.kurohicncr.top/Article/details/38478427.shtml)
-- 2026-06-29 13:04 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/454717104.shtml)
-- 2026-06-29 13:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/513631313.shtml)
-- 2026-06-29 13:17 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/386699952.shtml)
-- 2026-06-29 13:15 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/5667785593.shtml)
+- 2026-06-29 13:26 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/22973000.shtml)
+- 2026-06-29 13:06 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/182963.shtml)
+- 2026-06-29 13:11 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/8426266651.shtml)
+- 2026-06-29 13:03 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.kurohicncr.top/Article/details/0524390.shtml)
+- 2026-06-29 13:01 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/67135630413.shtml)
+- 2026-06-29 13:08 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/23717561.shtml)
+- 2026-06-29 13:23 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/133546.shtml)
+- 2026-06-29 13:19 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/41222.shtml)
+- 2026-06-29 13:26 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/89787298719.shtml)
+- 2026-06-29 13:19 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/02071.shtml)
+- 2026-06-29 13:21 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/152538112876.shtml)
+- 2026-06-29 13:20 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/982075393658.shtml)
+- 2026-06-29 13:07 - [伊朗球员致歉](https://www.blog.minike.top/Article/details/698527790054.shtml)
+- 2026-06-29 13:11 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/22387.shtml)
+- 2026-06-29 13:26 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/19861455296.shtml)

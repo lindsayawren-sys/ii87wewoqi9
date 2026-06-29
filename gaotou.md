@@ -1,58 +1,60 @@
-# 索尼季度业绩不及预期 全年盈利仍将两位数增长
+# 瑞士嘉盛银行亚洲首席投资总监陈东：AI行情至少有一年 盈利修复是港股上行关键
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-索尼集团预计新财年利润将实现两位数增长，彰显其娱乐业务具备韧性；尽管受与本田汽车合资电动汽车企业亏损、游戏及其他业务表现疲软拖累，公司第四季度净利润大幅下滑。 这家日本企业近年斥资数十亿美元开展收购，加码娱乐内容布局，同时剥离其他非核心业务控制权，在此背景下发布了稳健的利润预期。 今年3月，索尼斥资约4.6亿美元，将拥有史努比、查理·布朗等《花生漫画》IP的公司持股比例从原有股
+港股市场延续分化格局。 截至2026年6月13日，恒生指数年内累计下跌约3.6%，板块间表现差异仍较为显著。据恒生银行投资总监办公室数据，截至5月中旬，金融业板块年内涨幅达10.0%，香港本地房地产板块涨幅达19.1%；而可选消费板块年内下跌约6.9%，恒生科技指数则累计下跌9.4%，形成鲜明反差。 港股的局部上涨行情，何时能演变为更具广度的上行？大模型公司的商业模式能否跑通？
 
 ## 正文
 
-索尼集团预计新财年利润将实现两位数增长，彰显其娱乐业务具备韧性；尽管受与本田汽车合资电动汽车企业亏损、游戏及其他业务表现疲软拖累，公司第四季度净利润大幅下滑。
+港股市场延续分化格局。
 
-这家日本企业近年斥资数十亿美元开展收购，加码娱乐内容布局，同时剥离其他非核心业务控制权，在此背景下发布了稳健的利润预期。
+截至2026年6月13日，恒生指数年内累计下跌约3.6%，板块间表现差异仍较为显著。
 
-今年3月，索尼斥资约4.6亿美元，将拥有史努比、查理·布朗等《花生漫画》IP的公司持股比例从原有股份大致翻倍至80%。
+据恒生银行投资总监办公室数据，截至5月中旬，金融业板块年内涨幅达10.0%，香港本地房地产板块涨幅达19.1%；而可选消费板块年内下跌约6.9%，恒生科技指数则累计下跌9.4%，形成鲜明反差。
 
-此外，索尼已于去年10月分拆金融业务，聚焦娱乐主业。
+港股的局部上涨行情，何时能演变为更具广度的上行？
 
-这家娱乐及电子企业周五公布，预计始于4月的新财年净利润增长12.5%，至1.16万亿日元（约合73.9亿美元）；但营收预计下滑1.4%，至12.3万亿日元。
+大模型公司的商业模式能否跑通？
 
-索尼预测，受益于自研游戏软件销量走强，游戏业务营业利润将增长30%，达到6000亿日元。
+港股估值已很便宜，为何迟迟不涨？
 
-公司同时宣布，未来一年将最高回购5000亿日元自家股份。
+带着上述问题，近日，21世纪经济报道记者专访了瑞士嘉盛银行亚洲首席投资总监陈东。
 
-业绩指引与股票回购消息公布后，索尼股价小幅走高。
+陈东表示，恒生指数从估值角度看已完成一轮修复，当前接近历史均值水平，后续上行需依赖盈利修复驱动。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 12:58 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 13:02 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 13:08 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-29 13:13 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 13:17 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 13:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 13:13 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 13:07 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:56 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 13:09 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 13:09 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 13:04 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 13:14 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 13:09 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 13:05 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 13:21 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 13:18 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 13:08 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 13:26 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 13:02 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 13:19 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 13:19 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 13:12 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 13:10 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 13:14 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:08 - [黄金大跌带崩“黄金爱马仕”老铺黄金](http://www.share.minike.top/Article/details/856877.shtml)
-- 2026-06-29 13:04 - [恋与深空需直面玩家6大疑问](http://www.share.minike.top/Article/details/623054386723.shtml)
-- 2026-06-29 13:02 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/09809.shtml)
-- 2026-06-29 13:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/24489.shtml)
-- 2026-06-29 12:59 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/6690672930.shtml)
-- 2026-06-29 13:18 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/110134510.shtml)
-- 2026-06-29 12:59 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/21891571.shtml)
-- 2026-06-29 13:12 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/15823349474.shtml)
-- 2026-06-29 13:00 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/70202.shtml)
-- 2026-06-29 13:10 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/4230893938.shtml)
-- 2026-06-29 12:57 - [双高胎](http://www.blog.kurohicncr.top/Article/details/91335.shtml)
-- 2026-06-29 13:00 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/50496.shtml)
-- 2026-06-29 13:15 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/218062269.shtml)
-- 2026-06-29 12:57 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/35327.shtml)
-- 2026-06-29 13:04 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/94128.shtml)
+- 2026-06-29 13:13 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/469149239.shtml)
+- 2026-06-29 13:24 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/994726575.shtml)
+- 2026-06-29 13:20 - [世界杯打成了欧洲杯和美洲杯](https://www.share.minike.top/Article/details/59417884131.shtml)
+- 2026-06-29 13:26 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/4699819.shtml)
+- 2026-06-29 13:20 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/584229.shtml)
+- 2026-06-29 13:20 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/85218832580.shtml)
+- 2026-06-29 13:16 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/57060239.shtml)
+- 2026-06-29 13:19 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/90707.shtml)
+- 2026-06-29 13:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/158575315.shtml)
+- 2026-06-29 13:21 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/67069274710.shtml)
+- 2026-06-29 13:27 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/9110682.shtml)
+- 2026-06-29 13:17 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.kurohicncr.top/Article/details/27169719.shtml)
+- 2026-06-29 13:13 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/934316624.shtml)
+- 2026-06-29 13:15 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/922122889.shtml)
+- 2026-06-29 13:10 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/47960293417.shtml)

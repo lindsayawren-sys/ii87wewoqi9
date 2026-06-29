@@ -1,61 +1,61 @@
-# 郭广昌旗下复地产发“招兵买马”，500万年薪挖角龙湖张童未果
+# 辞任华林证券CEO不到一个月转身AI算力公司，秦湘进入行云科技董事会候选名单 | 长三角资本局
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 王婷婷 龙湖高管张童的“跳槽”计划生变。 近期，市场传闻称，张童原定于“五一”节后入职复地产发，但最终因500万年薪过高而被放弃录用。 4月中旬，界面新闻了解到，复地产发拟引进前龙湖深港公司总经理张童，担任豫园股份高级总裁助理、复地产发执行总裁、地产事业部（复悦置地）联席总裁，沪浙区域总经理，将于“五一”假期后入职。 此次加盟最终未能落地，市场层面将双方分歧的
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 从券商首席执行官的位置离开不到一个月，秦湘的新去向便浮出水面。 6月9日晚间，行云科技公告称，为进一步优化董事会治理结构，引入更多具有科技领域背景的董事及金融管理高级人才，经持股3%以上股东王维提名，公司董事会同意提名秦湘为第七届董事会非独立董事候选人。相关任职仍需提交股东会审议。 这距离秦湘辞去华林证
 
 ## 正文
 
-界面新闻记者 | 王婷婷 龙湖高管张童的“跳槽”计划生变。
+登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 从券商首席执行官的位置离开不到一个月，秦湘的新去向便浮出水面。
 
-近期，市场传闻称，张童原定于“五一”节后入职复地产发，但最终因500万年薪过高而被放弃录用。
+6月9日晚间，行云科技公告称，为进一步优化董事会治理结构，引入更多具有科技领域背景的董事及金融管理高级人才，经持股3%以上股东王维提名，公司董事会同意提名秦湘为第七届董事会非独立董事候选人。
 
-4月中旬，界面新闻了解到，复地产发拟引进前龙湖深港公司总经理张童，担任豫园股份高级总裁助理、复地产发执行总裁、地产事业部（复悦置地）联席总裁，沪浙区域总经理，将于“五一”假期后入职。
+相关任职仍需提交股东会审议。
 
-此次加盟最终未能落地，市场层面将双方分歧的核心指向500万年薪薪资预期。
+这距离秦湘辞去华林证券首席执行官职务，仅过去25天。
 
-5月6日，知情人士向界面新闻表示，应该不单是薪酬问题，复地产发目前需要的是一个负责资产盘活，能够提升资产价值、综合资产运营的角色，不是传统意义上的拿地开发卖楼。
+5月15日，华林证券公告称，秦湘因个人原因申请辞去首席执行官职务，辞职后不再在公司及控股子公司担任任何职务。
 
-公开资料显示，张童于1986年生，重庆大学市场营销专业本科毕业。
+秦湘确认，其与董事会并无意见分歧，也没有其他需要向股东说明的事项。
 
-早年他以中海地产“海之子”管培生身份入行，2014年加盟龙湖集团，自投资经理起步，先后历任龙湖青岛投资总经理、烟台公司总经理、西安公司总经理等岗位。
+华林证券随后由刚刚加入公司的执委会委员董东代行首席执行官职责，代行期限不超过六个月。
 
-任职龙湖西安公司期间，张童曾带队实现2019年销售额66.3亿元。
+一位刚刚离开民营券商的女CEO，迅速出现在一家AI算力概念上市公司的董事候选名单中，这场职业转换的反差足够醒目。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:50 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 13:15 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 13:09 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 12:56 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 13:18 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 12:55 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 13:16 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 13:01 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 13:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 13:07 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 12:57 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 13:11 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 12:56 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 13:13 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 13:22 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 13:03 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 13:28 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 13:26 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:28 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:28 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 13:05 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 13:08 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 13:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 13:21 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 13:20 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 13:14 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 13:28 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 13:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 13:24 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/7989365.shtml)
-- 2026-06-29 12:53 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/489257.shtml)
-- 2026-06-29 13:10 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/29137295.shtml)
-- 2026-06-29 13:05 - [欧洲热死人不是开玩笑](https://www.share.kurohicncr.top/Article/details/0606122342.shtml)
-- 2026-06-29 12:58 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/45903.shtml)
-- 2026-06-29 13:19 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/654782352039.shtml)
-- 2026-06-29 12:58 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.minike.top/Article/details/088759.shtml)
-- 2026-06-29 13:02 - [天道](http://www.share.kurohicncr.top/Article/details/50807659.shtml)
-- 2026-06-29 13:01 - [韩红携4000万物资抵呼和浩特](http://www.share.kurohicncr.top/Article/details/4844946.shtml)
-- 2026-06-29 12:51 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/679215078.shtml)
-- 2026-06-29 13:11 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/93177551955.shtml)
-- 2026-06-29 13:18 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/911852140.shtml)
-- 2026-06-29 13:15 - [薛之谦演唱会](https://www.share.minike.top/Article/details/71971.shtml)
-- 2026-06-29 12:52 - [TOP 无畏契约](https://www.blog.kurohicncr.top/Article/details/06511.shtml)
-- 2026-06-29 13:15 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/449936.shtml)
+- 2026-06-29 13:05 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/689324.shtml)
+- 2026-06-29 13:02 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/37542.shtml)
+- 2026-06-29 13:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/84351.shtml)
+- 2026-06-29 13:13 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/46401250.shtml)
+- 2026-06-29 13:03 - [A股限售股解禁一览](http://www.blog.kurohicncr.top/Article/details/671055874631.shtml)
+- 2026-06-29 13:06 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/845086.shtml)
+- 2026-06-29 13:14 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/92049719889.shtml)
+- 2026-06-29 13:10 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/14586022475.shtml)
+- 2026-06-29 13:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/76062773.shtml)
+- 2026-06-29 13:19 - [沙特足协主席发布声明主动请辞](https://www.share.minike.top/Article/details/20335253.shtml)
+- 2026-06-29 13:27 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/65921036.shtml)
+- 2026-06-29 13:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/6877677511.shtml)
+- 2026-06-29 13:28 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/20801820.shtml)
+- 2026-06-29 13:12 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/30373219.shtml)
+- 2026-06-29 13:16 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/5391035916.shtml)

@@ -1,58 +1,58 @@
-# 不再“试水温”了，AI变买保险决策工具
+# 福建漳州传统龙舟赛演绎闽南侨乡文化
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 如果说前几年互联网保险还是在“试水温”，2025年则交出了一份转折性的答卷：超过六成的消费者在线上买过保险，传统保险公司的APP和小程序首次打败了自己的线下队伍；每六个人里就有一个用AI查保险，用它比产品的人超过四成。 保险这个过去“靠人推销、靠关系成交”的行业，正在被消费者自己推着走向透明、便捷和理性。 元保集团联合清华大学五道口金融学院中国保险与养老金融研究
+中新网漳州6月15日电 (隋文杰)端午临近，九龙江畔龙舟竞渡、乡音缭绕。作为全国龙舟大联动重要组成部分，2026“龙江岁月杯”漳州传统龙舟赛于6月11日至14日在漳州高新区龙江岁月园区举办。这场已有640余年传承历史的闽南民俗盛会，由中国龙舟协会指导，华侨大学全程参与执行，以龙舟为纽带联结海内外侨胞，让远在海外的闽南乡亲透过一桨一旗，望见故土文脉、解了乡愁。 漳州龙舟竞渡是闽南
 
 ## 正文
 
-来源：华夏时报 如果说前几年互联网保险还是在“试水温”，2025年则交出了一份转折性的答卷：超过六成的消费者在线上买过保险，传统保险公司的APP和小程序首次打败了自己的线下队伍；每六个人里就有一个用AI查保险，用它比产品的人超过四成。
+中新网漳州6月15日电 (隋文杰)端午临近，九龙江畔龙舟竞渡、乡音缭绕。
 
-保险这个过去“靠人推销、靠关系成交”的行业，正在被消费者自己推着走向透明、便捷和理性。
+作为全国龙舟大联动重要组成部分，2026“龙江岁月杯”漳州传统龙舟赛于6月11日至14日在漳州高新区龙江岁月园区举办。
 
-元保集团联合清华大学五道口金融学院中国保险与养老金融研究中心最新发布的《2025年中国互联网保险消费者洞察报告》显示，2025年，消费者持有的保险产品中，通过传统保险公司线上渠道购买的比例达到63%，首次超越其线下渠道。
+这场已有640余年传承历史的闽南民俗盛会，由中国龙舟协会指导，华侨大学全程参与执行，以龙舟为纽带联结海内外侨胞，让远在海外的闽南乡亲透过一桨一旗，望见故土文脉、解了乡愁。
 
-换句话说，现在大家买保险的第一站，不是代理人办公室，而是手机里的官方APP或小程序。
+漳州龙舟竞渡是闽南侨乡刻进骨子里的民俗记忆。
 
-短视频成保险“新课堂” 报告显示，近六成的互联网保险消费者有过从线下转到线上的经历。
+2010年“漳州龙舟赛(扒龙舟)”列入漳州市级非物质文化遗产。
 
-问他们为什么转，排前三的理由很实在：投保方便（46%）、缴费灵活（46%）、信息更透明（42%）。
+主办方介绍，本届赛事沿袭了漳州传统龙舟的独特规制：船身长30米，可容纳67人同划；划手采用双排半跪式姿态，听鼓而动、闻锣而齐。
 
-价格反倒是其次。
+马州村的“黑地白月旗”已飘扬了六百余年，曾社的龙舟寮承载着百年的工匠记忆。
 
-记者注意到，不同年龄的人，线上选择的“入口”也不一样。
+赛事期间，马州村还举行了隆重的祭拜水仙尊王保平安等传统仪式，完整再现了闽南龙舟竞渡的古老民俗画卷。
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:03 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 13:16 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:11 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 13:18 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 12:55 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 12:53 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 12:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-29 12:58 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 13:00 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 13:07 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 13:16 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 13:04 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 13:04 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 13:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 13:19 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 13:12 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 13:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 13:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 13:18 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 13:12 - [强⁶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 13:08 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 13:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 13:17 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/058110.shtml)
-- 2026-06-29 12:58 - [恋与深空女玩家不该被冒犯](http://www.share.kurohicncr.top/Article/details/06590812070.shtml)
-- 2026-06-29 12:57 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/396432701645.shtml)
-- 2026-06-29 13:11 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/2306448.shtml)
-- 2026-06-29 13:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/369598.shtml)
-- 2026-06-29 13:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/6726352777.shtml)
-- 2026-06-29 13:17 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/8044455.shtml)
-- 2026-06-29 13:02 - [沙特足协主席发布声明主动请辞](http://www.share.minike.top/Article/details/84909425227.shtml)
-- 2026-06-29 13:13 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/07568.shtml)
-- 2026-06-29 13:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/289034837.shtml)
-- 2026-06-29 13:11 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/99750.shtml)
-- 2026-06-29 12:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/426826.shtml)
-- 2026-06-29 13:11 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/353239.shtml)
-- 2026-06-29 13:15 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/97665.shtml)
-- 2026-06-29 13:07 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/95822253.shtml)
+- 2026-06-29 13:20 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/15842.shtml)
+- 2026-06-29 13:02 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/11465842.shtml)
+- 2026-06-29 13:15 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/8549185.shtml)
+- 2026-06-29 13:22 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/173450717702.shtml)
+- 2026-06-29 13:26 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/7631110181.shtml)
+- 2026-06-29 13:09 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/94051708516.shtml)
+- 2026-06-29 13:00 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/5686782.shtml)
+- 2026-06-29 13:12 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/0633796.shtml)
+- 2026-06-29 13:16 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/323581.shtml)
+- 2026-06-29 13:19 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/5421913355.shtml)
+- 2026-06-29 13:23 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/91716594.shtml)
+- 2026-06-29 13:01 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/237594.shtml)
+- 2026-06-29 13:02 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/180475809.shtml)
+- 2026-06-29 13:07 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/567238673187.shtml)
+- 2026-06-29 13:11 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/5709563.shtml)

@@ -1,60 +1,61 @@
-# 尼泊尔今春发放珠峰攀登许可破纪录
+# 一群90后、00后活跃在田野，他们在忙啥？
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新社加德满都5月9日电 (记者 崔楠)据尼泊尔旅游部门最新数据，截至5月8日，该国今春已发放492张珠峰攀登许可证，突破历史纪录。 此前，尼泊尔春季珠峰攀登许可发放最高纪录为2023年的478张。尼泊尔媒体援引旅游部门数据称，2024年和2025年春季，该国分别发放422张、468张珠峰攀登许可证。 今春获发许可的中国登山者目前已超过100人，人数居各国登山者之首。 本季是尼
+原标题：推动组织管理规范化、作业接单网络化、农机调配共享化 青年农机手赋能现代农业(三夏进行时) 麦熟一晌，贵在争抢。“三夏”时节，田野里活跃着一群90后、00后农机手，他们驾驶收割机抢收小麦，操控无人机开展植保作业，依托智慧中控系统远程管控农机运行…… 2025年我国农作物耕种收综合机械化率达76.7%。充分发挥农机的农业生产和应急救灾主力军作用，需建设一支高素质的农机手队伍
 
 ## 正文
 
-中新社加德满都5月9日电 (记者 崔楠)据尼泊尔旅游部门最新数据，截至5月8日，该国今春已发放492张珠峰攀登许可证，突破历史纪录。
+原标题：推动组织管理规范化、作业接单网络化、农机调配共享化 青年农机手赋能现代农业(三夏进行时) 麦熟一晌，贵在争抢。
 
-此前，尼泊尔春季珠峰攀登许可发放最高纪录为2023年的478张。
+“三夏”时节，田野里活跃着一群90后、00后农机手，他们驾驶收割机抢收小麦，操控无人机开展植保作业，依托智慧中控系统远程管控农机运行…… 2025年我国农作物耕种收综合机械化率达76.7%。
 
-尼泊尔媒体援引旅游部门数据称，2024年和2025年春季，该国分别发放422张、468张珠峰攀登许可证。
+充分发挥农机的农业生产和应急救灾主力军作用，需建设一支高素质的农机手队伍。
 
-今春获发许可的中国登山者目前已超过100人，人数居各国登山者之首。
+更多青年农机手投身田间，为这支队伍注入了青春活力。
 
-本季是尼泊尔上调珠峰攀登许可费后的首个春季登山季。
+“现在开农机收麦子用时短、效率高” 凌晨四五点，雨脚刚收。
 
-自2025年9月1日起，经南坡攀登珠峰的外国登山者春季许可费由1.1万美元上调至1.5万美元；尼泊尔籍登山者春季许可费由7.5万尼泊尔卢比(约合500美元)升至15万尼泊尔卢比(约合990美元)。
+河北省邯郸市曲周县槐桥镇西漳头村，收割机轰鸣着切开麦浪，饱满的麦穗被齐茬切断、卷入滚筒。
 
-尽管许可费上涨，本季珠峰攀登热度不减，且不降反增。
+驾驶室里，90后农机手任晓微全神贯注地把控作业进度，抢抓农时。
 
-截至5月8日，尼泊尔政府珠峰攀登许可收入已近720万美元。
+“从天气预报得知今年麦收时可能下雨，我们就着手准备了。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 12:57 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 13:06 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 13:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 12:52 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 13:18 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 13:14 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 12:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 12:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 13:02 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 13:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 13:09 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 13:05 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 13:02 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 13:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 13:10 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 13:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 13:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 13:07 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 13:23 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 13:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 13:15 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 13:09 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 13:07 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 13:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 13:01 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 13:28 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/8302079891.shtml)
-- 2026-06-29 13:13 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/262695285.shtml)
-- 2026-06-29 12:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/297722788233.shtml)
-- 2026-06-29 13:02 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/056228080727.shtml)
-- 2026-06-29 12:54 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/433881307546.shtml)
-- 2026-06-29 12:54 - [委内瑞拉地震已致1450死3150伤](http://www.blog.minike.top/Article/details/962034.shtml)
-- 2026-06-29 12:58 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/669760.shtml)
-- 2026-06-29 13:10 - [美的空调 卡bug](https://www.share.minike.top/Article/details/345573.shtml)
-- 2026-06-29 13:18 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/564765218821.shtml)
-- 2026-06-29 13:14 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/481722123601.shtml)
-- 2026-06-29 12:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/4897607371.shtml)
-- 2026-06-29 13:12 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/55043340845.shtml)
-- 2026-06-29 13:16 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/7026454622.shtml)
-- 2026-06-29 12:50 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/000968.shtml)
-- 2026-06-29 13:01 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/9320211.shtml)
+- 2026-06-29 13:11 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/78445091855.shtml)
+- 2026-06-29 13:15 - [我和我的家乡](https://www.blog.minike.top/Article/details/3462818631.shtml)
+- 2026-06-29 13:25 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/208875856660.shtml)
+- 2026-06-29 13:10 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/1978437.shtml)
+- 2026-06-29 13:09 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/517114398893.shtml)
+- 2026-06-29 13:02 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/34360.shtml)
+- 2026-06-29 13:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/96847610.shtml)
+- 2026-06-29 13:22 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/356053.shtml)
+- 2026-06-29 13:29 - [王佳佳江疏影13年前后同框对比](https://www.share.kurohicncr.top/Article/details/2453187517.shtml)
+- 2026-06-29 13:16 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.kurohicncr.top/Article/details/90883841694.shtml)
+- 2026-06-29 13:12 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/193978.shtml)
+- 2026-06-29 13:09 - [复盘葡萄牙逼平哥伦比亚](https://www.share.minike.top/Article/details/167120917.shtml)
+- 2026-06-29 13:01 - [詹姆斯下赛季会在哪里](https://www.share.minike.top/Article/details/78103737.shtml)
+- 2026-06-29 13:14 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/5197248.shtml)
+- 2026-06-29 13:04 - [我们注定是一撮县城葱姜蒜](https://www.share.kurohicncr.top/Article/details/50130.shtml)

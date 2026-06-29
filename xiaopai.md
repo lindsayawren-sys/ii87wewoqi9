@@ -1,61 +1,51 @@
-# 横琴口岸“联合一站式”车道智能通关正式启动
+# 青海发生6.3级地震 武警青海总队紧急出动救援
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-7日，横琴口岸“联合一站式”车道智能通关正式启动。符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。 据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。完成备案流程后，驾驶者抵达口岸无需再出示实体证件。经测算，这种“
+发布时间：2026年06月17日 07:58 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。武警青海总队海西支队第一时间启动应急预案，紧急出动救援。(记者 卢晓娜) 责任编辑：【黄钰涵】
 
 ## 正文
 
-7日，横琴口岸“联合一站式”车道智能通关正式启动。
+发布时间：2026年06月17日 07:58 来源：中国新闻网 6月16日17时6分，青海海西州直辖区发生6.3级地震。
 
-符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。
+武警青海总队海西支队第一时间启动应急预案，紧急出动救援。
 
-据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。
-
-完成备案流程后，驾驶者抵达口岸无需再出示实体证件。
-
-经测算，这种“智能通关”模式可让单车查验效率提高约10%。
-
-自去年11月起，横琴口岸旅检通道率先应用“智能通关”，经过为期6个月的运行，系统性能稳定可靠、通关操作便捷高效，累计已有超过28万符合资格人员登记，逾460万人次“刷脸”通关，约占整体合作查验自助通道通关人数的35%。
-
-时隔半年，这项便民红利顺利延伸至“联合一站式”车道。
-
-记者：宋晨、郭雨祺、王浩明报道员：梁建华 来源：新华社
+(记者 卢晓娜) 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 12:52 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 13:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 12:49 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 13:05 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 13:16 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 13:16 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 13:19 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 13:15 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 13:08 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 12:55 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 12:58 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 12:55 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 12:53 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 13:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 13:25 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 13:21 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 13:20 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 13:25 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 13:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 13:29 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 13:13 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 13:15 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 13:13 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 13:18 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 13:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 13:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-29 13:04 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 13:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 13:02 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/1505315342.shtml)
-- 2026-06-29 12:56 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/03474580.shtml)
-- 2026-06-29 12:55 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/1446404570.shtml)
-- 2026-06-29 13:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/817084125413.shtml)
-- 2026-06-29 13:12 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/46503648.shtml)
-- 2026-06-29 13:11 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/1869739.shtml)
-- 2026-06-29 12:56 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/686488340.shtml)
-- 2026-06-29 13:06 - [美加墨世界杯首支16强诞生](https://www.share.kurohicncr.top/Article/details/05826.shtml)
-- 2026-06-29 13:15 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/21744824.shtml)
-- 2026-06-29 13:19 - [F1奥地利大奖赛正赛集锦](http://www.blog.kurohicncr.top/Article/details/197764414695.shtml)
-- 2026-06-29 13:10 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/5360697.shtml)
-- 2026-06-29 13:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/056887655.shtml)
-- 2026-06-29 13:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/65255110.shtml)
-- 2026-06-29 13:07 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/512172241563.shtml)
-- 2026-06-29 12:53 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/239911231274.shtml)
+- 2026-06-29 13:23 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/690135.shtml)
+- 2026-06-29 13:05 - [我和我的家乡](https://www.share.minike.top/Article/details/370169939.shtml)
+- 2026-06-29 13:27 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/351610116021.shtml)
+- 2026-06-29 13:22 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/61072831240.shtml)
+- 2026-06-29 13:00 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/465193.shtml)
+- 2026-06-29 13:23 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/92576.shtml)
+- 2026-06-29 13:17 - [委内瑞拉强震致中国公民8遇难1失联](http://www.blog.minike.top/Article/details/39269.shtml)
+- 2026-06-29 13:12 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/230610958.shtml)
+- 2026-06-29 13:12 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/6984991.shtml)
+- 2026-06-29 13:07 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/975300019.shtml)
+- 2026-06-29 13:09 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/3652642647.shtml)
+- 2026-06-29 13:29 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/382310686.shtml)
+- 2026-06-29 13:27 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/96804772.shtml)
+- 2026-06-29 13:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/8570980.shtml)
+- 2026-06-29 13:27 - [四川宜宾地震](https://www.blog.minike.top/Article/details/07101973850.shtml)

@@ -1,54 +1,59 @@
-# 美图公司早盘持续上涨逾12% 第一季度付费用户数创新高
+# 高考落幕毕业旅行迎首波高峰 6月成“抢跑捡漏”窗口
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-美图公司（01357）早盘涨幅持续扩大，股价上涨12.50%，现报5.31港元，成交额6.32亿港元。 美图公司发布2026年第一季度业务数据。数据显示，其付费订阅用户数已增至1790万，再创历史新高；以付费订阅为主的影像与设计产品收入8.52亿元，同比增长34.3%。公司首度披露AI生产力应用年度经常性收入（ARR）指标。截至2026年3月，AI生产力应用ARR约为5.8亿元
+发布时间：2026年06月15日 20:18 来源：中国新闻网 随着2026年高考结束，已经有不少学生踏上出游旅途。6月15日，记者从旅行社和在线旅游平台获悉，6月是毕业生“抢跑”捡漏的绝佳窗口，毕业旅行已迎来首波高峰。 刚刚卸下备考重担的毕业生们，对这场期待已久的旅行展现出更加多元、个性化的追求。他们不再满足于走马观花，而是渴望在放松身心的同时，把兴趣爱好与探索世界融为一体。
 
 ## 正文
 
-美图公司（01357）早盘涨幅持续扩大，股价上涨12.50%，现报5.31港元，成交额6.32亿港元。
+发布时间：2026年06月15日 20:18 来源：中国新闻网 随着2026年高考结束，已经有不少学生踏上出游旅途。
 
-美图公司发布2026年第一季度业务数据。
+6月15日，记者从旅行社和在线旅游平台获悉，6月是毕业生“抢跑”捡漏的绝佳窗口，毕业旅行已迎来首波高峰。
 
-数据显示，其付费订阅用户数已增至1790万，再创历史新高；以付费订阅为主的影像与设计产品收入8.52亿元，同比增长34.3%。
+刚刚卸下备考重担的毕业生们，对这场期待已久的旅行展现出更加多元、个性化的追求。
 
-公司首度披露AI生产力应用年度经常性收入（ARR）指标。
+他们不再满足于走马观花，而是渴望在放松身心的同时，把兴趣爱好与探索世界融为一体。
 
-截至2026年3月，AI生产力应用ARR约为5.8亿元，同比增长56.2%。
+除了国内丰富多样的主题线路，出境游同样成为这届毕业生的热门选择。
 
-东方证券表示，判断26年Agent工作流的持续调试和成熟，对于各项工种划分相对不明晰的中小商家用户更友好，Agent带动Token消耗显著上行，有望逐步兑现为ARPU值提升，形成付费订阅+ARPPU双轮驱动，共同支撑生产力场景收入稳步增长。
+不少家庭借机将毕业旅行变成一次难得的亲子看世界机会，免签目的地和长线高性价比产品尤其走俏。
 
-责任编辑：卢昱君
+(记者 郎佳慧 北京报道） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 13:13 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:59 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 12:52 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 13:13 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 13:07 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 12:59 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 13:00 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 13:02 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 13:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 13:13 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 13:06 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 13:25 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 13:21 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 13:25 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 13:11 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 13:20 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 13:02 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 13:03 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 13:24 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 13:12 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 13:12 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 13:10 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 13:22 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 13:20 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/022828.shtml)
-- 2026-06-29 13:19 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/907504.shtml)
-- 2026-06-29 12:59 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/92647494674.shtml)
-- 2026-06-29 12:56 - [俄政府批准巩固俄语地位行动计划](https://www.blog.minike.top/Article/details/67948.shtml)
-- 2026-06-29 12:59 - [我国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/060693468.shtml)
-- 2026-06-29 13:04 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/344820.shtml)
-- 2026-06-29 13:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/7454598.shtml)
-- 2026-06-29 12:52 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/49523.shtml)
-- 2026-06-29 12:56 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/27068205762.shtml)
-- 2026-06-29 12:57 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/939903988.shtml)
-- 2026-06-29 13:12 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/80018580.shtml)
-- 2026-06-29 13:17 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/9620428463.shtml)
-- 2026-06-29 12:54 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/55405912.shtml)
-- 2026-06-29 13:17 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/414844.shtml)
-- 2026-06-29 13:10 - [大罗力挺内马尔](http://www.blog.kurohicncr.top/Article/details/58499227191.shtml)
+- 2026-06-29 13:03 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/40441611.shtml)
+- 2026-06-29 13:17 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/814884993869.shtml)
+- 2026-06-29 13:09 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/9671716438.shtml)
+- 2026-06-29 13:24 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/33350.shtml)
+- 2026-06-29 13:18 - [一生一世](https://www.blog.minike.top/Article/details/68622310.shtml)
+- 2026-06-29 13:26 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/5251074096.shtml)
+- 2026-06-29 13:19 - [起风了](http://www.blog.kurohicncr.top/Article/details/829280379304.shtml)
+- 2026-06-29 13:27 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/90227353270.shtml)
+- 2026-06-29 13:02 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/65918070.shtml)
+- 2026-06-29 13:17 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.kurohicncr.top/Article/details/890960.shtml)
+- 2026-06-29 13:03 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/566678989.shtml)
+- 2026-06-29 13:25 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/388362409.shtml)
+- 2026-06-29 13:05 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/66544832131.shtml)
+- 2026-06-29 13:12 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/921389548412.shtml)
+- 2026-06-29 13:29 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/947977.shtml)

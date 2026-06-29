@@ -1,46 +1,58 @@
-# 中国建材遭贝莱德减持33万股 每股均价约5.1港元
+# 日本5月出口同比增长17%，创三年半以来最快增速
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月5日，贝莱德减持中国建材（03323）33万股，每股均价5.0986港元，总金额约为168.25万港元。减持后最新持股数目约为2.23亿股，最新持股比例为5.99%。责任编辑：卢昱君
+日本政府周三公布的数据显示，日本5月份出口同比增长17%，创下2022年11月以来的最快增速，超出市场预期。 这一数字高于路透调查的经济学家预期的16.2%，也高于4月份的14.8%。 日本5月份进口同比增长12.5%，为2025年1月以来的最高增速，高于预期的12.8%。 这些数据公布的前一天，日本央行将政策利率上调25个基点至1%，创30多年来的新高，以应对不断攀升的通胀和
 
 ## 正文
 
-香港联交所最新资料显示，5月5日，贝莱德减持中国建材（03323）33万股，每股均价5.0986港元，总金额约为168.25万港元。
+日本政府周三公布的数据显示，日本5月份出口同比增长17%，创下2022年11月以来的最快增速，超出市场预期。
 
-减持后最新持股数目约为2.23亿股，最新持股比例为5.99%。
+这一数字高于路透调查的经济学家预期的16.2%，也高于4月份的14.8%。
 
-责任编辑：卢昱君
+日本5月份进口同比增长12.5%，为2025年1月以来的最高增速，高于预期的12.8%。
+
+这些数据公布的前一天，日本央行将政策利率上调25个基点至1%，创30多年来的新高，以应对不断攀升的通胀和日元持续疲软的局面。
+
+日元疲软可能提振出口，但也会推高进口通胀，削弱购买力，从而引发国内担忧。
+
+数据公布后，日元汇率波动不大，报1美元兑160.4。
+
+尽管日本财务省动用11.7万亿日元来捍卫日元汇率，但日元仍徘徊在历史低位。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 12:52 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 13:05 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 12:58 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 12:49 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 12:55 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 13:08 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 12:52 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 13:11 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 13:08 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 13:18 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 13:12 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 13:06 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 13:23 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 13:05 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 13:23 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 13:11 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 13:00 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 13:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 13:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 13:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 13:14 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/65974608.shtml)
-- 2026-06-29 13:05 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.minike.top/Article/details/6134491.shtml)
-- 2026-06-29 13:10 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/1737104870.shtml)
-- 2026-06-29 13:15 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/00089.shtml)
-- 2026-06-29 13:03 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/758423643797.shtml)
-- 2026-06-29 12:57 - [F1奥地利大奖赛正赛集锦](http://www.blog.minike.top/Article/details/25662.shtml)
-- 2026-06-29 13:05 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/262554.shtml)
-- 2026-06-29 12:51 - [斗破苍穹](http://www.blog.minike.top/Article/details/043190880625.shtml)
-- 2026-06-29 13:02 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/866387.shtml)
-- 2026-06-29 13:04 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/0997115.shtml)
-- 2026-06-29 12:58 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/12503630.shtml)
-- 2026-06-29 12:51 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/91853.shtml)
-- 2026-06-29 13:02 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/09692879523.shtml)
-- 2026-06-29 13:08 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/88879.shtml)
-- 2026-06-29 12:53 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.minike.top/Article/details/2272462492.shtml)
+- 2026-06-29 13:13 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/20017.shtml)
+- 2026-06-29 13:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/90179536862.shtml)
+- 2026-06-29 13:15 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/729120.shtml)
+- 2026-06-29 13:00 - [2026年Mac能玩游戏了吗](https://www.blog.minike.top/Article/details/939738448005.shtml)
+- 2026-06-29 13:29 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/914305.shtml)
+- 2026-06-29 13:17 - [沉睡花园](https://www.share.minike.top/Article/details/025552.shtml)
+- 2026-06-29 13:07 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/71849189.shtml)
+- 2026-06-29 13:03 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.kurohicncr.top/Article/details/7179182790.shtml)
+- 2026-06-29 13:14 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/837924.shtml)
+- 2026-06-29 13:28 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.minike.top/Article/details/83395254498.shtml)
+- 2026-06-29 13:15 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/75654638679.shtml)
+- 2026-06-29 13:25 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/10772.shtml)
+- 2026-06-29 13:13 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/74639810.shtml)
+- 2026-06-29 13:08 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/880166897.shtml)
+- 2026-06-29 13:01 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/79347328379.shtml)

@@ -1,61 +1,57 @@
-# 乌总统下令避免袭击俄红场阅兵 美总统称支持大幅延长俄乌停火时限
+# 吴清：证监会打击违法违规跨境展业，支持投资者依法合规跨境投资活动
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月9日电 综合消息：据乌克兰国家通讯社报道，乌总统泽连斯基已下令，避免袭击俄罗斯莫斯科红场9日举行的阅兵活动。美国总统特朗普8日傍晚就“俄乌停火能否继续延长”表示，支持大幅延长停火时限。乌总统网站8日夜间公布泽连斯基签署的总统令。该总统令称，考虑到多方要求，出于8日与美方会谈时阐明的人道主义宗旨，乌方决定，5月9日俄首都莫斯科红场举行阅兵期间，将红场所在区域排除在乌
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 证监会主席吴清6月17日在2026陆家嘴论坛上表示，着力提升跨境监管协作力度。“近期，我们会同有关方面坚决查处了个别机构违法违规跨境展业等问题。持牌经营是国际通行规则，也是保护投资者合法权益的基本要求。我们打击的是违法违规跨境展业，对投资者依法合规的跨境投资活动是支持的。接下来将进一步推动健全跨境监管协调机制，强化日
 
 ## 正文
 
-中新社北京5月9日电 综合消息：据乌克兰国家通讯社报道，乌总统泽连斯基已下令，避免袭击俄罗斯莫斯科红场9日举行的阅兵活动。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 证监会主席吴清6月17日在2026陆家嘴论坛上表示，着力提升跨境监管协作力度。
 
-美国总统特朗普8日傍晚就“俄乌停火能否继续延长”表示，支持大幅延长停火时限。
+“近期，我们会同有关方面坚决查处了个别机构违法违规跨境展业等问题。
 
-乌总统网站8日夜间公布泽连斯基签署的总统令。
+持牌经营是国际通行规则，也是保护投资者合法权益的基本要求。
 
-该总统令称，考虑到多方要求，出于8日与美方会谈时阐明的人道主义宗旨，乌方决定，5月9日俄首都莫斯科红场举行阅兵期间，将红场所在区域排除在乌方攻击目标之外。
+我们打击的是违法违规跨境展业，对投资者依法合规的跨境投资活动是支持的。
 
-该文件中标注了莫斯科红场的详细地理坐标。
+接下来将进一步推动健全跨境监管协调机制，强化日常信息共享和市场沟通，开正门、堵偏门，既支持合法合规的跨境投融资活动，又依法打击各类跨境违法违规行为，切实维护市场正常秩序和投资者合法权益。
 
-特朗普8日傍晚在白宫表示，对于俄乌同意实施停火，“所有人都感到满意”。
+”吴清说。
 
-他支持接下来“大幅延长停火时限”，愿意派美方谈判代表前往莫斯科，协助解决乌克兰冲突。
-
-当天早些时候，特朗普在社交媒体发文称，在他提议下，俄乌将在9日至11日停火3天，在此期间相互交换1000名战俘。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 13:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 13:01 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 12:53 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 12:58 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 13:13 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 12:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 13:19 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 13:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 13:10 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-29 12:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 13:04 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 12:54 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 12:52 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 13:19 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 13:01 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 13:23 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 13:28 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 13:03 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 13:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 13:14 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 13:24 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 13:10 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 13:16 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 13:24 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:06 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 13:10 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 13:22 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [加拿大92分钟绝杀](http://www.share.kurohicncr.top/Article/details/06637306220.shtml)
-- 2026-06-29 12:53 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/09290937311.shtml)
-- 2026-06-29 13:07 - [初心如磐 红色足迹](http://www.blog.minike.top/Article/details/998960434.shtml)
-- 2026-06-29 13:11 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/916966.shtml)
-- 2026-06-29 12:52 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/6295035.shtml)
-- 2026-06-29 13:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/151402563160.shtml)
-- 2026-06-29 12:51 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/577577878.shtml)
-- 2026-06-29 12:59 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/648377.shtml)
-- 2026-06-29 12:52 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/181515648105.shtml)
-- 2026-06-29 13:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/26478249.shtml)
-- 2026-06-29 13:01 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/60735.shtml)
-- 2026-06-29 13:09 - [时光音乐会](http://www.blog.minike.top/Article/details/873543017065.shtml)
-- 2026-06-29 13:00 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/65664174.shtml)
-- 2026-06-29 13:08 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/468279.shtml)
-- 2026-06-29 13:14 - [法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/656496.shtml)
+- 2026-06-29 13:03 - [刘宇宁现偶我就不要了](http://www.blog.minike.top/Article/details/215941029700.shtml)
+- 2026-06-29 13:15 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.minike.top/Article/details/151837.shtml)
+- 2026-06-29 13:04 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/207537574.shtml)
+- 2026-06-29 13:19 - [C罗关心罗德里戈伤情](https://www.blog.kurohicncr.top/Article/details/6481408096.shtml)
+- 2026-06-29 13:17 - [人民日报评“AI脸看腻了”](http://www.blog.kurohicncr.top/Article/details/072635750.shtml)
+- 2026-06-29 13:07 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/7358117.shtml)
+- 2026-06-29 13:29 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/1690480.shtml)
+- 2026-06-29 13:15 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/660898.shtml)
+- 2026-06-29 13:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/6403832.shtml)
+- 2026-06-29 13:29 - [请回答王牌2019](http://www.share.minike.top/Article/details/1837687.shtml)
+- 2026-06-29 13:13 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/8896535418.shtml)
+- 2026-06-29 13:04 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/0950138.shtml)
+- 2026-06-29 13:03 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/512323975.shtml)
+- 2026-06-29 13:00 - [游戏数据竟被用于军事目的](https://www.blog.kurohicncr.top/Article/details/87978806.shtml)
+- 2026-06-29 13:21 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/128797411362.shtml)

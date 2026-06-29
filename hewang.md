@@ -1,58 +1,51 @@
-# IFRC与ICRC在“世界红十字与红新月日”联合呼吁保护人道工作者
+# 美伊停火后金价小幅走高，延续涨势
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 日内瓦消息：5月8日“世界红十字与红新月日”到来之际，红十字会与红新月会国际联合会(IFRC)主席福布斯、常设委员会主席巴贝与红十字国际委员会(ICRC)主席斯波利亚里茨发表联合声明，呼吁国际社会加强对人道工作者的保护。声明指出，5月8日是红十字运动创始人之一亨利·杜南的生日，也是全球数百万红十字运动志愿者和工作人员共同的节日。关怀需要帮助的陌生人，是人类
+现货黄金上涨0.1%，报4，310.11美元。澳新银行研究部分析师在一份报告中表示，亚洲早盘金价小幅走高，延续了周一的涨势，此前美国和伊朗达成了一项临时和平协议，这有助于缓解全球通胀担忧。整个市场不断改善的风险偏好可能也抑制了投资者对进一步提高利率的预期，这一观点可能会得到本周一系列央行决定的证实，包括美联储和英国央行的决定。特别是，市场正密切关注美联储，该机构料将在新任主席凯
 
 ## 正文
 
-中新网北京5月8日电 日内瓦消息：5月8日“世界红十字与红新月日”到来之际，红十字会与红新月会国际联合会(IFRC)主席福布斯、常设委员会主席巴贝与红十字国际委员会(ICRC)主席斯波利亚里茨发表联合声明，呼吁国际社会加强对人道工作者的保护。
+现货黄金上涨0.1%，报4，310.11美元。
 
-声明指出，5月8日是红十字运动创始人之一亨利·杜南的生日，也是全球数百万红十字运动志愿者和工作人员共同的节日。
+澳新银行研究部分析师在一份报告中表示，亚洲早盘金价小幅走高，延续了周一的涨势，此前美国和伊朗达成了一项临时和平协议，这有助于缓解全球通胀担忧。
 
-关怀需要帮助的陌生人，是人类最古老的本能之一，亦为所有道德与宗教传统所认可。
+整个市场不断改善的风险偏好可能也抑制了投资者对进一步提高利率的预期，这一观点可能会得到本周一系列央行决定的证实，包括美联储和英国央行的决定。
 
-红十字与红新月运动发展至今日，也是源于同样的善意本能。
+特别是，市场正密切关注美联储，该机构料将在新任主席凯文·沃什的领导下举行首次政策会议。
 
-时至今日，红十字与红新月运动汇聚191个国家红会、约1700万名志愿者与工作人员，以及近28.9万个地方分支机构。
-
-声明称，志愿者与工作人员是人道工作的核心所在。
-
-过去一年，他们奔走于前线，在自然灾害废墟中搜救幸存者，在流离失所者营地中开设诊所，探视在押人员，帮助离散家人重建联系，为新生儿接生，组织献血活动，教孩子们游泳…… 声明指出，当前武装冲突日益增多；自然灾害愈发频繁，严重程度不断加剧；越来越多的民众被迫离开家园；在战争中维护人道的国际人道法正在遭受漠视。
-
-红十字与红新月运动正肩负着前所未有的责任。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 13:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 13:15 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 12:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 13:05 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 13:06 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 12:59 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 13:01 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 13:08 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 12:51 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 12:51 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 12:50 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 13:26 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 13:07 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 13:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 13:23 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 13:23 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:26 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 13:12 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 13:12 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 13:15 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 13:11 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 13:27 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.kurohicncr.top/Article/details/7897739218.shtml)
-- 2026-06-29 13:06 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/526431.shtml)
-- 2026-06-29 12:58 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/71786565.shtml)
-- 2026-06-29 12:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/3492173.shtml)
-- 2026-06-29 13:12 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/128049219.shtml)
-- 2026-06-29 13:03 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/846304.shtml)
-- 2026-06-29 13:18 - [啊啊啊](https://www.blog.minike.top/Article/details/00077656.shtml)
-- 2026-06-29 13:17 - [刘宇宁现偶我就不要了](http://www.blog.kurohicncr.top/Article/details/61362.shtml)
-- 2026-06-29 13:14 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/740831.shtml)
-- 2026-06-29 12:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/62858.shtml)
-- 2026-06-29 13:00 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/088610811.shtml)
-- 2026-06-29 12:54 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/1092895.shtml)
-- 2026-06-29 12:56 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.kurohicncr.top/Article/details/72390424429.shtml)
-- 2026-06-29 13:15 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/90926.shtml)
-- 2026-06-29 12:55 - [功率半导体缺货涨价](http://www.blog.minike.top/Article/details/62913238.shtml)
+- 2026-06-29 13:04 - [斛珠夫人](http://www.blog.minike.top/Article/details/890622800.shtml)
+- 2026-06-29 13:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/12458.shtml)
+- 2026-06-29 13:01 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/55754525.shtml)
+- 2026-06-29 13:27 - [恋与深空需直面玩家6大疑问](https://www.share.kurohicncr.top/Article/details/455643283.shtml)
+- 2026-06-29 13:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/193189265975.shtml)
+- 2026-06-29 13:20 - [网友偶遇胡军和李乃文](https://www.blog.minike.top/Article/details/07914.shtml)
+- 2026-06-29 13:17 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/253118.shtml)
+- 2026-06-29 13:14 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/8887206376.shtml)
+- 2026-06-29 13:06 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/442358777.shtml)
+- 2026-06-29 13:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/52761134.shtml)
+- 2026-06-29 13:04 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/233092077791.shtml)
+- 2026-06-29 13:14 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/91574038903.shtml)
+- 2026-06-29 13:27 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/8768142825.shtml)
+- 2026-06-29 13:14 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/0524944.shtml)
+- 2026-06-29 13:09 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/0371188.shtml)

@@ -1,60 +1,57 @@
-# 舱外航天服、太空跑台都安排上！“太空快递”即将发货
+# 官方指中国境内尚无埃博拉病毒病病例报告
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-今天早上，在文昌航天发射场，天舟十号货运飞船和长征七号遥十一运载火箭组合体开始进行垂直转运。目前现场具体情况怎样？一起来关注！ 天舟十号任务正式进入发射准备阶段 总台央视记者 王晓丹：今天的垂直转运工作从早上8点正式开始，搭载着天舟十号货运飞船的长征七号遥十一运载火箭，在活动发射平台的托举下，驶出了总装测试厂房，沿着专用的无缝钢轨，向着火箭发射塔架的方向，平稳运行了半个小时，预
+中新社北京6月16日电 中国国家疾病预防控制局网站16日对外发布《埃博拉病毒病防控方案(2026年版)》及相关解读问答。据其介绍，中国境内尚无埃博拉病毒病病例报告。 近期，刚果(金)和乌干达发生由本迪布焦埃博拉病毒引起的埃博拉病毒病疫情。世界卫生组织于5月17日宣布本轮埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。 此次发布的解读问答指出，中国境内尚无埃博拉病毒病病例报告
 
 ## 正文
 
-今天早上，在文昌航天发射场，天舟十号货运飞船和长征七号遥十一运载火箭组合体开始进行垂直转运。
+中新社北京6月16日电 中国国家疾病预防控制局网站16日对外发布《埃博拉病毒病防控方案(2026年版)》及相关解读问答。
 
-目前现场具体情况怎样？
+据其介绍，中国境内尚无埃博拉病毒病病例报告。
 
-一起来关注！
+近期，刚果(金)和乌干达发生由本迪布焦埃博拉病毒引起的埃博拉病毒病疫情。
 
-天舟十号任务正式进入发射准备阶段 总台央视记者 王晓丹：今天的垂直转运工作从早上8点正式开始，搭载着天舟十号货运飞船的长征七号遥十一运载火箭，在活动发射平台的托举下，驶出了总装测试厂房，沿着专用的无缝钢轨，向着火箭发射塔架的方向，平稳运行了半个小时，预计整个转运过程用时将在两个半小时到三个小时之间。
+世界卫生组织于5月17日宣布本轮埃博拉病毒病疫情构成“国际关注的突发公共卫生事件”。
 
-垂直转运标志着飞船和火箭前期在技术区的总装和测试工作已经全部完成，正式进入到火箭发射的准备阶段。
+此次发布的解读问答指出，中国境内尚无埃博拉病毒病病例报告，根据中国传染病防治法等法律法规要求，埃博拉病毒病按照新发传染病管理。
 
-将上行新款舱外服 太空跑台 6套试验载荷天舟十号货运飞船正包裹在火箭顶端的整流罩里面，计划将要上行近6.3吨重的补给物资，主要是用于保障神舟二十三号和神舟二十四号两批航天员乘组在轨正常工作、生活所必备的物品。
+国家疾控局修订了《埃博拉病毒病防控方案(2026年版)》。
 
-包括航天员系统、空间站系统、货运飞船系统以及空间应用系统，共计220多件货物，另外还有700公斤的推进剂。
+在加强病例发现和报告方面，《方案》要求各级医疗疾控机构和海关发现符合埃博拉病毒病留观、疑似或确诊病例时，应当及时报告相关信息。
 
-其中，特别值得关注的是，这次将在上次天舟九号已经上行了2套全新的舱外航天服的基础上，再上行第3套同款的航天服，也就意味着，空间站上的航天服将全面完成更新换代。
+留观病例、疑似病例和确诊病例应当在2小时内通过传染病报告信息管理系统进行网络直报。
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 13:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 13:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 12:59 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 13:05 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 13:17 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 12:57 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 13:17 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 13:18 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 13:07 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:55 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 13:09 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 13:02 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 13:01 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 13:23 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 13:03 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 13:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 13:26 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 13:06 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 13:26 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 13:10 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 13:11 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 13:27 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 13:02 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 13:19 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [沙特足协主席发布声明主动请辞](http://www.share.kurohicncr.top/Article/details/360134797952.shtml)
-- 2026-06-29 12:50 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/04923119351.shtml)
-- 2026-06-29 12:54 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/753116.shtml)
-- 2026-06-29 12:58 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/2218688297.shtml)
-- 2026-06-29 13:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/7585211.shtml)
-- 2026-06-29 12:50 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/218013047.shtml)
-- 2026-06-29 13:17 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/9685221221.shtml)
-- 2026-06-29 13:02 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/3240404036.shtml)
-- 2026-06-29 13:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/6323005338.shtml)
-- 2026-06-29 12:57 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/77273497052.shtml)
-- 2026-06-29 12:58 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/061731377420.shtml)
-- 2026-06-29 12:51 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/130395257.shtml)
-- 2026-06-29 13:00 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/0932553788.shtml)
-- 2026-06-29 12:59 - [沙丘](https://www.share.minike.top/Article/details/187687.shtml)
-- 2026-06-29 13:15 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/07158231.shtml)
+- 2026-06-29 13:04 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/8410112582.shtml)
+- 2026-06-29 13:28 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/598447737882.shtml)
+- 2026-06-29 13:20 - [复盘葡萄牙逼平哥伦比亚](https://www.share.minike.top/Article/details/189224.shtml)
+- 2026-06-29 13:00 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/81732265.shtml)
+- 2026-06-29 13:00 - [岭南电影为何迎来“南方热”](http://www.share.kurohicncr.top/Article/details/132557733.shtml)
+- 2026-06-29 13:17 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/0444179071.shtml)
+- 2026-06-29 13:28 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/378735609313.shtml)
+- 2026-06-29 13:29 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/576202806.shtml)
+- 2026-06-29 13:18 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/691011897850.shtml)
+- 2026-06-29 13:14 - [委内瑞拉强震致中国公民8遇难1失联](https://www.share.kurohicncr.top/Article/details/383420.shtml)
+- 2026-06-29 13:29 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.minike.top/Article/details/043179950.shtml)
+- 2026-06-29 13:08 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/655943473.shtml)
+- 2026-06-29 13:23 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/8695128953.shtml)
+- 2026-06-29 13:04 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/091321.shtml)
+- 2026-06-29 13:13 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/981627.shtml)

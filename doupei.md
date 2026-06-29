@@ -1,56 +1,58 @@
-# A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？
+# 长江有色：16日镍价小跌 产业链冷热不均现货需求维持刚需
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|肖芮冬 每经编辑|赵云 5月8日，市场震荡调整，创业板指、深成指盘中均跌超1%，科创50指数跌超2%。截至收盘，沪指收绿，深成指跌0.5%，创业板指跌0.96%。 板块来看，商业航天概念爆发，人形机器人概念集体走强，PCB概念反复走强，光纤概念持续走强。下跌方面，电池产业链震荡调整。 全市场超36
+长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍小涨，沪期镍主力月2607合约开盘报136860元/吨，盘中最高报136910元/吨，最低价报134740元/吨，收盘报135870元/吨，上涨540元/吨，涨幅0.4%，沪镍主力月2607主力合约成交量169411手。 据长江有色属网统计：6月16日ccmn长江综合1#镍价报135150元/吨-137450元/吨，均价报136
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍小涨，沪期镍主力月2607合约开盘报136860元/吨，盘中最高报136910元/吨，最低价报134740元/吨，收盘报135870元/吨，上涨540元/吨，涨幅0.4%，沪镍主力月2607主力合约成交量169411手。
 
-每经记者|肖芮冬 每经编辑|赵云 5月8日，市场震荡调整，创业板指、深成指盘中均跌超1%，科创50指数跌超2%。
+据长江有色属网统计：6月16日ccmn长江综合1#镍价报135150元/吨-137450元/吨，均价报136300元/吨，较前一日价格下跌250元，长江现货1#镍报135350元/吨-137350元/吨，均价报136350元/吨，较前一日价格下跌200元，广东现货镍报136700元/吨-137100元/吨，均价报136900元/吨，较前一日价格下跌800元。
 
-截至收盘，沪指收绿，深成指跌0.5%，创业板指跌0.96%。
+宏观面影响因素 美伊达成停战谅解备忘录，将于6 月 19 日日内瓦完成签约，霍尔木兹海峡逐步通航，欧盟拟松绑伊朗制裁，原油暴跌超 4%，全球能源断供恐慌消散，通胀压力同步缓解。
 
-板块来看，商业航天概念爆发，人形机器人概念集体走强，PCB概念反复走强，光纤概念持续走强。
+本次 G7 峰会聚焦能源稳价、AI 跨境监管与全球货币政策，多国协同调节能源储备。
 
-下跌方面，电池产业链震荡调整。
+国内央行大额投放流动性对冲年中发债压力，资金面保持充裕；多部门落地节能降碳、新能源重卡扶持政策，实业赛道迎来政策红利。
 
-全市场超3600只个股上涨，连续三日超百股涨停。
+外围风险偏好抬升，欧美股市集体走强，美债收益率下行。
 
-沪深两市成交额3.05万亿元，连续三个交易日突破3万亿，较上一个交易日缩量954亿。
+市场分歧集中于美国偏高通胀数据，美联储 18 日议息备受关注，降息预期升温但仍存鹰派隐患，短期大宗商品估值持续承压。
 
-截至收盘，A股取得了5月首周“开门红”。
+全品类镍原料供需分化 产业链冷热不均 红土镍矿菲律宾发运增量、港口库存累积，供应宽松；印尼配额收紧支撑本土矿价底部。
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 13:08 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 12:56 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 13:10 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 12:56 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 12:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 12:59 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 13:01 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:03 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 12:54 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 13:00 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 13:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 13:16 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 13:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 13:08 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 13:23 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 13:18 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 13:05 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 13:12 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 13:21 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:22 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 13:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/2854716.shtml)
-- 2026-06-29 13:10 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/349787.shtml)
-- 2026-06-29 13:05 - [白玉兰最佳女主角提名片段](http://www.blog.kurohicncr.top/Article/details/1817044.shtml)
-- 2026-06-29 13:02 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3999619031.shtml)
-- 2026-06-29 12:50 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/7778769.shtml)
-- 2026-06-29 13:10 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/366229.shtml)
-- 2026-06-29 13:15 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.kurohicncr.top/Article/details/20722.shtml)
-- 2026-06-29 12:50 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/81368.shtml)
-- 2026-06-29 13:15 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/4518923097.shtml)
-- 2026-06-29 13:10 - [岭南电影为何迎来“南方热”](http://www.share.kurohicncr.top/Article/details/3185683.shtml)
-- 2026-06-29 12:51 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/6334625.shtml)
-- 2026-06-29 12:59 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.share.minike.top/Article/details/5772288148.shtml)
-- 2026-06-29 13:03 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/2289022.shtml)
-- 2026-06-29 12:59 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/15357299102.shtml)
-- 2026-06-29 13:07 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/16881312.shtml)
+- 2026-06-29 13:29 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/6776856.shtml)
+- 2026-06-29 13:09 - [极限挑战第一季](http://www.share.minike.top/Article/details/45493679398.shtml)
+- 2026-06-29 13:11 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.kurohicncr.top/Article/details/14740629062.shtml)
+- 2026-06-29 13:06 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/18111.shtml)
+- 2026-06-29 13:15 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.minike.top/Article/details/90598.shtml)
+- 2026-06-29 13:12 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/35253021198.shtml)
+- 2026-06-29 13:18 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/93659.shtml)
+- 2026-06-29 13:15 - [普京称俄处于命运攸关之际](http://www.blog.kurohicncr.top/Article/details/1175694198.shtml)
+- 2026-06-29 13:15 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/268959477.shtml)
+- 2026-06-29 13:20 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/29296.shtml)
+- 2026-06-29 13:13 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/92252162.shtml)
+- 2026-06-29 13:15 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/677367122485.shtml)
+- 2026-06-29 13:29 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/8375699.shtml)
+- 2026-06-29 13:15 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/419284139.shtml)
+- 2026-06-29 13:27 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/17418785.shtml)

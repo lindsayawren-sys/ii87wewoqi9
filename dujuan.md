@@ -1,57 +1,59 @@
-# 一颗电芯如何“链”动一座城——探访全球首座储能电池“灯塔工厂”
+# 广州南沙与湛江徐闻协作提速 签约总投资超27.8亿元
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月9日电 题：一颗电芯如何“链”动一座城——探访全球首座储能电池“灯塔工厂” 作者 张霁雯 当下，储能行业迎来高速发展期，却也面临着产能结构性分化、供应链韧性不足、长时储能产线紧缺等现实挑战。如何破局？在重庆铜梁高新区，全球首座储能电池“灯塔工厂”海辰储能重庆基地给出了自己的答案。 机械臂上下翻飞，AGV小车穿梭自如……5月8日，记者走进这座“灯塔工厂”，车间内一派
+中新网广州6月17日电 (记者 王坚)由广州市南沙区政府、湛江市徐闻县政府主办的2026年南沙·徐闻联合招商推介会16日在南沙举行。会上，南沙·徐闻产业创新孵化基地首个合作项目揭牌，7家企业现场签约，总投资金额超27.8亿元，标志着两地“南沙研发+徐闻转化”的协作模式进入全面提速新阶段。 徐闻县委副书记、县长张方明指出，南沙·徐闻产业创新孵化基地是两地深化帮扶、创新协作模式的标
 
 ## 正文
 
-中新网重庆5月9日电 题：一颗电芯如何“链”动一座城——探访全球首座储能电池“灯塔工厂” 作者 张霁雯 当下，储能行业迎来高速发展期，却也面临着产能结构性分化、供应链韧性不足、长时储能产线紧缺等现实挑战。
+中新网广州6月17日电 (记者 王坚)由广州市南沙区政府、湛江市徐闻县政府主办的2026年南沙·徐闻联合招商推介会16日在南沙举行。
 
-如何破局？
+会上，南沙·徐闻产业创新孵化基地首个合作项目揭牌，7家企业现场签约，总投资金额超27.8亿元，标志着两地“南沙研发+徐闻转化”的协作模式进入全面提速新阶段。
 
-在重庆铜梁高新区，全球首座储能电池“灯塔工厂”海辰储能重庆基地给出了自己的答案。
+徐闻县委副书记、县长张方明指出，南沙·徐闻产业创新孵化基地是两地深化帮扶、创新协作模式的标志性成果，也是徐闻立足湾区前沿打造的反向飞地科创平台。
 
-机械臂上下翻飞，AGV小车穿梭自如……5月8日，记者走进这座“灯塔工厂”，车间内一派繁忙景象。
+期待以该基地为桥梁，借助南沙的金融、科创和人才优势，努力实现“孵化在南沙，转化在徐闻”“总部在南沙，基地在徐闻”双赢合作模式。
 
-每天约10万颗电芯从这里下线，发往全球市场，其中就包括首款千安时长时储能专用电池，该产品2025年6月在此量产下线，同年10月搭载该电池的储能系统便开启全球交付。
+张方明表示，徐闻将针对本次签约的项目组建服务专班，确保项目早落地、早开工、早投产、早见效，持续深化与南沙的全方位协作，打通要素流通壁垒，共筑产业合作新高地，共谱山海协作新篇章。
 
-“千安时电芯不是把电池简单做大，它给制造带来的挑战是指数级的。
+南沙区副区长马洁红表示，本次联合招商推介会，是两地深化帮扶协作、拓宽合作维度的重要举措，更是整合双向资源、共拓市场机遇的关键载体。
 
-”海辰储能重庆基地总经理叶蓁说，相比常规电芯，千安时级产品对制造精度的要求“严了两个量级”，从极片厚度一致性到正负极对齐度，任何微小偏差都可能影响电池的性能与安全。
+南沙将持续深化与徐闻的协作，立足自身平台、产业、政策优势，全力赋能徐闻高质量发展。
 
-为此，基地深度融合AI与数字孪生技术，部署了40余个数字化解决方案，构建起全流程智能管控体系，研发周期缩短31%、产品一致性提升30%，更推动单位制造成本降低、产能扩增。
+活动现场，集中签约7个项目，涵盖高端装备制造、现代农业、食品加工、文旅康养、低空经济等领域。
 
 ## 相关推荐
 
-- 2026-06-29 12:54 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 13:08 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 13:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 12:54 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 13:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-29 13:01 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 13:01 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 12:54 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:00 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 13:10 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 13:14 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 13:11 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 13:11 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 13:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 13:23 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 13:20 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 13:07 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 13:26 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 13:09 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 13:21 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 13:26 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:04 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 13:22 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:03 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/56994.shtml)
-- 2026-06-29 12:50 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/10707060606.shtml)
-- 2026-06-29 12:50 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/88570.shtml)
-- 2026-06-29 13:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/1410928324.shtml)
-- 2026-06-29 13:13 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/784693957.shtml)
-- 2026-06-29 13:09 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/8886630.shtml)
-- 2026-06-29 13:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/749805.shtml)
-- 2026-06-29 13:00 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/41530832682.shtml)
-- 2026-06-29 13:09 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/0383739.shtml)
-- 2026-06-29 13:07 - [四川宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/3466026.shtml)
-- 2026-06-29 12:51 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/56869.shtml)
-- 2026-06-29 13:15 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.kurohicncr.top/Article/details/528303753.shtml)
-- 2026-06-29 13:05 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.kurohicncr.top/Article/details/66246.shtml)
-- 2026-06-29 12:52 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/624992634.shtml)
-- 2026-06-29 13:11 - [本周做什么都顺的星座](https://www.blog.minike.top/Article/details/39260.shtml)
+- 2026-06-29 13:08 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/2452046419.shtml)
+- 2026-06-29 13:05 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/434441239.shtml)
+- 2026-06-29 13:23 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/11203695654.shtml)
+- 2026-06-29 13:13 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/824650709.shtml)
+- 2026-06-29 13:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/26853018370.shtml)
+- 2026-06-29 13:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/8404416869.shtml)
+- 2026-06-29 13:03 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/9088196.shtml)
+- 2026-06-29 13:25 - [林诗栋晋级WTT美国大满贯男单32强](https://www.blog.minike.top/Article/details/364368991.shtml)
+- 2026-06-29 13:25 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/61020.shtml)
+- 2026-06-29 13:08 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.kurohicncr.top/Article/details/16749752027.shtml)
+- 2026-06-29 13:23 - [游戏数据竟被用于军事目的](https://www.share.minike.top/Article/details/02455.shtml)
+- 2026-06-29 13:05 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/2830091.shtml)
+- 2026-06-29 13:16 - [韩红携4000万物资抵呼和浩特](https://www.share.kurohicncr.top/Article/details/21903567.shtml)
+- 2026-06-29 13:17 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/0892369918.shtml)
+- 2026-06-29 13:24 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/770307.shtml)

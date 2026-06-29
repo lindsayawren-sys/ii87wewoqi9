@@ -1,56 +1,61 @@
-# 从打卡式观光到沉浸式生活 这个“五一”年轻人为兴趣出发
+# 昨天尾盘涨停，今天跌超10%
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-“五一”假期虽已结束，但不少人仍在旅途中。今年，多个省份首次将春假与“五一”假期连休，改变了人们的出行节奏，游客从“扎堆”走向“分散”，“早走”“晚回”的错峰出行者明显增加。 今年“五一”假期，各地纷纷开展文化和旅游消费周、“5·19中国旅游日”等活动，共举办约1.37万场次文旅消费活动，发放超2.84亿元消费补贴，进一步释放文旅市场消费活力。经文化和旅游部数据中心测算，这个假
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！01 6月16日，A股玻纤、稀土、光纤、电池、光通信等板块走强，锂电龙头亿纬锂能（维权）大涨13.80%，带动多只电池主题ETF涨超4%。 02 昨日尾盘被资金拉升涨停的创业板ETF富国，今日开市后停牌一小时，复牌后估值迅速回落，收盘跌超10%，溢价率由昨日的14.18%大幅回落至0.13%。 03 在昨日
 
 ## 正文
 
-“五一”假期虽已结束，但不少人仍在旅途中。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今年，多个省份首次将春假与“五一”假期连休，改变了人们的出行节奏，游客从“扎堆”走向“分散”，“早走”“晚回”的错峰出行者明显增加。
+01 6月16日，A股玻纤、稀土、光纤、电池、光通信等板块走强，锂电龙头亿纬锂能（维权）大涨13.80%，带动多只电池主题ETF涨超4%。
 
-今年“五一”假期，各地纷纷开展文化和旅游消费周、“5·19中国旅游日”等活动，共举办约1.37万场次文旅消费活动，发放超2.84亿元消费补贴，进一步释放文旅市场消费活力。
+02 昨日尾盘被资金拉升涨停的创业板ETF富国，今日开市后停牌一小时，复牌后估值迅速回落，收盘跌超10%，溢价率由昨日的14.18%大幅回落至0.13%。
 
-经文化和旅游部数据中心测算，这个假期，全国国内出游3.25亿人次，同比增长3.6%；国内出游总花费1854.92亿元，同比增长2.9%。
+03 在昨日科技、有色等板块大涨的情况下，有色金属ETF南方、工业有色ETF万家合计净流入超20亿元；宽基ETF资金流向出现分歧，中证500ETF南方净流入超20亿元，四大沪深300ETF合计净流出超90亿元。
 
-记者注意到，“五一”假期期间，音乐节、演唱会及“中超”“苏超”等体育赛事，掀起了一波以兴趣为核心的出行消费热潮。
+锂电龙头股强势拉升 6月16日，A股玻纤、稀土、光纤、电池、光通信等板块表现活跃。
 
-“为一场活动奔赴一座城”，正逐渐成为年轻人跨城出行的驱动力。
+G60创新ETF申万菱信大涨5.7%，标的指数权重股中，光纤龙头亨通光电、玻纤龙头中国巨石双双涨超8%。
 
-于欣佳(化名)的“五一”南京之行，始于一场期待已久的古风拼盘演唱会。
+此外，电池产业链今日走强，多只电池主题ETF涨超4%；另有多只稀土、电网设备、通信等主题ETF涨超3%。
 
-400多元的门票可以欣赏8名歌手的表演，性价比颇高。
+消息面上，锂电龙头亿纬锂能6月15日晚间发布2026年半年度业绩预告显示，预计2026年上半年公司归母净利润为31.30亿元—33.71亿元，同比增长95%—110%。
 
 ## 相关推荐
 
-- 2026-06-29 12:53 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 13:05 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 13:10 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 12:55 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 12:50 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 12:58 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 13:11 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 13:05 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:18 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 13:08 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 13:02 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 13:19 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 13:06 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 13:19 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 13:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 13:26 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 13:03 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 13:16 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 13:22 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 13:03 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 13:11 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 13:03 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 13:19 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 13:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 13:01 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/969791.shtml)
-- 2026-06-29 12:53 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/262479.shtml)
-- 2026-06-29 13:08 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/32412.shtml)
-- 2026-06-29 12:59 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/00619412.shtml)
-- 2026-06-29 13:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/211459640649.shtml)
-- 2026-06-29 13:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/54863988.shtml)
-- 2026-06-29 13:07 - [王佳佳江疏影13年前后同框对比](http://www.share.minike.top/Article/details/1641486251.shtml)
-- 2026-06-29 13:16 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/574016501918.shtml)
-- 2026-06-29 13:16 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/73791668.shtml)
-- 2026-06-29 12:49 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/332800034685.shtml)
-- 2026-06-29 13:10 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/485927.shtml)
-- 2026-06-29 13:19 - [严浩翔FIY断层第一](http://www.blog.minike.top/Article/details/762569.shtml)
-- 2026-06-29 13:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/3727898.shtml)
-- 2026-06-29 12:55 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/98551102843.shtml)
-- 2026-06-29 12:51 - [大罗力挺内马尔](https://www.share.minike.top/Article/details/445775802881.shtml)
+- 2026-06-29 13:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/064660.shtml)
+- 2026-06-29 13:23 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/7025944.shtml)
+- 2026-06-29 13:19 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/559148370312.shtml)
+- 2026-06-29 13:19 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/6884109.shtml)
+- 2026-06-29 13:17 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/698722378213.shtml)
+- 2026-06-29 13:19 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/78079.shtml)
+- 2026-06-29 13:07 - [林诗栋晋级WTT美国大满贯男单32强](https://www.blog.minike.top/Article/details/03119.shtml)
+- 2026-06-29 13:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/461014317.shtml)
+- 2026-06-29 13:20 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/6630739.shtml)
+- 2026-06-29 13:03 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/24693893641.shtml)
+- 2026-06-29 13:14 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/410058.shtml)
+- 2026-06-29 13:26 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/216938625023.shtml)
+- 2026-06-29 13:18 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/86218926599.shtml)
+- 2026-06-29 13:15 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/027589.shtml)
+- 2026-06-29 13:23 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/423841989.shtml)

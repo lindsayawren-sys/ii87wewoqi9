@@ -1,61 +1,60 @@
-# 非洲超万户家庭用电来自河南“济源造”
+# 美国股市：美伊临时协议提振风险偏好 纳斯达克100指数大涨3.1%
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网郑州5月9日电 (记者 阚力)郑州海关9日消息，经郑州海关所属济源海关检验合格，济源万洋锂电科技有限公司生产的637件家用储能锂电池已顺利启运发往尼日利亚，这批“济源造”锂电池将于半个月后在拉各斯上市销售。据郑州海关统计，自2025年实现首次出口以来，“济源造”锂电池已累计出口3347件，货值达1933.9万元，其中非洲市场占比超70%，产品覆盖尼日利亚、肯尼亚、加纳等多
+美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。SpaceX股价上涨20%，进一步提振市场风险偏好。 以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。 费城半导体指数上涨5.4%，触及纪录高点。 芯片股和人工智能概念股普遍走高，美光科技上涨1
 
 ## 正文
 
-中新网郑州5月9日电 (记者 阚力)郑州海关9日消息，经郑州海关所属济源海关检验合格，济源万洋锂电科技有限公司生产的637件家用储能锂电池已顺利启运发往尼日利亚，这批“济源造”锂电池将于半个月后在拉各斯上市销售。
+美国主要股指上涨，此前美国和伊朗同意达成临时协议以重开霍尔木兹海峡，此举推动油价下跌，并在美联储主席凯文·沃什本周首次主持货币政策会议前缓解了市场对通胀的担忧。
 
-据郑州海关统计，自2025年实现首次出口以来，“济源造”锂电池已累计出口3347件，货值达1933.9万元，其中非洲市场占比超70%，产品覆盖尼日利亚、肯尼亚、加纳等多个国家，已为当地超万户家庭送去清洁稳定的电力。
+SpaceX股价上涨20%，进一步提振市场风险偏好。
 
-济源万洋锂电科技有限公司销售部经理胡红霞表示，该企业研发出一款为非洲国家量身定做的小型家用储能锂电池，该型产品同时兼容市电与太阳能板双充电模式，既能满足日常照明、手机充电等基础需求，也可稳定支撑电风扇等小型家电运转，使用寿命长达5年以上。
+以科技股为主的纳斯达克100指数上涨3.1%，标普500指数上涨1.7%。
 
-济源海关方面称，锂电池属于Ⅱ类危险货物，出口流程环节多、合规管控标准严。
+费城半导体指数上涨5.4%，触及纪录高点。
 
-针对企业对国际危险货物运输规则不熟悉、包装设计不达标等难点，济源海关多次开展上门辅导，指导企业优化包装设计、规范张贴标签、申报产品信息等，协助企业高效办理出境危险货物包装使用鉴定证书，从源头化解出口合规风险。
+芯片股和人工智能概念股普遍走高，美光科技上涨11%，闪迪上涨6.5%。
 
-同时，针对锂电产品出口开通专属“绿色通道”，优化检验监管流程，压缩通关时长。
+美国和伊朗官员定于6月19日在瑞士正式签署协议。
 
-济源海关副关长张兴志表示，济源海关将聚焦‘新三样’产品出口需求，持续优化锂电池检验监管模式，提升通关便利化水平。
+双方尚未公布协议文本，预计最棘手的问题将留待后续阶段处理。
 
-(完)
+RBC美国股票策略研究主管Lori Calvasina周一在报告中写道，“在接下来的几周里，我们将密切关注外界对美联储、利率和通胀预期的调整情况”，因为股市估值泡沫有所消退，但谈不上特别有吸引力。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-29 13:12 - [农业谣言岂能如此“变态”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 13:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 12:55 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:58 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:09 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 13:18 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 12:57 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 12:50 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 13:09 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:53 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 13:09 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:16 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 12:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 12:57 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 13:06 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 13:08 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 13:03 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 13:20 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 13:00 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 13:25 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 13:12 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 13:25 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 13:06 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 13:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 13:01 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 13:20 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:13 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 13:22 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/771735014079.shtml)
-- 2026-06-29 12:59 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/982988791.shtml)
-- 2026-06-29 13:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/40952468257.shtml)
-- 2026-06-29 12:51 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/71395.shtml)
-- 2026-06-29 13:00 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/706459.shtml)
-- 2026-06-29 13:11 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/682464914.shtml)
-- 2026-06-29 13:19 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/13408651.shtml)
-- 2026-06-29 13:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/6061963.shtml)
-- 2026-06-29 13:14 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/4124747191.shtml)
-- 2026-06-29 13:00 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/625044069823.shtml)
-- 2026-06-29 13:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/5618028440.shtml)
-- 2026-06-29 13:00 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/6223910978.shtml)
-- 2026-06-29 12:59 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/073948.shtml)
-- 2026-06-29 12:50 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/09747.shtml)
-- 2026-06-29 13:15 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/122796196191.shtml)
+- 2026-06-29 13:04 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/9061444114.shtml)
+- 2026-06-29 13:25 - [詹俊预测德国大胜巴拉圭](https://www.blog.minike.top/Article/details/92562364.shtml)
+- 2026-06-29 13:12 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/955381004504.shtml)
+- 2026-06-29 13:18 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/735882730.shtml)
+- 2026-06-29 13:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/87181015819.shtml)
+- 2026-06-29 13:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/919632.shtml)
+- 2026-06-29 13:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/27578.shtml)
+- 2026-06-29 13:17 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/10388711101.shtml)
+- 2026-06-29 13:21 - [欧洲超1300例超额死亡与高温有关](http://www.blog.kurohicncr.top/Article/details/774435390060.shtml)
+- 2026-06-29 13:08 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/881801193662.shtml)
+- 2026-06-29 13:15 - [马斯克也站到了光里](http://www.share.minike.top/Article/details/1322641487.shtml)
+- 2026-06-29 13:25 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/57370.shtml)
+- 2026-06-29 13:09 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/57196.shtml)
+- 2026-06-29 13:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/563209.shtml)
+- 2026-06-29 13:15 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/57531357.shtml)

@@ -1,59 +1,55 @@
-# 中国造船业一季度成绩单来了 新接订单快速增长
+# 暴雨橙色预警、强对流黄色预警齐发 注意防范
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-今天(9日)，工业和信息化部发布我国造船业最新数据。2026年一季度，我国造船业三大指标继续领跑全球，实现开门红。 最新数据显示，2026年1—3月，我国造船完工量1568万载重吨，同比增长46.0%，其中出口船舶占总量的96.1%；新接订单量5953万载重吨，同比增长195.2%；截至3月底，手持订单量32230万载重吨，同比增长43.6%。 不仅三大造船指标继续全球领跑，2
+中新网6月16日电 据中央气象台网站消息，6月16日6时，中央气象台发布暴雨橙色预警和强对流天气黄色预警。 中央气象台6月16日6时继续发布暴雨橙色预警 预计，6月16日8时至17日8时，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有
 
 ## 正文
 
-今天(9日)，工业和信息化部发布我国造船业最新数据。
+中新网6月16日电 据中央气象台网站消息，6月16日6时，中央气象台发布暴雨橙色预警和强对流天气黄色预警。
 
-2026年一季度，我国造船业三大指标继续领跑全球，实现开门红。
+中央气象台6月16日6时继续发布暴雨橙色预警 预计，6月16日8时至17日8时，广东中南部、广西东南部和西部、海南岛东北部、福建东南部、云南东部和西北部、四川南部、西藏东南部等地有大到暴雨，其中，广东西南部、珠江口及以东沿海、广西东南部、福建东南部、云南东部等地部分地区有大暴雨，局地特大暴雨(250～300毫米)；此外，北京西部和东北部、天津北部、河北北部、辽宁西部和北部、吉林中部等地部分地区也有大到暴雨，局地大暴雨。
 
-最新数据显示，2026年1—3月，我国造船完工量1568万载重吨，同比增长46.0%，其中出口船舶占总量的96.1%；新接订单量5953万载重吨，同比增长195.2%；截至3月底，手持订单量32230万载重吨，同比增长43.6%。
+上述部分地区伴有短时强降水(最大小时降雨量30～50毫米，华南局地可超过90毫米)，局地有雷暴大风等强对流天气。
 
-不仅三大造船指标继续全球领跑，2026年1—3月，中国造船完工量、新接订单量、手持订单量分别占世界市场份额的57.3%、84.9%和69.8%，全球18种主要船型中，我国有15种船型新接订单量位居全球首位。
+防御指南： 1.政府及相关部门按照职责做好防暴雨应急工作； 2.切断有危险的室外电源，暂停户外作业； 3.处于危险地带的单位应当停课、停业，采取专门措施保护已到校学生、幼儿和其他上班人员的安全； 4.做好城市、农田的排涝，注意防范可能引发的山洪、滑坡、泥石流等灾害。
 
-在大型船领域，我国超大型原油船、大型汽车运输船、散货船和万箱级以上大型集装箱船的订单国际市场份额均超90%。
+中央气象台6月16日6时继续发布强对流天气黄色预警 预计6月16日8时至17日8时，华北中北部、东北地区南部、华南南部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，内蒙古中南部、辽宁西部、山西北部、河北中部、天津中南部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；华北中北部、江南东部、华南、西南地区东部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，福建东南部、广西东南部、广东南部等地的部分地区小时雨量大于50毫米，最大可达90毫米以上。
 
-专家预测，今年中国造船三大指标还将继续全球领跑。
-
-量质齐升 中国造船新接绿色船舶订单超80%今年一季度，中国造船业在绿色转型中也交出亮眼成绩单，甲醇、LNG、纯电动等新能源动力船舶密集交付、批量下线，绿色技术全面突破，订单结构持续向高端化、低碳化转型。
-
-今年一季度，我国自研的“鲲”系列15000箱甲醇双燃料集装箱船顺利交付，每年可减少约12万吨二氧化碳排放；“天山”号17.4万立方米大型LNG船交付，采用最新一代双燃料系统，排放满足全球最严苛标准；“创新19”轮国内首艘单一甲醇燃料江海直达散货船交付，二氧化碳排放减少90%，硫氧化物几乎实现零排放。
+防御指南： 1.政府及相关部门按照职责做好防短时暴雨、防雷、防大风应急防御工作，气象部门做好人工防雹作业准备并择机进行作业； 2.驾驶员通过积水路段应减速慢行确认安全后再通过，交管部门应当根据路况在强降雨路段和积水路段采取交通管制措施和交通引导； 3.户外人员应减少或暂停空旷地方的户外作业，选择进入抗风能力较强并具有防雷措施的建筑内，同时关闭门窗远离危险电源； 4.机场、铁路、高速公路和水上交通等单位应采取限飞、限速或暂时关闭等措施保障人员和交通安全，相关水域水上作业和过往船舶应回港规避，加固港口设施； 5.检查城市、农田、鱼塘排水系统，做好必要的排涝措施和对山洪、滑坡、泥石流等灾害的防御准备。
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 13:07 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 12:52 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 12:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 13:14 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 13:19 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 13:02 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 12:53 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 13:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:58 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 13:15 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 13:01 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:11 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 13:23 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 13:20 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 13:10 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 13:28 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 13:08 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 13:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 13:08 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 13:22 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 13:21 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 13:21 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 13:08 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 13:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/0702787.shtml)
-- 2026-06-29 12:52 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/01096713808.shtml)
-- 2026-06-29 13:14 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/292123877.shtml)
-- 2026-06-29 12:51 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/870174942209.shtml)
-- 2026-06-29 13:10 - [欧洲热死人不是开玩笑](http://www.share.minike.top/Article/details/6600706130.shtml)
-- 2026-06-29 13:10 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/265214.shtml)
-- 2026-06-29 12:53 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/2188655.shtml)
-- 2026-06-29 12:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/11062606954.shtml)
-- 2026-06-29 13:02 - [薛之谦演唱会](https://www.blog.kurohicncr.top/Article/details/030818777.shtml)
-- 2026-06-29 13:13 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/76341678.shtml)
-- 2026-06-29 12:57 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/517429.shtml)
-- 2026-06-29 13:13 - [逃狱兄弟](https://www.share.minike.top/Article/details/21983284.shtml)
-- 2026-06-29 13:18 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/886095.shtml)
-- 2026-06-29 12:56 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/67781.shtml)
-- 2026-06-29 13:13 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/93589.shtml)
+- 2026-06-29 13:25 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/796142.shtml)
+- 2026-06-29 13:16 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/002178677.shtml)
+- 2026-06-29 13:29 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/8569929034.shtml)
+- 2026-06-29 13:09 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/8805586.shtml)
+- 2026-06-29 13:12 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/973930652.shtml)
+- 2026-06-29 13:29 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/67625481.shtml)
+- 2026-06-29 13:10 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/045626599.shtml)
+- 2026-06-29 13:23 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/717562149.shtml)
+- 2026-06-29 13:16 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/25519811015.shtml)
+- 2026-06-29 13:21 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/0948243.shtml)
+- 2026-06-29 13:17 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/229173.shtml)
+- 2026-06-29 13:27 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/52003196700.shtml)
+- 2026-06-29 13:03 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/125573251030.shtml)
+- 2026-06-29 13:25 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/08881.shtml)
+- 2026-06-29 13:09 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/860878800.shtml)

@@ -1,57 +1,54 @@
-# 中泰证券资管董事长、总经理同日换人：姜天坊接棒董事长 百亿基金经理姜诚代任总经理
+# 《中华人民共和国年鉴2025》中、英文版出版发行
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-5月8日，中泰证券（上海）资产管理有限公司发布高级管理人员变更公告，董事长黄文卿、总经理徐建东双双因个人原因于5月7日正式离任；由投行背景出身的姜天坊接任董事长，副总经理姜诚升任代总经理，业界俗称的“双姜”组合正式亮相。这一变化，既是公司最高管理层推动转型的有力举措，也为这家资产逼近千亿的券商资管增添了更多想象空间。 “双姜”搭档接棒：投行干将搭配百亿权益“大将” 履历显示，新
+新华社北京6月16日电 由新华通讯社主管、新华出版社主办、《中华人民共和国年鉴》编辑部编辑的《中华人民共和国年鉴2025》(以下简称《中国年鉴2025》)中、英文版近日出版，面向海内外公开发行。 《中国年鉴2025》中文版忠实记录了2024年中国改革开放和现代化建设事业的大事要事，设有国家机构、国防、外交、经济总类、国资国企等36个部类，240余万字，收录100多幅具有史料价值
 
 ## 正文
 
-5月8日，中泰证券（上海）资产管理有限公司发布高级管理人员变更公告，董事长黄文卿、总经理徐建东双双因个人原因于5月7日正式离任；由投行背景出身的姜天坊接任董事长，副总经理姜诚升任代总经理，业界俗称的“双姜”组合正式亮相。
+新华社北京6月16日电 由新华通讯社主管、新华出版社主办、《中华人民共和国年鉴》编辑部编辑的《中华人民共和国年鉴2025》(以下简称《中国年鉴2025》)中、英文版近日出版，面向海内外公开发行。
 
-这一变化，既是公司最高管理层推动转型的有力举措，也为这家资产逼近千亿的券商资管增添了更多想象空间。
+《中国年鉴2025》中文版忠实记录了2024年中国改革开放和现代化建设事业的大事要事，设有国家机构、国防、外交、经济总类、国资国企等36个部类，240余万字，收录100多幅具有史料价值的图片。
 
-“双姜”搭档接棒：投行干将搭配百亿权益“大将” 履历显示，新任董事长姜天坊拥有超过20年的投行业务经验。
+《中国年鉴2025》英文版包括国情概要、中国政党制度、国家机构、今日中国、年度特辑、新闻图片、大事记和附录、索引等，100余万字，收录100多幅具有史料价值的图片。
 
-其职业生涯起步于中信证券，在债务资本市场部历任高级经理、副总裁、总监及执行总经理。
+为更好响应海内外读者的使用反馈与阅读需求，《中国年鉴2025》英文版进行了轻量化改版。
 
-2015年7月，他入职中泰证券（其前身为“齐鲁证券”），此后一路晋升，曾担任公司投资银行业务委员会委员、投资银行业务委员会主任等多个核心职位，并于2021年被陆续提拔为公司总经理助理、执行总监。
+《中国年鉴》是目前国内唯一的综合性国家年鉴，自1981年创刊以来，已连续出版45期。
 
-2026年4月入职中泰证券（上海）资产管理有限公司，担任党委书记。
+其内容翔实、资料完整、数据权威，已成为各级党政机关、企事业单位、海内外研究机构、高等院校等了解中国、研究中国的重要参考工具书。
 
-姜天坊此次履新也是中泰资管首位非投资出身的一把手，其长年深耕一级市场，拥有丰富的投行资源和企业服务经验，上任后有望重塑中泰资管的业务格局。
-
-担纲代总经理的姜诚，则是中泰资管乃至全市场知名度颇高的“百亿基金经理”。
+据悉，《中国年鉴2024》中英文版已被近百所海内外知名高等院校图书馆收藏，获得积极反响。
 
 ## 相关推荐
 
-- 2026-06-29 13:12 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 13:06 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 13:16 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 13:00 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 13:10 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 12:58 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 13:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 13:12 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 13:13 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 13:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 12:55 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 13:21 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 13:02 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 13:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 13:07 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 13:09 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 13:20 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 13:10 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-29 13:24 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 13:22 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 13:19 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:55 - [林诗栋晋级WTT美国大满贯男单32强](http://www.share.kurohicncr.top/Article/details/89249854.shtml)
-- 2026-06-29 12:53 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/4728144269.shtml)
-- 2026-06-29 13:07 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/64873652893.shtml)
-- 2026-06-29 12:57 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/2973990.shtml)
-- 2026-06-29 12:51 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/98163513.shtml)
-- 2026-06-29 12:51 - [张真源解读相思锁](https://www.share.minike.top/Article/details/341261.shtml)
-- 2026-06-29 13:08 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/40616.shtml)
-- 2026-06-29 13:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/241899099177.shtml)
-- 2026-06-29 13:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/40080.shtml)
-- 2026-06-29 12:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/2707607.shtml)
-- 2026-06-29 13:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/0884510.shtml)
-- 2026-06-29 13:19 - [网友偶遇胡军和李乃文](http://www.share.kurohicncr.top/Article/details/156781.shtml)
-- 2026-06-29 12:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/84156968.shtml)
-- 2026-06-29 13:12 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.kurohicncr.top/Article/details/119873674.shtml)
-- 2026-06-29 13:03 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/76943143.shtml)
+- 2026-06-29 13:28 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/4966699.shtml)
+- 2026-06-29 13:07 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/587618171734.shtml)
+- 2026-06-29 13:21 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/20371008.shtml)
+- 2026-06-29 13:15 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/48639748.shtml)
+- 2026-06-29 13:17 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/99371737.shtml)
+- 2026-06-29 13:05 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/539471.shtml)
+- 2026-06-29 13:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/16420.shtml)
+- 2026-06-29 13:20 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.kurohicncr.top/Article/details/32859956957.shtml)
+- 2026-06-29 13:19 - [沙特足协主席发布声明主动请辞](https://www.share.minike.top/Article/details/0129880.shtml)
+- 2026-06-29 13:02 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/445606696823.shtml)
+- 2026-06-29 13:05 - [女心理师](https://www.blog.kurohicncr.top/Article/details/38809.shtml)
+- 2026-06-29 13:08 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/1340461.shtml)
+- 2026-06-29 13:05 - [谢霆锋演唱会变大型呲水现场](https://www.share.kurohicncr.top/Article/details/8278814459.shtml)
+- 2026-06-29 13:01 - [流金岁月](http://www.blog.minike.top/Article/details/90050799275.shtml)
+- 2026-06-29 13:17 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/04998301025.shtml)

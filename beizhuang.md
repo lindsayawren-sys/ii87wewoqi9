@@ -1,60 +1,48 @@
-# 不满机场收费上涨 瑞安航空将关闭希腊塞萨洛尼基基地
+# 两部门对青海海西州地震启动国家地震灾害四级应急响应
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-欧洲最大廉价航司瑞安航空（Ryanair）周五宣布，因不满机场运营方上调服务费用，公司将于今年冬季关闭位于希腊塞萨洛尼基机场的运营基地，并大幅削减进出该市的航班数量。 瑞安航空首席商务官贾森·麦吉尼斯在雅典向媒体表示，机场运营商法兰克福机场集团希腊公司（Fraport Greece）持续提高收费标准，目前相关费用已比新冠疫情前高出66%。麦吉尼斯强调，由于双方谈判未取得进展，瑞
+中新网6月16日电 据应急管理部网站消息，中国地震台网测定，6月16日17时06分，在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10公里。 地震发生后，应急管理部调派力量赶赴灾区，全力搜救被困人员，调拨物资做好受灾群众救助安置，加强震情监测和跟踪研判。国务院抗震救灾指挥部办公室、应急管理部启动国家地震灾害四级应急响应，派出工作组赶赴当地指导
 
 ## 正文
 
-欧洲最大廉价航司瑞安航空（Ryanair）周五宣布，因不满机场运营方上调服务费用，公司将于今年冬季关闭位于希腊塞萨洛尼基机场的运营基地，并大幅削减进出该市的航班数量。
+中新网6月16日电 据应急管理部网站消息，中国地震台网测定，6月16日17时06分，在青海海西州直辖区(北纬37.80度，东经95.56度)发生6.3级地震，震源深度10公里。
 
-瑞安航空首席商务官贾森·麦吉尼斯在雅典向媒体表示，机场运营商法兰克福机场集团希腊公司（Fraport Greece）持续提高收费标准，目前相关费用已比新冠疫情前高出66%。
+地震发生后，应急管理部调派力量赶赴灾区，全力搜救被困人员，调拨物资做好受灾群众救助安置，加强震情监测和跟踪研判。
 
-麦吉尼斯强调，由于双方谈判未取得进展，瑞安航空决定撤出在塞萨洛尼基基地部署的3架飞机，此举将导致该机场在冬春航季减少10条航线及50万个机位。
+国务院抗震救灾指挥部办公室、应急管理部启动国家地震灾害四级应急响应，派出工作组赶赴当地指导处置。
 
-针对瑞安航空的表态，法兰克福机场集团希腊公司随后发表声明称，有关收费导致航线缩减的指责“毫无根据”。
-
-声明指出，瑞安航空缩减塞萨洛尼基业务的决定完全源于其自身的商业策略、经营模式及盈利考量。
-
-除塞萨洛尼基外，瑞安航空还将缩减雅典机场的冬季运力。
-
-预计整个冬季航季，希腊全国将累计流失约70万个座位和12条航线。
-
-麦吉尼斯警告称，瑞安航空承担了塞萨洛尼基去年90%的国际运力，此次撤出可能对这座依赖旅游业的城市产生严重影响。
+国家综合性消防救援队伍已出动救援力量78车320人10条搜救犬赶赴现场救援。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 13:16 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 13:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 13:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 12:59 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 12:55 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:16 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 12:57 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 12:57 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 12:54 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 13:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 13:05 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 13:06 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 13:16 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:10 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 13:26 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 13:04 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 13:20 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 13:27 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 13:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 13:17 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 13:12 - [DeepSeek联合北京大学发布论文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 13:10 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 13:26 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:55 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/6445448.shtml)
-- 2026-06-29 13:16 - [小娘惹](https://www.blog.minike.top/Article/details/9760292.shtml)
-- 2026-06-29 13:01 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/77478000.shtml)
-- 2026-06-29 13:12 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/356694918.shtml)
-- 2026-06-29 13:18 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/6167909.shtml)
-- 2026-06-29 12:57 - [医药股集体爆发](https://www.blog.minike.top/Article/details/44237761.shtml)
-- 2026-06-29 13:18 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/1256990755.shtml)
-- 2026-06-29 13:14 - [5万块的威力](https://www.share.minike.top/Article/details/720565.shtml)
-- 2026-06-29 12:55 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/97589785894.shtml)
-- 2026-06-29 13:19 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/33441929.shtml)
-- 2026-06-29 13:06 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/27878270553.shtml)
-- 2026-06-29 13:18 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/019097421407.shtml)
-- 2026-06-29 12:55 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/3858740.shtml)
-- 2026-06-29 13:01 - [埃博拉为何再次袭击非洲](http://www.share.minike.top/Article/details/72699420086.shtml)
-- 2026-06-29 13:16 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/019003.shtml)
+- 2026-06-29 13:23 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/19380291838.shtml)
+- 2026-06-29 13:08 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/106580.shtml)
+- 2026-06-29 13:25 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/916645041.shtml)
+- 2026-06-29 13:06 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/06746299.shtml)
+- 2026-06-29 13:06 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/108572603038.shtml)
+- 2026-06-29 13:28 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/48714.shtml)
+- 2026-06-29 13:28 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/2809626502.shtml)
+- 2026-06-29 13:12 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/344796130.shtml)
+- 2026-06-29 13:15 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/694826075933.shtml)
+- 2026-06-29 13:10 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/639636.shtml)
+- 2026-06-29 13:03 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/189126052322.shtml)
+- 2026-06-29 13:10 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/35272.shtml)
+- 2026-06-29 13:05 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/5259366817.shtml)
+- 2026-06-29 13:23 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/517810805.shtml)
+- 2026-06-29 13:19 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/691416.shtml)

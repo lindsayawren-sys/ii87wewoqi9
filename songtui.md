@@ -1,56 +1,59 @@
-# 美伊和平谈判陷入停滞，美国国务卿对伊朗再度发出威胁
+# 中国科考队在黄岩岛发现大规模绿海龟种群
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-美国国务卿警告，在美国等待伊朗就和平谈判作出回应期间，任何伊朗船只若对美军舰艇构成威胁，美方将直接开火。 鲁比奥周五在罗马与意大利及梵蒂冈高层领导人会晤后对记者表示：“一旦伊朗船只越界或威胁美方人员与舰船，必将遭到击毁。” 鲁比奥称，美方期待伊朗在本周五前，就其提出的停战谅解备忘录给出答复。他表示：“我们拭目以待伊朗的回应，希望这份答复能推动双方进入正式、严肃的谈判进程。” 伊
+中新网广州6月16日电 (记者 王坚)中国科学院南海海洋研究所16日消息称，中国科学院黄岩岛发育演化与生态韧性综合科考队近日在中国黄岩岛潟湖海草床，发现大规模国家一级保护野生动物绿海龟种群，初步观测数量超50只。 据介绍，黄岩岛潟湖松软泥沙底质区发育有大面积的海草床，近年来，海草床发育态势良好，优势种包括圆叶丝粉草、卵叶喜盐草等，都是绿海龟的重要食物。 此次发现说明，黄岩岛潟湖
 
 ## 正文
 
-美国国务卿警告，在美国等待伊朗就和平谈判作出回应期间，任何伊朗船只若对美军舰艇构成威胁，美方将直接开火。
+中新网广州6月16日电 (记者 王坚)中国科学院南海海洋研究所16日消息称，中国科学院黄岩岛发育演化与生态韧性综合科考队近日在中国黄岩岛潟湖海草床，发现大规模国家一级保护野生动物绿海龟种群，初步观测数量超50只。
 
-鲁比奥周五在罗马与意大利及梵蒂冈高层领导人会晤后对记者表示：“一旦伊朗船只越界或威胁美方人员与舰船，必将遭到击毁。
+据介绍，黄岩岛潟湖松软泥沙底质区发育有大面积的海草床，近年来，海草床发育态势良好，优势种包括圆叶丝粉草、卵叶喜盐草等，都是绿海龟的重要食物。
 
-” 鲁比奥称，美方期待伊朗在本周五前，就其提出的停战谅解备忘录给出答复。
+此次发现说明，黄岩岛潟湖海草床已经发育出成熟的珊瑚礁-海草床复合生态系统，并为海龟等高价值物种提供了优质的栖息环境。
 
-他表示：“我们拭目以待伊朗的回应，希望这份答复能推动双方进入正式、严肃的谈判进程。
+中国设立黄岩岛国家级自然保护区，对该海域生态系统与珍稀野生动物资源保护发挥了积极作用。
 
-” 伊朗官方目前正在审议一份仅有一页、包含14项条款的谅解备忘录。
+与此同时，科考队还发现海草床附近存在低潮出露海面的潜在沙洲，调查显示其有进一步向完全出露沙洲发育的趋势，后续可以为绿海龟、玳瑁等提供理想的繁殖产卵场，并让黄岩岛从海龟、玳瑁的“餐厅”升级为真正的“家园”。
 
-该备忘录旨在正式结束今年2月由美国和以色列发起、已持续两个月的战事。
+此次发现是由中国科学院黄岩岛科考队运用无人机巡查技术，开展的绿海龟种群识别与跟踪调查应用，借助低扰动的新调查手段拍摄到了绿海龟成群竞泳的珍贵画面。
 
-调停人士透露，伊朗方面已向中间人暗示，原则上有望同意这份备忘录，但要求对其中多项条款作出修改。
-
-责任编辑：何云
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 12:59 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 12:58 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 13:18 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 13:02 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 13:04 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 13:15 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 12:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 12:59 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 13:04 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 13:10 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 13:26 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 13:27 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 13:28 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 13:14 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 13:00 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 13:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 13:10 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 13:06 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 13:17 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 13:16 - [恋与深空女玩家不该被冒犯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 13:07 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 13:11 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 13:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 13:05 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/622216036.shtml)
-- 2026-06-29 13:13 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/69490661.shtml)
-- 2026-06-29 13:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/67108.shtml)
-- 2026-06-29 13:11 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/35164414.shtml)
-- 2026-06-29 13:09 - [杨紫《生命树》播放量破百亿](http://www.blog.kurohicncr.top/Article/details/84234914227.shtml)
-- 2026-06-29 13:16 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/07847483294.shtml)
-- 2026-06-29 12:51 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/08684.shtml)
-- 2026-06-29 12:52 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/65880715943.shtml)
-- 2026-06-29 12:55 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/0844063.shtml)
-- 2026-06-29 13:09 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/784281905.shtml)
-- 2026-06-29 13:00 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/820276.shtml)
-- 2026-06-29 12:59 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/73530558757.shtml)
-- 2026-06-29 13:15 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/27960777378.shtml)
-- 2026-06-29 13:12 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/42179449351.shtml)
-- 2026-06-29 13:11 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/78030048109.shtml)
+- 2026-06-29 13:16 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/799166228823.shtml)
+- 2026-06-29 13:07 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/32190535432.shtml)
+- 2026-06-29 13:20 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/91601107.shtml)
+- 2026-06-29 13:22 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/4585081.shtml)
+- 2026-06-29 13:27 - [乌拉圭出局之路](https://www.blog.kurohicncr.top/Article/details/144675.shtml)
+- 2026-06-29 13:14 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/605980887.shtml)
+- 2026-06-29 13:24 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/7240772082.shtml)
+- 2026-06-29 13:28 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/1849283.shtml)
+- 2026-06-29 13:22 - [绘画区你赢了](http://www.blog.minike.top/Article/details/298151119.shtml)
+- 2026-06-29 13:12 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/367935169.shtml)
+- 2026-06-29 13:25 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/10420153.shtml)
+- 2026-06-29 13:15 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/95128882429.shtml)
+- 2026-06-29 13:08 - [王楚钦3比0周启豪](https://www.share.minike.top/Article/details/9076553268.shtml)
+- 2026-06-29 13:00 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/5462777.shtml)
+- 2026-06-29 13:28 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/33831329.shtml)

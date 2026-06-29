@@ -1,59 +1,56 @@
-# 回应军舰遭袭 美军空袭伊朗军事设施
+# 英伟达拟发行债券筹集至多250亿美元资金
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新社华盛顿5月7日电(记者 陈孟统)美军中央司令部7日发表声明称，美军三艘导弹驱逐舰当天在穿越霍尔木兹海峡前往阿曼湾时，遭到伊朗袭击，美军实施了“反击”。 声明说，伊朗方面发射了多枚导弹和无人机，并出动多艘小型快艇。美军摧毁来袭目标，并打击了对美军发动攻击的伊朗军事设施。美方没有任何舰艇或装备被击中。 美军中央司令部表示，美方无意升级局势，但已部署并准备好保护美军部队安全。
+据知情人士透露，英伟达计划通过发行债券筹集至少200亿美元的资金，这将是这家芯片制造商自人工智能热潮兴起以来首次发行债券。 英伟达周一向美国证券交易委员会（SEC）提交的文件披露了此次融资计划，但并未透露具体金额。今年早些时候，该公司曾表示，可能通过发行无担保商业票据筹集至多250亿美元的资金。知情人士称，此次债券发行的最终规模可能接近250亿美元。由于具体数字尚未公开，这些知
 
 ## 正文
 
-中新社华盛顿5月7日电(记者 陈孟统)美军中央司令部7日发表声明称，美军三艘导弹驱逐舰当天在穿越霍尔木兹海峡前往阿曼湾时，遭到伊朗袭击，美军实施了“反击”。
+据知情人士透露，英伟达计划通过发行债券筹集至少200亿美元的资金，这将是这家芯片制造商自人工智能热潮兴起以来首次发行债券。
 
-声明说，伊朗方面发射了多枚导弹和无人机，并出动多艘小型快艇。
+英伟达周一向美国证券交易委员会（SEC）提交的文件披露了此次融资计划，但并未透露具体金额。
 
-美军摧毁来袭目标，并打击了对美军发动攻击的伊朗军事设施。
+今年早些时候，该公司曾表示，可能通过发行无担保商业票据筹集至多250亿美元的资金。
 
-美方没有任何舰艇或装备被击中。
+知情人士称，此次债券发行的最终规模可能接近250亿美元。
 
-美军中央司令部表示，美方无意升级局势，但已部署并准备好保护美军部队安全。
+由于具体数字尚未公开，这些知情人士要求匿名。
 
-美国总统特朗普随后在社交媒体上表示，这三艘导弹驱逐舰已成功驶出霍尔木兹海峡，重新加入美军的海上封锁行动。
+英伟达股价周一上涨3.5%，今年以来累计上涨约14%。
 
-特朗普还威胁称，如果伊朗不迅速签署协议，美方将以“更猛烈、更暴力”的方式对其实施打击。
+这家芯片制造商是最新一家进军资本市场的人工智能相关科技公司。
 
-(完)
+Alphabet本月早些时候宣布计划通过股权融资筹集850亿美元，此前该公司自去年11月以来已获得超过550亿美元的新债务融资。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 13:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 13:09 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 13:19 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 12:56 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 13:15 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 12:53 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 13:00 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 13:11 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 13:01 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 12:51 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 13:07 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 12:58 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 13:05 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 13:29 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:22 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 13:01 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 13:02 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 13:15 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 13:27 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 13:25 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 13:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:23 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/58680524.shtml)
-- 2026-06-29 13:12 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/8151235.shtml)
-- 2026-06-29 13:06 - [爱情有烟火你是知道我爱看什么的](https://www.blog.minike.top/Article/details/128206124475.shtml)
-- 2026-06-29 13:18 - [AG 钟意](https://www.blog.minike.top/Article/details/18724.shtml)
-- 2026-06-29 12:50 - [天道](https://www.blog.kurohicncr.top/Article/details/8864289048.shtml)
-- 2026-06-29 12:54 - [腾讯回应做独立支付APP](http://www.share.kurohicncr.top/Article/details/31552181.shtml)
-- 2026-06-29 12:51 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.minike.top/Article/details/7597633620.shtml)
-- 2026-06-29 13:13 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/21885023.shtml)
-- 2026-06-29 12:55 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/90224.shtml)
-- 2026-06-29 13:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/1184682701.shtml)
-- 2026-06-29 12:51 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/784083.shtml)
-- 2026-06-29 13:17 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/236749291.shtml)
-- 2026-06-29 13:01 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/296790.shtml)
-- 2026-06-29 13:05 - [俄政府批准巩固俄语地位行动计划](http://www.blog.kurohicncr.top/Article/details/39416070673.shtml)
-- 2026-06-29 12:55 - [林诗栋晋级WTT美国大满贯男单32强](http://www.share.kurohicncr.top/Article/details/904782805955.shtml)
+- 2026-06-29 13:19 - [韩红携4000万物资抵呼和浩特](https://www.blog.minike.top/Article/details/28419814.shtml)
+- 2026-06-29 13:01 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.minike.top/Article/details/1348307.shtml)
+- 2026-06-29 13:15 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/422881435298.shtml)
+- 2026-06-29 13:00 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/698874067518.shtml)
+- 2026-06-29 13:07 - [毕业寄几百斤快递回家女生发声](https://www.blog.kurohicncr.top/Article/details/698506645.shtml)
+- 2026-06-29 13:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/01270449.shtml)
+- 2026-06-29 13:02 - [5万块的威力](https://www.blog.minike.top/Article/details/53251644.shtml)
+- 2026-06-29 13:27 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.kurohicncr.top/Article/details/48695.shtml)
+- 2026-06-29 13:29 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/808815814.shtml)
+- 2026-06-29 13:05 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/3771028518.shtml)
+- 2026-06-29 13:24 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/5097576238.shtml)
+- 2026-06-29 13:23 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/345786636484.shtml)
+- 2026-06-29 13:09 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/51964827682.shtml)
+- 2026-06-29 13:19 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/21456151249.shtml)
+- 2026-06-29 13:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/3398075882.shtml)

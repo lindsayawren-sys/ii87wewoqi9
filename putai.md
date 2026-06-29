@@ -1,50 +1,56 @@
-# 四川黄龙：飞雪映瑶池
+# 跨界“追光”合作方是“空壳公司”！宿迁联盛被监管警示
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 22:09 来源：中国新闻网 初夏时节的四川黄龙景区，日前迎来了一场极为浪漫的降雪。漫天雪花悠悠扬扬，自苍穹洒落山间，将海拔3500米的五彩池景区悄然妆点。平日里绚烂夺目的钙华彩池，此刻被一层薄雪轻轻覆盖，银装素裹与斑斓池色相互映衬，宛如一幅天然的水墨与重彩交织的长卷，勾勒出“人间瑶池”独一份的奇幻景致。雪后初霁时，阳光穿透薄雾，在雪色与波光之
+中新网北京6月16日电(记者 谢艺观)上交所监管信息显示，因信披违规，宿迁联盛及时任董事会秘书谢龙锐被予以监管警示。 AI算力爆发背景下，光通信、光电芯片及硅光技术被资金热捧。这起事件的缘起，正是一场跨界“追光”。 6月8日晚，宿迁联盛曾披露关于签订战略框架协议并拟设立合资公司的公告，称公司拟与朱蓉辉及汇智光芯人工智能科技(苏州)有限公司(以下简称“汇智光芯”)设立合资公司，从
 
 ## 正文
 
-发布时间：2026年05月09日 22:09 来源：中国新闻网 初夏时节的四川黄龙景区，日前迎来了一场极为浪漫的降雪。
+中新网北京6月16日电(记者 谢艺观)上交所监管信息显示，因信披违规，宿迁联盛及时任董事会秘书谢龙锐被予以监管警示。
 
-漫天雪花悠悠扬扬，自苍穹洒落山间，将海拔3500米的五彩池景区悄然妆点。
+AI算力爆发背景下，光通信、光电芯片及硅光技术被资金热捧。
 
-平日里绚烂夺目的钙华彩池，此刻被一层薄雪轻轻覆盖，银装素裹与斑斓池色相互映衬，宛如一幅天然的水墨与重彩交织的长卷，勾勒出“人间瑶池”独一份的奇幻景致。
+这起事件的缘起，正是一场跨界“追光”。
 
-雪后初霁时，阳光穿透薄雾，在雪色与波光之间流转，更显静谧而圣洁，让到访的游人恍若步入仙境。
+6月8日晚，宿迁联盛曾披露关于签订战略框架协议并拟设立合资公司的公告，称公司拟与朱蓉辉及汇智光芯人工智能科技(苏州)有限公司(以下简称“汇智光芯”)设立合资公司，从事磷化铟衬底的研发和生产销售。
 
-(孙家鹏 安源 制作 王佳琪 视频来源 四川黄龙景区管理局） 责任编辑：【卢岩】
+公告显示，合资方汇智光芯经营范围为金属材料及电子元器件销售。
+
+同时公告提到，磷化铟衬底项目一期投资主要工作包括厂房、装修、生产环境、设备采购、人员组建及生产手续等工作落实，建设周期10个月。
+
+预期达到年生产12万片4-6英寸磷化铟衬底；二期依据一期进展和市场行情，预计追加投资2亿元，产能产线扩充至40万片/年。
+
+磷化铟衬底作为AI光模块的核心上游材料，是当前半导体领域最热门的赛道之一。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 13:13 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 13:06 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 12:58 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 13:13 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 12:57 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 13:06 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 12:59 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 13:01 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 12:53 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 13:03 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 13:02 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 13:12 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 13:20 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:17 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 13:04 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 13:10 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 13:03 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 13:26 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.kurohicncr.top/Article/details/9105357.shtml)
-- 2026-06-29 13:17 - [大罗力挺内马尔](https://www.blog.kurohicncr.top/Article/details/52423795300.shtml)
-- 2026-06-29 12:59 - [去美国加油？部分加拿大球迷陷入纠结](https://www.share.minike.top/Article/details/98197726.shtml)
-- 2026-06-29 12:55 - [沙丘](http://www.share.minike.top/Article/details/5264434.shtml)
-- 2026-06-29 13:18 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/265633718623.shtml)
-- 2026-06-29 12:58 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/643045446.shtml)
-- 2026-06-29 12:52 - [韩红携4000万物资抵呼和浩特](http://www.blog.minike.top/Article/details/843615183913.shtml)
-- 2026-06-29 13:01 - [毕业寄几百斤快递回家女生发声](http://www.share.kurohicncr.top/Article/details/621980875.shtml)
-- 2026-06-29 13:07 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/0397662235.shtml)
-- 2026-06-29 13:08 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/452015197.shtml)
-- 2026-06-29 13:16 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/58332051.shtml)
-- 2026-06-29 13:01 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/56473218.shtml)
-- 2026-06-29 12:52 - [本周做什么都顺的星座](https://www.blog.minike.top/Article/details/34074632864.shtml)
-- 2026-06-29 13:13 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/984219.shtml)
-- 2026-06-29 13:12 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/90844.shtml)
+- 2026-06-29 13:01 - [王佳佳江疏影13年前后同框对比](http://www.blog.kurohicncr.top/Article/details/239597014.shtml)
+- 2026-06-29 13:22 - [广州某高校辟谣禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/850778975754.shtml)
+- 2026-06-29 13:28 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/0337595.shtml)
+- 2026-06-29 13:23 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/855792.shtml)
+- 2026-06-29 13:26 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/63266.shtml)
+- 2026-06-29 13:03 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/079816.shtml)
+- 2026-06-29 13:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/97494409226.shtml)
+- 2026-06-29 13:08 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/2247640625.shtml)
+- 2026-06-29 13:22 - [绘画区你赢了](http://www.blog.minike.top/Article/details/33923469818.shtml)
+- 2026-06-29 13:04 - [大罗力挺内马尔](https://www.blog.kurohicncr.top/Article/details/75891464.shtml)
+- 2026-06-29 13:29 - [欧洲热死人不是开玩笑](https://www.blog.kurohicncr.top/Article/details/4377170539.shtml)
+- 2026-06-29 13:13 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/289702205.shtml)
+- 2026-06-29 13:15 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/74216035733.shtml)
+- 2026-06-29 13:19 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/8330312.shtml)
+- 2026-06-29 13:22 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/008966295722.shtml)

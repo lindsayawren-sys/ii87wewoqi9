@@ -1,60 +1,49 @@
-# 新石器发布“来电岛”无人车运营中心，目标3年落地100+城市
+# 湖南道县百余龙船竞渡！民间选手水上争雄迎端午
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月9日下午消息，新石器无人车联合特来电发布无人车自动充电及运营中心“来电岛”，同步启动“全球百城计划”，目标3年内在国内外超百座城市落地来电岛。同日，由新石器和特来电合资成立的无人车运营公司揭牌，双方战略合作全面落地。 据悉，“来电岛”并非简单的充电桩，而是一个自动化运营枢纽，一站式满足无人车自动停泊、补能、清洗、自检、运维全需求。单座“来电岛”可规划100个车位
+发布时间：2026年06月16日 11:24 来源：中国新闻网 6月15日至17日，湖南永州市道县举行传统龙船赛，当地185支队伍6000余名民间龙船队员展开竞逐，热热闹闹迎端午。道县端午民间划龙船传承已有千年，“道州龙船习俗”2021年被列入国家级非物质文化遗产代表性项目名录，2024年以“参赛人数最多的龙舟赛(团队)”创下吉尼斯世界纪录。(唐小晴 李盈 制作 王嘉怡 ) 责
 
 ## 正文
 
-新浪科技讯 5月9日下午消息，新石器无人车联合特来电发布无人车自动充电及运营中心“来电岛”，同步启动“全球百城计划”，目标3年内在国内外超百座城市落地来电岛。
+发布时间：2026年06月16日 11:24 来源：中国新闻网 6月15日至17日，湖南永州市道县举行传统龙船赛，当地185支队伍6000余名民间龙船队员展开竞逐，热热闹闹迎端午。
 
-同日，由新石器和特来电合资成立的无人车运营公司揭牌，双方战略合作全面落地。
+道县端午民间划龙船传承已有千年，“道州龙船习俗”2021年被列入国家级非物质文化遗产代表性项目名录，2024年以“参赛人数最多的龙舟赛(团队)”创下吉尼斯世界纪录。
 
-据悉，“来电岛”并非简单的充电桩，而是一个自动化运营枢纽，一站式满足无人车自动停泊、补能、清洗、自检、运维全需求。
-
-单座“来电岛”可规划100个车位及自动充电终端，实现高密度立体泊车，满足城市中心区域无人车“停得下”的需求；一小时可充满90辆车，同时依托特来电现有7万座公共充电网改扩建“中继岛”，1座来电岛+10座中继岛可支撑1200-1500辆无人车充电运营，实现了“充得快”，保障了车队的高效周转。
-
-除了充电，“来电岛”还集成了自动清洗、自检、维护等功能，实现了“跑得稳”，将原本分散的运维工作集中化、自动化，降低了运营成本。
-
-启用来电岛后，可实现高功率自动充电和立体泊车，将补能时间窗口最小化，车辆得以高效周转，大幅提升单车配送趟次和里程。
-
-成本方面，实现了“调度-充电-运维”全流程自动化与集中化，一个中心可服务上千辆车，运营边际成本随着车队规模扩大而显著降低。
-
-从城市管理角度来说，来电岛让无人车的停泊、补能集中解决，简化了城市交通、市容的监管难度。
+(唐小晴 李盈 制作 王嘉怡 ) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 13:16 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 12:59 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 13:02 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 13:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 13:03 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 13:15 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 13:09 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 13:03 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 13:03 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 13:03 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 12:51 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 13:07 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-29 13:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 13:11 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 13:19 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 13:04 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 13:26 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 13:05 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 13:24 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 13:29 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:25 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 13:03 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 13:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 13:14 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 13:16 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 13:02 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/014766.shtml)
-- 2026-06-29 13:16 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/069971142.shtml)
-- 2026-06-29 13:10 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/791737.shtml)
-- 2026-06-29 13:18 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/65777917.shtml)
-- 2026-06-29 12:59 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/73321265764.shtml)
-- 2026-06-29 12:57 - [和阿根廷球员家属一起看球](https://www.share.kurohicncr.top/Article/details/23319.shtml)
-- 2026-06-29 13:15 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/27902715582.shtml)
-- 2026-06-29 12:59 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/53640232.shtml)
-- 2026-06-29 13:01 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/93332634860.shtml)
-- 2026-06-29 12:53 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/229630.shtml)
-- 2026-06-29 13:14 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/6287230025.shtml)
-- 2026-06-29 12:51 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/5121933120.shtml)
-- 2026-06-29 13:09 - [女心理师](https://www.blog.kurohicncr.top/Article/details/69890.shtml)
-- 2026-06-29 12:57 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/02183724777.shtml)
-- 2026-06-29 13:18 - [去美国加油？部分加拿大球迷陷入纠结](http://www.share.minike.top/Article/details/168313.shtml)
+- 2026-06-29 13:29 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/998088066.shtml)
+- 2026-06-29 13:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/686610574820.shtml)
+- 2026-06-29 13:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/982053.shtml)
+- 2026-06-29 13:25 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/36522061738.shtml)
+- 2026-06-29 13:07 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/34888.shtml)
+- 2026-06-29 13:27 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/396211507.shtml)
+- 2026-06-29 13:22 - [叶一茜森碟一起回北京了](http://www.blog.minike.top/Article/details/6328935079.shtml)
+- 2026-06-29 13:24 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/906864.shtml)
+- 2026-06-29 13:23 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/7234107342.shtml)
+- 2026-06-29 13:06 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/6470634.shtml)
+- 2026-06-29 13:24 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/132213.shtml)
+- 2026-06-29 13:15 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/043402.shtml)
+- 2026-06-29 13:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/49877286955.shtml)
+- 2026-06-29 13:21 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/7223173.shtml)
+- 2026-06-29 13:11 - [【独家】牧神记 第89集 明心](http://www.blog.kurohicncr.top/Article/details/12828.shtml)

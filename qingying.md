@@ -1,51 +1,59 @@
-# 中国外交部亚洲司司长会见巴基斯坦驻华大使
+# 安德利果汁早盘高开逾73% 拟跨界收购集成电路材料企业
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 据中国外交部官网8日消息，中国外交部亚洲司司长刘劲松7日会见巴基斯坦驻华大使哈什米，就中巴关系及共同关心的问题友好深入地交换了意见。 刘劲松表示，今年是中巴建交75周年，巴基斯坦总统扎尔达里刚刚成功访问湖南省、海南省，政治社会效果都很好。中方愿同巴方保持高层交往势头，推进中巴经济走廊建设与各领域务实合作，就重大国际地区事务加强沟通协调，加快构建新时代更加紧
+安德利果汁（02218）盘初涨逾80%，截至发稿，股价上涨72.63%，现报39.36港元，成交额1.29亿港元。 6月15日晚，安德利发布公告称，公司已与宁波甬强科技有限公司（下简称甬强科技）股东签署《股权转让框架协议》，拟以6亿-8亿元总对价收购标的公司控制权，进军高速高频和BT（一种高性能电路板基板材料）类基板材料市场。公告同时强调，交易仍存在较大不确定性，目前仅为意向性
 
 ## 正文
 
-中新社北京5月8日电 据中国外交部官网8日消息，中国外交部亚洲司司长刘劲松7日会见巴基斯坦驻华大使哈什米，就中巴关系及共同关心的问题友好深入地交换了意见。
+安德利果汁（02218）盘初涨逾80%，截至发稿，股价上涨72.63%，现报39.36港元，成交额1.29亿港元。
 
-刘劲松表示，今年是中巴建交75周年，巴基斯坦总统扎尔达里刚刚成功访问湖南省、海南省，政治社会效果都很好。
+6月15日晚，安德利发布公告称，公司已与宁波甬强科技有限公司（下简称甬强科技）股东签署《股权转让框架协议》，拟以6亿-8亿元总对价收购标的公司控制权，进军高速高频和BT（一种高性能电路板基板材料）类基板材料市场。
 
-中方愿同巴方保持高层交往势头，推进中巴经济走廊建设与各领域务实合作，就重大国际地区事务加强沟通协调，加快构建新时代更加紧密的中巴命运共同体。
+公告同时强调，交易仍存在较大不确定性，目前仅为意向性约定，具体金额和方案需进一步谈判，能否顺利推进尚待观察。
 
-哈什米感谢中方对扎尔达里总统热情周到的接待，表示巴方愿同中方一道，认真落实两国领导人达成的重要共识，深化战略沟通和务实合作，共同办好巴中建交75周年纪念活动。
+甬强科技主要产品为电子信息互连材料，包括覆铜板和半固化片。
 
-(完)
+电子信息互连材料是制作印制电路板的核心材料。
+
+甬强科技在宁波市北仑区集成电路产业集聚基地建有年产1000万平方米的高速高频和BT类基板电子信息互连材料的产能。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 13:02 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 13:13 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:10 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 12:54 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 13:18 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 13:02 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 13:02 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 13:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:13 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 13:05 - [埃博拉为何再次袭击非洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 13:22 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 13:27 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 13:05 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 13:13 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:10 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 13:07 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 13:05 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:10 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 13:13 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:27 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 13:02 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 13:15 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 13:01 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 13:12 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 13:06 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/563747.shtml)
-- 2026-06-29 12:53 - [金价银价下跌 油价上涨](http://www.share.minike.top/Article/details/610822033223.shtml)
-- 2026-06-29 13:02 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/56703876886.shtml)
-- 2026-06-29 12:54 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/251525.shtml)
-- 2026-06-29 13:07 - [埃博拉为何再次袭击非洲](http://www.share.minike.top/Article/details/6418313930.shtml)
-- 2026-06-29 13:02 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.minike.top/Article/details/56649376.shtml)
-- 2026-06-29 13:11 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/76710062459.shtml)
-- 2026-06-29 12:57 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.minike.top/Article/details/2181534300.shtml)
-- 2026-06-29 13:19 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/01612.shtml)
-- 2026-06-29 12:51 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/207065797696.shtml)
-- 2026-06-29 13:12 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/518730677.shtml)
-- 2026-06-29 12:53 - [宜宾地震后顾客折返用餐0人逃单](https://www.blog.minike.top/Article/details/4921664.shtml)
-- 2026-06-29 12:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/5739994266.shtml)
-- 2026-06-29 12:52 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/882599639.shtml)
-- 2026-06-29 13:16 - [伊朗与黎巴嫩商定设立冲突管控工作组](http://www.share.minike.top/Article/details/60838184922.shtml)
+- 2026-06-29 13:07 - [医药股集体爆发](https://www.blog.minike.top/Article/details/0017156011.shtml)
+- 2026-06-29 13:22 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/342682890.shtml)
+- 2026-06-29 13:02 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.minike.top/Article/details/11195300498.shtml)
+- 2026-06-29 13:18 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/36890611247.shtml)
+- 2026-06-29 13:00 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/92518468909.shtml)
+- 2026-06-29 13:02 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/55691.shtml)
+- 2026-06-29 13:08 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/26388264.shtml)
+- 2026-06-29 13:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/4843189.shtml)
+- 2026-06-29 13:11 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/8403896.shtml)
+- 2026-06-29 13:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/085916290759.shtml)
+- 2026-06-29 13:03 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/832924.shtml)
+- 2026-06-29 13:03 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/000309.shtml)
+- 2026-06-29 13:23 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/019009.shtml)
+- 2026-06-29 13:13 - [加拿大92分钟绝杀成世界杯首个16强](http://www.blog.minike.top/Article/details/65977705.shtml)
+- 2026-06-29 13:06 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/886725499818.shtml)

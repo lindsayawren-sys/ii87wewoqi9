@@ -1,50 +1,56 @@
-# 中国工信部批复第六代移动通信系统技术试验频率
+# 云南五部门提出20项举措抓实民族团结进步促进法学习宣传贯彻工作
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 中国工业和信息化部8日公布，为进一步推动中国6G技术研发、标准研制与产业化进程，工信部近日向 IMT-2030(6G)推进组批复6GHz频段6G试验频率使用许可，支持其在部分地区开展6G技术试验，面向国际电信联盟确定的6G典型场景与关键性能指标，开展技术研发攻关和测试验证。 工信部介绍，此次批复6G技术试验频率，将有力推动中国6G高质量发展。(完)
+近日，省委统战部、省委宣传部，省民委、省司法厅、省普法办联合印发《云南省深入学习宣传贯彻〈中华人民共和国民族团结进步促进法〉工作方案》(以下简称《方案》)，提出20项具体举措，扎实抓好民族团结进步促进法学习宣传贯彻工作。《方案》指出，要全面开展学习培训，突出“关键少数”，将法律纳入党委(党组)理论学习中心组学习内容、领导干部应知应会党内法规和国家法律清单，以及基层党组织“三会一
 
 ## 正文
 
-中新社北京5月8日电 中国工业和信息化部8日公布，为进一步推动中国6G技术研发、标准研制与产业化进程，工信部近日向 IMT-2030(6G)推进组批复6GHz频段6G试验频率使用许可，支持其在部分地区开展6G技术试验，面向国际电信联盟确定的6G典型场景与关键性能指标，开展技术研发攻关和测试验证。
+近日，省委统战部、省委宣传部，省民委、省司法厅、省普法办联合印发《云南省深入学习宣传贯彻〈中华人民共和国民族团结进步促进法〉工作方案》(以下简称《方案》)，提出20项具体举措，扎实抓好民族团结进步促进法学习宣传贯彻工作。
 
-工信部介绍，此次批复6G技术试验频率，将有力推动中国6G高质量发展。
+《方案》指出，要全面开展学习培训，突出“关键少数”，将法律纳入党委(党组)理论学习中心组学习内容、领导干部应知应会党内法规和国家法律清单，以及基层党组织“三会一课”、主题党日等组织生活。
 
-(完)
+抓好系统培训，将法律纳入各级党校(行政学院)、社会主义学院、干部学院、全省公职人员年度学法内容和领导干部任职培训，实现全省民委系统干部进行全员轮训，省委民族团结进步示范区建设工作领导小组成员单位、铸牢中华民族共同体意识研究基地、教育实践基地等重点对象全覆盖。
+
+《方案》强调，加大宣传教育力度，组建民族团结进步促进法宣讲团，将法律纳入“思奇宣讲·百千万行”理论宣讲活动，广泛开展主题征文、演讲比赛、知识竞答等互动活动，推出权威访谈。
+
+深化全媒体传播，创作一批群众喜闻乐见的融媒体产品，制作一批“双语”普法音视频和有声读物。
+
+结合“法治宣传边关行”“法治宣传固边防”活动，把民族团结进步促进法宣传与边疆治理、国门党建深度融合；推动民族团结进步促进法进机关、进社区、进乡村、进学校、进企业、进文博场所、进景区、进边境口岸、进社会组织、进宗教活动场所“十进”普法活动，在全社会营造铸牢中华民族共同体意识的良好氛围。
+
+《方案》要求，要扎实做好法律贯彻实施工作。
+
+一是构筑共有精神家园。
 
 ## 相关推荐
 
-- 2026-06-29 13:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 13:03 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 12:57 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 12:57 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 13:18 - [天津打雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 13:10 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 13:10 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 13:03 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 13:03 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 12:50 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 13:15 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 13:01 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 13:11 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 13:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 13:26 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 13:13 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 13:11 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 13:03 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 13:14 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 13:25 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:11 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 13:18 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/47150070.shtml)
-- 2026-06-29 13:09 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/64872.shtml)
-- 2026-06-29 13:11 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/24700524.shtml)
-- 2026-06-29 13:07 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/401938369.shtml)
-- 2026-06-29 13:17 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.minike.top/Article/details/259578.shtml)
-- 2026-06-29 13:03 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/708487906691.shtml)
-- 2026-06-29 12:50 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/00012544.shtml)
-- 2026-06-29 12:54 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/7936607.shtml)
-- 2026-06-29 13:14 - [世界杯打成了欧洲杯和美洲杯](https://www.share.kurohicncr.top/Article/details/593806.shtml)
-- 2026-06-29 13:10 - [杨紫《生命树》播放量破百亿](http://www.share.minike.top/Article/details/091049.shtml)
-- 2026-06-29 13:16 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/8827783300.shtml)
-- 2026-06-29 12:52 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/72110.shtml)
-- 2026-06-29 13:15 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/7921163786.shtml)
-- 2026-06-29 13:15 - [明星大侦探第四季](https://www.share.minike.top/Article/details/30137.shtml)
-- 2026-06-29 13:14 - [房屋抵押权与租赁权如何协调](https://www.share.minike.top/Article/details/32900640.shtml)
+- 2026-06-29 13:28 - [TOP 无畏契约](https://www.share.minike.top/Article/details/40068074963.shtml)
+- 2026-06-29 13:05 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/04657.shtml)
+- 2026-06-29 13:01 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/765824.shtml)
+- 2026-06-29 13:12 - [薛之谦演唱会](http://www.share.minike.top/Article/details/4242184211.shtml)
+- 2026-06-29 13:28 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/730667.shtml)
+- 2026-06-29 13:02 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/24417790.shtml)
+- 2026-06-29 13:11 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/713899833.shtml)
+- 2026-06-29 13:11 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/674525734.shtml)
+- 2026-06-29 13:01 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/15949.shtml)
+- 2026-06-29 13:11 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/964239732.shtml)
+- 2026-06-29 13:01 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/726887696043.shtml)
+- 2026-06-29 13:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/7340394404.shtml)
+- 2026-06-29 13:12 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/47267980574.shtml)
+- 2026-06-29 13:24 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/32617550.shtml)
+- 2026-06-29 13:24 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/693127.shtml)

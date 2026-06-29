@@ -1,57 +1,58 @@
-# 存储芯片股持续飙升：美光与闪迪的上涨动力何在
+# 六家寿险公司试水“南向通” 险资打开出海新通道
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-存储芯片制造商的股价周五继续走高，美光科技上涨约4%，闪迪上涨约5%。自4月底以来，这两只股票的累计涨幅均已超过25%，成为费城半导体指数中表現最亮眼的成分股。 供需失衡驱动价格上涨 本轮上涨的核心动力是存储芯片价格的持续攀升。自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片的现货价格已分别上涨约25%和18%。导致供应紧张的原因包括：韩国厂商占全球存储芯片供应量的60%以
+近日，保险资金参与债券通“南向通”从政策破冰走向实操落地。记者从业内获悉，中国人寿、平安人寿、太保寿险、泰康人寿、太平人寿、人保寿险6家寿险公司首批获准开展“南向通”债券投资。与此同时，泰康资产、平安资管、国寿资产等保险资管机构作为首批受托方，已顺利完成首笔投资交易。这意味着，在2025年7月央行宣布将“南向通”投资者范围扩大至券商、基金、保险、理财等四类非银机构之后，保险资金
 
 ## 正文
 
-存储芯片制造商的股价周五继续走高，美光科技上涨约4%，闪迪上涨约5%。
+近日，保险资金参与债券通“南向通”从政策破冰走向实操落地。
 
-自4月底以来，这两只股票的累计涨幅均已超过25%，成为费城半导体指数中表現最亮眼的成分股。
+记者从业内获悉，中国人寿、平安人寿、太保寿险、泰康人寿、太平人寿、人保寿险6家寿险公司首批获准开展“南向通”债券投资。
 
-供需失衡驱动价格上涨 本轮上涨的核心动力是存储芯片价格的持续攀升。
+与此同时，泰康资产、平安资管、国寿资产等保险资管机构作为首批受托方，已顺利完成首笔投资交易。
 
-自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片的现货价格已分别上涨约25%和18%。
+这意味着，在2025年7月央行宣布将“南向通”投资者范围扩大至券商、基金、保险、理财等四类非银机构之后，保险资金跨境债券投资的新通道正式开启。
 
-导致供应紧张的原因包括：韩国厂商占全球存储芯片供应量的60%以上，中东冲突导致的海运受阻和保险成本上升已影响出货；AI服务器对高带宽内存的需求正在消耗大量产能，挤压了传统PC和智能手机的内存供应；主要厂商在过去两年中削减了资本支出，导致当前产能无法快速响应需求增长。
+独立额度打破QDII瓶颈 “南向通”于2021年9月上线运行，初期合格投资者仅限于41家银行类金融机构以及QDII、RQDII。
 
-美光的双引擎 美光同时受益于DRAM和NAND价格上涨，以及其在HBM市场的领先地位。
+2025年7月，中国人民银行明确将非银金融机构纳入合格投资者范围。
 
-美光的HBM3E产品已被英伟达和AMD采用。
+经过近一年的准备，保险机构终于在2026年6月拿到入场券。
 
-分析师预计，HBM相关营收将从2025年的约20亿美元增长至2026年的约50亿美元。
+从首批名单看，6家寿险公司均为头部机构，符合“初期试点、不搞大范围放开”的市场预期。
 
 ## 相关推荐
 
-- 2026-06-29 13:03 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 13:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 13:09 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 13:08 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:58 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 13:15 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 12:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 13:12 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 13:06 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 12:56 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:11 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 13:25 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 13:19 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 13:02 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 13:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 13:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 13:15 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 13:09 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 13:25 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 13:27 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:03 - [天津打雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 13:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 13:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/8629751727.shtml)
-- 2026-06-29 13:05 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.kurohicncr.top/Article/details/5662290.shtml)
-- 2026-06-29 13:15 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/351377809070.shtml)
-- 2026-06-29 13:16 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/938337945473.shtml)
-- 2026-06-29 12:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/93075473489.shtml)
-- 2026-06-29 12:51 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/12369458.shtml)
-- 2026-06-29 13:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/036339.shtml)
-- 2026-06-29 13:12 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/95424779.shtml)
-- 2026-06-29 13:10 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.share.minike.top/Article/details/74916.shtml)
-- 2026-06-29 13:03 - [加拿大92分钟绝杀](http://www.share.minike.top/Article/details/570085.shtml)
-- 2026-06-29 13:13 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/453495604.shtml)
-- 2026-06-29 12:55 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/77461353015.shtml)
-- 2026-06-29 13:05 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/123411771.shtml)
-- 2026-06-29 13:06 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/9054687792.shtml)
-- 2026-06-29 13:00 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/852894.shtml)
+- 2026-06-29 13:21 - [金刚川](http://www.share.kurohicncr.top/Article/details/716007748.shtml)
+- 2026-06-29 13:30 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/29343742209.shtml)
+- 2026-06-29 13:27 - [王佳佳江疏影13年前后同框对比](http://www.blog.minike.top/Article/details/485672720.shtml)
+- 2026-06-29 13:16 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/853785438888.shtml)
+- 2026-06-29 13:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/55642828416.shtml)
+- 2026-06-29 13:14 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/70335.shtml)
+- 2026-06-29 13:24 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/42271.shtml)
+- 2026-06-29 13:10 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/985796.shtml)
+- 2026-06-29 13:17 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/820667176.shtml)
+- 2026-06-29 13:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/66061.shtml)
+- 2026-06-29 13:17 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/01931.shtml)
+- 2026-06-29 13:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/2853179618.shtml)
+- 2026-06-29 13:23 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/743553667.shtml)
+- 2026-06-29 13:20 - [赵今麦客串电影版开端](http://www.blog.minike.top/Article/details/10665867.shtml)
+- 2026-06-29 13:25 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/878935850.shtml)

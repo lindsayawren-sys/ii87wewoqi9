@@ -1,56 +1,58 @@
-# A股一周20大牛股出炉：戈碧迦涨超60%，4股年内涨超200%
+# 将两岁孩子告上法庭？弱者权益如何守护？
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-“五一”假期后三个交易日（5月6日-5月8日），沪指累计涨1.65%；深证成指累计涨3.02%；创业板指累计涨3.24%。4201只个股当周实现上涨，117股涨超20%。 根据Wind数据统计，剔除年内上市的个股，领涨的前20只个股当周均涨超30%，其中电子行业、通信行业各有4只上榜。戈碧迦、昆工科技、聚杰微纤、德林海等多股涨超40%。 20大牛股中，多只实现3连板（5月6日-
+据6月15日中国新闻网报道，近日，江苏镇江一桩官司引发广泛讨论。一户人家接连遭遇变故，爷爷与父亲意外离世，留下50万元抵押贷款。为追回欠款，银行将年仅两岁的幼童、孩子母亲和奶奶一并告上法庭，要求继承人承担还款责任。最终法院依法酌定，优先为孩子预留15万元遗产份额，剩余遗产部分再用于清偿银行债务。鉴于孩子可继承的财产价值未超出15万元预留份额，法院最终驳回了银行的诉讼请求。单从债
 
 ## 正文
 
-“五一”假期后三个交易日（5月6日-5月8日），沪指累计涨1.65%；深证成指累计涨3.02%；创业板指累计涨3.24%。
+据6月15日中国新闻网报道，近日，江苏镇江一桩官司引发广泛讨论。
 
-4201只个股当周实现上涨，117股涨超20%。
+一户人家接连遭遇变故，爷爷与父亲意外离世，留下50万元抵押贷款。
 
-根据Wind数据统计，剔除年内上市的个股，领涨的前20只个股当周均涨超30%，其中电子行业、通信行业各有4只上榜。
+为追回欠款，银行将年仅两岁的幼童、孩子母亲和奶奶一并告上法庭，要求继承人承担还款责任。
 
-戈碧迦、昆工科技、聚杰微纤、德林海等多股涨超40%。
+最终法院依法酌定，优先为孩子预留15万元遗产份额，剩余遗产部分再用于清偿银行债务。
 
-20大牛股中，多只实现3连板（5月6日-8日连续涨停），包括大唐发电、大业股份、杭电股份、波导股份。
+鉴于孩子可继承的财产价值未超出15万元预留份额，法院最终驳回了银行的诉讼请求。
 
-其次，福达合金斩获4连板，4月30日及节后三个交易日均实现涨停。
+单从债权角度来看，银行的诉求合乎常规逻辑。
 
-最牛股戈碧迦当周大涨61.56%，4月以来涨超95%，最新总市值为102亿元。
+欠债还钱是基本准则，按照法律要求，继承人本就需要在继承遗产的范围内，承担被继承人的债务。
 
-5月8日晚间，戈碧迦发布异动公告称，公司股票在2026年5月7日至5月8日两个有成交的交易日内，收盘价涨幅偏离值累计达43.79%。
+通过诉讼维护自身合法权益，也是金融机构正常的风控手段。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 13:05 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 13:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 13:12 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 13:01 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 13:09 - [国乒全主力参加美国大满贯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 13:04 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 12:56 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 13:14 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 13:14 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 13:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 13:03 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 13:11 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 13:24 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 13:14 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 13:22 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:00 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 13:25 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 13:29 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 13:04 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 13:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 13:09 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:05 - [斗破苍穹](https://www.blog.minike.top/Article/details/617661.shtml)
-- 2026-06-29 13:04 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/6962729.shtml)
-- 2026-06-29 13:18 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/787708962.shtml)
-- 2026-06-29 13:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/639391213.shtml)
-- 2026-06-29 13:15 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/63632272032.shtml)
-- 2026-06-29 12:52 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.kurohicncr.top/Article/details/606982.shtml)
-- 2026-06-29 12:56 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/0239264.shtml)
-- 2026-06-29 12:50 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/468992.shtml)
-- 2026-06-29 13:11 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/76135869030.shtml)
-- 2026-06-29 12:54 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/779977115.shtml)
-- 2026-06-29 13:00 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/688074.shtml)
-- 2026-06-29 12:51 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/33901.shtml)
-- 2026-06-29 13:14 - [腾讯回应做独立支付APP](http://www.blog.kurohicncr.top/Article/details/709005521.shtml)
-- 2026-06-29 12:51 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/53358362802.shtml)
-- 2026-06-29 13:04 - [AG 钟意](http://www.blog.minike.top/Article/details/26056.shtml)
+- 2026-06-29 13:06 - [医护人员观影《四渡》传承长征精神](https://www.share.minike.top/Article/details/505160126.shtml)
+- 2026-06-29 13:06 - [A股](http://www.share.kurohicncr.top/Article/details/3869519.shtml)
+- 2026-06-29 13:04 - [刘仲华院士愿当贺永辉导师](http://www.blog.minike.top/Article/details/31342.shtml)
+- 2026-06-29 13:13 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/662320.shtml)
+- 2026-06-29 13:00 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/2077799.shtml)
+- 2026-06-29 13:17 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/762518.shtml)
+- 2026-06-29 13:18 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/2435769.shtml)
+- 2026-06-29 13:14 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/2013032783.shtml)
+- 2026-06-29 13:05 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/54110446.shtml)
+- 2026-06-29 13:27 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/45039.shtml)
+- 2026-06-29 13:03 - [女心理师](https://www.blog.minike.top/Article/details/18087800157.shtml)
+- 2026-06-29 13:18 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/63558305.shtml)
+- 2026-06-29 13:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/70079.shtml)
+- 2026-06-29 13:26 - [请回答王牌2019](https://www.blog.minike.top/Article/details/871021.shtml)
+- 2026-06-29 13:00 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/52817728.shtml)

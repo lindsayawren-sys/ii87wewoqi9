@@ -1,56 +1,45 @@
-# 华林证券净资本最低 投行手续费净收入最少“小而不美”|券商年报
+# 2026年世界青年发展论坛在湖北举行
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-专题：上市券商2025年年报披露！各业务收入大比拼 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：图灵 2025年又是“券商大年”。据中证协数据，150家券商全年实现营业收入5411.71亿元，同比增长19.95%；净利润2194.39亿元，同比增长31.2%。 上市券商方面，44家A股纯证券业务券商中，42家实现归
+发布时间：2026年06月16日 08:56 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-专题：上市券商2025年年报披露！
-
-各业务收入大比拼 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-出品：新浪财经上市公司研究院 作者：图灵 2025年又是“券商大年”。
-
-据中证协数据，150家券商全年实现营业收入5411.71亿元，同比增长19.95%；净利润2194.39亿元，同比增长31.2%。
-
-上市券商方面，44家A股纯证券业务券商中，42家实现归母净利润同比增长，43家营收同比增长；8家券商净利润超百亿元，行业集中度进一步提升。
-
-44家券商中，中信证券2025年营收、净利润最高；太平洋营收最低，天风证券（维权）净利润最低。
-
-2025年年末，43家券商中（无东方财富），净资本（母公司报表，下同）最高的是国泰海通，金额为1850.87 亿元，最低的是华林证券，仅有54.8亿元。
-
-资本杠杆率最高的是太平洋，数据为71.01%；最低的是广发证券，数据仅有11.32%。
+发布时间：2026年06月16日 08:56 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 13:03 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 13:11 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-29 12:54 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 12:54 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 13:01 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 13:14 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-29 12:59 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 13:01 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:51 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 13:14 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 13:20 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 13:12 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 13:25 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 13:13 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 13:09 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 13:27 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 13:16 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 13:29 - [王佳佳江疏影13年前后同框对比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:12 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 13:05 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 13:26 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 13:17 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 13:19 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/17354049326.shtml)
-- 2026-06-29 13:13 - [DeepSeek联合北京大学发布论文](https://www.share.kurohicncr.top/Article/details/877117530390.shtml)
-- 2026-06-29 12:58 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/06792786.shtml)
-- 2026-06-29 13:19 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/184971.shtml)
-- 2026-06-29 13:01 - [世界杯打成了欧洲杯和美洲杯](https://www.blog.minike.top/Article/details/0532761.shtml)
-- 2026-06-29 12:56 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/4667001995.shtml)
-- 2026-06-29 12:53 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/759418.shtml)
-- 2026-06-29 13:12 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/908251.shtml)
-- 2026-06-29 13:04 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.kurohicncr.top/Article/details/7400344502.shtml)
-- 2026-06-29 13:10 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/570884503.shtml)
-- 2026-06-29 13:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/647794.shtml)
-- 2026-06-29 13:07 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/5517327556.shtml)
-- 2026-06-29 13:08 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/02760998.shtml)
-- 2026-06-29 13:14 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/358938589.shtml)
-- 2026-06-29 13:16 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/8347349885.shtml)
+- 2026-06-29 13:25 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/9243712256.shtml)
+- 2026-06-29 13:07 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/645891750239.shtml)
+- 2026-06-29 13:19 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/53926939648.shtml)
+- 2026-06-29 13:22 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/0611516801.shtml)
+- 2026-06-29 13:11 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/096984337.shtml)
+- 2026-06-29 13:25 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/09447509.shtml)
+- 2026-06-29 13:05 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/441235.shtml)
+- 2026-06-29 13:04 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/26358977632.shtml)
+- 2026-06-29 13:16 - [马杜罗社交媒体账号再发文](http://www.blog.kurohicncr.top/Article/details/96052.shtml)
+- 2026-06-29 13:22 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/373123090.shtml)
+- 2026-06-29 13:16 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/8965460.shtml)
+- 2026-06-29 13:10 - [急先锋](http://www.blog.kurohicncr.top/Article/details/00796.shtml)
+- 2026-06-29 13:10 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/954302.shtml)
+- 2026-06-29 13:22 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/551613630368.shtml)
+- 2026-06-29 13:16 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/905955624.shtml)

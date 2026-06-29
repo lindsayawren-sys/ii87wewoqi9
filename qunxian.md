@@ -1,56 +1,51 @@
-# 从A股“一撤一否”到港股IPO：科拓股份核心数据披露现低级失误？
+# 特朗普：美国将能很快对俄罗斯石油重新实施制裁
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 一次主动撤回、一次被否，中国第二大智慧停车运营商在经历A股IPO挫败后，转战港交所。 5月5日，厦门科拓通讯技术股份有限公司（下称“科拓股份”）招股书在港交所更新披露，从A股深交所创业板到港交所，科拓股份的I
+特朗普表示，美国政府“很快”将能够对俄罗斯石油重新实施制裁。 “我们将能这么做，因为石油现在流动起来了，”他在法国对记者说。责任编辑：江学思
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+特朗普表示，美国政府“很快”将能够对俄罗斯石油重新实施制裁。
 
-来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 一次主动撤回、一次被否，中国第二大智慧停车运营商在经历A股IPO挫败后，转战港交所。
+“我们将能这么做，因为石油现在流动起来了，”他在法国对记者说。
 
-5月5日，厦门科拓通讯技术股份有限公司（下称“科拓股份”）招股书在港交所更新披露，从A股深交所创业板到港交所，科拓股份的IPO之路已历时9年。
-
-闯关港股，科拓股份的业绩规模相较A股时期有所增长，但其披露的财务数据却略显蹊跷：2023年至2025年，公司营收分别为7.38亿元、8.00亿元、8.31亿元，纯利分别为8700万元、8670万元、9370万元及6100万元。
-
-不难看出，科拓股份三年对应三个营收数据，却列出四个纯利数据，逻辑不符。
-
-不仅如此，招股书还显示，2023年至2025年，科拓股份分别为17596个、22497个、26616个及30644个停车场提供服务。
-
-同样地，三个完整财年却对应四个运营数据，时间口径混乱。
-
-这究竟是排版失误，还是另有原因？
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 13:09 - [天津打雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 13:13 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 13:14 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 13:14 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 13:12 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 13:14 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 13:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 13:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 13:09 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 12:55 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 13:15 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 13:04 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 13:25 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 13:16 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 13:01 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 13:04 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 13:20 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 13:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 13:18 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 13:18 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 13:28 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:08 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 13:15 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 13:26 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/84445218.shtml)
-- 2026-06-29 13:00 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/66101403.shtml)
-- 2026-06-29 13:09 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/10765800392.shtml)
-- 2026-06-29 13:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/7182442.shtml)
-- 2026-06-29 12:55 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/04872672032.shtml)
-- 2026-06-29 13:06 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/35800.shtml)
-- 2026-06-29 13:06 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/377306990.shtml)
-- 2026-06-29 13:10 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/29571.shtml)
-- 2026-06-29 12:55 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/07147921.shtml)
-- 2026-06-29 13:07 - [大罗力挺内马尔](https://www.share.kurohicncr.top/Article/details/5982108.shtml)
-- 2026-06-29 12:56 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/6379039.shtml)
-- 2026-06-29 13:17 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/438518637.shtml)
-- 2026-06-29 13:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/88551.shtml)
-- 2026-06-29 13:14 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/382613249.shtml)
-- 2026-06-29 12:51 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/5206947.shtml)
+- 2026-06-29 13:23 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/497856.shtml)
+- 2026-06-29 13:29 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/64446945743.shtml)
+- 2026-06-29 13:15 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/32395105.shtml)
+- 2026-06-29 13:29 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/189932310707.shtml)
+- 2026-06-29 13:10 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/886400562595.shtml)
+- 2026-06-29 13:20 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/377252102467.shtml)
+- 2026-06-29 13:18 - [韩红携4000万物资抵呼和浩特](http://www.blog.kurohicncr.top/Article/details/408239.shtml)
+- 2026-06-29 13:27 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/470237422.shtml)
+- 2026-06-29 13:12 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/090937.shtml)
+- 2026-06-29 13:04 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/396259953.shtml)
+- 2026-06-29 13:26 - [女心理师](http://www.share.kurohicncr.top/Article/details/82731.shtml)
+- 2026-06-29 13:14 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/111670.shtml)
+- 2026-06-29 13:13 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/49937.shtml)
+- 2026-06-29 13:16 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/727408548062.shtml)
+- 2026-06-29 13:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/999929743031.shtml)

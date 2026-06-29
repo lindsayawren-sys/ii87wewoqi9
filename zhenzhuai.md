@@ -1,52 +1,56 @@
-# 江苏太仓农村商业银行被罚164.83万元：违反金融统计相关规定等
+# 暴涨超1955%！两位大佬，突然出手！背后有何大动作？
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，中国人民银行苏州市分行行政处罚决定信息公示表显示，江苏太仓农村商业银行股份有限公司存在以下违法行为类型，受到警告，并被罚款164.83万元。 违反金融统计相关规定； 违反账户管理规定； 违反特约商户管理规定； 违反网络安全管理规定； 违反数据安全管理规定； 违反反假货币业务管理规定； 违反人民币流通管理规定； 占压财政存款或资金； 违反信用信息采集、提供、
+股票大涨有时候本不需要“光”！ 6月16日，港股浦江中国今日复牌，一度暴涨近120%。该股过去22个交易日，最大涨幅超1955%。那么，究竟发生了什么？ 据公司公告，Yomi.sun Holding Limited以总代价1.16亿港元购买合高控股有限公司（下称“合高控股”）持有的公司2.23亿股股份，约占公司已发行股本的55.03%。同时，Lucky Yang Limited
 
 ## 正文
 
-5月9日金融一线消息，中国人民银行苏州市分行行政处罚决定信息公示表显示，江苏太仓农村商业银行股份有限公司存在以下违法行为类型，受到警告，并被罚款164.83万元。
+股票大涨有时候本不需要“光”！
 
-违反金融统计相关规定； 违反账户管理规定； 违反特约商户管理规定； 违反网络安全管理规定； 违反数据安全管理规定； 违反反假货币业务管理规定； 违反人民币流通管理规定； 占压财政存款或资金； 违反信用信息采集、提供、查询及相关管理规定； 未按照规定开展客户尽职调查。
+6月16日，港股浦江中国今日复牌，一度暴涨近120%。
 
-秦某（时任太仓农村商业银行股份有限公司科技信息部）对违反网络安全管理规定负有责任，被罚款1.5万元；黄某燕（时任太仓农村商业银行股份有限公司运营管理部）对未按照规定开展客户尽职调查负有责任，被罚款2.4万元。
+该股过去22个交易日，最大涨幅超1955%。
 
-序号 当事人名称 （姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚 决定机关名称 作出行政处罚 决定日期 公示期限（自公示起计算 备注 1 江苏太仓农村商业银行股份有限公司 苏人银罚决字〔2026〕2号 警告， 罚款164.83万元 中国人民银行 苏州市分行 2026年4月27日 五年 2 秦某（时任太仓农村商业银行股份有限公司科技信息部） 苏人银罚决字〔2026〕3号 对江苏太仓农村商业银行股份有限公司以下违法行为负有责任： 违反网络安全管理规定。
+那么，究竟发生了什么？
 
-罚款1.5万元 中国人民银行 苏州市分行 2026年4月27日 五年 3 黄某燕（时任太仓农村商业银行股份有限公司运营管理部） 苏人银罚决字〔2026〕4号 对江苏太仓农村商业银行股份有限公司以下违法行为负有责任： 未按照规定开展客户尽职调查。
+据公司公告，Yomi.sun Holding Limited以总代价1.16亿港元购买合高控股有限公司（下称“合高控股”）持有的公司2.23亿股股份，约占公司已发行股本的55.03%。
 
-罚款2.4万元 中国人民银行 苏州市分行 2026年4月27日 五年 责任编辑：曹睿潼
+同时，Lucky Yang Limited以4007万港元收购合高控股所持7728万股公司股份，约占公司已发行股本总额的19.08%。
+
+这两大买家背后，涉及两位大佬：前者涉及微盟（Weimob Inc．）的孙涛勇，后者涉及壹米滴答的杨兴运。
+
+浦江中国涨超1955% 浦江中国今日复牌一度大涨近120%，自5月13日后的22个交易日，该股暴涨超1955%，股价从0.2港元/股涨至最高4.11港元/股。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 13:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:18 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 13:17 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 13:05 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:01 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 13:14 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 13:07 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 13:01 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-29 13:07 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 13:25 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 13:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 13:00 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 13:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 13:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 13:04 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 13:26 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 13:11 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 13:29 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 13:17 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [A股](http://www.share.minike.top/Article/details/402515828543.shtml)
-- 2026-06-29 13:01 - [美伊同意停止互袭](https://www.blog.kurohicncr.top/Article/details/3753305928.shtml)
-- 2026-06-29 13:12 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/11072684241.shtml)
-- 2026-06-29 13:01 - [一生一世](http://www.blog.minike.top/Article/details/853978.shtml)
-- 2026-06-29 12:53 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/4598971817.shtml)
-- 2026-06-29 13:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/2192415.shtml)
-- 2026-06-29 13:13 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/91764779.shtml)
-- 2026-06-29 12:55 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/43455.shtml)
-- 2026-06-29 13:11 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/943352890631.shtml)
-- 2026-06-29 13:13 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/500037.shtml)
-- 2026-06-29 13:14 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/42101061.shtml)
-- 2026-06-29 12:51 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/1534917.shtml)
-- 2026-06-29 13:11 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/002271641725.shtml)
-- 2026-06-29 13:12 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/43644466087.shtml)
-- 2026-06-29 12:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/33648356.shtml)
+- 2026-06-29 13:16 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/64910145328.shtml)
+- 2026-06-29 13:04 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/35828.shtml)
+- 2026-06-29 13:22 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.kurohicncr.top/Article/details/45440969758.shtml)
+- 2026-06-29 13:21 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/6270858646.shtml)
+- 2026-06-29 13:00 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/809070255851.shtml)
+- 2026-06-29 13:18 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/37340.shtml)
+- 2026-06-29 13:17 - [周生如故](http://www.share.kurohicncr.top/Article/details/137528797.shtml)
+- 2026-06-29 13:10 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/304025854935.shtml)
+- 2026-06-29 13:00 - [白玉兰最佳女主角提名片段](http://www.share.minike.top/Article/details/690752772014.shtml)
+- 2026-06-29 13:10 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/83662088.shtml)
+- 2026-06-29 13:27 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/383119.shtml)
+- 2026-06-29 13:04 - [宜宾地震后顾客折返用餐0人逃单](http://www.share.kurohicncr.top/Article/details/23650653.shtml)
+- 2026-06-29 13:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/38049414645.shtml)
+- 2026-06-29 13:15 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/347669586230.shtml)
+- 2026-06-29 13:05 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/647438447831.shtml)

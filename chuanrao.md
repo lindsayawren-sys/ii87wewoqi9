@@ -1,59 +1,57 @@
-# 广州地铁“五一”日均客流近千万人次 五羊邨站换乘通道启动施工
+# 南宁海关终端安全防治服务(NNHG2026-ZZ-07)协商谈判采购公告
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网广州5月8日电(王华 张洁)广州地铁集团8日公布，刚刚过去的“五一”假期，广州地铁日均客流近千万人次，城际铁路客流同比增长近三成。此外，五号线、十号线五羊邨站换乘通道三期将启动围蔽施工，换乘通道建成后，市民在站内便可实现两条线路快捷换乘。 据广州地铁集团数据，2026年劳动节假期(5月1 日至5月5日)，广州地铁线网累计运客4997.1万人次，日均客运量999.4万人次，
+南宁海关需对终端安全防治服务项目进行采购，采用协商谈判的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称及编号：南宁海关终端安全防治服务 (NNHG2026-ZZ-07) 二、报价内容：按照南宁海关终端安全防治服务采购需求进行报价。 三、项目预算金额(人民币)：28万元(最终结算金额根据服务合同确定)。四、供应商资格： (一)国内注册(指按国家有关规定要求注册的)
 
 ## 正文
 
-中新网广州5月8日电(王华 张洁)广州地铁集团8日公布，刚刚过去的“五一”假期，广州地铁日均客流近千万人次，城际铁路客流同比增长近三成。
+南宁海关需对终端安全防治服务项目进行采购，采用协商谈判的方式择优选择供应单位，现将有关采购情况公告如下： 一、项目名称及编号：南宁海关终端安全防治服务 (NNHG2026-ZZ-07) 二、报价内容：按照南宁海关终端安全防治服务采购需求进行报价。
 
-此外，五号线、十号线五羊邨站换乘通道三期将启动围蔽施工，换乘通道建成后，市民在站内便可实现两条线路快捷换乘。
+三、项目预算金额(人民币)：28万元(最终结算金额根据服务合同确定)。
 
-据广州地铁集团数据，2026年劳动节假期(5月1 日至5月5日)，广州地铁线网累计运客4997.1万人次，日均客运量999.4万人次，较去年同期增长4.2%；所辖6条城际铁路累计发送旅客130.55万人次，日均发送量达26.11万人次，同比增长29.00%，创历年“五一”假期客流新高；3条有轨电车总客流15.64万人次，日均3.13万，同比增长51.82%。
+四、供应商资格： (一)国内注册(指按国家有关规定要求注册的)，符合《中华人民共和国政府采购法》第二十二条资格条件，具备法人资格的供应商。
 
-第139届广交会期间(4月15日至5月5日)，地铁线网累计客运量达2.1亿人次，日均客运量为1013.5万人次，较去年春交会增长5.2%。
+(二)参加政府采购活动前三年内，在“信用中国”网站(www.creditchina.gov.cn)、中国政府采购网(www.ccgp.gov.cn)等渠道未被列入失信被执行人、重大税收违法案件当事人名单、政府采购严重违法失信行为记录名单及无其他不符合《中华人民共和国政府采购法》第二十二条规定条件。
 
-纵观“五一”假期整体客流，三号线(含三北)客流领跑全线网，二号线、八号线客流量位居第二、三位；体育西路站仍成为客流量最高站点，嘉禾望岗站、广州南站位列其后。
+五、报价文件要求： (一)报价文件(需提交正本一份，副本二份)。
 
-8日，广州地铁五号线、十号线五羊邨站换乘通道三期启动围蔽施工。
+(二)响应文件副本材料须加盖封面章或骑缝章。
 
-广州地铁五号线五羊邨站于2009年12月建成投入使用，2025年6月开通的地铁十号线五羊邨站，受施工现场多种条件制约，车站换乘通道无法同步建成使用，采用站外换乘方式实现两条线路换乘。
+所有响应文件需按响应文件目录顺序装订成册，且须装在一个密封袋内，密封袋的封口处应加贴封条并加盖供应商单位公章以示密封。
 
-广州地铁建设公司第一建管部项目经理邓超荣介绍，五羊邨站换乘通道施工采用明挖工法，分三期进行围蔽施工。
+六、协商须知： (一)响应文件必须满足南宁海关终端安全防治服务采购需求。
 
 ## 相关推荐
 
-- 2026-06-29 13:13 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:02 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 13:06 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 13:04 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 12:56 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 13:11 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 13:17 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 13:04 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 12:53 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 13:05 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 13:17 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 12:55 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 13:00 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 13:09 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 13:22 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 13:00 - [俄政府批准巩固俄语地位行动计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 13:08 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 13:28 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 13:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 13:19 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 13:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 13:26 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 13:24 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 13:10 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [谢霆锋演唱会变大型呲水现场](https://www.blog.minike.top/Article/details/3082609881.shtml)
-- 2026-06-29 12:54 - [林诗栋晋级WTT美国大满贯男单32强](https://www.blog.kurohicncr.top/Article/details/40263599918.shtml)
-- 2026-06-29 12:57 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/546449.shtml)
-- 2026-06-29 13:01 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/0489875604.shtml)
-- 2026-06-29 13:16 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/69992347117.shtml)
-- 2026-06-29 13:11 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/691057.shtml)
-- 2026-06-29 13:19 - [DeepSeek联合北京大学发布论文](https://www.share.minike.top/Article/details/445523.shtml)
-- 2026-06-29 13:12 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/234083740.shtml)
-- 2026-06-29 13:17 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.blog.kurohicncr.top/Article/details/492958969070.shtml)
-- 2026-06-29 12:54 - [明星大侦探第一季](https://www.share.minike.top/Article/details/67255302671.shtml)
-- 2026-06-29 13:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/6957061.shtml)
-- 2026-06-29 12:54 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/691395121.shtml)
-- 2026-06-29 13:04 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/6098484.shtml)
-- 2026-06-29 12:55 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/11185008902.shtml)
-- 2026-06-29 13:08 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/68670.shtml)
+- 2026-06-29 13:04 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/704287897447.shtml)
+- 2026-06-29 13:24 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/7919753.shtml)
+- 2026-06-29 13:27 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/075528.shtml)
+- 2026-06-29 13:02 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.minike.top/Article/details/1002019.shtml)
+- 2026-06-29 13:03 - [杨紫《生命树》播放量破百亿](https://www.blog.kurohicncr.top/Article/details/96200062.shtml)
+- 2026-06-29 13:04 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/65962.shtml)
+- 2026-06-29 13:22 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/42422156924.shtml)
+- 2026-06-29 13:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/494075541927.shtml)
+- 2026-06-29 13:25 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/34926884.shtml)
+- 2026-06-29 13:18 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/854992492.shtml)
+- 2026-06-29 13:24 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/04254410572.shtml)
+- 2026-06-29 13:20 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/791421644595.shtml)
+- 2026-06-29 13:23 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/99113863288.shtml)
+- 2026-06-29 13:19 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/6904378.shtml)
+- 2026-06-29 13:15 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/5341098799.shtml)

@@ -1,60 +1,58 @@
-# 免疫药物开发商Odyssey扩大IPO规模成功定价
+# 新疆兵团银发讲师团：让红色故事浸润青少年心田
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-免疫学药物开发商Odyssey Therapeutics宣布，其首次公开募股已扩大规模并成功定价，发行价位于此前上调后的区间高端。该股预计将于周五在纳斯达克全球精选市场挂牌交易，股票代码为ODTX。 IPO定价详情 Odyssey以每股22美元的价格发行1，250万股，募集资金2.75亿美元，高于此前计划发行1，000万股、定价区间20至22美元的计划。承销商获得30天超额配售
+中新网乌鲁木齐6月16日电 (蒲子璇 何瑞娜)在新疆生产建设兵团第六师五家渠市，一支由退休干部、老党员、老军垦组成的“五老”讲师团家喻户晓。 他们活跃在校园、社区、连队，结合亲身经历，平日里为身边青少年讲述兵团历史与红色故事，传承兵团精神。 “五老”讲师团最初由几位退休老同志自发组建，现已是当地红色教育领域的亮眼名片。虽大多已是古稀之年，却初心不改，持续将红色火种播撒在一代代青
 
 ## 正文
 
-免疫学药物开发商Odyssey Therapeutics宣布，其首次公开募股已扩大规模并成功定价，发行价位于此前上调后的区间高端。
+中新网乌鲁木齐6月16日电 (蒲子璇 何瑞娜)在新疆生产建设兵团第六师五家渠市，一支由退休干部、老党员、老军垦组成的“五老”讲师团家喻户晓。
 
-该股预计将于周五在纳斯达克全球精选市场挂牌交易，股票代码为ODTX。
+他们活跃在校园、社区、连队，结合亲身经历，平日里为身边青少年讲述兵团历史与红色故事，传承兵团精神。
 
-IPO定价详情 Odyssey以每股22美元的价格发行1，250万股，募集资金2.75亿美元，高于此前计划发行1，000万股、定价区间20至22美元的计划。
+“五老”讲师团最初由几位退休老同志自发组建，现已是当地红色教育领域的亮眼名片。
 
-承销商获得30天超额配售权，可额外购买约187.5万股。
+虽大多已是古稀之年，却初心不改，持续将红色火种播撒在一代代青少年心间。
 
-公司现有股东TPG也参与了此次发行。
+走到哪里就讲到哪里 年逾八旬的讲师团团长徐金石的家，俨然一座红色资料库，内容涵盖兵团精神、英模事迹、主流价值理念等。
 
-以发行价计算，Odyssey fully diluted估值约为18亿美元。
+“一天不学退十步，宣讲也得与时俱进。
 
-资金用途 公司计划将IPO募集资金用于推进其口服小分子免疫学药物管线的临床开发，包括主打药物ODT-101治疗特应性皮炎的II期临床试验。
+”徐金石常说。
 
-此外，资金还将用于扩展其专有的药物发现平台。
+二十余年来，徐金石坚持记录每一份搜集的资料、每一场宣讲的细节。
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 13:04 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 13:08 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 13:06 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 13:16 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 12:51 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 13:16 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 13:12 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 13:08 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 13:04 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 12:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 12:57 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 13:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 12:54 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 13:29 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 13:29 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 13:10 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 13:26 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 13:20 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 13:28 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 13:08 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 13:06 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 13:19 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 13:02 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 13:07 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 13:11 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/4529549.shtml)
-- 2026-06-29 13:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/9471440067.shtml)
-- 2026-06-29 13:02 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/26405643.shtml)
-- 2026-06-29 13:18 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/32069399.shtml)
-- 2026-06-29 12:50 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/3953580.shtml)
-- 2026-06-29 12:51 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/4351668.shtml)
-- 2026-06-29 12:57 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/657042984724.shtml)
-- 2026-06-29 12:53 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/69080921015.shtml)
-- 2026-06-29 12:58 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/92267083637.shtml)
-- 2026-06-29 13:17 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/4919613920.shtml)
-- 2026-06-29 13:13 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/565015.shtml)
-- 2026-06-29 13:19 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/1632798889.shtml)
-- 2026-06-29 13:04 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/770760.shtml)
-- 2026-06-29 12:54 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/663438179.shtml)
-- 2026-06-29 13:18 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/47268.shtml)
+- 2026-06-29 13:27 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.kurohicncr.top/Article/details/432308037.shtml)
+- 2026-06-29 13:08 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.minike.top/Article/details/01115642.shtml)
+- 2026-06-29 13:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/44952.shtml)
+- 2026-06-29 13:14 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/539585844.shtml)
+- 2026-06-29 13:29 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/9068196862.shtml)
+- 2026-06-29 13:22 - [加拿大92分钟绝杀](http://www.share.minike.top/Article/details/238621860331.shtml)
+- 2026-06-29 13:25 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/0393369757.shtml)
+- 2026-06-29 13:08 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/0891652038.shtml)
+- 2026-06-29 13:08 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.kurohicncr.top/Article/details/07128611.shtml)
+- 2026-06-29 13:16 - [普京称俄处于命运攸关之际](https://www.share.kurohicncr.top/Article/details/4100858666.shtml)
+- 2026-06-29 13:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/03556256.shtml)
+- 2026-06-29 13:01 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/197268866928.shtml)
+- 2026-06-29 13:07 - [游戏数据被用于军事目的 国安部提醒](https://www.share.minike.top/Article/details/150226079232.shtml)
+- 2026-06-29 13:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/88104.shtml)
+- 2026-06-29 13:00 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/9550091450.shtml)

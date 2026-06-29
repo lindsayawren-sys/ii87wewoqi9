@@ -1,60 +1,57 @@
-# 欧盟：正准备与普京进行“潜在谈判”
+# 作价43.29亿元，华信信托拍卖券商股权，破产重整再进一步
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-一名欧盟高级官员透露，欧盟领导人正准备与俄罗斯总统普京举行潜在会谈，原因是欧洲各国对由美国总统特朗普主导的乌克兰停战谈判日益感到不满。 欧洲理事会主席安东尼奥・科斯塔表示，他认为欧盟与普京谈判具备可能性，且此举已获得乌克兰总统泽连斯基的支持。 科斯塔称：“我正与欧盟 27 个成员国的领导人沟通，商讨最佳组织方式，并明确在合适时机与俄方具体需要讨论的议题。” 他补充道，在上月于塞
+北京商报讯（记者 廖蒙）这家信托公司风险处置迎来新进展。6月15日，华信信托股份有限公司（以下简称“华信信托”）官网发布公告指出，根据华信信托司法重整工作安排，华信信托管理人与大连海创汇通投资有限公司（以下简称“海创汇通”）拟将大通证券股份有限公司（以下简称“大通证券”）51.59%的股权进行拍卖。 结合京东资产交易平台展示的拍卖信息，本次拍卖的大通证券股权合计17.03亿股，
 
 ## 正文
 
-一名欧盟高级官员透露，欧盟领导人正准备与俄罗斯总统普京举行潜在会谈，原因是欧洲各国对由美国总统特朗普主导的乌克兰停战谈判日益感到不满。
+北京商报讯（记者 廖蒙）这家信托公司风险处置迎来新进展。
 
-欧洲理事会主席安东尼奥・科斯塔表示，他认为欧盟与普京谈判具备可能性，且此举已获得乌克兰总统泽连斯基的支持。
+6月15日，华信信托股份有限公司（以下简称“华信信托”）官网发布公告指出，根据华信信托司法重整工作安排，华信信托管理人与大连海创汇通投资有限公司（以下简称“海创汇通”）拟将大通证券股份有限公司（以下简称“大通证券”）51.59%的股权进行拍卖。
 
-科斯塔称：“我正与欧盟 27 个成员国的领导人沟通，商讨最佳组织方式，并明确在合适时机与俄方具体需要讨论的议题。
+结合京东资产交易平台展示的拍卖信息，本次拍卖的大通证券股权合计17.03亿股，起拍价为43.29亿元，与评估价一致。
 
-” 他补充道，在上月于塞浦路斯举行的欧盟领导人峰会上，泽连斯基 “邀请欧盟做好准备，为谈判发挥积极作用”。
+拍卖时间则为6月30日10时至7月1日10时止（延时除外）。
 
-欧盟长期政策是：未经乌克兰参与，不就乌克兰问题开展任何讨论或作出决定。
+截至6月16日17时35分，这一拍卖标的已经获得79人关注，8949人围观，目前暂无报名者。
 
-但多位领导人担忧，由美国、俄罗斯与乌克兰三方主导、旨在结束这场已持续四年多战争的和平谈判进展甚微，欧盟已被严重边缘化，甚至可能被迫接受其不认同的协议。
+而本次拟拍卖的股权共计三部分，具体包括华信信托所持有的大通证券9.32亿股股份、华信信托二级全资子公司海创汇通所持有的3.02亿股股份，以及海创汇通指定第三方承接大连华根机械有限公司所持有的大通证券4.68亿股股份，合计持股比例为51.59%，其中23.44%已经被质押。
 
-科斯塔表示，布鲁塞尔方面将 “避免干扰特朗普总统主导的进程”，同时坦言，克里姆林宫尚未释放任何普京愿意与欧盟代表坐谈的信号。
+对于处置旗下大通证券股权，华信信托此前已有公告。
 
-责任编辑：江学思
+2026年2月，华信信托重整案第一次债权人会议中，三项议案均表决通过，其中就包括《关于处置大通证券股份有限公司股份的方案》。
 
 ## 相关推荐
 
-- 2026-06-29 13:12 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 12:50 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 13:12 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 12:53 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 12:51 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 13:09 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 13:10 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 13:04 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 13:11 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 12:59 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 12:56 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 13:13 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 13:01 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 13:17 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 13:17 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 13:00 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 13:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 13:17 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 13:14 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 13:08 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 13:10 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-29 13:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 13:04 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 13:09 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/67502185.shtml)
-- 2026-06-29 13:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/824771476845.shtml)
-- 2026-06-29 12:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/94057.shtml)
-- 2026-06-29 13:15 - [黄金大跌带崩“黄金爱马仕”老铺黄金](http://www.blog.kurohicncr.top/Article/details/7261298.shtml)
-- 2026-06-29 13:00 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/73681.shtml)
-- 2026-06-29 13:18 - [陈露发声引舆论反转](https://www.blog.minike.top/Article/details/475176937.shtml)
-- 2026-06-29 12:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/9270294.shtml)
-- 2026-06-29 13:01 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/288841316.shtml)
-- 2026-06-29 13:08 - [功率半导体缺货涨价](http://www.blog.kurohicncr.top/Article/details/90037.shtml)
-- 2026-06-29 13:17 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/39796870558.shtml)
-- 2026-06-29 13:07 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.kurohicncr.top/Article/details/615571.shtml)
-- 2026-06-29 13:03 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/4434968.shtml)
-- 2026-06-29 13:12 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/313453114552.shtml)
-- 2026-06-29 13:07 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.blog.kurohicncr.top/Article/details/6788890129.shtml)
-- 2026-06-29 13:10 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.blog.minike.top/Article/details/48890.shtml)
+- 2026-06-29 13:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/01803190.shtml)
+- 2026-06-29 13:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/279202873.shtml)
+- 2026-06-29 13:17 - [唐艺昕女儿接唐艺昕回家](https://www.share.minike.top/Article/details/85330040.shtml)
+- 2026-06-29 13:23 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/90988061625.shtml)
+- 2026-06-29 13:28 - [周生如故](https://www.share.minike.top/Article/details/244300.shtml)
+- 2026-06-29 13:09 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/84297485674.shtml)
+- 2026-06-29 13:22 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/35578694.shtml)
+- 2026-06-29 13:21 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/46105670589.shtml)
+- 2026-06-29 13:29 - [手游300亿数据或被军事化运用](http://www.blog.minike.top/Article/details/723263643176.shtml)
+- 2026-06-29 13:02 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/27777467.shtml)
+- 2026-06-29 13:11 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/632933841.shtml)
+- 2026-06-29 13:08 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/49184.shtml)
+- 2026-06-29 13:07 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/968601.shtml)
+- 2026-06-29 13:03 - [爱很美味](http://www.blog.minike.top/Article/details/23985.shtml)
+- 2026-06-29 13:13 - [韩国政府将对世界杯出局追责](http://www.blog.minike.top/Article/details/45523374.shtml)

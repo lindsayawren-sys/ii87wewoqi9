@@ -1,58 +1,51 @@
-# 外交部驳“中国冲击2.0”：中国发展靠的是创新驱动的真本事
+# 日均灭蚊2万只 浙江本土自研仿生捕蚊设备圈粉海内外
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 (记者 黄钰钦 张素 曾玥)中国外交部发言人林剑8日主持例行记者会。 有记者提问：我们注意到，近期一些西方媒体和智库炒作“中国冲击2.0”，称中国在新能源、人工智能等高技术领域快速发展，并依赖国外市场吸收过剩产能，挤占发达国家市场份额，对全球经济造成比传统制造业时代“更严重的冲击”。同时也有外媒评论称，有关论调忽视中国工业生态体系正在发生的真实创新，中国出
+发布时间：2026年06月16日 12:11 来源：中国新闻网 浙江杭州十字港公园投用本土自研仿生捕蚊设备，致力打造无蚊公园。该设备运用碳循环、专属光谱及诱捕液等技术物理灭蚊，日均捕蚊两万只，有效解决临水区域蚊虫多发问题，民众游园体验显著提升。 研发团队不断突破，加入AI技术优化设备性能。目前这款产品不仅深耕国内市场，还成功落地新加坡、澳大利亚及欧美等多个地区。 (王潇婧 毛佳
 
 ## 正文
 
-中新网北京5月8日电 (记者 黄钰钦 张素 曾玥)中国外交部发言人林剑8日主持例行记者会。
+发布时间：2026年06月16日 12:11 来源：中国新闻网 浙江杭州十字港公园投用本土自研仿生捕蚊设备，致力打造无蚊公园。
 
-有记者提问：我们注意到，近期一些西方媒体和智库炒作“中国冲击2.0”，称中国在新能源、人工智能等高技术领域快速发展，并依赖国外市场吸收过剩产能，挤占发达国家市场份额，对全球经济造成比传统制造业时代“更严重的冲击”。
+该设备运用碳循环、专属光谱及诱捕液等技术物理灭蚊，日均捕蚊两万只，有效解决临水区域蚊虫多发问题，民众游园体验显著提升。
 
-同时也有外媒评论称，有关论调忽视中国工业生态体系正在发生的真实创新，中国出口恰恰是全球经济在动荡前行中所需的助推力，比以往更加不可或缺。
+研发团队不断突破，加入AI技术优化设备性能。
 
-发言人对此有何评论？
+目前这款产品不仅深耕国内市场，还成功落地新加坡、澳大利亚及欧美等多个地区。
 
-林剑：从“世界工厂”到“世界市场”和“创新高地”，中国发展靠的是创新驱动的真本事，给世界带来的是实实在在的合作机遇与空间。
-
-以传统“老三样”为代表的中国优质产品，稳定了全球产供链，降低了各国消费者生活成本，缓解了世界通胀压力。
-
-以“新三样”为代表的中国绿色产能，弥补了全球绿色发展的供需缺口，促进了世界能源转型和低碳发展。
-
-以“新新三样”为代表的中国高科技产品，打破了高端技术的壁垒与垄断，让更多国家民众用得上、用得起新兴技术。
+(王潇婧 毛佳仪 浙江杭州报道) 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 13:11 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 13:12 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 12:55 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:49 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 13:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 13:16 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 13:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 13:10 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 12:54 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 12:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 12:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 13:19 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 13:15 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 13:12 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 13:28 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 13:28 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 13:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 13:04 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 13:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 13:18 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 13:10 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 13:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/2453994811.shtml)
-- 2026-06-29 12:52 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/945067734.shtml)
-- 2026-06-29 13:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/9640577.shtml)
-- 2026-06-29 13:03 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/9763492.shtml)
-- 2026-06-29 12:58 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/413214440.shtml)
-- 2026-06-29 13:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/75539841912.shtml)
-- 2026-06-29 13:12 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/22588548.shtml)
-- 2026-06-29 13:19 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/29406130048.shtml)
-- 2026-06-29 13:00 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/53825158532.shtml)
-- 2026-06-29 13:01 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/5449502.shtml)
-- 2026-06-29 12:52 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/293871.shtml)
-- 2026-06-29 13:02 - [扫黑风暴](http://www.share.minike.top/Article/details/6597599.shtml)
-- 2026-06-29 13:15 - [一生一世](http://www.blog.minike.top/Article/details/352953.shtml)
-- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/7129856.shtml)
-- 2026-06-29 12:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/0913873510.shtml)
+- 2026-06-29 13:11 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/385074696.shtml)
+- 2026-06-29 13:07 - [韩红携4000万物资抵呼和浩特](http://www.blog.minike.top/Article/details/80935.shtml)
+- 2026-06-29 13:07 - [绘画区你赢了](https://www.blog.minike.top/Article/details/84581704109.shtml)
+- 2026-06-29 13:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/94434653.shtml)
+- 2026-06-29 13:27 - [赵今麦客串电影版开端](http://www.share.minike.top/Article/details/88437.shtml)
+- 2026-06-29 13:03 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/861663125783.shtml)
+- 2026-06-29 13:13 - [詹俊预测德国大胜巴拉圭](https://www.share.minike.top/Article/details/585366.shtml)
+- 2026-06-29 13:29 - [iPhone18系列预计将大幅涨价](http://www.blog.minike.top/Article/details/4516095240.shtml)
+- 2026-06-29 13:29 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/56833.shtml)
+- 2026-06-29 13:02 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/3957826.shtml)
+- 2026-06-29 13:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/79185.shtml)
+- 2026-06-29 13:02 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/291636131.shtml)
+- 2026-06-29 13:08 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/4872405.shtml)
+- 2026-06-29 13:25 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/730797.shtml)
+- 2026-06-29 13:19 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/47408567341.shtml)

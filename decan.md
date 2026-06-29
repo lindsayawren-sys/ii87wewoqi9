@@ -1,61 +1,48 @@
-# 【每周经济观察】“两新”成绩单里的民生温度
+# 2026陆家嘴论坛今日开幕，金融监管部门“一把手”将集体发声！
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-国家发展改革委近日发布一份名为《“两新”政策实施两周年成效显著》的报告，用一系列扎实数据，勾勒出大规模设备更新和消费品以旧换新政策对生产生活带来的改变，传递出政策设计背后的民生温度。 “两新”政策实施两年多来，其意义已远超单纯的“扩消费、促投资”，它更像一个从供需两端协同发力的系统工程，在促进经济稳增长的同时，持续提升亿万民众的幸福感、获得感。 这份民生温度体现在对消费扩容提质
+本报记者 吴晓璐 6月17日上午，2026陆家嘴论坛将正式开幕，本届论坛主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。 《证券日报》记者在开幕式现场获悉，国家金融监督管理总局局长、论坛共同轮值主席丁向群将致开幕辞，中国人民银行行长潘功胜，中国证监会主席吴清，中国人民银行副行长、国家外汇管理局局长朱鹤新将发表主题演讲。 图为2026陆家嘴论坛开幕式现场 吴晓璐
 
 ## 正文
 
-国家发展改革委近日发布一份名为《“两新”政策实施两周年成效显著》的报告，用一系列扎实数据，勾勒出大规模设备更新和消费品以旧换新政策对生产生活带来的改变，传递出政策设计背后的民生温度。
+本报记者 吴晓璐 6月17日上午，2026陆家嘴论坛将正式开幕，本届论坛主题为“全球治理倡议下的金融发展与合作：新愿景、新挑战和新机遇”。
 
-“两新”政策实施两年多来，其意义已远超单纯的“扩消费、促投资”，它更像一个从供需两端协同发力的系统工程，在促进经济稳增长的同时，持续提升亿万民众的幸福感、获得感。
+《证券日报》记者在开幕式现场获悉，国家金融监督管理总局局长、论坛共同轮值主席丁向群将致开幕辞，中国人民银行行长潘功胜，中国证监会主席吴清，中国人民银行副行长、国家外汇管理局局长朱鹤新将发表主题演讲。
 
-这份民生温度体现在对消费扩容提质的直接回应上。
-
-“两新”政策通过4500亿元超长期特别国债资金安排，撬动了超3.9万亿元的汽车、家电、数码产品销售额，直接惠及4.8亿人次。
-
-沉甸甸的数字背后，是亿万家庭以更低的成本实现了更多的消费迭代。
-
-值得一提的是，政策没有停留在简单的“汰旧”上，而是敏锐地捕捉并顺应了民众对绿色、智能、高品质生活的向往，将补贴精准导向技术更先进、能效更优的产品，使得消费升级与绿色转型同步发生。
-
-对“换优”“换绿”的市场引导，既满足了当下改善生活的需求，也为节能减排目标夯实了基础。
-
-有数据显示，超过60%的消费者在换车时选择了新能源汽车，一级能效家电的销售额占比高达90%。
+图为2026陆家嘴论坛开幕式现场 吴晓璐/摄责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 12:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 12:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 13:08 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 13:04 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 13:13 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 13:11 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 13:02 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 12:50 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 13:05 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 13:06 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 12:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 13:14 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 12:57 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 13:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 13:29 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 13:18 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 13:15 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 13:04 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 13:26 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 13:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 13:17 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 13:26 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 13:17 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 13:16 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 13:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/8373870.shtml)
-- 2026-06-29 13:09 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/39083741215.shtml)
-- 2026-06-29 12:58 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/408460191200.shtml)
-- 2026-06-29 13:00 - [薛之谦演唱会](https://www.share.minike.top/Article/details/464576.shtml)
-- 2026-06-29 12:53 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/0995686564.shtml)
-- 2026-06-29 12:52 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/69681588.shtml)
-- 2026-06-29 12:50 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/8054386.shtml)
-- 2026-06-29 13:15 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/65180575.shtml)
-- 2026-06-29 13:07 - [宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/087612.shtml)
-- 2026-06-29 12:57 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/391306976027.shtml)
-- 2026-06-29 12:53 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/913798393159.shtml)
-- 2026-06-29 13:10 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/63467481.shtml)
-- 2026-06-29 12:54 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/48091.shtml)
-- 2026-06-29 12:50 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/188555.shtml)
-- 2026-06-29 12:57 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/262511042155.shtml)
+- 2026-06-29 13:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/84694675718.shtml)
+- 2026-06-29 13:02 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/079307475.shtml)
+- 2026-06-29 13:20 - [普京称俄处于命运攸关之际](http://www.share.kurohicncr.top/Article/details/5349196693.shtml)
+- 2026-06-29 13:10 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/2672003.shtml)
+- 2026-06-29 13:17 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/677697689440.shtml)
+- 2026-06-29 13:16 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/8745583.shtml)
+- 2026-06-29 13:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/47470.shtml)
+- 2026-06-29 13:02 - [千与千寻](http://www.share.minike.top/Article/details/348983131956.shtml)
+- 2026-06-29 13:17 - [第一炉香](http://www.blog.minike.top/Article/details/90801.shtml)
+- 2026-06-29 13:00 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/15088818592.shtml)
+- 2026-06-29 13:28 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/81857637646.shtml)
+- 2026-06-29 13:19 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/095017727.shtml)
+- 2026-06-29 13:04 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.minike.top/Article/details/219392406.shtml)
+- 2026-06-29 13:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/4503109.shtml)
+- 2026-06-29 13:14 - [杨紫《生命树》播放量破百亿](https://www.blog.minike.top/Article/details/80716045435.shtml)

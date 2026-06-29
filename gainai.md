@@ -1,60 +1,56 @@
-# 非农之夜！黄金多头热情能持续多久？
+# 快手大涨近7%，传泛大西洋集团正洽谈领投可灵AI，涉20亿美元融资
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-撰文：嘉盛集团资深分析师Jerry Chen 美国和伊朗周四再次交火，令停火以及正在磋商中的和平协议蒙上阴影，不过特朗普表示停火依然有效。考虑到伊朗外长本周以及特朗普下周的访华行程，双方仍有较大可能于近期签署“停战谅解备忘录”，为未来的对话铺平道路。 国际油价周四小幅下跌，但周五早盘回升，布伦特原油重回100美元上方。数据显示美国原油库存上周减少231万桶，降幅低于预期。临时的
+6月17日消息，快手盘中逆势拉升一度涨近7%，报47.48港元。截止发文，快手成交额逾18亿港元。 消息面上，据媒体报道，泛大西洋集团（GENERAL ATLANTIC）据悉正洽谈领投快手旗下视频AI部门的20亿美元融资。知情人士并称，若协议最终达成，这将是泛大西洋投资在中国竞争激烈的生成式AI领域一次罕见的投资。这家美国私募股权投资公司是字节跳动的早期支持者，并因对Meta
 
 ## 正文
 
-撰文：嘉盛集团资深分析师Jerry Chen 美国和伊朗周四再次交火，令停火以及正在磋商中的和平协议蒙上阴影，不过特朗普表示停火依然有效。
+6月17日消息，快手盘中逆势拉升一度涨近7%，报47.48港元。
 
-考虑到伊朗外长本周以及特朗普下周的访华行程，双方仍有较大可能于近期签署“停战谅解备忘录”，为未来的对话铺平道路。
+截止发文，快手成交额逾18亿港元。
 
-国际油价周四小幅下跌，但周五早盘回升，布伦特原油重回100美元上方。
+消息面上，据媒体报道，泛大西洋集团（GENERAL ATLANTIC）据悉正洽谈领投快手旗下视频AI部门的20亿美元融资。
 
-数据显示美国原油库存上周减少231万桶，降幅低于预期。
+知情人士并称，若协议最终达成，这将是泛大西洋投资在中国竞争激烈的生成式AI领域一次罕见的投资。
 
-临时的停火无法缓解全球原油供应风险，导致开战以来库存的回落趋势非常明显，这限制了油价的回调空间。
+这家美国私募股权投资公司是字节跳动的早期支持者，并因对Meta Platforms和Uber Technologies的早期投资而闻名。
 
-美伊局势的不确定性帮助美元指数隔夜反弹，黄金则小幅回落至4685美元附近。
+据公开资料，快手旗下视频生成大模型“可灵AI”此前已传出分拆计划，拟以200亿美元估值融资20亿美元，正与包括腾讯在内的潜在投资方商谈。
 
-欧美股市隔夜普遍收低，科技股暂时停下了上涨的步伐，但美国稳健的经济基本面以及强劲的财报暗示逢低买入依然适用。
+今年一季度可灵AI收入超6.5亿元，同比增长超300%，3月份的ARR已接近5亿美元。
 
-美/日周四反弹至156.92。
+摩通大根预计ARR将在2027年上半年达到10亿美元以上。
 
 ## 相关推荐
 
-- 2026-06-29 13:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 13:05 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 12:54 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 13:05 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 13:05 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 12:57 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 13:03 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 13:09 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 13:05 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 13:13 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 13:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 13:06 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 13:12 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 13:00 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 13:07 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 13:02 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 13:17 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 13:05 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 13:06 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 13:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 13:21 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 13:10 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 13:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 13:17 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/91022397.shtml)
-- 2026-06-29 12:49 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/1677744.shtml)
-- 2026-06-29 13:07 - [扬名立万](https://www.blog.minike.top/Article/details/5359007.shtml)
-- 2026-06-29 13:12 - [欧洲热死人不是开玩笑](http://www.blog.minike.top/Article/details/8981861969.shtml)
-- 2026-06-29 12:53 - [千与千寻](https://www.blog.minike.top/Article/details/686328.shtml)
-- 2026-06-29 12:56 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/55491678526.shtml)
-- 2026-06-29 13:00 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/597936761.shtml)
-- 2026-06-29 13:07 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/01569340.shtml)
-- 2026-06-29 13:06 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/307186083117.shtml)
-- 2026-06-29 12:53 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/532531495.shtml)
-- 2026-06-29 13:06 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/813698767.shtml)
-- 2026-06-29 13:01 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/5315910.shtml)
-- 2026-06-29 13:17 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/94910955169.shtml)
-- 2026-06-29 13:10 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/67931180506.shtml)
-- 2026-06-29 12:59 - [俄政府批准巩固俄语地位行动计划](http://www.blog.kurohicncr.top/Article/details/5814368.shtml)
+- 2026-06-29 13:27 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/719602179.shtml)
+- 2026-06-29 13:03 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/2545211.shtml)
+- 2026-06-29 13:11 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/841364.shtml)
+- 2026-06-29 13:10 - [复盘葡萄牙逼平哥伦比亚](https://www.share.kurohicncr.top/Article/details/35555896.shtml)
+- 2026-06-29 13:12 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/1457489.shtml)
+- 2026-06-29 13:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/09480362.shtml)
+- 2026-06-29 13:13 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/11586602289.shtml)
+- 2026-06-29 13:23 - [医护人员观影《四渡》传承长征精神](http://www.share.minike.top/Article/details/9944148.shtml)
+- 2026-06-29 13:28 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/47035.shtml)
+- 2026-06-29 13:27 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.kurohicncr.top/Article/details/787946631113.shtml)
+- 2026-06-29 13:23 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/980104583.shtml)
+- 2026-06-29 13:10 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/976711.shtml)
+- 2026-06-29 13:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/41852.shtml)
+- 2026-06-29 13:18 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/01764399.shtml)
+- 2026-06-29 13:21 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/266761939820.shtml)

@@ -1,56 +1,42 @@
-# 胜利日停火期间俄军将在特别军事行动区域完全停止作战行动
+# 水利部人事司原司长侯京民接受审查调查
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-俄国防部7日发布公告称，根据普京总统的决定，在庆祝苏联人民伟大卫国战争胜利81周年之际，俄方宣布自5月8日零时起至5月10日前实行停火。在此期间，俄罗斯武装力量所有部队在特别军事行动区域完全停止作战行动。同时，俄方将停止使用导弹部队和炮兵、海空基远程高精度武器以及攻击型无人机，对乌克兰武装部队的驻地以及乌克兰纵深地区与军工综合体和武装部队相关的基础设施目标进行打击。俄方呼吁乌克
+中新网6月16日电 据中央纪委国家监委驻水利部纪检监察组、山西省纪委监委消息：水利部人事司原司长侯京民涉嫌严重违纪违法，目前正接受中央纪委国家监委驻水利部纪检监察组纪律审查和山西省晋城市监察委员会监察调查。
 
 ## 正文
 
-俄国防部7日发布公告称，根据普京总统的决定，在庆祝苏联人民伟大卫国战争胜利81周年之际，俄方宣布自5月8日零时起至5月10日前实行停火。
-
-在此期间，俄罗斯武装力量所有部队在特别军事行动区域完全停止作战行动。
-
-同时，俄方将停止使用导弹部队和炮兵、海空基远程高精度武器以及攻击型无人机，对乌克兰武装部队的驻地以及乌克兰纵深地区与军工综合体和武装部队相关的基础设施目标进行打击。
-
-俄方呼吁乌克兰方面采取类似做法。
-
-俄国防部强调，如果乌克兰武装部队在特别军事行动区内违反停火，或试图对俄罗斯地区境内的居民点和目标发动袭击，俄罗斯联邦武装力量将予以对等回应。
-
-此外，如果乌方试图破坏莫斯科庆祝伟大卫国战争胜利81周年的活动，俄罗斯联邦武装力量将对基辅市中心发动大规模导弹袭击。
-
-俄国防部再次提醒基辅平民和外国外交机构工作人员需及时撤离基辅市。
-
-俄罗斯4日宣布，为纪念5月9日卫国战争胜利日，8日至9日将实施停火，希望乌方跟进。
+中新网6月16日电 据中央纪委国家监委驻水利部纪检监察组、山西省纪委监委消息：水利部人事司原司长侯京民涉嫌严重违纪违法，目前正接受中央纪委国家监委驻水利部纪检监察组纪律审查和山西省晋城市监察委员会监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 13:09 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 13:16 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 13:11 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 13:06 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 13:02 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:06 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 13:14 - [媒体评恋与深空争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 12:54 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 13:02 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 13:02 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 13:14 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 13:07 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 13:03 - [陈露发声引舆论反转](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 13:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 13:11 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 13:02 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 13:07 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 13:23 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 13:05 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/3205089333.shtml)
-- 2026-06-29 13:05 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.minike.top/Article/details/98620.shtml)
-- 2026-06-29 13:17 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/50274287497.shtml)
-- 2026-06-29 13:07 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/5787523919.shtml)
-- 2026-06-29 12:59 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/465831676.shtml)
-- 2026-06-29 12:55 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/45827110.shtml)
-- 2026-06-29 13:02 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/06761513874.shtml)
-- 2026-06-29 13:19 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/7179319.shtml)
-- 2026-06-29 13:18 - [沉睡花园](http://www.share.minike.top/Article/details/5673645975.shtml)
-- 2026-06-29 13:03 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://www.blog.minike.top/Article/details/7287133.shtml)
-- 2026-06-29 13:05 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/009277269807.shtml)
-- 2026-06-29 12:57 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/945747532.shtml)
-- 2026-06-29 13:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/069241047.shtml)
-- 2026-06-29 12:54 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/23123379789.shtml)
-- 2026-06-29 13:03 - [法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/126532199.shtml)
+- 2026-06-29 13:03 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/868125.shtml)
+- 2026-06-29 13:04 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/765959.shtml)
+- 2026-06-29 13:03 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/2559778390.shtml)
+- 2026-06-29 13:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/202450.shtml)
+- 2026-06-29 13:29 - [为什么6月以来北方频繁降雨](http://www.blog.kurohicncr.top/Article/details/791411.shtml)
+- 2026-06-29 13:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/6973380.shtml)
+- 2026-06-29 13:15 - [比亚迪为什么卖得越多市值越低](https://www.share.kurohicncr.top/Article/details/323135217453.shtml)
+- 2026-06-29 13:03 - [天津打雷](https://www.blog.kurohicncr.top/Article/details/8656098206.shtml)
+- 2026-06-29 13:24 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/9404910883.shtml)
+- 2026-06-29 13:26 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/403109006371.shtml)
+- 2026-06-29 13:05 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/173296.shtml)
+- 2026-06-29 13:01 - [流金岁月](https://www.share.kurohicncr.top/Article/details/7709920569.shtml)
+- 2026-06-29 13:21 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.minike.top/Article/details/222724.shtml)
+- 2026-06-29 13:20 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/6908969.shtml)
+- 2026-06-29 13:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/60548.shtml)

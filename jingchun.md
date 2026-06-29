@@ -1,59 +1,59 @@
-# 转运至荷兰的两名涉疫邮轮人员确诊感染汉坦病毒
+# 硬科技企业上市加速，券商科创业务或进入收获季
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-新华社海牙5月7日电(记者邵海军)荷兰医疗机构7日确认，转运至荷兰的两名“洪迪厄斯”号邮轮上的人员确诊感染汉坦病毒。 荷兰国家公共卫生与环境研究所说，奈梅亨大学医学中心收治的一名转运人员汉坦病毒检测结果为阳性。为防止病毒传播，患者所在病房已按照国际公认的防控方案采取了适当的隔离措施。稍后，另外一名转运人员经莱顿大学医学中心确认也感染了汉坦病毒。 当日，荷外交部和卫生部致信议会说
+今年以来，A股IPO市场热度稳步攀升，科创上市主体持续扩容，资本市场对国产自主创新的认可度大幅提升，全链条科创投融资生态进一步得到优化。在此背景下，券商投行、跟投、直投核心业务或迎来增量空间，科创服务正成为证券行业新的业绩增长极！（资料参考：中国财富网《金融业指引密集出台；硬科技引领IPO热潮》，2026.6.15） 券商科创收益或有望多点开花 当前，硬科技IPO已成A股融资主
 
 ## 正文
 
-新华社海牙5月7日电(记者邵海军)荷兰医疗机构7日确认，转运至荷兰的两名“洪迪厄斯”号邮轮上的人员确诊感染汉坦病毒。
+今年以来，A股IPO市场热度稳步攀升，科创上市主体持续扩容，资本市场对国产自主创新的认可度大幅提升，全链条科创投融资生态进一步得到优化。
 
-荷兰国家公共卫生与环境研究所说，奈梅亨大学医学中心收治的一名转运人员汉坦病毒检测结果为阳性。
+在此背景下，券商投行、跟投、直投核心业务或迎来增量空间，科创服务正成为证券行业新的业绩增长极！
 
-为防止病毒传播，患者所在病房已按照国际公认的防控方案采取了适当的隔离措施。
+（资料参考：中国财富网《金融业指引密集出台；硬科技引领IPO热潮》，2026.6.15） 券商科创收益或有望多点开花 当前，硬科技IPO已成A股融资主力。
 
-稍后，另外一名转运人员经莱顿大学医学中心确认也感染了汉坦病毒。
+Wind数据显示，截至6月14日，今年以来共有66家企业完成IPO，合计募资596.27亿元，上市数量、募资总额同比分别增长38%和66%。
 
-当日，荷外交部和卫生部致信议会说，经评估，该病毒在荷兰传播的风险极低。
+其中，科创板与创业板共有19家企业上市，募资285.46亿元，占全市场募资总额的48%。
 
-6日，“洪迪厄斯”号邮轮上两名疑似感染汉坦病毒的船员和一名与已去世德国籍乘客关联人员经由两架荷兰飞机转运至阿姆斯特丹。
+（资料参考：中国财富网《包容性改革全链条护航 资本市场加力支持科技创新》，2026.6.15） 有分析称，科创企业IPO保荐承销手续费，是券商科创业务业绩增长的核心来源之一。
 
-据当地媒体报道，其中两人收治在荷兰医院，另外一人被送往德国医疗机构。
+资本市场对硬科技企业的扶持力度不断加大，大型科创IPO项目接连落地，或为券商投行业务带来可观收益。
 
-7日，“洪迪厄斯”号邮轮运营方“泛海探险”公司发表的一份声明说，4月24日有30名乘客在南大西洋的圣赫勒拿岛下船，这些乘客来自约12个国家，该公司已与所有下船人员取得联系。
+其中，头部券商凭借专业能力和项目储备，或持续领跑科创投行赛道。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 12:50 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 13:02 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-29 13:10 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 13:09 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 13:05 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 13:12 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 13:06 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 12:53 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 12:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 12:54 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 13:16 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 12:57 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 13:21 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 13:18 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 13:07 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 13:06 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 13:03 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 13:01 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 13:20 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 13:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 13:21 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 13:10 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 13:29 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 13:13 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 13:28 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/578075964.shtml)
-- 2026-06-29 13:13 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/4812261366.shtml)
-- 2026-06-29 13:03 - [多只A股发布股价异动公告](https://www.blog.kurohicncr.top/Article/details/26366062457.shtml)
-- 2026-06-29 13:12 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/9528485134.shtml)
-- 2026-06-29 13:18 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/5010728.shtml)
-- 2026-06-29 12:56 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/5703914.shtml)
-- 2026-06-29 13:02 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/698212912454.shtml)
-- 2026-06-29 12:58 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/56072.shtml)
-- 2026-06-29 13:00 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/299766722344.shtml)
-- 2026-06-29 13:01 - [医护人员观影《四渡》传承长征精神](https://www.blog.minike.top/Article/details/110021892935.shtml)
-- 2026-06-29 13:18 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.minike.top/Article/details/211517462.shtml)
-- 2026-06-29 13:05 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.minike.top/Article/details/95099.shtml)
-- 2026-06-29 13:06 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/037929645.shtml)
-- 2026-06-29 13:03 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/856218.shtml)
-- 2026-06-29 12:54 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/24982516232.shtml)
+- 2026-06-29 13:09 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/696990.shtml)
+- 2026-06-29 13:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2373868969.shtml)
+- 2026-06-29 13:25 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/36622947701.shtml)
+- 2026-06-29 13:07 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/927812775855.shtml)
+- 2026-06-29 13:28 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/83965882.shtml)
+- 2026-06-29 13:25 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/0079416667.shtml)
+- 2026-06-29 13:26 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.share.minike.top/Article/details/8241788.shtml)
+- 2026-06-29 13:26 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/7179752083.shtml)
+- 2026-06-29 13:29 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/8396912086.shtml)
+- 2026-06-29 13:12 - [金刚川](http://www.blog.kurohicncr.top/Article/details/99377.shtml)
+- 2026-06-29 13:24 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/4997423475.shtml)
+- 2026-06-29 13:10 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/9988763056.shtml)
+- 2026-06-29 13:21 - [恋与深空需直面玩家6大疑问](https://www.share.minike.top/Article/details/7009089.shtml)
+- 2026-06-29 13:16 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/411890802917.shtml)
+- 2026-06-29 13:29 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/84905569905.shtml)

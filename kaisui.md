@@ -1,51 +1,57 @@
-# 过去24小时没有大型商船通过霍尔木兹海峡
+# 频繁早醒，是不是病啊？这种情况千万别忽视
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-总台记者8日获悉，船舶追踪数据显示，截至当地时间8日上午，没有大型船只在过去24小时内通过霍尔木兹海峡。据悉，这已是自7日以来连续第二天没有大型商船通过该海峡。(总台记者 吴爱民 李健南)
+突然，你又一次醒了。 你看了一下身边的手机，又是凌晨 3 点。你已经连续 2 个礼拜都在这个时间醒来，醒来后再也睡不着。 你以为过几天就好，现在看，似乎没有好转的迹象。你开始担心，甚至有点绝望…… 这种“凌晨三四点睡醒后睡不着”的场景，你是否经历过？这叫“早醒”，被定义为比预期起床的时间提前 30 分钟以上。 这里的预期时间，更多的是指你平时更多时间段的作息，而这里的 30 分
 
 ## 正文
 
-总台记者8日获悉，船舶追踪数据显示，截至当地时间8日上午，没有大型船只在过去24小时内通过霍尔木兹海峡。
+突然，你又一次醒了。
 
-据悉，这已是自7日以来连续第二天没有大型商船通过该海峡。
+你看了一下身边的手机，又是凌晨 3 点。
 
-(总台记者 吴爱民 李健南)
+你已经连续 2 个礼拜都在这个时间醒来，醒来后再也睡不着。
+
+你以为过几天就好，现在看，似乎没有好转的迹象。
+
+你开始担心，甚至有点绝望…… 这种“凌晨三四点睡醒后睡不着”的场景，你是否经历过？
+
+这叫“早醒”，被定义为比预期起床的时间提前 30 分钟以上。
+
+这里的预期时间，更多的是指你平时更多时间段的作息，而这里的 30 分钟，是一个参考时间，人毕竟不是机器，你不需要卡着表对照自己的睡眠。
+
+当一个人频繁出现早醒的情况，难免会开始焦虑，迫切地想要寻找解决方案。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:58 - [网友偶遇胡军和李乃文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 12:55 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:12 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 13:08 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 12:51 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 13:11 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 12:54 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 13:10 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 13:00 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 13:00 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 12:55 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 13:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:56 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 13:07 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 13:27 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 13:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 13:09 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:23 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 13:06 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 13:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 13:12 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 13:02 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 13:19 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 13:22 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/27113557469.shtml)
-- 2026-06-29 13:06 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/19829772625.shtml)
-- 2026-06-29 12:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/0762510.shtml)
-- 2026-06-29 13:12 - [宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/2251153841.shtml)
-- 2026-06-29 13:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/43560.shtml)
-- 2026-06-29 12:53 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/938130160575.shtml)
-- 2026-06-29 12:55 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/41369031.shtml)
-- 2026-06-29 12:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/20849866.shtml)
-- 2026-06-29 13:03 - [双高胎](http://www.blog.minike.top/Article/details/142647.shtml)
-- 2026-06-29 13:13 - [恋与深空女玩家不该被冒犯](https://www.share.kurohicncr.top/Article/details/0043255.shtml)
-- 2026-06-29 12:55 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/37461.shtml)
-- 2026-06-29 13:03 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/1158308903.shtml)
-- 2026-06-29 13:06 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/67478.shtml)
-- 2026-06-29 13:12 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](http://www.blog.kurohicncr.top/Article/details/2822291.shtml)
-- 2026-06-29 12:57 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/586257404.shtml)
+- 2026-06-29 13:24 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/812598.shtml)
+- 2026-06-29 13:01 - [沉睡花园](http://www.share.minike.top/Article/details/7575110361.shtml)
+- 2026-06-29 13:27 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/936283371.shtml)
+- 2026-06-29 13:25 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/8924608.shtml)
+- 2026-06-29 13:24 - [恋与深空需直面玩家6大疑问](http://www.share.minike.top/Article/details/350530893.shtml)
+- 2026-06-29 13:15 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/314558430.shtml)
+- 2026-06-29 13:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/9431166668.shtml)
+- 2026-06-29 13:24 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/978938384231.shtml)
+- 2026-06-29 13:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/1374188.shtml)
+- 2026-06-29 13:20 - [Agent带来token消耗爆炸](https://www.share.minike.top/Article/details/9619564.shtml)
+- 2026-06-29 13:10 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/01916048.shtml)
+- 2026-06-29 13:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/86906036.shtml)
+- 2026-06-29 13:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/562518.shtml)
+- 2026-06-29 13:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/54532.shtml)
+- 2026-06-29 13:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/645496.shtml)

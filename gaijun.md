@@ -1,56 +1,56 @@
-# DeepSeek拟融资500亿！SpaceX冲刺上市
+# 第二届西藏国际传播大会在拉萨举行 聚焦涉藏国际传播效能提升
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道新质生产力研究院 综合报道 早上好，新的一天又开始了。在过去的24小时内，科技行业发生了哪些有意思的事情？来跟21tech一起看看吧。 【巨头风向标】 梁文锋出资200亿！DeepSeek首轮创纪录融资500亿 据报道，DeepSeek拟募资最高500亿元，如果最终落地，这将成为中国人工智能公司有史以来最大的一轮融资。梁文锋个人出资最高达200亿元人民币，占本轮
+中新网拉萨6月16日电 (记者 赵朗 苏亦瑜)第二届西藏国际传播大会16日在拉萨举行，本次大会以“理解与支持·共情与共鸣——全面增强涉藏国际传播效能”为主题，吸引了近300名国内外嘉宾齐聚一堂，共话涉藏国际传播。 本届西藏国际传播大会包括主论坛、三个专题论坛、区域国别研讨会等活动，配套举办“历届西藏网络影像节精品影像展”“世界咖啡冲煮大赛西藏赛区选拔赛”，旨在进一步搭建讲好新时
 
 ## 正文
 
-21世纪经济报道新质生产力研究院 综合报道 早上好，新的一天又开始了。
+中新网拉萨6月16日电 (记者 赵朗 苏亦瑜)第二届西藏国际传播大会16日在拉萨举行，本次大会以“理解与支持·共情与共鸣——全面增强涉藏国际传播效能”为主题，吸引了近300名国内外嘉宾齐聚一堂，共话涉藏国际传播。
 
-在过去的24小时内，科技行业发生了哪些有意思的事情？
+本届西藏国际传播大会包括主论坛、三个专题论坛、区域国别研讨会等活动，配套举办“历届西藏网络影像节精品影像展”“世界咖啡冲煮大赛西藏赛区选拔赛”，旨在进一步搭建讲好新时代西藏故事的平台，构建更有效力的涉藏国际传播话语体系和叙事体系，推动实现国际社会和民众从“听见”西藏声音到“听懂”西藏故事，从直观感受到价值认同与情感共鸣，让涉藏国际话语更具传播力、影响力。
 
-来跟21tech一起看看吧。
+此次活动为7位西藏国际传播智库专家颁发证书，为“今日中国西藏会客厅”揭牌，还签订了《涉藏国际传播协同联动合作框架协议》。
 
-【巨头风向标】 梁文锋出资200亿！
+据悉，西藏国际传播需要优化叙事表达。
 
-DeepSeek首轮创纪录融资500亿 据报道，DeepSeek拟募资最高500亿元，如果最终落地，这将成为中国人工智能公司有史以来最大的一轮融资。
+从小切口挖掘真实素材，打造适配国际表达的内容产品，把“陈情”与“说理”结合起来，把“自己想讲的”和“别人愿意听、想听的”结合起来，推进新时代西藏故事和西藏声音的区域化、分众化、精准化表达，推动实现认知互通、情感共鸣，进一步增进国际社会及民众对西藏的理解和认同。
 
-梁文锋个人出资最高达200亿元人民币，占本轮计划融资总额的40%。
+此次活动由西藏自治区党委宣传部、中国外文局当代中国与世界研究院、西藏自治区外事办公室、西藏自治区党委统战部、西藏自治区党委网信办主办，西藏国际传播中心承办。
 
-SpaceX冲刺上市，资本开支飙升数百亿美元 随着埃隆・马斯克执掌的太空探索技术公司筹备大规模首次公开募股，其资本开支规模正以数十亿美元的幅度持续攀升。
-
-据得州当地政府一份项目公告，SpaceX计划与特斯拉联合打造的太拉晶圆芯片产业园，预估资本投入至少需要550亿美元。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 12:57 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 13:03 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:12 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 13:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-29 12:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 13:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 12:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 12:59 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 13:00 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 13:09 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 13:13 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 13:09 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 13:19 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 13:16 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:17 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 13:14 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 13:14 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 13:04 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 13:08 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 13:02 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 13:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [白鹿呵呵挽手比心](http://www.blog.minike.top/Article/details/512353.shtml)
-- 2026-06-29 12:51 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/049391713490.shtml)
-- 2026-06-29 12:59 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/7934093372.shtml)
-- 2026-06-29 12:54 - [沙丘](http://www.blog.minike.top/Article/details/842732378.shtml)
-- 2026-06-29 12:55 - [网友偶遇胡军和李乃文](http://www.share.kurohicncr.top/Article/details/8808172.shtml)
-- 2026-06-29 13:15 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/411150.shtml)
-- 2026-06-29 13:04 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/18080.shtml)
-- 2026-06-29 13:10 - [杨紫《生命树》播放量破百亿](http://www.blog.minike.top/Article/details/65271015.shtml)
-- 2026-06-29 12:55 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/31928.shtml)
-- 2026-06-29 13:09 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/842468261.shtml)
-- 2026-06-29 13:06 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/4480383000.shtml)
-- 2026-06-29 13:01 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/7285836281.shtml)
-- 2026-06-29 13:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/142978.shtml)
-- 2026-06-29 13:17 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/52494087.shtml)
-- 2026-06-29 13:11 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/288539.shtml)
+- 2026-06-29 13:03 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/918050863988.shtml)
+- 2026-06-29 13:22 - [千与千寻](https://www.blog.minike.top/Article/details/803104592829.shtml)
+- 2026-06-29 13:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/5856120722.shtml)
+- 2026-06-29 13:19 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/2047213203.shtml)
+- 2026-06-29 13:28 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/0180800657.shtml)
+- 2026-06-29 13:19 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/04340.shtml)
+- 2026-06-29 13:23 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/733552.shtml)
+- 2026-06-29 13:00 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/852332.shtml)
+- 2026-06-29 13:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/5402706783.shtml)
+- 2026-06-29 13:22 - [王佳佳江疏影13年前后同框对比](http://www.share.kurohicncr.top/Article/details/7050848.shtml)
+- 2026-06-29 13:17 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/7294130753.shtml)
+- 2026-06-29 13:15 - [5万块的威力](https://www.share.minike.top/Article/details/752899.shtml)
+- 2026-06-29 13:25 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/7753119131.shtml)
+- 2026-06-29 13:19 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/63424.shtml)
+- 2026-06-29 13:08 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/24564524766.shtml)

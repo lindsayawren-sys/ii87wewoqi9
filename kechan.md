@@ -1,58 +1,58 @@
-# 600架波音订单正在路上？
+# 科创板第五套标准扩围AI，未盈利大模型企业上市迎新通道，哪些巨头受益？
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-来源：民航观察 据民航观察观察，《南华早报》记者弗兰克陈发文称，特朗普再次访华将为波音带来新订单，中国潜在采购规模或达500架波音737 MAX窄体客机，外加约100架宽体机，机型以787梦想客机为主，或包含部分777X机型。按目录标价计算，交易总额或将突破500亿美元；实际成交会有大幅折扣，真实采购金额将明显低于标价。 这与此前彭博社的报道一致：中国将购买600架波音飞机 据
+在6月17日举行的2026陆家嘴论坛上，证监会主席吴清发表演讲指出，科创板将加速推出两项改革举措，核心内容之一是扩大第五套上市标准的适用范围至人工智能领域，以积极支持优质的AI大模型企业实现上市。 ETF投资工具可关注：589520、589190。 热点追踪 在2026陆家嘴论坛开幕式上，证监会主席吴清发表主题演讲，明确宣布将扩大科创板第五套标准的使用范围至人工智能领域。这一举
 
 ## 正文
 
-来源：民航观察 据民航观察观察，《南华早报》记者弗兰克陈发文称，特朗普再次访华将为波音带来新订单，中国潜在采购规模或达500架波音737 MAX窄体客机，外加约100架宽体机，机型以787梦想客机为主，或包含部分777X机型。
+在6月17日举行的2026陆家嘴论坛上，证监会主席吴清发表演讲指出，科创板将加速推出两项改革举措，核心内容之一是扩大第五套上市标准的适用范围至人工智能领域，以积极支持优质的AI大模型企业实现上市。
 
-按目录标价计算，交易总额或将突破500亿美元；实际成交会有大幅折扣，真实采购金额将明显低于标价。
+ETF投资工具可关注：589520、589190。
 
-这与此前彭博社的报道一致：中国将购买600架波音飞机 据称，这将是中国自2017年以来首次大规模采购波音客机。
+热点追踪 在2026陆家嘴论坛开幕式上，证监会主席吴清发表主题演讲，明确宣布将扩大科创板第五套标准的使用范围至人工智能领域。
 
-当年特朗普首次访华，双方敲定价值370亿美元、采购300架飞机的重磅协议。
+这一举措是深化科创板改革、增强资本市场制度包容性与适应性的关键步骤，旨在更好服务成长型创新创业企业，特别是那些具备前沿技术但可能尚未盈利的AI企业。
 
-但此后随着贸易摩擦升级、关税战打响、监管审批受阻，该订单大量交付延期，部分订单直接取消。
+吴清同时表示，将适时发布规范发展资本市场人工智能的指导意见，为AI行业的资本化进程提供制度保障。
 
-业内分析人士认为，若本次再度签约，协议条款会更灵活，政治博弈色彩也会淡化。
+此外，证监会大力支持上市公司并购重组及再融资，支持符合条件的港股上市公司境内上市，以激发市场活力。
 
-一位不愿具名的北京航空业分析师表示：“这一次，双方达成合作的意愿都更强。
+在资金端，新“国九条”发布两年多以来，社保、保险等中长期资金净买入A股达1.3万亿元，“耐心资本”力量不断增强。
 
-中国航司需要更新老旧机队；波音急需新订单稳住生产线、提振资本市场信心；而特朗普也需要借访华拿出实实在在的经贸成果。
+吴清强调，中国资本市场韧性提升，科技板块市值占比已超三成，A股公司分红回购规模是同期股权融资的三倍，显示出市场质量的显著改善。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 13:07 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 13:15 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:50 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 13:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 13:00 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 13:11 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 13:15 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 13:06 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 12:53 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 12:54 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 13:15 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 13:18 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 13:19 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 13:24 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 13:06 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 13:02 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 13:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 13:04 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:09 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 13:09 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 13:12 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 13:19 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 13:10 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/82694.shtml)
-- 2026-06-29 12:49 - [请回答王牌2019](https://www.blog.minike.top/Article/details/77881392.shtml)
-- 2026-06-29 12:58 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/2665427241.shtml)
-- 2026-06-29 12:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/83156.shtml)
-- 2026-06-29 13:01 - [我们注定是一撮县城葱姜蒜](https://www.blog.minike.top/Article/details/472486388.shtml)
-- 2026-06-29 13:03 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/386123521.shtml)
-- 2026-06-29 12:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/5637435035.shtml)
-- 2026-06-29 13:01 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/1157658997.shtml)
-- 2026-06-29 13:15 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/6613316.shtml)
-- 2026-06-29 13:14 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/29955385218.shtml)
-- 2026-06-29 13:14 - [逃狱兄弟](http://www.blog.minike.top/Article/details/52216723944.shtml)
-- 2026-06-29 13:05 - [虞书欣灿如繁星明天定档](http://www.blog.minike.top/Article/details/868884864.shtml)
-- 2026-06-29 12:50 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/521974673370.shtml)
-- 2026-06-29 13:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/3204949.shtml)
-- 2026-06-29 13:19 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/97958594.shtml)
+- 2026-06-29 13:04 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/401259659.shtml)
+- 2026-06-29 13:18 - [双高胎](http://www.share.minike.top/Article/details/15158368932.shtml)
+- 2026-06-29 13:06 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/22041.shtml)
+- 2026-06-29 13:29 - [急先锋](https://www.share.minike.top/Article/details/333106266315.shtml)
+- 2026-06-29 13:05 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/70128.shtml)
+- 2026-06-29 13:21 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/2189521.shtml)
+- 2026-06-29 13:03 - [周生如故](https://www.blog.kurohicncr.top/Article/details/75989713.shtml)
+- 2026-06-29 13:12 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/7514697311.shtml)
+- 2026-06-29 13:15 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/922536.shtml)
+- 2026-06-29 13:19 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/9651007.shtml)
+- 2026-06-29 13:08 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/57725.shtml)
+- 2026-06-29 13:05 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/0422590.shtml)
+- 2026-06-29 13:25 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/10735309.shtml)
+- 2026-06-29 13:04 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/563754426.shtml)
+- 2026-06-29 13:16 - [韩红携4000万物资抵呼和浩特](http://www.share.minike.top/Article/details/4743283038.shtml)

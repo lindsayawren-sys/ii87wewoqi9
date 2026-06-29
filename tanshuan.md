@@ -1,58 +1,60 @@
-# 515投资者保护|鹏华国民教育高质量投教课程：8位基本面投资专家组成讲师团队 精心设计了八大核心专题
+# 报告显示：未来12个月内全球央行黄金储备或将继续增加
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。鹏华国民教育高质量投教课程参选“最佳投资者教育优秀创新案例奖”类别。>>活动详情 据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于
+6月16日，世界黄金协会发布《2026年全球央行黄金储备调研》(下称《调研》)显示，89%的储备管理者预计，未来12个月内全球央行黄金储备将继续增加。 近年来，全球央行黄金储备量持续增加。欧洲央行发布报告称，截至2025年年底，黄金在全球官方储备资产总额中的占比已升至27%，超越美国国债，成为全球官方储备第一大资产。 进入2026年，这一趋势仍然延续。世界黄金协会数据显示，今年
 
 ## 正文
 
-专题：515投资者保护！
+6月16日，世界黄金协会发布《2026年全球央行黄金储备调研》(下称《调研》)显示，89%的储备管理者预计，未来12个月内全球央行黄金储备将继续增加。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
+近年来，全球央行黄金储备量持续增加。
 
-鹏华国民教育高质量投教课程参选“最佳投资者教育优秀创新案例奖”类别。
+欧洲央行发布报告称，截至2025年年底，黄金在全球官方储备资产总额中的占比已升至27%，超越美国国债，成为全球官方储备第一大资产。
 
->>活动详情 据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于为广大高校学子搭建触达行业前沿理论与实务的学习交流平台，在课程打造方面结合高校需求，以“成体系，有深度”为原则，精准施教，于2025年秋季携手上海证券报、上海财经大学成功举办第五期《基金实战专题》国民教育高质量投教课程，为来自近10所高校的100余位硕士研究生带来了一场体系完备、内容精深的金融实务课。
+进入2026年，这一趋势仍然延续。
 
-该课程延续“成体系、有深度”的核心原则，特邀鹏华基金8位基本面投资专家组成讲师团队，围绕“创新科技、创新消费、创新国粹”三大主题，精心设计了八大核心专题。
+世界黄金协会数据显示，今年一季度全球央行增储黄金244吨，购金量高于上季度水平及五年均值。
 
-讲师们凭借扎实的理论功底与丰富的实战经验，将前沿投资理论与市场实践深度融合，助力学子构建从认知到实战的完整知识框架。
+国家外汇管理局数据显示，截至今年5月中国央行已连续第19个月增持黄金。
 
-课程内容紧密契合国家产业发展趋势，覆盖科技、消费、医药、半导体、化工、AI等重点领域，课程层层递进、脉络清晰，赢得学子广泛好评。
+放眼未来12个月内，全球央行黄金储备量或将进一步增加。
 
-第五期课程在传承既往高品质的基础上，进一步优化内容呈现方式，通过专业课件、案例拆解与互动答疑等多种形式，将复杂金融知识转化为生动易懂的教学内容，有效提升了学习体验。
+《调研》显示，45%的受访储备管理者表示，预计其所在机构将在未来12个月内增加黄金储备，这一比例打破了历史纪录。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 13:05 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 13:16 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 13:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 12:50 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 13:04 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 13:10 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 13:15 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 13:19 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 13:02 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 13:02 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 13:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:13 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 13:02 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:01 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-29 13:29 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 13:09 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:19 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 13:06 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 13:12 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 13:19 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 13:01 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 13:26 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 13:08 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 13:06 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 13:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [第一炉香](https://www.share.kurohicncr.top/Article/details/37781926204.shtml)
-- 2026-06-29 12:51 - [欧洲极端高温东扩](https://www.blog.kurohicncr.top/Article/details/95841746912.shtml)
-- 2026-06-29 13:07 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/977217504591.shtml)
-- 2026-06-29 12:57 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/76995141.shtml)
-- 2026-06-29 12:52 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/2530270.shtml)
-- 2026-06-29 13:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/87261124.shtml)
-- 2026-06-29 12:50 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/567880.shtml)
-- 2026-06-29 12:57 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/5757806.shtml)
-- 2026-06-29 13:11 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/7267047226.shtml)
-- 2026-06-29 13:18 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/1443100.shtml)
-- 2026-06-29 13:11 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/313318990091.shtml)
-- 2026-06-29 12:52 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/15237.shtml)
-- 2026-06-29 13:14 - [游戏数据竟被用于军事目的](https://www.share.kurohicncr.top/Article/details/529402003853.shtml)
-- 2026-06-29 13:15 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/7833552.shtml)
-- 2026-06-29 12:56 - [天津打雷](https://www.blog.kurohicncr.top/Article/details/147795053727.shtml)
+- 2026-06-29 13:07 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](http://www.share.kurohicncr.top/Article/details/9002291012.shtml)
+- 2026-06-29 13:15 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/4699212749.shtml)
+- 2026-06-29 13:09 - [刘宇宁现偶我就不要了](https://www.blog.minike.top/Article/details/6299237.shtml)
+- 2026-06-29 13:29 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/174392.shtml)
+- 2026-06-29 13:20 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/271543.shtml)
+- 2026-06-29 13:26 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/00013.shtml)
+- 2026-06-29 13:12 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/718656194.shtml)
+- 2026-06-29 13:08 - [TOP 无畏契约](https://www.share.minike.top/Article/details/483015.shtml)
+- 2026-06-29 13:20 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/09404185306.shtml)
+- 2026-06-29 13:03 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/1144011.shtml)
+- 2026-06-29 13:23 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/1640729.shtml)
+- 2026-06-29 13:25 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/323246.shtml)
+- 2026-06-29 13:04 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/4218424.shtml)
+- 2026-06-29 13:11 - [天道](http://www.share.kurohicncr.top/Article/details/50538856.shtml)
+- 2026-06-29 13:03 - [毒液2](https://www.share.minike.top/Article/details/727008.shtml)

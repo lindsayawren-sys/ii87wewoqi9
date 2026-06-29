@@ -1,60 +1,56 @@
-# 世卫组织：“洪迪厄斯”号邮轮疫情病毒种类为安第斯病毒
+# 油价跌至三个月低点，但油轮企业对霍尔木兹海峡航运仍持谨慎态度
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月8日电 日内瓦消息：当地时间5月7日，世界卫生组织就近期“洪迪厄斯”号邮轮暴发汉坦病毒疫情等相关情况举行新闻发布会。 世卫组织方面证实，截至目前，已经收到8例病例报告，其中5例确诊为汉坦病毒感染，3例为疑似病例。目前，已有3人因感染该病毒死亡。 世卫组织总干事谭德塞表示，本轮疫情涉及的汉坦病毒种类为安第斯病毒，是目前已知唯一能够在人与人之间有限传播的汉坦病毒种类。
+核心要点 继周一油价大幅抛售之后，周二国际原油价格跌至三个月以来最低水平，市场投资者正等待美伊旨在结束中东冲突的相关协议更多细节落地。 截至美国东部时间凌晨 4 点，国际原油定价基准 —— 布伦特原油期货下跌 1.25%，报每桶 82.13 美元。 美国 7 月交货的西德克萨斯轻质原油（WTI）期货跌破每桶 80 美元关口，下跌 1.41%，报每桶 79.67 美元。 原油期货
 
 ## 正文
 
-中新社北京5月8日电 日内瓦消息：当地时间5月7日，世界卫生组织就近期“洪迪厄斯”号邮轮暴发汉坦病毒疫情等相关情况举行新闻发布会。
+核心要点 继周一油价大幅抛售之后，周二国际原油价格跌至三个月以来最低水平，市场投资者正等待美伊旨在结束中东冲突的相关协议更多细节落地。
 
-世卫组织方面证实，截至目前，已经收到8例病例报告，其中5例确诊为汉坦病毒感染，3例为疑似病例。
+截至美国东部时间凌晨 4 点，国际原油定价基准 —— 布伦特原油期货下跌 1.25%，报每桶 82.13 美元。
 
-目前，已有3人因感染该病毒死亡。
+美国 7 月交货的西德克萨斯轻质原油（WTI）期货跌破每桶 80 美元关口，下跌 1.41%，报每桶 79.67 美元。
 
-世卫组织总干事谭德塞表示，本轮疫情涉及的汉坦病毒种类为安第斯病毒，是目前已知唯一能够在人与人之间有限传播的汉坦病毒种类。
+原油期货隔夜时段曾小幅冲高，随后再度反转下行；在前一交易日，油价已经跌至 3 月 4 日以来的最低价位。
 
-其传播途径与密切且长时间接触有关，疫情引发更广泛公共卫生风险依然较低。
+油价剧烈波动，反映出市场对于美伊双方达成的和平框架完整条款依旧存在不确定性。
 
-他指出，考虑到病毒的潜伏期最长可达六周，“未来可能会报告更多病例”。
+本次 G7 峰会于今日在法国埃维昂莱班召开，推动中东战事和平解决将成为峰会核心议题，美伊谅解备忘录的更多细节预计将于本周晚些时候对外公布。
 
-谭德塞说，世卫组织正与多个国家密切协调，其首要任务是确保受影响的患者得到治疗，确保船上其他乘客的安全和尊严得到保障，并防止病毒进一步传播。
+油轮企业高管：霍尔木兹海峡通航前景仍需审慎观望 美伊双方已于周日达成临时协议：将美伊停火期限延长 60 天，同时全面开放霍尔木兹海峡，恢复各国船舶正常通航。
 
-谭德塞还透露，5月2日接到相关情况通报以来，世卫组织已采取多项行动。
+前往出席 G7 峰会的美国总统特朗普表示，美国已与伊朗签署和平框架协议，并透露霍尔木兹海峡将于本周五全面重新开放，过往伊朗征收的海峡通行费也将取消，双方正式签约仪式定于本周五在日内瓦举行。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 13:11 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 12:58 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 13:05 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 13:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 13:13 - [埃博拉为何再次袭击非洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 12:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 13:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 13:12 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 13:01 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 13:00 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 13:06 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 12:49 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 13:13 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 13:13 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 13:18 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 13:10 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 13:15 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 13:20 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 13:28 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 13:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 13:21 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 13:07 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/725234613.shtml)
-- 2026-06-29 13:03 - [一生一世](http://www.share.kurohicncr.top/Article/details/7401826.shtml)
-- 2026-06-29 12:57 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.minike.top/Article/details/2665340.shtml)
-- 2026-06-29 13:03 - [A股限售股解禁一览](https://www.share.kurohicncr.top/Article/details/458900222117.shtml)
-- 2026-06-29 13:05 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/97356025.shtml)
-- 2026-06-29 12:49 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.blog.kurohicncr.top/Article/details/873965755048.shtml)
-- 2026-06-29 13:08 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/1358779.shtml)
-- 2026-06-29 13:12 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/30150853158.shtml)
-- 2026-06-29 13:09 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/65039.shtml)
-- 2026-06-29 13:04 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/471122101.shtml)
-- 2026-06-29 13:10 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/90915.shtml)
-- 2026-06-29 13:12 - [美加墨世界杯首支16强诞生](https://www.share.kurohicncr.top/Article/details/70288681.shtml)
-- 2026-06-29 12:57 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/898010399.shtml)
-- 2026-06-29 13:00 - [速度与激情9](http://www.blog.minike.top/Article/details/43704562.shtml)
-- 2026-06-29 13:09 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/72057472299.shtml)
+- 2026-06-29 13:17 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/628171.shtml)
+- 2026-06-29 13:12 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/498579160.shtml)
+- 2026-06-29 13:13 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/55084292268.shtml)
+- 2026-06-29 13:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/808413749494.shtml)
+- 2026-06-29 13:10 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/248120.shtml)
+- 2026-06-29 13:28 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/898041998812.shtml)
+- 2026-06-29 13:17 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/5584702.shtml)
+- 2026-06-29 13:25 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/532059766.shtml)
+- 2026-06-29 13:08 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/2158498.shtml)
+- 2026-06-29 13:15 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/95433321780.shtml)
+- 2026-06-29 13:21 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/2667853.shtml)
+- 2026-06-29 13:10 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/3426942.shtml)
+- 2026-06-29 13:00 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/33712.shtml)
+- 2026-06-29 13:06 - [A股](http://www.blog.kurohicncr.top/Article/details/47665299.shtml)
+- 2026-06-29 13:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/23307141.shtml)

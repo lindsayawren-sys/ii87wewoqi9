@@ -1,57 +1,60 @@
-# 外交部：中美双方就特朗普总统访华事保持着沟通
+# 光大期货：6月16日农产品日报
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。 有记者提问：美国总统特朗普日前表示，中美元首会谈将按计划进行。请问中方将何时发布消息？对此访有何期待？将重点讨论哪些议题？ 林剑：中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。(完)
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。美豆油库存低于预期。美豆出口检验符合预期，美豆优良率略改善。机构预计美豆种植面积8530万英亩，略高于种植意
 
 ## 正文
 
-中新网北京5月8日电 (记者 黄钰钦)中国外交部发言人林剑8日主持例行记者会。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周一，CBOT大豆收高，受助于技术性反弹，此前总体有利的美国作物天气以及原油价格拖累美豆创四个月新低。
 
-有记者提问：美国总统特朗普日前表示，中美元首会谈将按计划进行。
+NOPA发布月度压榨数据，截至5月底美豆油库存降至17.35亿帮，为5个月最低水平。
 
-请问中方将何时发布消息？
+美豆油库存低于预期。
 
-对此访有何期待？
+美豆出口检验符合预期，美豆优良率略改善。
 
-将重点讨论哪些议题？
+机构预计美豆种植面积8530万英亩，略高于种植意向报告的8470万英亩。
 
-林剑：中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。
+国内方面，蛋白粕偏弱震荡，资金观望情绪浓厚。
 
-(完)
+现货市场成交清淡，同样观望为主。
+
+钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 13:15 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 13:11 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 13:00 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 12:52 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 13:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 12:49 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 13:02 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 13:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 13:16 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:53 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 13:00 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 12:50 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 13:04 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 13:29 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 13:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 13:23 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 13:10 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 13:05 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 13:22 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 13:23 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 13:08 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 13:12 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 13:10 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 13:15 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 13:20 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/6192101668.shtml)
-- 2026-06-29 13:15 - [AG 钟意](http://www.blog.kurohicncr.top/Article/details/509770930327.shtml)
-- 2026-06-29 13:19 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/43218760.shtml)
-- 2026-06-29 13:00 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/003560038773.shtml)
-- 2026-06-29 13:15 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/54488281.shtml)
-- 2026-06-29 13:08 - [刘仲华院士愿当贺永辉导师](https://www.blog.minike.top/Article/details/061332.shtml)
-- 2026-06-29 13:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/2197072037.shtml)
-- 2026-06-29 13:04 - [天道](https://www.blog.minike.top/Article/details/7724638.shtml)
-- 2026-06-29 13:16 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/14203734.shtml)
-- 2026-06-29 13:13 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/19496663.shtml)
-- 2026-06-29 13:13 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/425195975268.shtml)
-- 2026-06-29 13:11 - [谢霆锋演唱会变大型呲水现场](http://www.share.minike.top/Article/details/816791.shtml)
-- 2026-06-29 13:15 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/0323142.shtml)
-- 2026-06-29 13:10 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/5159639.shtml)
-- 2026-06-29 13:12 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/35960738156.shtml)
+- 2026-06-29 13:13 - [我国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/212860572.shtml)
+- 2026-06-29 13:19 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/1214556.shtml)
+- 2026-06-29 13:27 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/04990.shtml)
+- 2026-06-29 13:16 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/231382.shtml)
+- 2026-06-29 13:09 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/299922.shtml)
+- 2026-06-29 13:05 - [欧洲热死人不是开玩笑](http://www.blog.kurohicncr.top/Article/details/012614174601.shtml)
+- 2026-06-29 13:16 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/8581477766.shtml)
+- 2026-06-29 13:10 - [T1对战KC](http://www.share.minike.top/Article/details/8327886433.shtml)
+- 2026-06-29 13:09 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/52499.shtml)
+- 2026-06-29 13:19 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/879308852.shtml)
+- 2026-06-29 13:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/3504856.shtml)
+- 2026-06-29 13:23 - [美媒：空警-3000服役即成全球最强](http://www.blog.kurohicncr.top/Article/details/3297740025.shtml)
+- 2026-06-29 13:22 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/50659.shtml)
+- 2026-06-29 13:27 - [韩媒称韩国队遭中国网民嘲讽](https://www.blog.minike.top/Article/details/86961.shtml)
+- 2026-06-29 13:14 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/84505642487.shtml)

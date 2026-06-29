@@ -1,56 +1,60 @@
-# 利润消失术！五粮液会计差错更正超100亿元！符合条件股民可预登记索赔
+# 公募出海，鹏华基金被监管“灵魂四问”
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-近日，宜宾五粮液（维权）股份有限公司（以下简称“五粮液”或“公司”）发布《关于前期会计差错更正的公告》，公司对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出的
+来源：行家券业 公募出海，鹏华基金被监管“灵魂四问” 积极出海的，不仅是券商，还有公募机构。 就在6月12日，证监会官网上挂出了一份看似常规的反馈意见——关于鹏华基设立香港子公司的申请。四段话、四个问题，字数不多，却直指要害。 为什么是鹏华？这家成立于1998年的老牌公募，凭什么觉得自己有资格走出去？毕竟，出海，需要有实力、有经验、有团队、有客户。而恰恰是在这几个维度上，鹏华是
 
 ## 正文
 
-近日，宜宾五粮液（维权）股份有限公司（以下简称“五粮液”或“公司”）发布《关于前期会计差错更正的公告》，公司对2025年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
+来源：行家券业 公募出海，鹏华基金被监管“灵魂四问” 积极出海的，不仅是券商，还有公募机构。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+就在6月12日，证监会官网上挂出了一份看似常规的反馈意见——关于鹏华基设立香港子公司的申请。
 
-（赵敬国律师专栏） 回顾本案，2026年4月30日晚上，五粮液公司发布《关于前期会计差错更正的公告》，公司对 2025 年业务模式进行梳理，基于谨慎性原则，调整2025年部分业务收入确认相关核算。
+四段话、四个问题，字数不多，却直指要害。
 
-此次前期会计差错更正涉及 2025 年已披露的一季度、半年度、三季度合并资产负债表与合并利润表的部分项目。
+为什么是鹏华？
 
-对2025年前三季度财务数据颠覆性调整：营收从609.45亿元下调至306.38亿元，归母净利润从215.11亿元砍至64.75亿元——超300亿元营收、150亿元净利一夜“消失”，令股民震惊。
+这家成立于1998年的老牌公募，凭什么觉得自己有资格走出去？
 
-信本股民索赔团队提醒，五粮液发布会计差错更正，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+毕竟，出海，需要有实力、有经验、有团队、有客户。
 
-索赔条件： 五粮液：于2025年4月26日-2026年4月30日期间买入且有持仓，无论在2026年5月1日及之后是否卖出。
+而恰恰是在这几个维度上，鹏华是扎扎实实掏出过成绩单的。
 
-（具体赔付范围由法院确定）（五粮液维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+1.1万亿的“底盘”，到底是什么段位？
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 12:59 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 13:00 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 12:59 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 12:56 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 13:14 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 13:01 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 13:10 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 13:19 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 12:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 13:10 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 13:01 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 13:17 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 13:11 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 13:00 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 13:10 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 13:29 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:14 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 13:21 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 13:20 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 13:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 13:13 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 13:24 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 13:18 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/995309536203.shtml)
-- 2026-06-29 12:57 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/9360869.shtml)
-- 2026-06-29 13:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/0484869744.shtml)
-- 2026-06-29 13:11 - [起风了](https://www.share.minike.top/Article/details/7693537.shtml)
-- 2026-06-29 13:14 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/94026.shtml)
-- 2026-06-29 13:06 - [扬名立万](http://www.share.kurohicncr.top/Article/details/74657320650.shtml)
-- 2026-06-29 13:16 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.minike.top/Article/details/19349999054.shtml)
-- 2026-06-29 13:11 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/55604.shtml)
-- 2026-06-29 13:08 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/66712783.shtml)
-- 2026-06-29 12:58 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/9044467.shtml)
-- 2026-06-29 13:05 - [五粮液回应宜宾地震影响](http://www.share.kurohicncr.top/Article/details/216763748062.shtml)
-- 2026-06-29 13:13 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/86641.shtml)
-- 2026-06-29 12:52 - [白玉兰最佳女主角提名片段](https://www.blog.minike.top/Article/details/169005.shtml)
-- 2026-06-29 12:54 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/502524.shtml)
-- 2026-06-29 13:08 - [拄拐少年高考663分：用行动回报社会](https://www.share.kurohicncr.top/Article/details/36171.shtml)
+- 2026-06-29 13:14 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/98749784643.shtml)
+- 2026-06-29 13:28 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/7590167462.shtml)
+- 2026-06-29 13:03 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/021541638426.shtml)
+- 2026-06-29 13:29 - [一见倾心](https://www.share.minike.top/Article/details/41124025.shtml)
+- 2026-06-29 13:28 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/37997.shtml)
+- 2026-06-29 13:00 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/6285759207.shtml)
+- 2026-06-29 13:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.minike.top/Article/details/400774084687.shtml)
+- 2026-06-29 13:29 - [这位猫咪，请你自重！](http://www.share.minike.top/Article/details/762651.shtml)
+- 2026-06-29 13:15 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/60280253899.shtml)
+- 2026-06-29 13:02 - [国乒全主力参加美国大满贯](https://www.share.minike.top/Article/details/395461.shtml)
+- 2026-06-29 13:03 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/81233251.shtml)
+- 2026-06-29 13:11 - [恋与深空女玩家不该被冒犯](https://www.blog.kurohicncr.top/Article/details/564544.shtml)
+- 2026-06-29 13:25 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.kurohicncr.top/Article/details/383204210214.shtml)
+- 2026-06-29 13:06 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/3885203.shtml)
+- 2026-06-29 13:24 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/327172798.shtml)

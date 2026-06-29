@@ -1,58 +1,58 @@
-# 财务造假被罚2.57亿元，元道通信涉嫌重大违法强制退市
+# 加快打造“千亿级汽车城” 河南开封推动先进制造业攀“高”向“新”
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！财务造假被罚2.57亿元，这家公司涉嫌重大违法强制退市 来源：证券日报之声 本报记者 吴晓璐 据中国证监会网站5月8日消息，近日，证监会对元道通信（维权）股份有限公司（简称“元道通信”）财务造假案件作出行政处罚事先告知。 经查，元道通信2019年至2022年
+中新网开封6月17日电 (刘鹏 左起超 王博)连日来，在河南开封奇瑞乘用车技改项目工地上，工程机械轰鸣运转，工人们正在加紧施工，争取将这座大型现代化工厂早日建成投用。 “项目建设已进入最后冲刺阶段，将引入更先进的自动化产线和数字管理系统，到2027年全面达产后，开封奇瑞整车和KD(散件组装)产量将超过60万辆，产值突破600亿元。”开封奇瑞基地相关负责人乔永介绍，开封市、区对该
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网开封6月17日电 (刘鹏 左起超 王博)连日来，在河南开封奇瑞乘用车技改项目工地上，工程机械轰鸣运转，工人们正在加紧施工，争取将这座大型现代化工厂早日建成投用。
 
-财务造假被罚2.57亿元，这家公司涉嫌重大违法强制退市 来源：证券日报之声 本报记者 吴晓璐 据中国证监会网站5月8日消息，近日，证监会对元道通信（维权）股份有限公司（简称“元道通信”）财务造假案件作出行政处罚事先告知。
+“项目建设已进入最后冲刺阶段，将引入更先进的自动化产线和数字管理系统，到2027年全面达产后，开封奇瑞整车和KD(散件组装)产量将超过60万辆，产值突破600亿元。
 
-经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。
+”开封奇瑞基地相关负责人乔永介绍，开封市、区对该项目的落地建设给予大力支持，项目设计方案从预审到区规委会审议通过仅用10天，建设工程规划许可证核发压缩至1天。
 
-证监会拟对上市公司罚款23884万元，对3名责任人员合计罚款1800万元并对相关人员采取5年证券市场禁入措施，拟罚款金额合计2.57亿元。
+“开封正在谋划实施一批带动性强的技改项目，以技改投资拉动产业迭代升级。
 
-元道通信涉嫌触及重大违法强制退市情形，深交所将依法启动退市程序。
+奇瑞技改项目将建造成引领行业的智能超级工厂，并通过延链补链带动本地汽车零部件配套率超过60%。
 
-证监会已冻结元道通信募集资金相关账户，目前正在对中介机构执业情况开展调查。
+”据开封市发改委主任刘国飞介绍，“十五五”时期，开封将全力打造先进制造业新城，把汽车制造作为首位产业来抓，依托郑开汽车产业带加快新能源转型步伐，实施整车制造规模提升工程和零部件配套提质工程，支持奇瑞汽车、星辰房车等企业扩大整车出口，带动光瑞、武秀等零部件企业产值突破10亿元，加快打造“千亿级汽车城”。
 
-对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定（二）》的规定移送公安机关。
+为此，开封专门成立了先进制造业新城建设专班，制定了“汽车城”、现代物流产业等专项发展规划，以重大项目为抓手，积极推进汽车制造、现代食品、化工新材料、生物医药等9条重点产业链智能化、绿色化、融合化转型升级，构建“空铁水公”多式联运体系，为制造业赋能提速。
 
-责任编辑：杨红卜
+并通过落实“市级领导+责任部门+金融机构+助企服务员”包联服务机制，不断提升“以企观政”精准服务水平，确保惠企政策直达快享，激励制造企业加快技术创新、提质增效、开拓市场。
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 13:15 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 12:56 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 13:02 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 13:06 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:57 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 13:07 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 12:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 12:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 13:19 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 13:04 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 13:02 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 13:27 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 13:07 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 13:29 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 13:22 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 13:16 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 13:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 13:15 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 13:16 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 13:11 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 13:00 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 13:18 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/5894767592.shtml)
-- 2026-06-29 12:54 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/937770.shtml)
-- 2026-06-29 12:59 - [初心如磐 红色足迹](http://www.share.kurohicncr.top/Article/details/096926549.shtml)
-- 2026-06-29 12:51 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/106883792014.shtml)
-- 2026-06-29 13:13 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/74621284008.shtml)
-- 2026-06-29 12:54 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/01696.shtml)
-- 2026-06-29 13:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/05671.shtml)
-- 2026-06-29 13:16 - [为什么6月以来北方频繁降雨](http://www.blog.minike.top/Article/details/8915242749.shtml)
-- 2026-06-29 13:14 - [杨紫《生命树》播放量破百亿](http://www.blog.kurohicncr.top/Article/details/704880365969.shtml)
-- 2026-06-29 13:11 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/8069380.shtml)
-- 2026-06-29 13:16 - [宜宾地震后顾客折返用餐0人逃单](http://www.blog.minike.top/Article/details/864049812418.shtml)
-- 2026-06-29 13:00 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/420812.shtml)
-- 2026-06-29 13:15 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/21791637119.shtml)
-- 2026-06-29 13:09 - [马杜罗社交媒体账号再发文](https://www.blog.minike.top/Article/details/24428.shtml)
-- 2026-06-29 13:17 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/1382875.shtml)
+- 2026-06-29 13:18 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/6307184695.shtml)
+- 2026-06-29 13:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/711223.shtml)
+- 2026-06-29 13:26 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/868124.shtml)
+- 2026-06-29 13:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/31097518.shtml)
+- 2026-06-29 13:03 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/057118897.shtml)
+- 2026-06-29 13:29 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/46145921571.shtml)
+- 2026-06-29 13:02 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/92275842.shtml)
+- 2026-06-29 13:04 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/0519499.shtml)
+- 2026-06-29 13:19 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/9828914.shtml)
+- 2026-06-29 13:23 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/7601480248.shtml)
+- 2026-06-29 13:27 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/5832745.shtml)
+- 2026-06-29 13:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/44793914.shtml)
+- 2026-06-29 13:20 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/7319072.shtml)
+- 2026-06-29 13:10 - [6月我国降水为何偏多](http://www.blog.kurohicncr.top/Article/details/59178266.shtml)
+- 2026-06-29 13:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/098671.shtml)

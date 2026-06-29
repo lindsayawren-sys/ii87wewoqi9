@@ -1,56 +1,44 @@
-# 招商银行“换帅”！业绩连续3年原地踏步，零售业务面临多重挑战
+# 我国成功发射卫星互联网低轨22组卫星
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：每财网 2025年招商银行实现业绩“微增”，传统优势的零售业务经营压力增大。 文/每日财报 楚风 “零售之王”招商银行宣布换帅。近日，招商银行披露公告称，公司原执行董事、行长王良因年龄原因卸任，不再转任其他职位。王良辞任后，公司董事会聘任王小青为新行长。 王良的任期始于招商银行的震荡期，而王小青的任职
+北京时间2026年6月17日10时44分，我国在海南商业航天发射场使用长征十二号运载火箭，成功将卫星互联网低轨22组卫星发射升空，卫星顺利进入预定轨道，发射任务获得圆满成功。 (总台记者 崔霞 魏安)
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+北京时间2026年6月17日10时44分，我国在海南商业航天发射场使用长征十二号运载火箭，成功将卫星互联网低轨22组卫星发射升空，卫星顺利进入预定轨道，发射任务获得圆满成功。
 
-来源：每财网 2025年招商银行实现业绩“微增”，传统优势的零售业务经营压力增大。
-
-文/每日财报 楚风 “零售之王”招商银行宣布换帅。
-
-近日，招商银行披露公告称，公司原执行董事、行长王良因年龄原因卸任，不再转任其他职位。
-
-王良辞任后，公司董事会聘任王小青为新行长。
-
-王良的任期始于招商银行的震荡期，而王小青的任职也始于公司经营面临挑战。
-
-据招商银行披露2025年财报，公司业绩仅实现微增长，营收更是连续3年“原地踏步”。
-
-相比同规模的银行，其业绩仍然较大提升空间。
+(总台记者 崔霞 魏安)
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:15 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 13:14 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 13:01 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 13:08 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 12:52 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 13:11 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 13:16 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 12:50 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 13:05 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 13:22 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 13:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 13:10 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 13:04 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 13:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 13:08 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 13:06 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 13:00 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 13:16 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 13:15 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/2138100.shtml)
-- 2026-06-29 13:17 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/3008747553.shtml)
-- 2026-06-29 13:07 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/971059064252.shtml)
-- 2026-06-29 12:50 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.minike.top/Article/details/4251081.shtml)
-- 2026-06-29 12:56 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/2565334.shtml)
-- 2026-06-29 13:06 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/4508833.shtml)
-- 2026-06-29 13:03 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/093111136.shtml)
-- 2026-06-29 13:01 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/2079808.shtml)
-- 2026-06-29 13:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/580961899.shtml)
-- 2026-06-29 12:50 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/769325412740.shtml)
-- 2026-06-29 13:19 - [天道](http://www.share.kurohicncr.top/Article/details/738446947172.shtml)
-- 2026-06-29 13:08 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/778812.shtml)
-- 2026-06-29 13:16 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/43431.shtml)
-- 2026-06-29 12:55 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/46483637751.shtml)
-- 2026-06-29 13:14 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/7634841.shtml)
+- 2026-06-29 13:06 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.minike.top/Article/details/884660505674.shtml)
+- 2026-06-29 13:22 - [张一山说杨紫早该拿奖了](http://www.share.minike.top/Article/details/216556196761.shtml)
+- 2026-06-29 13:21 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/9831889.shtml)
+- 2026-06-29 13:25 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/787920771266.shtml)
+- 2026-06-29 13:12 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/70558999.shtml)
+- 2026-06-29 13:04 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/1635540836.shtml)
+- 2026-06-29 13:17 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/467495.shtml)
+- 2026-06-29 13:01 - [急先锋](http://www.share.minike.top/Article/details/000873873.shtml)
+- 2026-06-29 13:02 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/72638.shtml)
+- 2026-06-29 13:02 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/175671.shtml)
+- 2026-06-29 13:13 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/21412079059.shtml)
+- 2026-06-29 13:16 - [岭南电影为何迎来“南方热”](http://www.blog.kurohicncr.top/Article/details/745323326610.shtml)
+- 2026-06-29 13:11 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/76510562.shtml)
+- 2026-06-29 13:20 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/51178.shtml)
+- 2026-06-29 13:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/31213963.shtml)

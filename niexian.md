@@ -1,58 +1,60 @@
-# 国际篮联三人篮球西安挑战赛将启 海内外16支劲旅鏖战长安
+# 不再冲规模拼增速，小微信贷“无序竞争”到头了
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网西安5月8日电 (记者 张一辰)记者8日从赛事组委会获悉，5月16日至17日，2026国际篮联三人篮球西安挑战赛将在西安大明宫国家遗址公园御道广场打响，届时将有16支海内外顶尖队伍齐聚千年古都，对冠军发起冲击。 作为国际篮联(FIBA)官方认证的顶级三人篮球赛事，本次挑战赛汇聚了全球三人篮球的精英力量。这不仅是一场关乎奥运积分和世界排名的激烈较量，更是各国高手向更高荣誉发
+作者：陈植 最近两周，杨琛递交的18份小微企业信贷申请，有2/3未能获得风控部门审核通过。同时，通过信贷审批的小微企业中，2家实际获得的授信额度较申请金额低了逾1/4。 作为一家股份制银行华东地区支行的小微普惠业务部门客户经理，杨琛说这是他从业逾10年，从未碰到的状况。以往，在“冲规模拼增速”的驱动下，他的小微企业信贷申请通过率基本保持在60%。 这让杨琛第一次感受到，银行小微
 
 ## 正文
 
-中新网西安5月8日电 (记者 张一辰)记者8日从赛事组委会获悉，5月16日至17日，2026国际篮联三人篮球西安挑战赛将在西安大明宫国家遗址公园御道广场打响，届时将有16支海内外顶尖队伍齐聚千年古都，对冠军发起冲击。
+作者：陈植 最近两周，杨琛递交的18份小微企业信贷申请，有2/3未能获得风控部门审核通过。
 
-作为国际篮联(FIBA)官方认证的顶级三人篮球赛事，本次挑战赛汇聚了全球三人篮球的精英力量。
+同时，通过信贷审批的小微企业中，2家实际获得的授信额度较申请金额低了逾1/4。
 
-这不仅是一场关乎奥运积分和世界排名的激烈较量，更是各国高手向更高荣誉发起冲击的关键之战。
+作为一家股份制银行华东地区支行的小微普惠业务部门客户经理，杨琛说这是他从业逾10年，从未碰到的状况。
 
-赛事吸引了来自世界各地的16支顶尖三人篮球队伍参赛，包括巴塞罗那、波尔多、劳东德瓦利斯等国际知名俱乐部，以及北京、杭州和东道主西安队在内的多支国内劲旅。
+以往，在“冲规模拼增速”的驱动下，他的小微企业信贷申请通过率基本保持在60%。
 
-高水平的竞技对抗、快节奏的比赛进程，将充分展现三人篮球项目的独特魅力。
+这让杨琛第一次感受到，银行小微普惠信贷的业务逻辑开始发生明显变化。
 
-值得一提的是，赛事选址颇具匠心，举办地大明宫国家遗址公园是盛唐文化与皇家礼制的重要承载地。
+最近两周，他所在支行的领导不再强调小微普惠信贷“规模驱动、增速为王”，取而代之的是一句新口头禅：“质量优先、结构优化”。
 
-国际潮流三人篮球赛事与千年历史遗产在此碰撞，打破时空界限，实现体育竞技与文化传承的创新融合，让赛事兼具竞技性与文化底蕴。
+杨琛坦言，这种变化，源于国家金融监督管理总局（下称“金融监管总局”）在5月19日发布的《关于做好2026年小微企业金融服务工作的通知》（下称《通知》）。
 
-赛事组委会相关负责人表示，西安此前已成功举办多项国际大赛，本次赛事落地于此，既彰显了城市的赛事承办能力，也以体育为桥，向世界展现古都西安的现代活力与文化魅力。
+《通知》提出，推动小微企业金融服务“稳投放、优结构、提质量、可持续”。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 13:05 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:50 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 13:10 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 13:01 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 13:06 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 13:12 - [虞书欣灿如繁星明天定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 13:18 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-29 13:19 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 13:01 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 13:10 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 13:08 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 13:15 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 13:21 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 13:11 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 13:07 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 13:16 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 13:26 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 13:28 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 13:27 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 13:20 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 13:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 13:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 13:01 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 13:03 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 13:10 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/02776.shtml)
-- 2026-06-29 12:53 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/556686187169.shtml)
-- 2026-06-29 13:06 - [恋与深空女玩家不该被冒犯](http://www.blog.minike.top/Article/details/933658.shtml)
-- 2026-06-29 13:05 - [这位天才台湾人第一次来大陆，开智了](http://www.share.kurohicncr.top/Article/details/099832990.shtml)
-- 2026-06-29 12:52 - [事关个税 明日截止请抓紧办理](https://www.blog.minike.top/Article/details/442502271.shtml)
-- 2026-06-29 13:15 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/294222.shtml)
-- 2026-06-29 13:06 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/93612361169.shtml)
-- 2026-06-29 13:11 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/96671539040.shtml)
-- 2026-06-29 13:14 - [委内瑞拉强震致中国公民8遇难1失联](https://www.share.kurohicncr.top/Article/details/91481173689.shtml)
-- 2026-06-29 13:05 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/44383.shtml)
-- 2026-06-29 13:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/225068829315.shtml)
-- 2026-06-29 12:53 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/15457158.shtml)
-- 2026-06-29 12:51 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/621787655.shtml)
-- 2026-06-29 13:01 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/99339542037.shtml)
-- 2026-06-29 13:15 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/9713651535.shtml)
+- 2026-06-29 13:24 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/567278.shtml)
+- 2026-06-29 13:25 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/687726.shtml)
+- 2026-06-29 13:03 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/827686.shtml)
+- 2026-06-29 13:26 - [韩红携4000万物资抵呼和浩特](https://www.share.minike.top/Article/details/85936577.shtml)
+- 2026-06-29 13:12 - [金刚川](https://www.share.minike.top/Article/details/432000.shtml)
+- 2026-06-29 13:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/30248.shtml)
+- 2026-06-29 13:06 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/1110945665.shtml)
+- 2026-06-29 13:15 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/856042512.shtml)
+- 2026-06-29 13:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/285033303090.shtml)
+- 2026-06-29 13:21 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/36921484615.shtml)
+- 2026-06-29 13:10 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/311570691.shtml)
+- 2026-06-29 13:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/3778723.shtml)
+- 2026-06-29 13:18 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/2346950269.shtml)
+- 2026-06-29 13:14 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/3065189544.shtml)
+- 2026-06-29 13:04 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.blog.kurohicncr.top/Article/details/05237860.shtml)

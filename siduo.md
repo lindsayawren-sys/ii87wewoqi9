@@ -1,60 +1,55 @@
-# 河南周口：小麦灌浆管护忙
+# 河南三门峡：端午节香包走俏 传统手艺焕新彩
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-排队3小时打卡1分钟！现在的旅行，只是为了发朋友圈？中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒大模型收费，先过“值不值”这一关今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？它们又是如何做到的？友情提醒！最近真的不要穿这种颜色的衣服出
+发布时间：2026年06月16日 14:44 来源：中国新闻网 近日，随着端午节临近，在河南三门峡，非物质文化遗产民间布艺代表性传承人王淑娴的家中，各式手工香包琳琅满目。石榴、葫芦、如意等几十种造型的香包色彩鲜艳、寓意吉祥，成为端午节前一道浓浓的民俗风景。 据介绍，每年端午前夕，王淑娴都会带着儿媳和学徒一起制作香包。她在传统手艺基础上不断创新，推出适合包挂、车挂、伴手礼等场景的
 
 ## 正文
 
-排队3小时打卡1分钟！
+发布时间：2026年06月16日 14:44 来源：中国新闻网 近日，随着端午节临近，在河南三门峡，非物质文化遗产民间布艺代表性传承人王淑娴的家中，各式手工香包琳琅满目。
 
-现在的旅行，只是为了发朋友圈？
+石榴、葫芦、如意等几十种造型的香包色彩鲜艳、寓意吉祥，成为端午节前一道浓浓的民俗风景。
 
-中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒大模型收费，先过“值不值”这一关今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？
+据介绍，每年端午前夕，王淑娴都会带着儿媳和学徒一起制作香包。
 
-部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？
+她在传统手艺基础上不断创新，推出适合包挂、车挂、伴手礼等场景的新款。
 
-它们又是如何做到的？
+香包内填充多种中药香料，具有驱蚊安神、香味持久等特点，让端午香包这一民俗手工艺在传承中焕发新的活力。
 
-友情提醒！
-
-最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！
-
-美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+(范晓恒 张京成 刘莉 周嘉良 视频来源 三门峡广播电视台) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 13:00 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 12:55 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 13:00 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 13:12 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 12:51 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 13:03 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 13:16 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 13:08 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 13:14 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 12:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 13:19 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 13:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 13:14 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 13:15 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 13:00 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 13:05 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 13:20 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 13:15 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 13:29 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 13:29 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 13:12 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 13:11 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 13:24 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 13:28 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 13:28 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 13:29 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [BW2026游览指南](http://www.blog.kurohicncr.top/Article/details/380182.shtml)
-- 2026-06-29 12:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/749585.shtml)
-- 2026-06-29 13:12 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/264591210.shtml)
-- 2026-06-29 12:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/525626497596.shtml)
-- 2026-06-29 13:07 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/1697716.shtml)
-- 2026-06-29 12:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/99666.shtml)
-- 2026-06-29 13:00 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/1422243.shtml)
-- 2026-06-29 12:55 - [扫黑风暴](http://www.share.minike.top/Article/details/1590606.shtml)
-- 2026-06-29 13:06 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/5733848973.shtml)
-- 2026-06-29 13:01 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/35141344.shtml)
-- 2026-06-29 12:53 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/265190609272.shtml)
-- 2026-06-29 12:49 - [毕业寄几百斤快递回家女生发声](http://www.share.kurohicncr.top/Article/details/9144455394.shtml)
-- 2026-06-29 12:59 - [乌拉圭出局之路](https://www.share.kurohicncr.top/Article/details/14636092.shtml)
-- 2026-06-29 13:04 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/3077343384.shtml)
-- 2026-06-29 12:57 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/0826790400.shtml)
+- 2026-06-29 13:13 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.minike.top/Article/details/10271.shtml)
+- 2026-06-29 13:26 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/39495.shtml)
+- 2026-06-29 13:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/92257698.shtml)
+- 2026-06-29 13:05 - [詹俊预测德国大胜巴拉圭](http://www.share.kurohicncr.top/Article/details/306262037448.shtml)
+- 2026-06-29 13:23 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.kurohicncr.top/Article/details/83081.shtml)
+- 2026-06-29 13:18 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/1037515.shtml)
+- 2026-06-29 13:22 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/5936207509.shtml)
+- 2026-06-29 13:10 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/7396278569.shtml)
+- 2026-06-29 13:03 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/395711.shtml)
+- 2026-06-29 13:01 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/828771580.shtml)
+- 2026-06-29 13:00 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.minike.top/Article/details/85452359.shtml)
+- 2026-06-29 13:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/0823136.shtml)
+- 2026-06-29 13:03 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/597842.shtml)
+- 2026-06-29 13:27 - [韩红携4000万物资抵呼和浩特](https://www.blog.minike.top/Article/details/35575536.shtml)
+- 2026-06-29 13:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/0062403348.shtml)

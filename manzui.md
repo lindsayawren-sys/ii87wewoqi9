@@ -1,58 +1,56 @@
-# 红利类资产防御属性获关注，资金连续三个交易日增配港股通红利ETF华泰柏瑞（513530）
+# 国台办回应台湾缺电问题
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-今日（26/5/8）早盘，港股未能延续昨日的强势表现，资金在不同板块间的腾挪特征较为明显，折射出港股市场整体风险偏好并未显著回升，资金仍然存在较强的防御性配置需求。在此背景下，兼具较低估值与较高确定性收益来源的红利类资产有望继续充当不少资金的底仓选择，带动资金对港股通红利ETF华泰柏瑞（513530）的配置需求释放。 Wind数据显示，截至2026年5月7日，港股通红利ETF华
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。有记者问：近期，岛内继台中市发生大面积停电，超14万户居民受影响，彰化县也发生无预警停电，近4000户居民受到影响。而民进党当局却一再声称2034年前不会有缺电问题。请问对此有何评论？ 国台办发言人陈斌华表示，民进党当局空话连篇、自欺欺人，根本无法让民众信服。频繁停电和电价攀升是台湾产业界和民众面对的日常，民进党当局如不
 
 ## 正文
 
-今日（26/5/8）早盘，港股未能延续昨日的强势表现，资金在不同板块间的腾挪特征较为明显，折射出港股市场整体风险偏好并未显著回升，资金仍然存在较强的防御性配置需求。
+中新网6月17日电 6月17日，国台办举行例行新闻发布会。
 
-在此背景下，兼具较低估值与较高确定性收益来源的红利类资产有望继续充当不少资金的底仓选择，带动资金对港股通红利ETF华泰柏瑞（513530）的配置需求释放。
+有记者问：近期，岛内继台中市发生大面积停电，超14万户居民受影响，彰化县也发生无预警停电，近4000户居民受到影响。
 
-Wind数据显示，截至2026年5月7日，港股通红利ETF华泰柏瑞（513530）连续3个交易日获得资金净申购，是同期全市场港股红利类主题ETF中仅有的累计吸金超0.6亿元的产品。
+而民进党当局却一再声称2034年前不会有缺电问题。
 
-拉长维度来看，自4月中旬以来的14个交易日中，港股通红利ETF华泰柏瑞（513530）12日累计获超3.93亿元资金增持，吸金态势明显。
+请问对此有何评论？
 
-之所以近期持续收获资金青睐，离不开当前港股高股息策略受到多重逻辑支撑。
+国台办发言人陈斌华表示，民进党当局空话连篇、自欺欺人，根本无法让民众信服。
 
-宏观层面，无风险利率中枢持续下移，10年期国债收益率已降至1.76%的历史较低水平，而产品标的指数港股通高股息（CNY）股息率仍维持在4.78%的较高水平，二者之间存在明显利差。
+频繁停电和电价攀升是台湾产业界和民众面对的日常，民进党当局如不改变错误的能源政策，岛内“缺电”问题只会愈演愈烈。
 
-资金层面，险资等长线资金在“资产荒”格局下对稳定现金流资产配置需求旺盛，南向资金年初以来持续净流入超53667亿港元，其中以银行、石油石化为代表的高股息板块再度成为南向资金的主要加仓方向。
-
-除高股息与南向资金流入的支撑外，港股红利类资产在波动行情中也展现出“攻守兼备”的特征。
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-29 13:00 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 12:52 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 13:05 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 13:19 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 12:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 13:07 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 12:53 - [韩国政府将对世界杯出局追责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 13:12 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 13:08 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 13:06 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:05 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 13:15 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 13:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 13:23 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 13:08 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 13:13 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 13:10 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 13:26 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 13:23 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:18 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 13:07 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 13:10 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 13:26 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 13:10 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/3790769.shtml)
-- 2026-06-29 13:09 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/21458.shtml)
-- 2026-06-29 12:58 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/03250842339.shtml)
-- 2026-06-29 13:07 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/442151.shtml)
-- 2026-06-29 13:00 - [大罗力挺内马尔](http://www.share.minike.top/Article/details/25447682285.shtml)
-- 2026-06-29 13:13 - [多家银行收紧个人贵金属业务](https://www.blog.kurohicncr.top/Article/details/321405.shtml)
-- 2026-06-29 13:05 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/21163694.shtml)
-- 2026-06-29 13:05 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/292715918150.shtml)
-- 2026-06-29 13:09 - [扬名立万](https://www.share.kurohicncr.top/Article/details/832832.shtml)
-- 2026-06-29 13:16 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/08498580932.shtml)
-- 2026-06-29 13:18 - [王佳佳江疏影13年前后同框对比](http://www.share.minike.top/Article/details/5158137.shtml)
-- 2026-06-29 13:07 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/81516.shtml)
-- 2026-06-29 13:19 - [A股限售股解禁一览](http://www.share.kurohicncr.top/Article/details/770474.shtml)
-- 2026-06-29 12:53 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/04339.shtml)
-- 2026-06-29 13:01 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.kurohicncr.top/Article/details/88030586.shtml)
+- 2026-06-29 13:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/6301133905.shtml)
+- 2026-06-29 13:07 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/17767717550.shtml)
+- 2026-06-29 13:04 - [马杜罗社交媒体账号再发文](http://www.share.kurohicncr.top/Article/details/9411505995.shtml)
+- 2026-06-29 13:01 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/20737708.shtml)
+- 2026-06-29 13:00 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/599940.shtml)
+- 2026-06-29 13:21 - [杨紫《生命树》播放量破百亿](http://www.share.kurohicncr.top/Article/details/11699091.shtml)
+- 2026-06-29 13:23 - [千与千寻](https://www.blog.minike.top/Article/details/670504965.shtml)
+- 2026-06-29 13:12 - [向佑说向佐是一生依靠](http://www.blog.kurohicncr.top/Article/details/5545153830.shtml)
+- 2026-06-29 13:21 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/04511907.shtml)
+- 2026-06-29 13:24 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/66029210.shtml)
+- 2026-06-29 13:23 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/67462255.shtml)
+- 2026-06-29 13:25 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/492660893471.shtml)
+- 2026-06-29 13:23 - [大罗力挺内马尔](http://www.share.kurohicncr.top/Article/details/95841825798.shtml)
+- 2026-06-29 13:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/674937.shtml)
+- 2026-06-29 13:24 - [韩红携4000万物资抵呼和浩特](http://www.share.kurohicncr.top/Article/details/006676295.shtml)

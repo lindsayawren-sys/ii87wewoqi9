@@ -1,56 +1,59 @@
-# A股“排雷”进行时，多家上市公司“栽了”！
+# 港片扎堆上海电影节 王英伟：香港文化特质和深厚积累要发挥出来
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-本期上海沪紫律师事务所刘鹏律师团队整理了4月来新增的可索赔名单。（刘鹏律师专栏） 随着2026年A股市场4月30日的年报披露季正式收官，中国资本市场迎来了近年来最为震动的一次“业绩大考”。 与以往单纯的股价涨跌相比，今年最令投资者胆战心惊的关键词集中在三个维度：信披违规被立案调查、业绩预告变脸、以及财报“会计差错”修正。 年报披露期的尾声，往往是监管层亮剑的高峰期。2026年4
+中新社上海6月15日电 (记者 缪璐)在第28届上海国际电影节举行期间，香港电影发展局主席王英伟15日接受中新社记者专访时表示，香港有很多不可复制的文化特质和深厚积累。中西文化交融、世界潮流汇聚，是其文化特色；香港电影底蕴深厚，拥有很好的导演、摄影、美术和音乐人才。但如何将这些优势发挥出来，是需要思考的课题。本届上海电影节期间，香港电影界带来了多部影片，包括《第四幕》《一个部门
 
 ## 正文
 
-本期上海沪紫律师事务所刘鹏律师团队整理了4月来新增的可索赔名单。
+中新社上海6月15日电 (记者 缪璐)在第28届上海国际电影节举行期间，香港电影发展局主席王英伟15日接受中新社记者专访时表示，香港有很多不可复制的文化特质和深厚积累。
 
-（刘鹏律师专栏） 随着2026年A股市场4月30日的年报披露季正式收官，中国资本市场迎来了近年来最为震动的一次“业绩大考”。
+中西文化交融、世界潮流汇聚，是其文化特色；香港电影底蕴深厚，拥有很好的导演、摄影、美术和音乐人才。
 
-与以往单纯的股价涨跌相比，今年最令投资者胆战心惊的关键词集中在三个维度：信披违规被立案调查、业绩预告变脸、以及财报“会计差错”修正。
+但如何将这些优势发挥出来，是需要思考的课题。
 
-年报披露期的尾声，往往是监管层亮剑的高峰期。
+本届上海电影节期间，香港电影界带来了多部影片，包括《第四幕》《一个部门的诞生》《妈样年华》《UFO离奇命案》《我阿爹想旅行》等。
 
-2026年4月来，监管力度呈现高压态势，多支股票信披违规被立案。
+其中，尔冬升监制、王德健导演、冯德伦参演的《第四幕》作为开幕片，完成了全球首映。
 
-如果说立案调查是个案，那么“业绩变脸”则成为了今年年报季的普遍现象。
+王英伟说，过去大家看香港电影，特别关注动作片和警匪片，但现在香港电影的题材正在不断扩大。
 
-例如，太极股份（维权）、梦百合（维权）、美芝股份、明德生物等。
+近年来，香港特区政府推出了“薪火相传计划”，催生了一批新导演、新题材、新想法和新演员，为香港电影带来了新面貌。
 
-面对财务数据的巨变，上市公司最常用的挡箭牌便是“会计差错更正”与“谨慎性原则”。
+谈到最近的热门电影《给阿嬷的情书》，王英伟坦言，他早在影片刚上映时就预料到它会成功。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 13:14 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 13:01 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 13:01 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:50 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 13:10 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 12:59 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 12:55 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 12:51 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 13:15 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 13:07 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 13:05 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 13:09 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 13:16 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 13:08 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 13:12 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 13:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 13:21 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 13:28 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 13:23 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 13:24 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 13:25 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 13:02 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/067797548805.shtml)
-- 2026-06-29 13:09 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/238870.shtml)
-- 2026-06-29 12:56 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/88454769031.shtml)
-- 2026-06-29 13:11 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/635002569317.shtml)
-- 2026-06-29 12:54 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/97815.shtml)
-- 2026-06-29 13:09 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/792173121600.shtml)
-- 2026-06-29 12:50 - [向佑说向佐是一生依靠](http://www.blog.kurohicncr.top/Article/details/17752002.shtml)
-- 2026-06-29 12:59 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/88822929835.shtml)
-- 2026-06-29 13:18 - [广州某高校辟谣禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/50716745.shtml)
-- 2026-06-29 13:00 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/788691906164.shtml)
-- 2026-06-29 12:52 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/06884.shtml)
-- 2026-06-29 13:07 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/109500711773.shtml)
-- 2026-06-29 13:14 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/760153517521.shtml)
-- 2026-06-29 13:01 - [美人鱼](http://www.blog.minike.top/Article/details/8872022505.shtml)
-- 2026-06-29 12:50 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/8083991.shtml)
+- 2026-06-29 13:15 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/54572731.shtml)
+- 2026-06-29 13:12 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/62951277337.shtml)
+- 2026-06-29 13:08 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/0193307514.shtml)
+- 2026-06-29 13:16 - [陈露发声引舆论反转](https://www.blog.minike.top/Article/details/26742369098.shtml)
+- 2026-06-29 13:18 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/624531119527.shtml)
+- 2026-06-29 13:18 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/66845307.shtml)
+- 2026-06-29 13:11 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.kurohicncr.top/Article/details/855166.shtml)
+- 2026-06-29 13:22 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/6339793.shtml)
+- 2026-06-29 13:19 - [扫黑风暴](https://www.blog.minike.top/Article/details/49549.shtml)
+- 2026-06-29 13:27 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/53079145464.shtml)
+- 2026-06-29 13:12 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/381787.shtml)
+- 2026-06-29 13:26 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/259422.shtml)
+- 2026-06-29 13:10 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/961648958521.shtml)
+- 2026-06-29 13:21 - [送你一朵小红花](https://www.blog.minike.top/Article/details/46685880669.shtml)
+- 2026-06-29 13:28 - [急先锋](http://www.share.minike.top/Article/details/096565970574.shtml)

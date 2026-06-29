@@ -1,57 +1,60 @@
-# 港媒：美加墨世界杯转播权香港落地
+# 突现乌龙指！这只创业板ETF，20%涨停！明日紧急停牌
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-中新网5月8日电(吴家驹)距离2026年美加墨世界杯开幕仅剩不到40天。 据香港大公文汇网报道，近日，FIFA官网显示，中国香港地区已获得2026年世界杯转播权。据悉，香港电讯盈科公司旗下Now TV与免费电视台Viu TV获得美加墨世界独家转播权。Now TV将通过收费平台全程直播104场比赛，Viu TV将会免费播出揭幕战、决赛等精选场次。据悉，电讯盈科买下世界杯转播权花费
+在市场一片大涨的行情下，FOMO情绪蔓延，创业板ETF惊现乌龙指。 6月15日，A股三大指数强势上涨，创业板指上涨5.3%，多只创业板ETF涨幅也在5%左右。但是值得注意的是，创业板ETF富国（159971）尾盘暴力拉升，14点58分后暴涨20%触及涨停，疑似出现乌龙指。 15日晚间，基金管理人紧急发布溢价风险提示公告及停复牌公告。公告显示，该基金将于16日开市起停牌，并在10
 
 ## 正文
 
-中新网5月8日电(吴家驹)距离2026年美加墨世界杯开幕仅剩不到40天。
+在市场一片大涨的行情下，FOMO情绪蔓延，创业板ETF惊现乌龙指。
 
-据香港大公文汇网报道，近日，FIFA官网显示，中国香港地区已获得2026年世界杯转播权。
+6月15日，A股三大指数强势上涨，创业板指上涨5.3%，多只创业板ETF涨幅也在5%左右。
 
-据悉，香港电讯盈科公司旗下Now TV与免费电视台Viu TV获得美加墨世界独家转播权。
+但是值得注意的是，创业板ETF富国（159971）尾盘暴力拉升，14点58分后暴涨20%触及涨停，疑似出现乌龙指。
 
-Now TV将通过收费平台全程直播104场比赛，Viu TV将会免费播出揭幕战、决赛等精选场次。
+15日晚间，基金管理人紧急发布溢价风险提示公告及停复牌公告。
 
-据悉，电讯盈科买下世界杯转播权花费约2500万美元(约1.7亿元人民币)。
+公告显示，该基金将于16日开市起停牌，并在10：30起复牌，停牌期间本基金赎回业务照常办理。
 
-(完)
+基金管理人郑重提醒广大投资者密切关注二级市场交易价格溢价风险，审慎做出投资决策，如盲目投资，可能遭受重大损失。
+
+创业板ETF富国惊现乌龙指 6月15日，创业板指高开高走，大涨5.3%，国际复材、铜冠铜箔、光库科技等多只个股“20cm”涨停。
+
+在创业板指的带动下，多只创业板ETF也放量大涨，其中，创业板ETF富国（159971）尾盘突然暴力拉升，以20%的涨幅收盘。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 13:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 12:55 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 13:16 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 13:07 - [韩红携4000万物资抵呼和浩特](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 13:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 12:57 - [美加墨世界杯首支16强诞生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 13:15 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 13:10 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 13:12 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 12:56 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 13:04 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 13:00 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 13:15 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
-- 2026-06-29 13:07 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 13:17 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 13:22 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:19 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 13:27 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 13:00 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 13:29 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 13:05 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 13:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 13:26 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 13:21 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 13:07 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 13:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:00 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 13:08 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/304433510755.shtml)
-- 2026-06-29 13:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/54579664.shtml)
-- 2026-06-29 13:04 - [急先锋](https://www.blog.minike.top/Article/details/10564050995.shtml)
-- 2026-06-29 12:50 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/9696890.shtml)
-- 2026-06-29 12:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/272957.shtml)
-- 2026-06-29 12:54 - [吴建豪老婆](https://www.share.minike.top/Article/details/001163915.shtml)
-- 2026-06-29 12:50 - [法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/12013113277.shtml)
-- 2026-06-29 13:15 - [千与千寻](http://www.share.kurohicncr.top/Article/details/74132120.shtml)
-- 2026-06-29 12:55 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/8970453.shtml)
-- 2026-06-29 13:08 - [当我回母校教书](https://www.blog.minike.top/Article/details/169408343736.shtml)
-- 2026-06-29 12:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/41318274.shtml)
-- 2026-06-29 13:06 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/4285406434.shtml)
-- 2026-06-29 12:51 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/45559373925.shtml)
-- 2026-06-29 13:01 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/299776462268.shtml)
-- 2026-06-29 13:07 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/93660435729.shtml)
+- 2026-06-29 13:03 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/620014.shtml)
+- 2026-06-29 13:21 - [广州某高校辟谣禁止小米汽车入校](http://www.share.minike.top/Article/details/740763874320.shtml)
+- 2026-06-29 13:17 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/797588.shtml)
+- 2026-06-29 13:01 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/59911649739.shtml)
+- 2026-06-29 13:03 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/17899.shtml)
+- 2026-06-29 13:13 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/455429.shtml)
+- 2026-06-29 13:19 - [本周做什么都顺的星座](https://www.share.minike.top/Article/details/806658048765.shtml)
+- 2026-06-29 13:05 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/707248.shtml)
+- 2026-06-29 13:10 - [韩国政府将对世界杯出局追责](http://www.blog.minike.top/Article/details/50102592.shtml)
+- 2026-06-29 13:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/97003.shtml)
+- 2026-06-29 13:17 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/573630.shtml)
+- 2026-06-29 13:19 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/96176.shtml)
+- 2026-06-29 13:23 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/09365.shtml)
+- 2026-06-29 13:23 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/501141206989.shtml)
+- 2026-06-29 13:26 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/85454207167.shtml)

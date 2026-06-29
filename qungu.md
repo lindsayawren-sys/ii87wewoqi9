@@ -1,59 +1,56 @@
-# 元道通信涉嫌欺诈发行、财务造假，或触及重大违法强制退市情形
+# 广东持续暴雨 深圳全市中小学停课
 
-> 更新时间：2026-06-29 13:19:53 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！证监会5月8日消息，近日，证监会对元道通信（维权）股份有限公司（简称“元道通信”）财务造假案件作出行政处罚事先告知。经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。证监会拟对上市公
+中新社广州6月16日电 (记者 王坚)广东16日持续出现强降雨。当日白天，全省有261个镇街遭遇暴雨、大暴雨。广州南沙区部分区域及深圳等地停课。 广东气象部门介绍，16日8时到17时，全省有39个镇街录得超过100毫米的大暴雨，有222个镇街录得50毫米至100毫米的暴雨，其中江门台山市川岛镇录得全省最大降雨量达235毫米，深圳光明区新湖街道也录得降雨量超200毫米。 16日中
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：证监会严查元道通信财务造假案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社广州6月16日电 (记者 王坚)广东16日持续出现强降雨。
 
-证监会5月8日消息，近日，证监会对元道通信（维权）股份有限公司（简称“元道通信”）财务造假案件作出行政处罚事先告知。
+当日白天，全省有261个镇街遭遇暴雨、大暴雨。
 
-经查，元道通信2019年至2022年虚增收入，涉嫌欺诈发行、定期报告信息披露违法违规等。
+广州南沙区部分区域及深圳等地停课。
 
-证监会拟对上市公司罚款23884万元，对3名责任人员合计罚款1800万元并对相关人员采取5年证券市场禁入措施。
+广东气象部门介绍，16日8时到17时，全省有39个镇街录得超过100毫米的大暴雨，有222个镇街录得50毫米至100毫米的暴雨，其中江门台山市川岛镇录得全省最大降雨量达235毫米，深圳光明区新湖街道也录得降雨量超200毫米。
 
-元道通信涉嫌触及重大违法强制退市情形，深交所将依法启动退市程序。
+16日中午，广州南沙区乌云密布，暴雨倾盆，南沙区榄核镇、大岗镇暴雨橙色预警信号升级至红色。
 
-证监会已冻结元道通信募集资金相关账户，目前正在对中介机构执业情况开展调查。
+按相关规定，两镇当日下午停课。
 
-对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定（二）》的规定移送公安机关。
+深圳当日亦狂风暴雨，电闪雷鸣，全市(不含深汕特别合作区)中小学、幼儿园及培训机构下午停课。
 
-责任编辑：刘万里 SF014
+气象专家表示，预计16日至18日，广东的南部市县仍将有大到暴雨局部(特)大暴雨，其余市县有中到大雨局部暴雨，雷雨时部分市县伴有8级局地10级的短时大风。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 12:58 - [岭南电影为何迎来“南方热”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 13:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 13:06 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 13:04 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 13:11 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 13:18 - [白鹿呵呵挽手比心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 12:55 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 13:17 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 13:03 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 12:50 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 13:08 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 12:58 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 13:02 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 13:02 - [游戏数据竟被用于军事目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 13:05 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 13:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 13:16 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 13:04 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 13:09 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
+- 2026-06-29 13:00 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 13:05 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:12 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:08 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/048170653087.shtml)
-- 2026-06-29 12:52 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/79436.shtml)
-- 2026-06-29 13:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/509502689.shtml)
-- 2026-06-29 12:51 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/96816.shtml)
-- 2026-06-29 13:12 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/9039504506.shtml)
-- 2026-06-29 13:06 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/645470819.shtml)
-- 2026-06-29 12:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/377090071.shtml)
-- 2026-06-29 12:50 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/1690574.shtml)
-- 2026-06-29 13:07 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/667735454.shtml)
-- 2026-06-29 12:52 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/532642.shtml)
-- 2026-06-29 13:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/7298271.shtml)
-- 2026-06-29 13:14 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/76753.shtml)
-- 2026-06-29 13:01 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/983092.shtml)
-- 2026-06-29 13:16 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/785408837657.shtml)
-- 2026-06-29 13:00 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/144409232.shtml)
+- 2026-06-29 13:20 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.kurohicncr.top/Article/details/374750890.shtml)
+- 2026-06-29 13:06 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/359214.shtml)
+- 2026-06-29 13:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3122172526.shtml)
+- 2026-06-29 13:24 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/822634517.shtml)
+- 2026-06-29 13:20 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/10631513903.shtml)
+- 2026-06-29 13:00 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/728619441148.shtml)
+- 2026-06-29 13:01 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/814096129.shtml)
+- 2026-06-29 13:03 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/3886473.shtml)
+- 2026-06-29 13:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/31234.shtml)
+- 2026-06-29 13:13 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.kurohicncr.top/Article/details/9520846190.shtml)
+- 2026-06-29 13:11 - [白玉兰最佳女主角提名片段](http://www.share.minike.top/Article/details/628175447.shtml)
+- 2026-06-29 13:05 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/734619.shtml)
+- 2026-06-29 13:05 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/5933217.shtml)
+- 2026-06-29 13:24 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/2972020.shtml)
+- 2026-06-29 13:26 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/56699910885.shtml)

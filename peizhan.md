@@ -1,60 +1,46 @@
-# 为取出1400元，印度男子“挖出姐姐遗骸扛到银行”
+# 吴清：鼓励外资持牌机构参与基金投顾业务扩大试点
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-来源：中国新闻周刊 当地时间5月6日，在挖出亡姐遗骸十天后，杰图·蒙达在他所在的迪亚纳利村接受了“净化”仪式。根据当地部落传统，掘墓被视为亵渎神灵的行为。此前，部落成员开会决定举行这种仪式，要求杰图接受净化。他们警告说，如果不服从，他可能会被驱逐出部落。 十天前，在印度奥里萨邦乡村公路上，52岁的杰图·蒙达扛着布袋走了4公里。进入奥里萨乡村银行马利波西支行后，他在柜台前打开袋子
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，支持外资在华新设独资或合资证券基金期货机构，鼓励外资持牌机构参与基金投顾业务扩大试点等。责任编辑：常福强
 
 ## 正文
 
-来源：中国新闻周刊 当地时间5月6日，在挖出亡姐遗骸十天后，杰图·蒙达在他所在的迪亚纳利村接受了“净化”仪式。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日，2026陆家嘴论坛举行，证监会主席吴清表示，支持外资在华新设独资或合资证券基金期货机构，鼓励外资持牌机构参与基金投顾业务扩大试点等。
 
-根据当地部落传统，掘墓被视为亵渎神灵的行为。
-
-此前，部落成员开会决定举行这种仪式，要求杰图接受净化。
-
-他们警告说，如果不服从，他可能会被驱逐出部落。
-
-十天前，在印度奥里萨邦乡村公路上，52岁的杰图·蒙达扛着布袋走了4公里。
-
-进入奥里萨乡村银行马利波西支行后，他在柜台前打开袋子，里面放的并非现金，而是他已故姐姐的遗骸。
-
-“证明姐姐已经死了” 杰图·蒙达和姐姐卡尔拉·蒙达都生活在印度奥里萨邦肯杜贾县的乡村。
-
-今年1月26日，56岁的卡尔拉因病去世。
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 12:50 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 12:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 13:02 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 13:06 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 13:13 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 12:56 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 13:18 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 12:55 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 13:18 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 12:57 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-29 13:06 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 13:02 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 13:10 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 13:25 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 13:09 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 13:07 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 13:05 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 13:01 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 13:11 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 13:07 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 13:29 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 13:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 13:13 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 13:19 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 13:21 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [网友偶遇胡军和李乃文](http://www.share.minike.top/Article/details/6802119269.shtml)
-- 2026-06-29 13:15 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/3169608.shtml)
-- 2026-06-29 13:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/638772.shtml)
-- 2026-06-29 12:53 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.blog.minike.top/Article/details/46732141077.shtml)
-- 2026-06-29 13:16 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/729451881.shtml)
-- 2026-06-29 13:15 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/18699989.shtml)
-- 2026-06-29 12:56 - [日本和澳大利亚能代表亚洲足球走多远](https://www.blog.minike.top/Article/details/394898013.shtml)
-- 2026-06-29 12:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/911411844.shtml)
-- 2026-06-29 12:57 - [欧洲热死人不是开玩笑](https://www.blog.minike.top/Article/details/819960204.shtml)
-- 2026-06-29 13:13 - [女孩遭霸凌网上认文身大哥求庇护](https://www.blog.minike.top/Article/details/307023.shtml)
-- 2026-06-29 13:07 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/19906843.shtml)
-- 2026-06-29 12:51 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/81687.shtml)
-- 2026-06-29 12:58 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/42244843748.shtml)
-- 2026-06-29 12:53 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/4498638.shtml)
-- 2026-06-29 12:59 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/9752494258.shtml)
+- 2026-06-29 13:18 - [比亚迪市值为何蒸发8000亿](http://www.share.minike.top/Article/details/04317043.shtml)
+- 2026-06-29 13:05 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/67138.shtml)
+- 2026-06-29 13:08 - [陈露发声引舆论反转](https://www.share.minike.top/Article/details/68697951215.shtml)
+- 2026-06-29 13:12 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/934333999.shtml)
+- 2026-06-29 13:00 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/290396.shtml)
+- 2026-06-29 13:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/675610.shtml)
+- 2026-06-29 13:26 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/868006383.shtml)
+- 2026-06-29 13:26 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/10180142110.shtml)
+- 2026-06-29 13:17 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/516885319.shtml)
+- 2026-06-29 13:11 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/101985129.shtml)
+- 2026-06-29 13:05 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/07053.shtml)
+- 2026-06-29 13:12 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/51653801.shtml)
+- 2026-06-29 13:10 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/855390974363.shtml)
+- 2026-06-29 13:19 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/2805658.shtml)
+- 2026-06-29 13:06 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/92454.shtml)

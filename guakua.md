@@ -1,57 +1,60 @@
-# 中国储能产品出口火热 淡季不淡
+# 中国－联合国－非洲轻小武器管控能力建设培训班开班 外交部介绍情况
 
-> 更新时间：2026-06-29 13:19:52 UTC+8
+> 更新时间：2026-06-29 13:30:02 UTC+8
 
 ## 摘要
 
-今年以来，中国储能产品出口规模及增速亮眼，根据海关数据显示，今年一季度，储能设备最核心、最关键的部件之一——锂离子蓄电池出口金额较去年同期增长超过50%，目前，储能企业生产和销售情况如何？ 在广东深圳的一家储能生产企业，已经合作多年的印度采购商钱德赛科，正在和工作人员商谈下一步的合作事宜。因为印度市场对储能产品需求扩大，今年，他打算加大采购量。 印度客商 钱德赛科：我们已经下了
+中新网北京6月16日电 (记者 李京泽 谢雁冰)中国外交部发言人林剑16日主持例行记者会。 有记者提问：我们注意到，中国－联合国－非洲轻小武器管控能力建设培训班今天在北京开班。发言人能否介绍相关情况？ 林剑：今天上午，中国－联合国－非洲轻小武器管控能力建设培训班开班式在北京举行。本次培训班由中国和联合国合作举办，主要面向非洲大湖地区国家，目的是帮助非洲国家提升轻小武器管控能力，
 
 ## 正文
 
-今年以来，中国储能产品出口规模及增速亮眼，根据海关数据显示，今年一季度，储能设备最核心、最关键的部件之一——锂离子蓄电池出口金额较去年同期增长超过50%，目前，储能企业生产和销售情况如何？
+中新网北京6月16日电 (记者 李京泽 谢雁冰)中国外交部发言人林剑16日主持例行记者会。
 
-在广东深圳的一家储能生产企业，已经合作多年的印度采购商钱德赛科，正在和工作人员商谈下一步的合作事宜。
+有记者提问：我们注意到，中国－联合国－非洲轻小武器管控能力建设培训班今天在北京开班。
 
-因为印度市场对储能产品需求扩大，今年，他打算加大采购量。
+发言人能否介绍相关情况？
 
-印度客商 钱德赛科：我们已经下了近200兆瓦时的订单，且已完成交付执行。
+林剑：今天上午，中国－联合国－非洲轻小武器管控能力建设培训班开班式在北京举行。
 
-现在我们准备再下500兆瓦时的CNN公用事业项目订单，我们也已启动明年需求的规划讨论。
+本次培训班由中国和联合国合作举办，主要面向非洲大湖地区国家，目的是帮助非洲国家提升轻小武器管控能力，降低武器非法流转风险，支持非盟“消弭非洲枪声”倡议。
 
-今年以来，海外储能产品需求不断增长，企业工作人员对此深有体会，前来考察的外国客商明显增多。
+中国一贯高度重视并积极促进非洲和平与发展。
 
-储能产品出口海外前，需要先申请危险货物包装使用鉴定，向相关部门说明出口货物符合要求。
+面向非洲国家开展轻小武器管控合作，是习近平主席提出的中非携手推进现代化“十大伙伴行动”重要内容，也是全球安全倡议重点工作方向之一。
 
-今年以来，这项业务的申请频率也明显增加了。
+中国具有完善的轻小武器管控政策举措，连续多年成为全球枪爆暴力犯罪发案率最低的国家之一。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 13:10 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 12:55 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 12:58 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 13:16 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 13:06 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 13:12 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 12:51 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 13:00 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 12:57 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 13:01 - [俄政府批准巩固俄语地位行动计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 13:00 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 13:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 13:19 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 13:22 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 13:16 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 13:01 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 13:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 13:20 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 13:27 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 13:19 - [乌拉圭出局之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 13:16 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 13:29 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 13:04 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 13:24 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [韩红携4000万物资抵呼和浩特](http://www.share.minike.top/Article/details/87937864869.shtml)
-- 2026-06-29 12:56 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.kurohicncr.top/Article/details/37797173031.shtml)
-- 2026-06-29 12:54 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/1399276073.shtml)
-- 2026-06-29 13:10 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/038642.shtml)
-- 2026-06-29 13:05 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/58133.shtml)
-- 2026-06-29 13:03 - [6月我国降水为何偏多](https://www.blog.kurohicncr.top/Article/details/668818533846.shtml)
-- 2026-06-29 13:19 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/2579559.shtml)
-- 2026-06-29 12:59 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/798453979094.shtml)
-- 2026-06-29 12:50 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/493892062564.shtml)
-- 2026-06-29 12:54 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/5193831.shtml)
-- 2026-06-29 12:52 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/90806.shtml)
-- 2026-06-29 13:13 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/7034193.shtml)
-- 2026-06-29 13:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/212851470.shtml)
-- 2026-06-29 13:11 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/1795840.shtml)
-- 2026-06-29 12:56 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/27503008.shtml)
+- 2026-06-29 13:10 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/335012044.shtml)
+- 2026-06-29 13:07 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/3806326.shtml)
+- 2026-06-29 13:09 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/362264253.shtml)
+- 2026-06-29 13:22 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/89008633631.shtml)
+- 2026-06-29 13:19 - [我们注定是一撮县城葱姜蒜](https://www.share.kurohicncr.top/Article/details/87502631562.shtml)
+- 2026-06-29 13:13 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/93446657.shtml)
+- 2026-06-29 13:08 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/78411667908.shtml)
+- 2026-06-29 13:16 - [沙丘](http://www.blog.minike.top/Article/details/8978191418.shtml)
+- 2026-06-29 13:18 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/181609517.shtml)
+- 2026-06-29 13:00 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/12870564.shtml)
+- 2026-06-29 13:03 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/82215993954.shtml)
+- 2026-06-29 13:14 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/1453332215.shtml)
+- 2026-06-29 13:15 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.minike.top/Article/details/730610.shtml)
+- 2026-06-29 13:10 - [周生如故](https://www.blog.minike.top/Article/details/4494116.shtml)
+- 2026-06-29 13:08 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/97081.shtml)
