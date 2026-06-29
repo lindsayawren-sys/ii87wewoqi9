@@ -1,61 +1,56 @@
-# 电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些
+# 《后遗症》作者秦汝璧谈女性成长困境：要更注重精神层面的超越
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！具身智能正从“概念验证”迈入“真刀真枪”的实战阶段。 电子布龙头创历史新高 今日（4月13日）早盘，中国巨石（600176）低开高走，截至上午收盘，股价涨停，涨停板封单27.22万手，最新股价创历史新高，A股市值达到1285亿元。 中国巨石主要从事玻璃纤维及制品的生产、销售。2025年公司实现净利润32.8
+中新网广州5月15日电 (程景伟 邱奇豪)据花城出版社消息，独自涉过“窄门”——秦汝璧的中篇小说集《后遗症》分享会近日在南京方所举办。《后遗症》作者秦汝璧、作家阮夕清与青年批评家周琪，共同围绕《后遗症》中的文学意象、女性成长困境以及文学创作的本质展开了探讨。 秦汝璧认为，个体在面对世界时本质上是孤独的，尤其对女性而言，如何在自我与世界的复杂关系中确立主体性，是一条需要忍受寂寞与
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州5月15日电 (程景伟 邱奇豪)据花城出版社消息，独自涉过“窄门”——秦汝璧的中篇小说集《后遗症》分享会近日在南京方所举办。
 
-具身智能正从“概念验证”迈入“真刀真枪”的实战阶段。
+《后遗症》作者秦汝璧、作家阮夕清与青年批评家周琪，共同围绕《后遗症》中的文学意象、女性成长困境以及文学创作的本质展开了探讨。
 
-电子布龙头创历史新高 今日（4月13日）早盘，中国巨石（600176）低开高走，截至上午收盘，股价涨停，涨停板封单27.22万手，最新股价创历史新高，A股市值达到1285亿元。
+秦汝璧认为，个体在面对世界时本质上是孤独的，尤其对女性而言，如何在自我与世界的复杂关系中确立主体性，是一条需要忍受寂寞与孤独的漫漫长路。
 
-中国巨石主要从事玻璃纤维及制品的生产、销售。
+而“窄门”则是对精神困境的隐喻，她引用美国诗人弗罗斯特“选择人迹罕至之路”的意象，强调这条道路的艰难性。
 
-2025年公司实现净利润32.85亿元，同比增长34.38%。
+秦汝璧特别指出，当下社会常将“窄门”简化为一种成功学意义上的“赛道选择”，强调其功利化倾向，而她更注重的是精神层面的坚持与超越。
 
-报告期内，公司分别实现粗纱及制品销量320.26万吨，电子布销量10.62亿米，实现量价齐升、营业收入和利润同比增长。
+阮夕清认为，“门”可宽可窄：在文学创作中，若以创作为实现自我价值的途径，则此门极“窄”；但若将创作本身视为一种生活状态，则此门又很“宽”。
 
-2025年，因信息化产业迭代发展，特种电子玻纤成为投资热点，其建设热潮一定程度上挤占了常规电子玻纤的供应，推动普通电子布供应趋紧。
+在阅读《后遗症》时，他首次尝试以女性视角进入叙事，与女主角乔淼之共同经历一段“独自涉过”的心灵旅程。
 
-长江证券近期发布的研报认为，供需紧缺之下电子布厂库存与下游覆铜板厂电子布备货库存均降至历史低位，下游覆铜板订单饱满，提价具备强基础，继续看好电子布需求爆发与产能挤压的超级周期。
+在对小说文本的细读分享环节，周琪指出，《后遗症》最令人印象深刻的是其对家庭权力结构如何影响女性的深刻描绘。
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:57 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:54 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:00 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:57 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:13 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:03 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:48 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:51 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:01 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:10 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:52 - [山东荣成：核电科普研学兴起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:54 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:49 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:05 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:04 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:22 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:21 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:57 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:10 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:22 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:08 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:01 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:14 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:21 - [郑丽文：反对“台独”是稳定台海关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:59 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [海口海关动植物检疫中心测序服务采购项目流标公告](http://www.blog.kurohicncr.top/Article/details/4850462.shtml)
-- 2026-06-29 11:50 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/18095134138.shtml)
-- 2026-06-29 12:05 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.blog.minike.top/Article/details/909637746.shtml)
-- 2026-06-29 12:13 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](http://www.share.kurohicncr.top/Article/details/20977920618.shtml)
-- 2026-06-29 12:08 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.share.minike.top/Article/details/52469980.shtml)
-- 2026-06-29 11:57 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.share.minike.top/Article/details/381378.shtml)
-- 2026-06-29 12:14 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [多晶硅：减产涨价预期带动多晶硅期货涨停](http://www.blog.kurohicncr.top/Article/details/591419323.shtml)
-- 2026-06-29 12:13 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.blog.minike.top/Article/details/89539140.shtml)
-- 2026-06-29 12:05 - [第一观察｜习近平主席寄望中美青年](http://www.share.kurohicncr.top/Article/details/01376386.shtml)
-- 2026-06-29 12:06 - [超百位港籍长者入住深圳光明区养老](http://www.share.kurohicncr.top/Article/details/9586219005.shtml)
-- 2026-06-29 12:13 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.blog.kurohicncr.top/Article/details/03584.shtml)
+- 2026-06-29 12:15 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.blog.minike.top/Article/details/954624475.shtml)
+- 2026-06-29 11:58 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.blog.minike.top/Article/details/517988475611.shtml)
+- 2026-06-29 11:57 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.blog.kurohicncr.top/Article/details/76936.shtml)
+- 2026-06-29 12:23 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](http://www.blog.kurohicncr.top/Article/details/674304473.shtml)
+- 2026-06-29 12:08 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.share.minike.top/Article/details/642913415836.shtml)
+- 2026-06-29 12:23 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.share.minike.top/Article/details/948800.shtml)
+- 2026-06-29 12:23 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](http://www.blog.minike.top/Article/details/4983780.shtml)
+- 2026-06-29 12:12 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](http://www.blog.kurohicncr.top/Article/details/6397641088.shtml)
+- 2026-06-29 12:04 - [芭蕾舞演员、医学专家带民众走出减重“误区”](http://www.blog.kurohicncr.top/Article/details/299655.shtml)
+- 2026-06-29 12:02 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](http://www.share.minike.top/Article/details/10521344.shtml)
+- 2026-06-29 12:18 - [倒车接人？科创芯片震荡两连阴，原因找到](http://www.blog.kurohicncr.top/Article/details/27832316.shtml)
+- 2026-06-29 11:54 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lisacumin64-arch)

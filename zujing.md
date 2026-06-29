@@ -1,49 +1,58 @@
-# 郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩
+# “白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 14:34 来源：中国新闻网 近日，河南省郑州市金水区金沙小学的体育老师马超群带领小学生通过一支松弛感拉满的舞蹈微电影《先放一放》走红网络，松弛鲜活的状态、轻松治愈的内核戳中无数网友，被称作“郑州版‘放牛班的春天’”。 8年时间里，马超群和学生们先后拍摄《大禹》《我要把水打回来》《先放一放》等10余部微电影，不仅斩获70余项国家级荣誉，更让孩子
+来源：华夏时报 一夜之间，锂价回落。 碳酸锂价格在突破20万元/吨的年内高点后连跌两天，到5月15日，上海钢联电池级碳酸锂早盘价格降至19.21万元/吨。二级市场上，碳酸锂期货与锂矿板块一同走低，主力合约2609跌至18.88万元/吨，万得锂矿指数（884785.WI）已经连跌7个交易日，盘面上正在形成一个阶段性“深坑”。 2026年以来锂价势头大好，截至5月15日整体上涨8.
 
 ## 正文
 
-发布时间：2026年04月12日 14:34 来源：中国新闻网 近日，河南省郑州市金水区金沙小学的体育老师马超群带领小学生通过一支松弛感拉满的舞蹈微电影《先放一放》走红网络，松弛鲜活的状态、轻松治愈的内核戳中无数网友，被称作“郑州版‘放牛班的春天’”。
+来源：华夏时报 一夜之间，锂价回落。
 
-8年时间里，马超群和学生们先后拍摄《大禹》《我要把水打回来》《先放一放》等10余部微电影，不仅斩获70余项国家级荣誉，更让孩子们在实景体验中褪去娇气、收获成长。
+碳酸锂价格在突破20万元/吨的年内高点后连跌两天，到5月15日，上海钢联电池级碳酸锂早盘价格降至19.21万元/吨。
 
-赵梦阳 王佳宁 河南郑州报道 责任编辑：【卢岩】
+二级市场上，碳酸锂期货与锂矿板块一同走低，主力合约2609跌至18.88万元/吨，万得锂矿指数（884785.WI）已经连跌7个交易日，盘面上正在形成一个阶段性“深坑”。
+
+2026年以来锂价势头大好，截至5月15日整体上涨8.41万元/吨，涨幅约72%。
+
+这吸引了不少投资者加码锂矿资产。
+
+如今，锂价掉头向下打击了投资者的信心，不少人在投资平台上发出疑问：“本以为就调整两天，锂矿到底怎么回事？
+
+”5月15日，雅化集团（002497.SZ）方面告诉《华夏时报》记者，“无法实时同步排产情况，不过公司生产端需求正常，无暴涨暴跌情况。
+
+” 行情快速反转 如今来看，锂价在年初处于相对低位，1月初电池级碳酸锂价格为11.73万元/吨。
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:03 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:54 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:17 - [山东荣成：核电科普研学兴起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:12 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:01 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:12 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:12 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:54 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:01 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:03 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:58 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:11 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:10 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:12 - [郑丽文：反对“台独”是稳定台海关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:16 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:54 - [高德专车上线静音服务，用户可一键定制“静音专车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:23 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:01 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:13 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:02 - [时令水果批量上市 专家提示当心糖分超标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:18 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:04 - [主力资金，“盯上”这些股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:07 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:13 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.share.minike.top/Article/details/72609304300.shtml)
-- 2026-06-29 11:59 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.share.kurohicncr.top/Article/details/8891910.shtml)
-- 2026-06-29 12:00 - [第一观察｜习近平主席寄望中美青年](http://www.share.kurohicncr.top/Article/details/0484378.shtml)
-- 2026-06-29 12:15 - [超百位港籍长者入住深圳光明区养老](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.share.kurohicncr.top/Article/details/92964490.shtml)
-- 2026-06-29 11:59 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.blog.kurohicncr.top/Article/details/85384111.shtml)
-- 2026-06-29 12:07 - [周亚琳（女，1977年生），年薪1013.5万元](http://www.blog.minike.top/Article/details/14375831.shtml)
-- 2026-06-29 12:16 - [人民之心｜“为官一任，造福一方”](http://www.blog.kurohicncr.top/Article/details/671200849741.shtml)
-- 2026-06-29 11:58 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.blog.kurohicncr.top/Article/details/321788212.shtml)
-- 2026-06-29 11:59 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.blog.kurohicncr.top/Article/details/827740295.shtml)
-- 2026-06-29 12:09 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.blog.minike.top/Article/details/1859484.shtml)
-- 2026-06-29 12:11 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.share.minike.top/Article/details/08697.shtml)
+- 2026-06-29 12:08 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](http://www.blog.kurohicncr.top/Article/details/84338.shtml)
+- 2026-06-29 11:56 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](http://www.share.kurohicncr.top/Article/details/82707.shtml)
+- 2026-06-29 12:23 - [芭蕾舞演员、医学专家带民众走出减重“误区”](http://www.share.minike.top/Article/details/765364150.shtml)
+- 2026-06-29 12:06 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](http://www.blog.minike.top/Article/details/2561432.shtml)
+- 2026-06-29 12:08 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](http://www.blog.kurohicncr.top/Article/details/106800440059.shtml)
+- 2026-06-29 11:59 - [外交部：中美双方就两国元首年内互动安排保持着沟通](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [相向而行，共同开启中美关系新篇章（钟声）](http://www.blog.minike.top/Article/details/17020832546.shtml)
+- 2026-06-29 12:14 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](http://www.blog.kurohicncr.top/Article/details/908679.shtml)
+- 2026-06-29 11:58 - [日本央行警示：投资基金活动暗藏金融体系风险](http://www.share.kurohicncr.top/Article/details/89221.shtml)
+- 2026-06-29 11:55 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.share.kurohicncr.top/Article/details/919385.shtml)
+- 2026-06-29 12:00 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lisacumin64-arch)

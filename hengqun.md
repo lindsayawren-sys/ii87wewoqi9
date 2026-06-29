@@ -1,56 +1,58 @@
-# 调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”
+# 中国第12批援埃塞俄比亚军医专家组出征
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-澳大利亚公司监管机构的一项最新研究显示，临近退休的澳大利亚人中，近一半担心退休后钱会用完，并且在停止工作后对管理个人财务缺乏信心。 约有250万澳大利亚人将在未来十年退休，澳大利亚证券和投资委员会的研究发现，在接受调查的50至66岁人群中，48%的人表示担心自己会“活到储蓄花光”。只有三分之一的受访者称，他们有信心在退休后保持经济上的宽裕舒适。 尽管澳大利亚规模达4.5万亿澳元
+中新网重庆5月16日电 (梁钦卿)陆军军医大学第一附属医院16日透露，当日凌晨，中国第12批援埃塞俄比亚军医专家组正式出征，前往埃塞俄比亚首都亚的斯亚贝巴，执行为期一年的医疗援助任务。 此次出征的中国第12批援埃塞俄比亚军医专家组共13人，由陆军军医大学第一附属医院牵头抽组。军医专家组成员涵盖骨科、感染病科、眼科、呼吸内科、泌尿外科、普通外科、中医科等多个学科，具备丰富的临床经
 
 ## 正文
 
-澳大利亚公司监管机构的一项最新研究显示，临近退休的澳大利亚人中，近一半担心退休后钱会用完，并且在停止工作后对管理个人财务缺乏信心。
+中新网重庆5月16日电 (梁钦卿)陆军军医大学第一附属医院16日透露，当日凌晨，中国第12批援埃塞俄比亚军医专家组正式出征，前往埃塞俄比亚首都亚的斯亚贝巴，执行为期一年的医疗援助任务。
 
-约有250万澳大利亚人将在未来十年退休，澳大利亚证券和投资委员会的研究发现，在接受调查的50至66岁人群中，48%的人表示担心自己会“活到储蓄花光”。
+此次出征的中国第12批援埃塞俄比亚军医专家组共13人，由陆军军医大学第一附属医院牵头抽组。
 
-只有三分之一的受访者称，他们有信心在退休后保持经济上的宽裕舒适。
+军医专家组成员涵盖骨科、感染病科、眼科、呼吸内科、泌尿外科、普通外科、中医科等多个学科，具备丰富的临床经验。
 
-尽管澳大利亚规模达4.5万亿澳元（3.2万亿美元）的养老金行业位居全球领先的退休保障体系之列，但多项调查一再显示，澳大利亚人对自己停止工作后的财务状况普遍深感焦虑。
+执行任务期间，军医专家组将根据埃塞俄比亚的医疗需求和实际情况，围绕临床诊疗、人员培训、技术帮带等方面开展医疗援助，持续提升埃军总医院医疗保障能力，推进埃塞俄比亚国防军高技术医院新技术新业务开展，为当地医疗卫生事业发展提供支持。
 
-监管机构也一直向该行业施压，要求其为开始支取养老金储蓄的民众提供更多方案选择。
+自2015年以来，陆军军医大学已累计选派12批、100余名医疗专家赴埃塞俄比亚执行医疗援助任务。
 
-年金提供商兼投资管理公司Challenger周一发布的另一项独立研究显示，生活成本上升连续第三年成为60岁以上澳大利亚人最担忧的问题。
+在埃期间，军医专家组创新性开展了胰十二指肠切除术、肝门部胆管癌根治术等新技术，赢得当地民众的信任和依赖。
 
-随着白领岗位的弹性工作选择增多，使人们能够更长时间留在劳动力市场，越来越多的澳大利亚人一直工作到70多岁。
+此外，军医专家组以临床带教、手术演示、学术交流、健康讲座、远程指导等多种方式，为埃方填补了多项技术空白，并深耕人才与技术“传帮带”，为埃方培养了一大批学科骨干，努力为当地留下一支带不走的医疗队。
 
-责任编辑：于健 SF069
+同时，军医专家组还因地制宜建立中医理疗室，传授理疗技术，把中国传统医学的智慧和魅力带到海外，以实际行动传播中华传统文化。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:08 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:13 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:01 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:18 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:03 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:52 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:00 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:52 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:58 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:14 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:18 - [美国侨胞：期待新定位领航中美关系行稳致远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:54 - [珠江流域持续暴雨 广东多地停课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:56 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:55 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:19 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:19 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:05 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:58 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:55 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:54 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:07 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [A股周一缩量上涨 创业板指创四年多新高](http://www.blog.minike.top/Article/details/40049283.shtml)
-- 2026-06-29 12:11 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.blog.kurohicncr.top/Article/details/0298627.shtml)
-- 2026-06-29 12:00 - [*ST万方，停牌！拟终止上市！](http://www.blog.minike.top/Article/details/60488076063.shtml)
-- 2026-06-29 11:54 - [摩根大通就停火风险提示油价走势](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [个贷不良依然压力山大](http://www.share.kurohicncr.top/Article/details/6164338.shtml)
-- 2026-06-29 11:59 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.share.minike.top/Article/details/6891974.shtml)
-- 2026-06-29 11:52 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.blog.minike.top/Article/details/6662704147.shtml)
-- 2026-06-29 11:54 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [伊美第三轮会谈在伊斯兰堡举行](http://www.blog.minike.top/Article/details/6713230858.shtml)
-- 2026-06-29 12:06 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.kurohicncr.top/Article/details/11343494430.shtml)
-- 2026-06-29 12:10 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.blog.minike.top/Article/details/8139757.shtml)
-- 2026-06-29 12:01 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.kurohicncr.top/Article/details/8072994.shtml)
+- 2026-06-29 12:02 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](http://www.share.kurohicncr.top/Article/details/301792132806.shtml)
+- 2026-06-29 12:18 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](http://www.share.minike.top/Article/details/618299058.shtml)
+- 2026-06-29 12:12 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](http://www.share.minike.top/Article/details/38499143.shtml)
+- 2026-06-29 12:13 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [2027澳网亚太区外卡赛将落地成都](http://www.blog.kurohicncr.top/Article/details/8751351473.shtml)
+- 2026-06-29 12:10 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](http://www.share.minike.top/Article/details/526629498.shtml)
+- 2026-06-29 12:14 - [国际人士：中美元首外交意义重大 推动世界和平发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [三星会长李在镕就劳资纠纷向公众致歉](http://www.blog.minike.top/Article/details/68568283773.shtml)
+- 2026-06-29 12:23 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](http://www.blog.kurohicncr.top/Article/details/93955.shtml)
+- 2026-06-29 12:22 - [中国大陆学者首获英国皇家经济学会终身院士](http://www.blog.kurohicncr.top/Article/details/57973.shtml)
+- 2026-06-29 11:56 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](http://www.blog.minike.top/Article/details/108767.shtml)
+- 2026-06-29 12:11 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [002342，被证监会立案！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.blog.minike.top/Article/details/1320395432.shtml)
+- 2026-06-29 12:23 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](http://www.share.minike.top/Article/details/4442362492.shtml)

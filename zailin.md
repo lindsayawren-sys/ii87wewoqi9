@@ -1,58 +1,57 @@
-# 数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场
+# 酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-编者按：2026年是“十五五”开局之年。内需市场潜力持续释放，消费新场景不断涌现，文旅融合、冰雪经济、国潮消费等热点频现，展现出超大规模市场的韧性与活力。为深入解读开局新气象，央广网推出《数读中国开局新活力》系列报道，以数据为支撑，聚焦各地消费场景、产业升级与民生改善的生动实践，呈现中国经济稳中求进、活力迸发的时代图景。央广网南宁4月11日消息(记者梁瑜琳)绿意铺陈处，八桂春正
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月16日整体继续小幅稳步上行。如果主要单品各取一瓶整体打包售卖，今日总售价为9968元，较昨日上涨4元，创下4月底以来最高。市场延续温和上攻态势，终端交投情绪基本平稳，核心单品涨跌分化依然显著。茅台系酒品均上涨，i茅台平台宣布今日凌晨
 
 ## 正文
 
-编者按：2026年是“十五五”开局之年。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月16日整体继续小幅稳步上行。
 
-内需市场潜力持续释放，消费新场景不断涌现，文旅融合、冰雪经济、国潮消费等热点频现，展现出超大规模市场的韧性与活力。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9968元，较昨日上涨4元，创下4月底以来最高。
 
-为深入解读开局新气象，央广网推出《数读中国开局新活力》系列报道，以数据为支撑，聚焦各地消费场景、产业升级与民生改善的生动实践，呈现中国经济稳中求进、活力迸发的时代图景。
+市场延续温和上攻态势，终端交投情绪基本平稳，核心单品涨跌分化依然显著。
 
-央广网南宁4月11日消息(记者梁瑜琳)绿意铺陈处，八桂春正浓。
+茅台系酒品均上涨，i茅台平台宣布今日凌晨四款产品提价，其中精品茅台酒上调60元至2359元/瓶。
 
-广西南宁青秀山踏青赏花点燃文旅热、柳州紫荆花下马拉松与螺蛳粉带火城市消费、兴业葵山间漫山花海铺就村民增收路……在广西，花不只是风景， 更是经济的引擎、生活的底色。
+今日白酒市场11大单品六涨五跌，赢家略占上风。
 
-从清明假期到各地春假，再到即将到来的“三月三”，广西消费活力空前。
+上涨方面，青花汾20与青花郎涨幅居前，均上涨5元/瓶，前者反弹重返380元上方，后者二连涨升至月内次高位；飞天茅台上涨3元/瓶，稳守于1740元之上；五粮液1618上涨2元/瓶；精品茅台与洋河梦之蓝M6+均上涨1元/瓶，均续创近一个月最高价纪录，前者已三连阳而后者收获了五连涨。
 
-面对持续升温的文旅市场，广西推出“33消费节”等六大板块26项优惠，发放约300万张“33消费券”；联动超180个景区及乡村旅游点，推出200余项措施，让春日经济从“花开一时”走向“效应长存”。
+下跌方面，国窖1573跌幅居前，下跌6元/瓶，终结六连阳强势；古井贡古20下跌4元/瓶；五粮液普五八代、习酒君品及水晶剑南春均下跌1元/瓶。
 
-城市花景：从赏花到“全场景”消费 近期，花海观赏、田园休闲、户外露营成为热门选择，南宁青秀山、柳州洋紫荆花海、桂林象山景区等景区也迎来了客流高峰。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [辽宁持续发力打造营商环境好口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:16 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:53 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:01 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:10 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:57 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:01 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:50 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:04 - [徐寅生：愿“乒乓外交”精神代代相传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:17 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:16 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:02 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:04 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:22 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:13 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:13 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:09 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:16 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:56 - [联播+｜读懂中国的特别窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:03 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:02 - [星网宇达：截至2026年4月20日公司股东人数为40184户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:16 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:11 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [肉类食品巨头JBS罢工以加薪告终](http://www.blog.kurohicncr.top/Article/details/01180.shtml)
-- 2026-06-29 12:16 - [天泓文创与长沙棠艺签订战略合作意向书](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.share.kurohicncr.top/Article/details/92032511.shtml)
-- 2026-06-29 12:07 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.blog.minike.top/Article/details/48614.shtml)
-- 2026-06-29 11:59 - [陕西渭南：华山迎壮丽日落景观](http://www.blog.kurohicncr.top/Article/details/791978003520.shtml)
-- 2026-06-29 11:57 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.blog.kurohicncr.top/Article/details/248469476073.shtml)
-- 2026-06-29 12:10 - [永升服务于4月10日斥资37.65万港元回购20万股](http://www.share.minike.top/Article/details/453905.shtml)
-- 2026-06-29 11:49 - [全军后勤重点行业领域职业道德规范出台](http://www.blog.minike.top/Article/details/034762.shtml)
-- 2026-06-29 12:02 - [黎巴嫩称已同意周二举行停火谈判会议](http://www.blog.minike.top/Article/details/21586276.shtml)
-- 2026-06-29 12:08 - [广东清远“五大百亿”农业产业全产业链产值已超461亿元](http://www.blog.kurohicncr.top/Article/details/669998922813.shtml)
-- 2026-06-29 11:58 - [Palantir的代理型人工智能势头强劲](http://www.blog.minike.top/Article/details/96830.shtml)
-- 2026-06-29 12:08 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](http://www.blog.minike.top/Article/details/629574.shtml)
-- 2026-06-29 11:59 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.share.kurohicncr.top/Article/details/0747923517.shtml)
-- 2026-06-29 11:55 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](http://www.blog.kurohicncr.top/Article/details/1850522.shtml)
+- 2026-06-29 12:00 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.kurohicncr.top/Article/details/35537848.shtml)
+- 2026-06-29 12:14 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](http://www.share.minike.top/Article/details/65260.shtml)
+- 2026-06-29 12:09 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](http://www.share.kurohicncr.top/Article/details/7129752.shtml)
+- 2026-06-29 12:21 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](http://www.blog.minike.top/Article/details/554650337.shtml)
+- 2026-06-29 12:04 - [湖南省文化馆数字文旅体验空间开馆](http://www.blog.kurohicncr.top/Article/details/827738.shtml)
+- 2026-06-29 12:05 - [Token越来越贵？别慌！算力网已在来的路上](http://www.blog.kurohicncr.top/Article/details/15011.shtml)
+- 2026-06-29 11:59 - [印度与阿联酋将全面深化合作](http://www.blog.minike.top/Article/details/541089.shtml)
+- 2026-06-29 11:57 - [蔚来李斌：换电从来不是失血点，而是超前投入期](http://www.blog.minike.top/Article/details/14066.shtml)
+- 2026-06-29 12:03 - [马祖摄影人在福建霞浦共赴光影之约](http://www.blog.kurohicncr.top/Article/details/03114550219.shtml)
+- 2026-06-29 12:00 - [江苏沛县西瓜促农文旅融合 “甜蜜产业” 赋能乡村振兴](http://www.blog.kurohicncr.top/Article/details/2366444788.shtml)
+- 2026-06-29 12:05 - [（乡村行·看振兴）湖北宜昌：科技助农“慧种田”](http://www.share.kurohicncr.top/Article/details/6909000301.shtml)
+- 2026-06-29 12:11 - [伊朗，突传大消息！刚刚，集体大跳水！](http://www.blog.minike.top/Article/details/33976.shtml)
+- 2026-06-29 12:16 - [国际足联为何服软了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](http://www.blog.minike.top/Article/details/88592245.shtml)

@@ -1,51 +1,50 @@
-# 岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格
+# 联播+｜读懂中国的特别窗口
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与媒体对话。 他表示，芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，汽车产业要有利润，否则不符合市场规律，再涨下去会影响汽车终端的价格，岚图尽可能不要影响到用户的购车体验。通过内部管理效率的提升，尽可能降低外部成本的影响，通过扩大规模
+｜联播+｜5月14日，习近平主席同来华进行国事访问的美国总统特朗普参观天坛。 步入祈年殿，两国元首共同欣赏榫卯斗拱精准契合、天文历法与殿宇结构完美融合的建筑特点，感受其中和谐万物、顺天应时的理念。 走进故宫、登上长城、漫步都江堰、参观豫园……很多外国政要来华访问期间，都会参访中国的文化古迹，亲身感受中华民族的悠久历史和深厚文化底蕴。 中国的文化古迹宛如一扇窗，透过它，国际政要们
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与媒体对话。
+｜联播+｜5月14日，习近平主席同来华进行国事访问的美国总统特朗普参观天坛。
 
-他表示，芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，汽车产业要有利润，否则不符合市场规律，再涨下去会影响汽车终端的价格，岚图尽可能不要影响到用户的购车体验。
+步入祈年殿，两国元首共同欣赏榫卯斗拱精准契合、天文历法与殿宇结构完美融合的建筑特点，感受其中和谐万物、顺天应时的理念。
 
-通过内部管理效率的提升，尽可能降低外部成本的影响，通过扩大规模对冲原材料上涨的风险。
+走进故宫、登上长城、漫步都江堰、参观豫园……很多外国政要来华访问期间，都会参访中国的文化古迹，亲身感受中华民族的悠久历史和深厚文化底蕴。
 
-另外，岚图也尽可能推动供应链的本地化，能够有限降低国际原材料上涨的影响，去年岚图就做了很多国产替代的事情。
+中国的文化古迹宛如一扇窗，透过它，国际政要们得以了解中国、读懂中国。
 
-责任编辑：郝欣煜
+总监制丨骆红秉 魏驱虎 监 制丨王敬东 主 编丨李璇 编 辑丨孟利铮 视 频丨王冬雪 视 觉丨颜妮 校 对丨蔡纯琳 李丹 宋春燕 梁雅琴 任佳 出 品丨中央广播电视总台央视网
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:51 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:54 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:03 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:17 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:55 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:59 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:51 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:14 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:14 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:10 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:54 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:18 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:09 - [文脉华章丨一个博物院就是一所大学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:04 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:20 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:55 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:02 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:21 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:14 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:15 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.share.minike.top/Article/details/2755243619.shtml)
-- 2026-06-29 12:00 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](http://www.blog.minike.top/Article/details/0063470.shtml)
-- 2026-06-29 12:15 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](http://www.share.minike.top/Article/details/27338.shtml)
-- 2026-06-29 12:04 - [国家疾控局发布通知推进重点虫媒传染病防控](http://www.share.kurohicncr.top/Article/details/0802624.shtml)
-- 2026-06-29 12:07 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.kurohicncr.top/Article/details/616718186510.shtml)
-- 2026-06-29 12:13 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](http://www.share.kurohicncr.top/Article/details/854862.shtml)
-- 2026-06-29 11:48 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.kurohicncr.top/Article/details/94415090.shtml)
-- 2026-06-29 11:50 - [郑丽文一行圆满结束大陆参访 离京返台](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.share.minike.top/Article/details/1383352713.shtml)
-- 2026-06-29 11:50 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.share.minike.top/Article/details/405195.shtml)
-- 2026-06-29 12:11 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.blog.kurohicncr.top/Article/details/39481.shtml)
-- 2026-06-29 12:04 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.blog.minike.top/Article/details/28332.shtml)
-- 2026-06-29 11:51 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.share.minike.top/Article/details/394280.shtml)
+- 2026-06-29 11:57 - [国际足联为何服软了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](http://www.share.kurohicncr.top/Article/details/01680145.shtml)
+- 2026-06-29 12:18 - [广州银行，罚单接二连三](http://www.blog.kurohicncr.top/Article/details/995979.shtml)
+- 2026-06-29 11:55 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](http://www.share.minike.top/Article/details/25575237.shtml)
+- 2026-06-29 12:21 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](http://www.share.kurohicncr.top/Article/details/645238.shtml)
+- 2026-06-29 12:04 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](http://www.blog.minike.top/Article/details/555611401574.shtml)
+- 2026-06-29 12:04 - [北方炎热持续升级南方强降雨频发](http://www.blog.minike.top/Article/details/3375427.shtml)
+- 2026-06-29 12:17 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](http://www.share.kurohicncr.top/Article/details/09477801901.shtml)
+- 2026-06-29 11:58 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](http://www.blog.kurohicncr.top/Article/details/79416567723.shtml)
+- 2026-06-29 12:11 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.share.kurohicncr.top/Article/details/26289.shtml)
+- 2026-06-29 12:04 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.share.minike.top/Article/details/97088550.shtml)
+- 2026-06-29 11:59 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.share.kurohicncr.top/Article/details/392710.shtml)
+- 2026-06-29 11:59 - [长岛铁路工人或于今夜举行罢工](http://www.share.kurohicncr.top/Article/details/919990815285.shtml)
+- 2026-06-29 11:57 - [688549突发利好，股价短期已翻倍](http://www.blog.minike.top/Article/details/367947989481.shtml)
+- 2026-06-29 12:22 - [交响组曲《想你——永远的焦裕禄》在兰考上演](http://www.blog.kurohicncr.top/Article/details/10392325.shtml)

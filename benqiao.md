@@ -1,60 +1,59 @@
-# 海思科2025年业绩增长 创新药领跑细分市场
+# 云南省运会新设体育人才贡献榜 多举措助推体教融合
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-4月12日晚间，海思科医药集团股份有限公司（以下简称“海思科”）发布2025年年度报告和2026年第一季度业绩预告，业绩大幅增长。具体来看，2025年，海思科实现营业收入约43.88亿元，同比增长17.91%；归属于上市公司股东的扣除非经常性损益的净利润（以下简称“扣非净利润”）1.67亿元，同比增长26.33%。2026年一季度，公司预计实现扣非净利润4.49亿元至5.29亿
+中新网昆明5月15日电 (时文枝 汪成)“除新增攀岩、马术、飞碟等项目外，我们还大幅提升三大球前八名金牌奖励权重，并创新设立‘体育人才贡献榜’。”云南省体育局一级巡视员余红颖15日表示，希望通过金牌带入激励方式，鼓励各州(市)输送优质后备人才，切实发挥好省运会人才选拔主阵地的作用，助推体教融合。 当日，云南省第十七届运动会新闻发布会在昆明举行。会上披露，由云南省体育局、云南省教
 
 ## 正文
 
-4月12日晚间，海思科医药集团股份有限公司（以下简称“海思科”）发布2025年年度报告和2026年第一季度业绩预告，业绩大幅增长。
+中新网昆明5月15日电 (时文枝 汪成)“除新增攀岩、马术、飞碟等项目外，我们还大幅提升三大球前八名金牌奖励权重，并创新设立‘体育人才贡献榜’。
 
-具体来看，2025年，海思科实现营业收入约43.88亿元，同比增长17.91%；归属于上市公司股东的扣除非经常性损益的净利润（以下简称“扣非净利润”）1.67亿元，同比增长26.33%。
+”云南省体育局一级巡视员余红颖15日表示，希望通过金牌带入激励方式，鼓励各州(市)输送优质后备人才，切实发挥好省运会人才选拔主阵地的作用，助推体教融合。
 
-2026年一季度，公司预计实现扣非净利润4.49亿元至5.29亿元，同比预增791.94%至950.86%。
+当日，云南省第十七届运动会新闻发布会在昆明举行。
 
-从公告内容来看，公司业绩增长主要源于创新药销售持续放量。
+会上披露，由云南省体育局、云南省教育厅、云南省总工会主办，昆明市人民政府承办的云南省第十七届运动会(以下简称省十七运会)，将于8月8日至8月16日在昆明举行。
 
-多款产品表现亮眼、研发投入稳步增长、海外授权接连落地成为公司业绩高增重要引擎，展现出强劲的创新转化与国际化能力。
+作为云南省级别最高、规模最大、影响最广的综合性体育盛会，省十七运会设青少年组、大学组、职工组3个组别，共51个大项1568个小项，参赛总规模达2.34万人。
 
-海思科董事会办公室相关人士在接受《证券日报》记者采访时表示：“2025年，得益于公司创新药产品销售表现良好，带动全年营业收入稳步提升。
+赛事规模、项目设置、奖牌数量均创历史新高。
 
-进入2026年一季度，除创新药销售持续放量外，因当期确认了HSK39004海外授权的部分首付款收入，公司扣非净利润实现高速增长。
+“结合新时代体育事业发展要求和云南体育发展实际，省十七运会在深化竞赛改革、扩大赛事规模和供给、升级办赛水平等方面进行升级。
 
-”四款创新药销售收入同比增长超50%年报显示，2025年，海思科持续深化营销团队整合，加速市场拓展和全渠道布局，稳步提升品牌市场渗透率，公司已上市的四款创新药销售收入同比增长超50%。
+”余红颖介绍，在智慧办赛方面，目前已投入使用的竞赛信息工作平台可完成赛事报名、运动员资格审核等内容，而正在建设的“昆体赛事”智慧平台可提供指挥调度、观赛预约、赛事地图、成绩查询等服务，使赛事体验显著提升。
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:49 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:14 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:15 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:51 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:01 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:59 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:05 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:59 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:09 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:59 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:13 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:04 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:03 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:04 - [自强不息追光逐梦 五名残疾人代表共话奋斗故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:13 - [金融监管总局发布2026年一季度银行业保险业主要监管指标数据情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:15 - [厦门港新增一条直航印度尼西亚货运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:06 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:15 - [和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:06 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:11 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:23 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:19 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:58 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:58 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:57 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:08 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](http://www.blog.minike.top/Article/details/90089550.shtml)
-- 2026-06-29 11:49 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](http://www.share.minike.top/Article/details/718447170.shtml)
-- 2026-06-29 12:15 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.blog.minike.top/Article/details/0460257.shtml)
-- 2026-06-29 12:13 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.blog.kurohicncr.top/Article/details/00850553683.shtml)
-- 2026-06-29 12:10 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [严格落实直播打赏新规谋求治理实效](http://www.share.kurohicncr.top/Article/details/498722246.shtml)
-- 2026-06-29 11:53 - [（经济观察）封关赋能开放 外资加速入琼](http://www.blog.kurohicncr.top/Article/details/0898513319.shtml)
-- 2026-06-29 12:01 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.blog.minike.top/Article/details/562483840.shtml)
-- 2026-06-29 12:00 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.blog.kurohicncr.top/Article/details/31952150.shtml)
-- 2026-06-29 12:16 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.blog.minike.top/Article/details/83714679.shtml)
-- 2026-06-29 11:49 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.share.kurohicncr.top/Article/details/89283086.shtml)
-- 2026-06-29 12:16 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.share.kurohicncr.top/Article/details/60904888379.shtml)
+- 2026-06-29 11:57 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](http://www.blog.kurohicncr.top/Article/details/47365950.shtml)
+- 2026-06-29 11:56 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](http://www.share.minike.top/Article/details/7700015219.shtml)
+- 2026-06-29 12:11 - [时令水果批量上市 专家提示当心糖分超标](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](http://www.share.minike.top/Article/details/82540.shtml)
+- 2026-06-29 11:54 - [主力资金，“盯上”这些股票](http://www.blog.kurohicncr.top/Article/details/3130623943.shtml)
+- 2026-06-29 12:20 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.share.minike.top/Article/details/347403.shtml)
+- 2026-06-29 12:09 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [中东部有大范围降水 黄海海域有大雾](http://www.share.kurohicncr.top/Article/details/909859164.shtml)
+- 2026-06-29 12:15 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.share.minike.top/Article/details/892217203.shtml)
+- 2026-06-29 11:56 - [重庆对8个区县启动地质灾害四级应急响应](http://www.blog.minike.top/Article/details/783733857308.shtml)
+- 2026-06-29 12:20 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](http://www.share.kurohicncr.top/Article/details/4740013757.shtml)
+- 2026-06-29 12:03 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](http://www.share.minike.top/Article/details/61433664.shtml)
+- 2026-06-29 12:09 - [中国外交部发言人就美国总统特朗普访华情况答记者问](http://www.blog.minike.top/Article/details/69878424733.shtml)

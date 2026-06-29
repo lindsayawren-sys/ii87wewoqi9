@@ -1,47 +1,57 @@
-# 西班牙首相用中文说“大家好” 收获全场掌声
+# 打造“高效办成一件事”最佳体验地！上海出台重磅行动方案，有何深意
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 18:19 来源：中国新闻网 4月13日，正在中国进行国事访问的西班牙首相桑切斯在清华大学发表演讲，并与中外师生互动交流。他用中文向现场问候“大家好”后，开始了约20分钟的西班牙语演讲。(记者 郎佳慧 曾玥 制作 王雪尔） 责任编辑：【罗攀】
+持续深化“一网通办”改革、推进政务服务迭代升级，是上海优化营商环境、增进民生福祉的重要举措。日前，上海发布《深化“一网通办”改革 打造“高效办成一件事”最佳体验地行动方案》，进一步强化“高效办成一件事”改革制度保障。5月15日，市政府举行新闻发布会，介绍《行动方案》主要内容与亮点。 根据《行动方案》，下一步上海将从健全常态化推进机制、升级惠企政策全流程服务、推进“人工智能+政务
 
 ## 正文
 
-发布时间：2026年04月13日 18:19 来源：中国新闻网 4月13日，正在中国进行国事访问的西班牙首相桑切斯在清华大学发表演讲，并与中外师生互动交流。
+持续深化“一网通办”改革、推进政务服务迭代升级，是上海优化营商环境、增进民生福祉的重要举措。
 
-他用中文向现场问候“大家好”后，开始了约20分钟的西班牙语演讲。
+日前，上海发布《深化“一网通办”改革 打造“高效办成一件事”最佳体验地行动方案》，进一步强化“高效办成一件事”改革制度保障。
 
-(记者 郎佳慧 曾玥 制作 王雪尔） 责任编辑：【罗攀】
+5月15日，市政府举行新闻发布会，介绍《行动方案》主要内容与亮点。
+
+根据《行动方案》，下一步上海将从健全常态化推进机制、升级惠企政策全流程服务、推进“人工智能+政务服务”、提升线上线下服务体验、深化长三角协同、完善评价闭环管理等维度持续发力，全方位提升企业和群众办事的获得感与满意度。
+
+倾听民意，从“办成事”到“真满意” 《行动方案》明确，要把上海建设成为“高效办成一件事”的最佳体验地，这为下一步改革定下了更高的目标。
+
+从2018年启动政务服务“一网通办”改革，到提出“高效办成一件事”，多年来，上海各级政府部门推出一大批改革举措，企业和群众的办事便利度有了明显提升。
+
+市政府副秘书长、市政府办公厅主任章雄介绍，上海近年来围绕“进一网，能通办”，不断健全政务服务体系。
+
+线上，上海已建成全市统一的跨层级、跨部门、跨区域“一网通办”平台，目前汇集服务事项3156项，注册个人用户超8927万、法人用户超491万，累计办件量超8.05亿件，努力做到“办事像网购一样方便”。
 
 ## 相关推荐
 
-- 2026-06-29 12:17 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:49 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:49 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 11:48 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:49 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:15 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:51 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:58 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:00 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:06 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:09 - [美国释放第二批848万桶战略石油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:01 - [和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:05 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:04 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:59 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:21 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:01 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:21 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:57 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:57 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:03 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:57 - [越秀交通基建3月广州北二环高速路费收入8487.3万元 同比下降7.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.blog.kurohicncr.top/Article/details/203771.shtml)
-- 2026-06-29 12:12 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](http://www.share.minike.top/Article/details/48558.shtml)
-- 2026-06-29 12:01 - [严格落实直播打赏新规谋求治理实效](http://www.share.minike.top/Article/details/9288851102.shtml)
-- 2026-06-29 12:12 - [（经济观察）封关赋能开放 外资加速入琼](http://www.blog.minike.top/Article/details/96723628972.shtml)
-- 2026-06-29 12:03 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.blog.minike.top/Article/details/36398706.shtml)
-- 2026-06-29 12:15 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.blog.kurohicncr.top/Article/details/207556282.shtml)
-- 2026-06-29 11:59 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.share.kurohicncr.top/Article/details/421871580.shtml)
-- 2026-06-29 11:59 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.blog.minike.top/Article/details/525832.shtml)
-- 2026-06-29 11:59 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.share.kurohicncr.top/Article/details/120131860992.shtml)
-- 2026-06-29 11:54 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.kurohicncr.top/Article/details/832365524740.shtml)
-- 2026-06-29 12:07 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.share.minike.top/Article/details/914930572417.shtml)
-- 2026-06-29 12:00 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](http://www.blog.kurohicncr.top/Article/details/47812158786.shtml)
-- 2026-06-29 12:04 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](http://www.share.kurohicncr.top/Article/details/15104.shtml)
-- 2026-06-29 11:51 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](http://www.share.minike.top/Article/details/7248273.shtml)
-- 2026-06-29 12:15 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.share.kurohicncr.top/Article/details/147425.shtml)
+- 2026-06-29 12:12 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](http://www.blog.kurohicncr.top/Article/details/34014994.shtml)
+- 2026-06-29 12:01 - [主力资金，“盯上”这些股票](http://www.blog.kurohicncr.top/Article/details/20453.shtml)
+- 2026-06-29 12:00 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.blog.kurohicncr.top/Article/details/935322.shtml)
+- 2026-06-29 12:10 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](http://www.share.minike.top/Article/details/96546473.shtml)
+- 2026-06-29 12:07 - [中东部有大范围降水 黄海海域有大雾](http://www.share.kurohicncr.top/Article/details/47273.shtml)
+- 2026-06-29 12:16 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.share.minike.top/Article/details/976288873.shtml)
+- 2026-06-29 12:17 - [重庆对8个区县启动地质灾害四级应急响应](http://www.blog.minike.top/Article/details/33898393.shtml)
+- 2026-06-29 12:00 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](http://www.blog.kurohicncr.top/Article/details/20265.shtml)
+- 2026-06-29 12:08 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](http://www.blog.kurohicncr.top/Article/details/40030.shtml)
+- 2026-06-29 12:12 - [中国第12批援埃塞俄比亚军医专家组出征](http://www.share.kurohicncr.top/Article/details/9775459.shtml)
+- 2026-06-29 12:20 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](http://www.share.minike.top/Article/details/6612459.shtml)
+- 2026-06-29 12:20 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](http://www.share.kurohicncr.top/Article/details/658929.shtml)

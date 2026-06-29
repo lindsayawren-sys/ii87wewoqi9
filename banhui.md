@@ -1,59 +1,60 @@
-# 瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”
+# 交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-“中考专用”器材高价卖、私教特训声称“保过” ——部分商家瞄准中考体育精准营销 本报记者 一对一课时费动辄收费数百元、上千元，有的“保分冲刺班”甚至收费过万元；有的跳绳、篮球等普通体育器材被商家贴上“中考专用”标签，价格翻了几倍……近年来，全国多地陆续开展中考体育改革，体育加试从“可选项目”逐步转为“刚性”考核，分值普遍提升。本意为增强学生体质的措施，不少商家却瞄准这一趋势，开
+净息差实现企稳回升的原因2026年5月15日，交通银行部分高管参加2026年上海辖区上市公司年报集体业绩说明会。交通银行副行长周万阜、董事会秘书何兆斌与投资者进行沟通交流。对于投资者普遍关注的股票估值提升问题，他们表示将在战略层面和经营层面高度重视，在有效防控风险的前提下，提升可持续的价值创造能力和水平。在展望二季度业绩走向时，周万阜透露，对公信贷方面，交行目前二季度的项目储备
 
 ## 正文
 
-“中考专用”器材高价卖、私教特训声称“保过” ——部分商家瞄准中考体育精准营销 本报记者 一对一课时费动辄收费数百元、上千元，有的“保分冲刺班”甚至收费过万元；有的跳绳、篮球等普通体育器材被商家贴上“中考专用”标签，价格翻了几倍……近年来，全国多地陆续开展中考体育改革，体育加试从“可选项目”逐步转为“刚性”考核，分值普遍提升。
+净息差实现企稳回升的原因2026年5月15日，交通银行部分高管参加2026年上海辖区上市公司年报集体业绩说明会。
 
-本意为增强学生体质的措施，不少商家却瞄准这一趋势，开辟出许多“圈钱”新方式。
+交通银行副行长周万阜、董事会秘书何兆斌与投资者进行沟通交流。
 
-如何进一步促进终身运动习惯的养成，回归“以体育人”的初心，新华每日电讯记者进行多方走访调查。
+对于投资者普遍关注的股票估值提升问题，他们表示将在战略层面和经营层面高度重视，在有效防控风险的前提下，提升可持续的价值创造能力和水平。
 
-标榜“提分”招揽报名，“专用”器材高价售卖 记者近日在东北多个中小学周边发现，许多商家瞄准了中考体育加试，“中考体育满分班”“体能提升突破营”等培训宣传语比比皆是；附近的文具店里，贴上“中考专用”标签的跳绳、篮球集中售卖；社交媒体上，“中考体测跑鞋”成为测评热门……火热的市场背后，却有着种种乱象。
+在展望二季度业绩走向时，周万阜透露，对公信贷方面，交行目前二季度的项目储备总体保持平稳，后续将全力推动信贷投放落地，保持同比多增态势。
 
-——校外培训“定价随意”。
+对于零售信贷方面，他表示，受房地产市场深度调整、债务周期、宏观经济环境等因素叠加影响，零售信贷需求仍处于恢复态势。
 
-“距离考试只剩2个月，现在报名一对一冲刺班，优惠价4980元，保证总分提升10分以上！
+全力推动对公信贷投放落地业绩会上，有投资者提问：公司一季报信贷数据显示对公较强、零售增长相对偏弱。
 
-”东北地区一家培训机构工作人员正向前来咨询的家长推销课程。
+在对公信贷方面，二季度及下半年的项目储备是否充足？
 
-记者以家长身份咨询得知，该机构推荐的“长期提升班”收费8000元/年。
+在零售信贷方面，除了按揭业务，公司是否有新的战略增长点来对冲下行压力？
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:52 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:05 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:57 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:12 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:58 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:10 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:52 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:17 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:03 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:03 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:08 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:03 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:02 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:59 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:20 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:55 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:04 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:54 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:07 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:07 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:07 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:03 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:18 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:18 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:08 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:14 - [美国侨胞：期待新定位领航中美关系行稳致远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.blog.kurohicncr.top/Article/details/51571.shtml)
-- 2026-06-29 11:56 - [香港学子安徽行收获满满](http://www.blog.kurohicncr.top/Article/details/928837770386.shtml)
-- 2026-06-29 11:55 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](http://www.blog.minike.top/Article/details/10461.shtml)
-- 2026-06-29 11:50 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.share.minike.top/Article/details/48632713317.shtml)
-- 2026-06-29 12:11 - [日韩股市集体低开 韩股跌超2%](http://www.blog.minike.top/Article/details/3329425665.shtml)
-- 2026-06-29 12:02 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.blog.kurohicncr.top/Article/details/74286.shtml)
-- 2026-06-29 12:15 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.minike.top/Article/details/87971.shtml)
-- 2026-06-29 12:13 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.blog.kurohicncr.top/Article/details/7565839309.shtml)
-- 2026-06-29 12:00 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.share.kurohicncr.top/Article/details/83749175.shtml)
-- 2026-06-29 11:55 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.share.minike.top/Article/details/1696981.shtml)
-- 2026-06-29 12:15 - [广西三江：花映楼桥入画来](http://www.blog.minike.top/Article/details/5634536.shtml)
-- 2026-06-29 12:09 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.blog.minike.top/Article/details/190497.shtml)
-- 2026-06-29 12:15 - [A股周一缩量上涨 创业板指创四年多新高](http://www.share.minike.top/Article/details/29407572.shtml)
-- 2026-06-29 12:06 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.share.minike.top/Article/details/85271083296.shtml)
-- 2026-06-29 12:07 - [*ST万方，停牌！拟终止上市！](http://www.share.minike.top/Article/details/03037244.shtml)
+- 2026-06-29 12:13 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](http://www.share.kurohicncr.top/Article/details/76303.shtml)
+- 2026-06-29 12:20 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](http://www.share.minike.top/Article/details/4435969561.shtml)
+- 2026-06-29 12:16 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.share.minike.top/Article/details/4538302.shtml)
+- 2026-06-29 11:58 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.blog.kurohicncr.top/Article/details/43731526.shtml)
+- 2026-06-29 12:04 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [光大证券：整固蓄势 积极看多](http://www.share.minike.top/Article/details/92630635.shtml)
+- 2026-06-29 12:02 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.blog.kurohicncr.top/Article/details/938789032.shtml)
+- 2026-06-29 12:06 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.blog.minike.top/Article/details/74127354.shtml)
+- 2026-06-29 12:02 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.minike.top/Article/details/7190907468.shtml)
+- 2026-06-29 12:22 - [广西南宁首批10个人工智能OPC创业社区集中开放](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [中方回应中美是否达成农业方面协议](http://www.blog.kurohicncr.top/Article/details/74419469326.shtml)
+- 2026-06-29 12:09 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.blog.kurohicncr.top/Article/details/397486882478.shtml)
+- 2026-06-29 12:19 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](http://www.share.kurohicncr.top/Article/details/83012977389.shtml)
+- 2026-06-29 12:01 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](http://www.share.minike.top/Article/details/55005922.shtml)
+- 2026-06-29 12:03 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](http://www.blog.minike.top/Article/details/219502539.shtml)

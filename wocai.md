@@ -1,59 +1,58 @@
-# 中国东方演艺集团将创排全新舞剧《山海经》
+# 美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网北京4月13日电 (记者 应妮)中国东方演艺集团与上海众福文化传媒有限公司日前在京签署创制合作协议，将推出全新舞剧《山海经》。 《山海经》作为中华优秀传统文化的瑰宝，记载了上古时期的神话传说、地理方物与民族记忆，蕴含着先民对世界的奇崛想象与朴素智慧。舞剧《山海经》将以这部经典为创作蓝本，立足当代艺术视角，通过肢体语言与舞台叙事的深度融合，带领观众走进一个充满生命张力与东方
+当地时间 5 月 15 日，美联储发布声明称，已任命杰罗姆·鲍威尔为临时主席，直至其继任者凯文·沃什正式宣誓就职，保障美联储货币政策制定与机构运转连续性。 与此同时，美联储理事米歇尔・鲍曼与理事斯蒂芬・米兰发布联合声明，公开反对无期限临时任命，要求设定一周至一个月固定任期，若逾期未完成宣誓需重新表决。 鲍威尔的主席任期于周五届满。 美联储表示：“在类似新老主席交接期间，此类做法
 
 ## 正文
 
-中新网北京4月13日电 (记者 应妮)中国东方演艺集团与上海众福文化传媒有限公司日前在京签署创制合作协议，将推出全新舞剧《山海经》。
+当地时间 5 月 15 日，美联储发布声明称，已任命杰罗姆·鲍威尔为临时主席，直至其继任者凯文·沃什正式宣誓就职，保障美联储货币政策制定与机构运转连续性。
 
-《山海经》作为中华优秀传统文化的瑰宝，记载了上古时期的神话传说、地理方物与民族记忆，蕴含着先民对世界的奇崛想象与朴素智慧。
+与此同时，美联储理事米歇尔・鲍曼与理事斯蒂芬・米兰发布联合声明，公开反对无期限临时任命，要求设定一周至一个月固定任期，若逾期未完成宣誓需重新表决。
 
-舞剧《山海经》将以这部经典为创作蓝本，立足当代艺术视角，通过肢体语言与舞台叙事的深度融合，带领观众走进一个充满生命张力与东方哲思的神话世界，展现中华文化的深厚底蕴与时代活力。
+鲍威尔的主席任期于周五届满。
 
-中国东方演艺集团副总经理、董事张蕾介绍，集团将组建高水平主创及制作团队，建立健全从剧本孵化、排练合成到巡演推广的全流程品质管控机制，保障该剧的艺术质量与市场竞争力。
+美联储表示：“在类似新老主席交接期间，此类做法符合以往惯例。
 
-上海众福文化传媒有限公司创始人李忠亮透露，在创制过程中将探索舞台艺术与新技术的适度融合，助力作品实现更广泛的社会影响与市场价值。
+” 美联储任命：临时主席符合惯例，鲍威尔履职至沃什宣誓 美联储理事会当日发布官方声明（美国东部时间 17：00 发布）称，鲍威尔的美联储主席任期正式结束，其继任者凯文・沃什尚未完成宣誓就职，美联储理事会于周五任命鲍威尔担任临时主席。
 
-数字技术与人工智能技术或可在该剧宣传与内容制作方面发挥作用，以更高效的方式丰富剧目的推广手段与艺术呈现方式。
+此次由现任主席出任临时主席的临时性安排，符合美联储过往主席换届交接期间的通行惯例。
 
-(完)
+鲍威尔将以临时主席身份履职，直至沃什正式宣誓就任新任美联储主席。
+
+两名理事反对：限定期限引争议，否决无期限任命 与官方任命形成鲜明对比的是，美联储理事米歇尔・鲍曼与理事斯蒂芬・米兰发布联合声明，赞成在凯文・沃什完成宣誓就职前，暂由鲍威尔担任美联储理事会主席，但对此次无期限临时主席任命投下反对票。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:50 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:08 - [辽宁持续发力打造营商环境好口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:16 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:56 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:51 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:17 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:14 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:13 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:14 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:49 - [徐寅生：愿“乒乓外交”精神代代相传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:54 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:17 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:09 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:11 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:09 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:56 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:16 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:21 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:54 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:20 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:14 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:09 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:55 - [联播+｜读懂中国的特别窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:02 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:58 - [星网宇达：截至2026年4月20日公司股东人数为40184户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:54 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [肉类食品巨头JBS罢工以加薪告终](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [天泓文创与长沙棠艺签订战略合作意向书](http://www.blog.minike.top/Article/details/4328915.shtml)
-- 2026-06-29 12:01 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.blog.minike.top/Article/details/5531822101.shtml)
-- 2026-06-29 11:50 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.blog.minike.top/Article/details/91921275.shtml)
-- 2026-06-29 12:03 - [陕西渭南：华山迎壮丽日落景观](http://www.blog.minike.top/Article/details/77033.shtml)
-- 2026-06-29 11:52 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](http://www.blog.kurohicncr.top/Article/details/45544981367.shtml)
-- 2026-06-29 12:08 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.blog.kurohicncr.top/Article/details/5573677.shtml)
-- 2026-06-29 11:57 - [永升服务于4月10日斥资37.65万港元回购20万股](http://www.share.minike.top/Article/details/905488178.shtml)
-- 2026-06-29 12:09 - [全军后勤重点行业领域职业道德规范出台](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [黎巴嫩称已同意周二举行停火谈判会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:18 - [广东清远“五大百亿”农业产业全产业链产值已超461亿元](http://www.share.minike.top/Article/details/059272471514.shtml)
-- 2026-06-29 12:02 - [Palantir的代理型人工智能势头强劲](http://www.share.minike.top/Article/details/5848492025.shtml)
-- 2026-06-29 12:07 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](http://www.share.kurohicncr.top/Article/details/776410020.shtml)
+- 2026-06-29 12:05 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.blog.kurohicncr.top/Article/details/458647775.shtml)
+- 2026-06-29 12:00 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.blog.minike.top/Article/details/86077135979.shtml)
+- 2026-06-29 11:57 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.minike.top/Article/details/3032899990.shtml)
+- 2026-06-29 12:02 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](http://www.blog.minike.top/Article/details/7146148385.shtml)
+- 2026-06-29 12:04 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](http://www.share.kurohicncr.top/Article/details/255110.shtml)
+- 2026-06-29 11:56 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](http://www.share.minike.top/Article/details/57319599.shtml)
+- 2026-06-29 12:09 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](http://www.blog.kurohicncr.top/Article/details/729540.shtml)
+- 2026-06-29 12:19 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [Token越来越贵？别慌！算力网已在来的路上](http://www.share.minike.top/Article/details/95112189.shtml)
+- 2026-06-29 11:54 - [印度与阿联酋将全面深化合作](http://www.share.kurohicncr.top/Article/details/689529314.shtml)
+- 2026-06-29 12:03 - [蔚来李斌：换电从来不是失血点，而是超前投入期](http://www.blog.kurohicncr.top/Article/details/121799.shtml)
+- 2026-06-29 12:04 - [马祖摄影人在福建霞浦共赴光影之约](http://www.blog.minike.top/Article/details/84037387.shtml)
+- 2026-06-29 12:06 - [江苏沛县西瓜促农文旅融合 “甜蜜产业” 赋能乡村振兴](http://www.blog.kurohicncr.top/Article/details/833743.shtml)
+- 2026-06-29 12:09 - [（乡村行·看振兴）湖北宜昌：科技助农“慧种田”](http://www.share.minike.top/Article/details/9227972.shtml)
+- 2026-06-29 12:01 - [伊朗，突传大消息！刚刚，集体大跳水！](http://www.share.minike.top/Article/details/2831702.shtml)

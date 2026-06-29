@@ -1,46 +1,57 @@
-# 黎巴嫩总统府：黎以同意14日在美讨论停火
+# 一路走访一路学 解锁基层反诈新经验
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-黎巴嫩总统府当地时间10日晚发布声明称，黎巴嫩驻美大使娜达·哈马德·穆阿瓦德和以色列驻美大使叶希尔·莱特于当日晚间通电话，美国驻贝鲁特大使亦参与其中。 声明指出，此次通话是旨在促成停火及启动谈判的外交行动的一部分，并补充称，双方已同意于4月14日在美国国务院举行首次会晤，讨论宣布停火以及在美国主持下启动谈判的日期。(总台记者 杨渊)
+5月13日，2026“互联中国公益行动”“行进式学习团”深入贵州，先后走进清镇市红枫山韵茶场、右二村和花溪明珠里反诈街区实地走访调研，以农旅融合、文旅融合、基层治理为切入点，立足乡村振兴战略实施和基层治理现代化建设，挖掘提炼反诈宣传落地实践的新路径、新模式、新经验。“我认为就是要将反诈、网络文明科普融入特色小镇建设，让反诈知识贴近日常生活，让更多老百姓轻松了解相关内容。”知名律
 
 ## 正文
 
-黎巴嫩总统府当地时间10日晚发布声明称，黎巴嫩驻美大使娜达·哈马德·穆阿瓦德和以色列驻美大使叶希尔·莱特于当日晚间通电话，美国驻贝鲁特大使亦参与其中。
+5月13日，2026“互联中国公益行动”“行进式学习团”深入贵州，先后走进清镇市红枫山韵茶场、右二村和花溪明珠里反诈街区实地走访调研，以农旅融合、文旅融合、基层治理为切入点，立足乡村振兴战略实施和基层治理现代化建设，挖掘提炼反诈宣传落地实践的新路径、新模式、新经验。
 
-声明指出，此次通话是旨在促成停火及启动谈判的外交行动的一部分，并补充称，双方已同意于4月14日在美国国务院举行首次会晤，讨论宣布停火以及在美国主持下启动谈判的日期。
+“我认为就是要将反诈、网络文明科普融入特色小镇建设，让反诈知识贴近日常生活，让更多老百姓轻松了解相关内容。
 
-(总台记者 杨渊)
+”知名律师马俊哲说，未来或许可以贴合老年群体的信息接收习惯，推动反诈知识精准入户讲解，进一步提升宣传实效。
+
+在省级乡村旅游重点村——清镇市右二村，反诈宣传标语、提示标识遍布村落各个角落。
+
+近年来，右二村立足生态禀赋、资源禀赋、文化底蕴、特色产业与区位优势，以右二组“蒙安彩色小镇”项目为核心抓手，坚持艺术赋能乡村、农文旅深度融合的发展思路，蹚出一条独具特色的乡村文旅振兴之路。
+
+村里整合3000亩樱花园、色彩小寨、农业坝区三大核心文旅资源，创新构建“政府引导、企业投资、群众参与”三方共建整村运营机制，深度融合屯堡文化、移民文化、苗布依少数民族文化与现代美学艺术四大文化内涵，对右二组124栋民居农房实施蒙德里安艺术风貌整体改造，成功打造“右二蒙安彩色小镇”特色文旅IP，形成辨识度高、网红属性强的乡村文旅新地标。
+
+文旅发展为反诈宣传开辟了更多场景，而城市街区则是反诈宣传的另一重要阵地。
+
+随后，学习团走进花溪区清溪街道万科明珠里商圈，实地观摩基层反诈阵地建设成效。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [光伏设备板块午后拉升，京运通、通威股份涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:14 - [国际观察：中国机遇为何吸引西班牙？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:10 - [浙江绍兴一馆藏战国青铜剑被指多处拼接痕 文物部门介入核查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:03 - [西班牙首相用中文说“大家好” 收获全场掌声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:17 - [韩国政府将向收入下游70%人群发放现金援助 以缓解油价上涨压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:50 - [去年超55亿人次在基层看病，医保支付也要“分级”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:58 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:04 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:08 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:17 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:23 - [复星国际于5月15日斥资818.03万港元回购200万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:08 - [泰晤士报：工党全国执行委员会批准伯纳姆竞选英国议员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:21 - [河北雄安新区：月季花开满城芳 繁花似锦醉初夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:22 - [打造“高效办成一件事”最佳体验地！上海出台重磅行动方案，有何深意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:07 - [小鹏汽车王谭：电动化与智能化正在从根本上重塑汽车设计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:15 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:10 - [自强不息追光逐梦 五名残疾人代表共话奋斗故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:21 - [金融监管总局发布2026年一季度银行业保险业主要监管指标数据情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:04 - [厦门港新增一条直航印度尼西亚货运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 12:03 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:13 - [和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [伊朗表示随时准备应对违反停火行为](http://www.share.kurohicncr.top/Article/details/98225948050.shtml)
-- 2026-06-29 12:10 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](http://www.share.kurohicncr.top/Article/details/7028491.shtml)
-- 2026-06-29 11:53 - [“津”非昔比丨这个春天必须冲天津海棠](http://www.blog.kurohicncr.top/Article/details/5231030274.shtml)
-- 2026-06-29 12:06 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](http://www.blog.kurohicncr.top/Article/details/0567797090.shtml)
-- 2026-06-29 12:15 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [山东荣成：核电科普研学兴起](http://www.share.minike.top/Article/details/1483736404.shtml)
-- 2026-06-29 11:56 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](http://www.share.kurohicncr.top/Article/details/1308033986.shtml)
-- 2026-06-29 12:02 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](http://www.blog.kurohicncr.top/Article/details/78459542.shtml)
-- 2026-06-29 11:57 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](http://www.blog.kurohicncr.top/Article/details/8088227323.shtml)
-- 2026-06-29 11:57 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.share.kurohicncr.top/Article/details/337458183456.shtml)
-- 2026-06-29 12:10 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.share.minike.top/Article/details/4064661.shtml)
-- 2026-06-29 12:14 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](http://www.share.minike.top/Article/details/601049.shtml)
-- 2026-06-29 11:58 - [严格落实直播打赏新规谋求治理实效](http://www.blog.minike.top/Article/details/10385054.shtml)
-- 2026-06-29 12:11 - [（经济观察）封关赋能开放 外资加速入琼](http://www.share.kurohicncr.top/Article/details/67083506.shtml)
-- 2026-06-29 12:13 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.blog.minike.top/Article/details/116159922.shtml)
+- 2026-06-29 11:56 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](http://www.share.minike.top/Article/details/27949471859.shtml)
+- 2026-06-29 12:05 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [郑丽文：反对“台独”是稳定台海关键](http://www.share.minike.top/Article/details/3818346801.shtml)
+- 2026-06-29 12:12 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.blog.minike.top/Article/details/39243.shtml)
+- 2026-06-29 12:11 - [高德专车上线静音服务，用户可一键定制“静音专车”](http://www.blog.kurohicncr.top/Article/details/9742060020.shtml)
+- 2026-06-29 12:18 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](http://www.share.minike.top/Article/details/8753541609.shtml)
+- 2026-06-29 12:09 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](http://www.blog.minike.top/Article/details/344802425.shtml)
+- 2026-06-29 12:14 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](http://www.blog.kurohicncr.top/Article/details/339166202160.shtml)
+- 2026-06-29 12:06 - [时令水果批量上市 专家提示当心糖分超标](http://www.blog.minike.top/Article/details/807288511.shtml)
+- 2026-06-29 12:01 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](http://www.blog.minike.top/Article/details/2716042.shtml)
+- 2026-06-29 12:18 - [主力资金，“盯上”这些股票](http://www.share.kurohicncr.top/Article/details/94831406.shtml)
+- 2026-06-29 12:13 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.share.kurohicncr.top/Article/details/299353533246.shtml)
+- 2026-06-29 11:56 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](http://www.blog.minike.top/Article/details/47407695673.shtml)
+- 2026-06-29 12:10 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lisacumin64-arch)

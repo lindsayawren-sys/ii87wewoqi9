@@ -1,51 +1,52 @@
-# 李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略
+# 北京天坛中外游客盛赞“中式美学”：包容、和平、共赢
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 19:38 来源：中国新闻网 4月13日，2026年世界互联网大会亚太峰会在香港会展中心举行开幕式。香港特区行政长官李家超在开幕式上致辞时表示，人工智能是香港加速创新科技发展的核心，结合世界一流的基础设施、尖端前沿研发，以及负责任的创新文化，香港特区政府正为AI发展制定全面策略。他指出，大幅提升算力是AI发展的关键优先事项，位于北部都会区的沙岭
+发布时间：2026年05月15日 17:56 来源：中国新闻网 5月13日至15日，美国总统特朗普对中国进行国事访问。其间，中美领导人参观天坛，让“中式美学”成为热词。15日，记者来到天坛，中外游客纷纷表达了他们对“中式美学”流行的理解和对中美关系的展望。 (记者 迟瀚宇 董泽宇 北京报道) 责任编辑：【刘湃】
 
 ## 正文
 
-发布时间：2026年04月13日 19:38 来源：中国新闻网 4月13日，2026年世界互联网大会亚太峰会在香港会展中心举行开幕式。
+发布时间：2026年05月15日 17:56 来源：中国新闻网 5月13日至15日，美国总统特朗普对中国进行国事访问。
 
-香港特区行政长官李家超在开幕式上致辞时表示，人工智能是香港加速创新科技发展的核心，结合世界一流的基础设施、尖端前沿研发，以及负责任的创新文化，香港特区政府正为AI发展制定全面策略。
+其间，中美领导人参观天坛，让“中式美学”成为热词。
 
-他指出，大幅提升算力是AI发展的关键优先事项，位于北部都会区的沙岭数据园区建成后，将进一步扩大香港整体算力规模。
+15日，记者来到天坛，中外游客纷纷表达了他们对“中式美学”流行的理解和对中美关系的展望。
 
-此外，计划于2026年成立启用的香港人工智能研发院，也将助力香港人工智能科研突破，并推动中下游研发成果转化，扩大应用场景。
-
-(记者 程宇 周圣昀） 责任编辑：【罗攀】
+(记者 迟瀚宇 董泽宇 北京报道) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:16 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:58 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:12 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:14 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:55 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:49 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:50 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:06 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:58 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:56 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:20 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:05 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:08 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:13 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:12 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:56 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:10 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:15 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:17 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:21 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:21 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:56 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:59 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:23 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.blog.minike.top/Article/details/5563394.shtml)
-- 2026-06-29 12:09 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.share.kurohicncr.top/Article/details/48942817.shtml)
-- 2026-06-29 11:57 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.minike.top/Article/details/968270.shtml)
-- 2026-06-29 11:48 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.blog.minike.top/Article/details/19251.shtml)
-- 2026-06-29 12:02 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.blog.minike.top/Article/details/67822.shtml)
-- 2026-06-29 12:00 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.blog.minike.top/Article/details/14564285.shtml)
-- 2026-06-29 11:54 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.share.kurohicncr.top/Article/details/325981752766.shtml)
-- 2026-06-29 11:53 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.share.minike.top/Article/details/792183806620.shtml)
-- 2026-06-29 12:00 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](http://www.blog.kurohicncr.top/Article/details/561363.shtml)
-- 2026-06-29 12:11 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.kurohicncr.top/Article/details/960502319693.shtml)
-- 2026-06-29 12:03 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/8481549095.shtml)
-- 2026-06-29 12:05 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.kurohicncr.top/Article/details/9922221654.shtml)
-- 2026-06-29 11:59 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.share.minike.top/Article/details/74327125079.shtml)
+- 2026-06-29 12:06 - [北方炎热持续升级南方强降雨频发](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](http://www.share.kurohicncr.top/Article/details/333019622506.shtml)
+- 2026-06-29 12:12 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.blog.minike.top/Article/details/253694994597.shtml)
+- 2026-06-29 12:13 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.blog.kurohicncr.top/Article/details/38415.shtml)
+- 2026-06-29 12:04 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [长岛铁路工人或于今夜举行罢工](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [688549突发利好，股价短期已翻倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [交响组曲《想你——永远的焦裕禄》在兰考上演](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](http://www.blog.kurohicncr.top/Article/details/79207552.shtml)
+- 2026-06-29 12:16 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.blog.kurohicncr.top/Article/details/471362537.shtml)
+- 2026-06-29 12:07 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [吉林打造长白山环山骑行品牌](http://www.share.kurohicncr.top/Article/details/69779.shtml)
+- 2026-06-29 12:06 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.blog.minike.top/Article/details/366023918.shtml)
+- 2026-06-29 12:00 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](http://www.blog.minike.top/Article/details/0400549177.shtml)

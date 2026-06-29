@@ -1,61 +1,52 @@
-# 中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞
+# 首届中国新文创市集满场“黑科技” 观众：超出预期
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网宁德4月12日电 (记者 吕巧琴 叶茂)“来到这边，我真的没想到还有电梯。”站在福建省宁德福鼎市太姥山的观光电梯前，中阿卫视主持人、记者阿思玛(Asmaa)忍不住发出感叹。面对镜头，她竖起大拇指：“为中国的发展速度点赞！” 由中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》摄制组11日走进福鼎市，用镜头记录闽东山海的独特魅力。 地处福
+发布时间：2026年05月16日 13:18 来源：中国新闻网 AI萌宠、数字织机、定制冰箱贴......5月15日，首届中国新文创市集暨潮玩游园会在北京启幕。来自全国各地的爆款文创汇聚于此。记者发现，从文博“国家队”到潮玩IP，各大展台都推出了形式各样的“黑科技”文创产品，其中一家AI智能潮玩更是成为了市集里的“排队王”。从“没想到”到“随处可见”，科技正成为文创的标配。观众
 
 ## 正文
 
-中新网宁德4月12日电 (记者 吕巧琴 叶茂)“来到这边，我真的没想到还有电梯。
+发布时间：2026年05月16日 13:18 来源：中国新闻网 AI萌宠、数字织机、定制冰箱贴......5月15日，首届中国新文创市集暨潮玩游园会在北京启幕。
 
-”站在福建省宁德福鼎市太姥山的观光电梯前，中阿卫视主持人、记者阿思玛(Asmaa)忍不住发出感叹。
+来自全国各地的爆款文创汇聚于此。
 
-面对镜头，她竖起大拇指：“为中国的发展速度点赞！
+记者发现，从文博“国家队”到潮玩IP，各大展台都推出了形式各样的“黑科技”文创产品，其中一家AI智能潮玩更是成为了市集里的“排队王”。
 
-” 由中新社海外中心和中阿卫视联合打造的2026年《文化中国》系列开篇之作《文化中国·宁德》摄制组11日走进福鼎市，用镜头记录闽东山海的独特魅力。
+从“没想到”到“随处可见”，科技正成为文创的标配。
 
-地处福建东北部的福鼎市，拥有“海上仙都”太姥山、“中国十大最美岛屿”嵛山岛、“东海明珠”台山列岛等丰富的旅游资源。
+观众也期待文创产品更加个性化和智能化。
 
-这座海滨小城，凭借完善的旅游配套、旖旎的山海风光、地道的特色美食，吸引无数自驾游爱好者纷至沓来。
-
-太姥山以“峰险、石奇、洞幽、雾幻”四绝闻名遐迩，山中360处岩石，肖人肖物，鬼斧神工；峰岩之下有百多处岩洞，呈“井”字形分布，洞洞相通，纵横交错，曲折幽深，宛如地下迷宫，是天下名山所少有的花岗岩洞群景观，令人惊叹。
-
-“刚才从非常小的山洞出来。
+(记者 董语飞 郎佳慧 北京报道） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 12:11 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:01 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:01 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:07 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:52 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:16 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:52 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:09 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:57 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:16 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:02 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:00 - [肉类食品巨头JBS罢工以加薪告终](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:59 - [天泓文创与长沙棠艺签订战略合作意向书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:59 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:05 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:11 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:06 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:08 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:02 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:23 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:54 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:07 - [土耳其理工名校掀起中国热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:14 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:10 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:23 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](http://www.share.minike.top/Article/details/356385408.shtml)
-- 2026-06-29 11:49 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.minike.top/Article/details/144659016396.shtml)
-- 2026-06-29 11:59 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](http://www.share.minike.top/Article/details/5977546710.shtml)
-- 2026-06-29 11:50 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.minike.top/Article/details/559384673.shtml)
-- 2026-06-29 12:04 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.blog.kurohicncr.top/Article/details/309280252382.shtml)
-- 2026-06-29 12:08 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.kurohicncr.top/Article/details/1768816284.shtml)
-- 2026-06-29 12:05 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.blog.kurohicncr.top/Article/details/429066.shtml)
-- 2026-06-29 12:04 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](http://www.blog.kurohicncr.top/Article/details/649898.shtml)
-- 2026-06-29 12:17 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](http://www.share.kurohicncr.top/Article/details/7248566.shtml)
-- 2026-06-29 11:51 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.blog.kurohicncr.top/Article/details/36152.shtml)
-- 2026-06-29 12:15 - [广东自然资源资产组合供应首个项目在深圳落地](http://www.share.minike.top/Article/details/3689785.shtml)
-- 2026-06-29 12:16 - [【西街观察】创业板不再“唯利润论”](http://www.blog.kurohicncr.top/Article/details/78193108.shtml)
-- 2026-06-29 12:17 - [不得向8岁以下儿童开放！网信办发布11条网络直播打赏规定](http://www.blog.minike.top/Article/details/6579394.shtml)
-- 2026-06-29 11:55 - [特朗普：不在乎伊朗是否重返谈判桌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](http://www.blog.minike.top/Article/details/1129316362.shtml)
+- 2026-06-29 12:02 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.share.minike.top/Article/details/7827112.shtml)
+- 2026-06-29 12:17 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [吉林打造长白山环山骑行品牌](http://www.share.minike.top/Article/details/18065.shtml)
+- 2026-06-29 12:10 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.share.kurohicncr.top/Article/details/100123035.shtml)
+- 2026-06-29 12:23 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [王毅向媒体介绍中美元首会晤情况和共识](http://www.share.kurohicncr.top/Article/details/888794.shtml)
+- 2026-06-29 12:09 - [中资企业持续助力柬埔寨教育发展](http://www.share.kurohicncr.top/Article/details/9627169.shtml)
+- 2026-06-29 12:19 - [华泰 | A股策略：均衡配置应对内外风险](http://www.blog.minike.top/Article/details/87984744.shtml)
+- 2026-06-29 12:15 - [首次，首项，首个！本周我国多领域实现突破 创新实力亮眼](http://www.share.minike.top/Article/details/049116.shtml)
+- 2026-06-29 11:57 - [广发证券：这是一场EPS上调速度和利率上行速度的较量](http://www.share.minike.top/Article/details/4121340404.shtml)
+- 2026-06-29 12:21 - [诗承千年风起庐陵 第二届“迦陵杯”中华诗教大会江西吉安举行](http://www.blog.kurohicncr.top/Article/details/95706.shtml)
+- 2026-06-29 12:15 - [从增量扩张到存量提质 建设现代化人民城市](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [日本宫城县附近海域发生6.3级地震 震源深度50公里](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [（侨乡新貌）南宁侨场成食品产业新城 侨企入驻占商机](http://www.share.kurohicncr.top/Article/details/56486.shtml)

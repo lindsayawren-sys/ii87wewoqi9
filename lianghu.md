@@ -1,48 +1,60 @@
-# 贝壳-W于4月9日斥资700万美元回购133.6万股
+# 上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-贝壳-W（02423）发布公告，于2026年4月9日，该公司斥资700万美元回购133.6万股。责任编辑：卢昱君
+中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。 数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。 上海市户籍60岁及以上的老年人口中，男性占47.8%，女性
 
 ## 正文
 
-贝壳-W（02423）发布公告，于2026年4月9日，该公司斥资700万美元回购133.6万股。
+中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。
 
-责任编辑：卢昱君
+数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。
+
+上海市户籍60岁及以上的老年人口中，男性占47.8%，女性占52.2%。
+
+截至2025年年底，上海养老服务行业共有养老护理员6.75万人，卫生专业技术人员3274人。
+
+上海持续构建居家养老、社区养老、机构养老相融合的养老服务格局。
+
+除了在社区养老、机构养老上不断加强服务，近年来，上海尝试为老年人家庭提供适老化改造，小到换鞋凳、小夜灯，大到厨房、卫生间的整体改造，均致力于让居家养老更舒适、更安全。
+
+数据显示，2025年，上海居家环境适老化改造户数共计11031户，其中享受补贴的有10938户。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:59 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:17 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:51 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:59 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:00 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:11 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:56 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:16 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:04 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:51 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:48 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:13 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:52 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:15 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:07 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:15 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:19 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:06 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:01 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:57 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:55 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:05 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:54 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:03 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:17 - [土耳其理工名校掀起中国热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:05 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:03 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:12 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:57 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.blog.kurohicncr.top/Article/details/29775.shtml)
-- 2026-06-29 12:15 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.share.minike.top/Article/details/58922028.shtml)
-- 2026-06-29 12:03 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.blog.minike.top/Article/details/4529602407.shtml)
-- 2026-06-29 11:50 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.blog.kurohicncr.top/Article/details/1783730044.shtml)
-- 2026-06-29 11:52 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [股价跌近3%，保变电气回应年报多项指标变动原因](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](http://www.share.minike.top/Article/details/16276977.shtml)
-- 2026-06-29 12:10 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.share.minike.top/Article/details/0631321308.shtml)
-- 2026-06-29 12:09 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.minike.top/Article/details/42584.shtml)
-- 2026-06-29 11:56 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.blog.kurohicncr.top/Article/details/4712352.shtml)
-- 2026-06-29 11:48 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](http://www.blog.kurohicncr.top/Article/details/2394342.shtml)
-- 2026-06-29 11:57 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.share.kurohicncr.top/Article/details/73478516400.shtml)
+- 2026-06-29 12:06 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.share.kurohicncr.top/Article/details/94657.shtml)
+- 2026-06-29 12:03 - [长岛铁路工人或于今夜举行罢工](http://www.share.kurohicncr.top/Article/details/18965779227.shtml)
+- 2026-06-29 11:57 - [688549突发利好，股价短期已翻倍](http://www.blog.kurohicncr.top/Article/details/607326364925.shtml)
+- 2026-06-29 12:18 - [交响组曲《想你——永远的焦裕禄》在兰考上演](http://www.share.minike.top/Article/details/99863510840.shtml)
+- 2026-06-29 11:54 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.blog.minike.top/Article/details/59742157.shtml)
+- 2026-06-29 11:58 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [吉林打造长白山环山骑行品牌](http://www.share.kurohicncr.top/Article/details/83226779.shtml)
+- 2026-06-29 12:05 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.blog.kurohicncr.top/Article/details/773384.shtml)
+- 2026-06-29 12:16 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](http://www.share.minike.top/Article/details/333666950539.shtml)
+- 2026-06-29 12:05 - [王毅向媒体介绍中美元首会晤情况和共识](http://www.share.minike.top/Article/details/8925736190.shtml)
+- 2026-06-29 12:01 - [中资企业持续助力柬埔寨教育发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [华泰 | A股策略：均衡配置应对内外风险](http://www.share.kurohicncr.top/Article/details/335819632661.shtml)
+- 2026-06-29 12:08 - [首次，首项，首个！本周我国多领域实现突破 创新实力亮眼](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [广发证券：这是一场EPS上调速度和利率上行速度的较量](http://www.blog.kurohicncr.top/Article/details/1819444.shtml)

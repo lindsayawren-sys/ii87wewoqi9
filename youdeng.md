@@ -1,56 +1,61 @@
-# 普京宣布成立委员会制定俄人工智能发展战略
+# 哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新社莫斯科4月10日电 俄罗斯总统普京10日在克里姆林宫主持召开的人工智能技术发展问题会议上宣布，成立一个委员会负责制定俄人工智能发展战略并协调相关行动。 据俄总统网站消息，普京在会议上表示，人工智能、数字平台和自主系统，正在从根本上改变经济、公共关系、社会领域、教育、医疗、物流和工业、国防和安全等各个方面，且相关技术正在飞速发展。对于俄罗斯来说，确保自主研发和发展国产基础人
+中新网重庆5月17日电 (张旭)“重庆在畜牧业现代化及农村科技创新等领域，取得了令人瞩目的成就。”哥伦比亚驻华大使塞尔希奥·卡夫雷拉在重庆市荣昌区表示，参加的此次交流活动，应成为哥伦比亚与重庆挖掘真实合作机会、推动联合项目发展的平台。 5月14日至16日，塞尔希奥·卡夫雷拉率哥伦比亚驻华大使馆、哥伦比亚全国牧场主联合会、哥伦比亚猪肉协会、哥伦比亚全国家禽养殖协会等机构代表组成的
 
 ## 正文
 
-中新社莫斯科4月10日电 俄罗斯总统普京10日在克里姆林宫主持召开的人工智能技术发展问题会议上宣布，成立一个委员会负责制定俄人工智能发展战略并协调相关行动。
+中新网重庆5月17日电 (张旭)“重庆在畜牧业现代化及农村科技创新等领域，取得了令人瞩目的成就。
 
-据俄总统网站消息，普京在会议上表示，人工智能、数字平台和自主系统，正在从根本上改变经济、公共关系、社会领域、教育、医疗、物流和工业、国防和安全等各个方面，且相关技术正在飞速发展。
+”哥伦比亚驻华大使塞尔希奥·卡夫雷拉在重庆市荣昌区表示，参加的此次交流活动，应成为哥伦比亚与重庆挖掘真实合作机会、推动联合项目发展的平台。
 
-对于俄罗斯来说，确保自主研发和发展国产基础人工智能模型至关重要。
+5月14日至16日，塞尔希奥·卡夫雷拉率哥伦比亚驻华大使馆、哥伦比亚全国牧场主联合会、哥伦比亚猪肉协会、哥伦比亚全国家禽养殖协会等机构代表组成的代表团，到访荣昌，走进重庆市畜牧科学院，共话畜牧科技合作，开启了一场“畜牧科技”主题的深度探访之旅。
 
-“这些模型必须具备全球竞争力，同时拥有最高程度的自主权。
+5月14日，代表团一行实地参观了澳龙生物、畜禽用抗菌肽研究中心、众信农牧等荣昌区科技企业和基地，实地考察重庆畜牧科技研发及特色畜禽养殖发展现状。
 
-这意味着整个研发和训练周期须由俄罗斯公司完成。
+5月15日，代表团一行深入重庆市畜牧科学院，并实地参观了国家生猪技术创新中心公共实验室，与科研人员亲切交流。
 
-” 普京宣布，他已签署命令，由政府副总理格里戈连科和总统办公厅副主任奥列什金领导的一个委员会将负责制定俄人工智能领域的发展战略并系统协调相关行动。
+在重庆市畜牧科学院，代表团一行详细了解了该院的发展历程、科研布局等情况。
 
-该委员会成员还包括政府相关部门、各部委和机构代表，以及头部科技公司代表和国家委员会成员。
+据了解，作为重庆公益一类畜牧科研机构，该院拥有14个研究所，聚焦猪、家禽、草食动物等多个物种，在畜禽遗传育种、绿色高效养殖、疫病防控等领域形成鲜明优势，尤其在荣昌猪开发利用、生物饲料创制、猪源生物材料开发等方面，取得了系列标志性成果。
 
-普京要求该委员会今年考虑制定全面的解决方案，主要包括以下领域：首先，要制订计划，加速在经济和社会关键领域及公共管理部门实施人工智能应用。
+参访过程中，各方在荣昌区人民政府举行座谈会，围绕生猪、牛、禽三大领域技术需求与合作等关键议题展开深入交流。
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:05 - [人民之心｜“为官一任，造福一方”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 11:56 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:02 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:56 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:13 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:15 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:58 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:09 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:04 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:55 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:56 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:55 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:11 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:04 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:23 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:20 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:02 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:03 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:08 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:21 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:12 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:09 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:19 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:09 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.blog.minike.top/Article/details/02939335460.shtml)
-- 2026-06-29 12:03 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.minike.top/Article/details/179510.shtml)
-- 2026-06-29 11:59 - [光大期货：4月13日软商品日报](http://www.blog.minike.top/Article/details/280842442972.shtml)
-- 2026-06-29 12:01 - [游客喊话“欢迎回来” 郑丽文北京行显温情](http://www.share.kurohicncr.top/Article/details/400055.shtml)
-- 2026-06-29 11:51 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.share.minike.top/Article/details/84082177.shtml)
-- 2026-06-29 11:57 - [日经指数下跌0.4% 受科技股和电子股拖累](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [天津边检推多项便利举措 助力高水平对外开放](http://www.share.minike.top/Article/details/99099.shtml)
-- 2026-06-29 12:07 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.blog.minike.top/Article/details/102004244290.shtml)
-- 2026-06-29 11:50 - [北摩高科：拟每10股分红1.3元](http://www.share.kurohicncr.top/Article/details/71931.shtml)
-- 2026-06-29 12:00 - [全国无党派人士考察团在浙江开展年度重点考察调研](http://www.blog.kurohicncr.top/Article/details/9738935.shtml)
-- 2026-06-29 11:55 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.blog.kurohicncr.top/Article/details/660322861.shtml)
-- 2026-06-29 12:02 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.share.minike.top/Article/details/08321.shtml)
-- 2026-06-29 12:06 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [比亚迪：公司储能业务在全球市场持续发力](http://www.blog.minike.top/Article/details/802370955.shtml)
+- 2026-06-29 12:09 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](http://www.blog.minike.top/Article/details/65677235673.shtml)
+- 2026-06-29 12:21 - [尾盘：国债收益率大涨 美股继续下滑](http://www.blog.kurohicncr.top/Article/details/830733.shtml)
+- 2026-06-29 12:04 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](http://www.share.minike.top/Article/details/019092611.shtml)
+- 2026-06-29 12:08 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/64603.shtml)
+- 2026-06-29 12:13 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.blog.minike.top/Article/details/48280374.shtml)
+- 2026-06-29 12:03 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [日本央行理事称投资基金活动对金融体系构成潜在风险](http://www.share.kurohicncr.top/Article/details/60726664450.shtml)
+- 2026-06-29 12:05 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](http://www.blog.kurohicncr.top/Article/details/51230379.shtml)
+- 2026-06-29 12:20 - [沃尔玛希望Flipkart放慢节奏并实现盈利](http://www.share.kurohicncr.top/Article/details/9693409.shtml)
+- 2026-06-29 12:02 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](http://www.share.kurohicncr.top/Article/details/1175968.shtml)
+- 2026-06-29 12:01 - [CBA观察：我们需要一支怎样的山西男篮](http://www.share.minike.top/Article/details/49169.shtml)
+- 2026-06-29 12:17 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](http://www.blog.kurohicncr.top/Article/details/806392.shtml)
+- 2026-06-29 12:14 - [全国广电民生节目在渝交流创新经验](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lisacumin64-arch)

@@ -1,48 +1,57 @@
-# 南部战区新闻发言人发表谈话
+# 特朗普白宫宴会厅安保拨款遭参议院裁定删除
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-南部战区新闻发言人翟士臣海军大校表示，4月9日至12日，中国人民解放军南部战区海军位南海海域进行例行巡航。菲律宾拉拢域外国家组织所谓“联合巡航”，搅局南海，破坏地区和平稳定。战区部队将坚决捍卫国家领土主权和海洋权益，坚定维护地区和平稳定。
+民主党议员表示，美国参议院一名官员于周六从一项大规模支出法案中，剔除了可用于特朗普计划耗资4亿美元的白宫宴会厅的安保资金。此举令共和党动用纳税人资金推进这一争议项目的努力陷入困境。 参议院议事规则专家伊丽莎白・麦克多诺作出的这一裁定，对特朗普及其政府构成打击。政府一直寻求这笔资金，用于宴会厅相关的安保支出。 特朗普曾宣称，宴会厅建设将由私人捐助者出资。但参议院共和党人正寻求为特
 
 ## 正文
 
-南部战区新闻发言人翟士臣海军大校表示，4月9日至12日，中国人民解放军南部战区海军位南海海域进行例行巡航。
+民主党议员表示，美国参议院一名官员于周六从一项大规模支出法案中，剔除了可用于特朗普计划耗资4亿美元的白宫宴会厅的安保资金。
 
-菲律宾拉拢域外国家组织所谓“联合巡航”，搅局南海，破坏地区和平稳定。
+此举令共和党动用纳税人资金推进这一争议项目的努力陷入困境。
 
-战区部队将坚决捍卫国家领土主权和海洋权益，坚定维护地区和平稳定。
+参议院议事规则专家伊丽莎白・麦克多诺作出的这一裁定，对特朗普及其政府构成打击。
+
+政府一直寻求这笔资金，用于宴会厅相关的安保支出。
+
+特朗普曾宣称，宴会厅建设将由私人捐助者出资。
+
+但参议院共和党人正寻求为特勤局划拨10亿美元纳税人资金，用于包括宴会厅在内的白宫安保升级项目。
+
+美国参议院议事规则官负责解读参议院各项议事规则，判定相关立法条款是否合规。
+
+目前共和党掌控参议院，依旧可以修订法案，争取获得规则官认可。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:48 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:09 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:12 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:00 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:07 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:50 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:50 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:50 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:11 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:59 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:03 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:01 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:54 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:01 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:01 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:09 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:00 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:19 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:09 - [特朗普说“伊斯兰国”二号头目被“清除”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:58 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:18 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:20 - [芭蕾舞演员、医学专家带民众走出减重“误区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:54 - [个贷不良依然压力山大](http://www.share.kurohicncr.top/Article/details/5979198.shtml)
-- 2026-06-29 12:09 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](http://www.blog.minike.top/Article/details/13393.shtml)
-- 2026-06-29 11:53 - [【早盘三分钟】4月13日华宝基金ETF早知道](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](http://www.blog.kurohicncr.top/Article/details/2793310134.shtml)
-- 2026-06-29 12:03 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](http://www.share.kurohicncr.top/Article/details/00364733.shtml)
-- 2026-06-29 11:49 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.kurohicncr.top/Article/details/493348625066.shtml)
-- 2026-06-29 11:56 - [尼泊尔民众拉战车迎接尼历新年](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.blog.kurohicncr.top/Article/details/21633.shtml)
-- 2026-06-29 12:05 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.kurohicncr.top/Article/details/2946350.shtml)
-- 2026-06-29 12:03 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.share.kurohicncr.top/Article/details/08804.shtml)
-- 2026-06-29 12:16 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.kurohicncr.top/Article/details/397148.shtml)
-- 2026-06-29 11:55 - [伊朗武装部队称随时准备开火](http://www.blog.minike.top/Article/details/58054544216.shtml)
-- 2026-06-29 12:14 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.kurohicncr.top/Article/details/676864.shtml)
-- 2026-06-29 12:14 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.share.minike.top/Article/details/359045.shtml)
+- 2026-06-29 12:08 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](http://www.share.kurohicncr.top/Article/details/83014.shtml)
+- 2026-06-29 12:06 - [国际人士：中美元首外交意义重大 推动世界和平发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [三星会长李在镕就劳资纠纷向公众致歉](http://www.share.kurohicncr.top/Article/details/12911727056.shtml)
+- 2026-06-29 12:08 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](http://www.share.kurohicncr.top/Article/details/937440746.shtml)
+- 2026-06-29 11:59 - [中国大陆学者首获英国皇家经济学会终身院士](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](http://www.blog.minike.top/Article/details/148370088.shtml)
+- 2026-06-29 12:20 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [002342，被证监会立案！](http://www.blog.kurohicncr.top/Article/details/81746.shtml)
+- 2026-06-29 11:54 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.share.minike.top/Article/details/223293686.shtml)
+- 2026-06-29 12:00 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](http://www.blog.kurohicncr.top/Article/details/99335018.shtml)
+- 2026-06-29 12:13 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](http://www.share.minike.top/Article/details/8514798.shtml)
+- 2026-06-29 12:04 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](http://www.blog.kurohicncr.top/Article/details/17787.shtml)
+- 2026-06-29 12:07 - [浙江省欧美同学会金融委员会举行座谈交流活动](http://www.blog.kurohicncr.top/Article/details/63313.shtml)
+- 2026-06-29 12:09 - [特朗普结束访华回国途中，与高市早苗通电话](http://www.blog.kurohicncr.top/Article/details/5017174280.shtml)
+- 2026-06-29 12:20 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lisacumin64-arch)

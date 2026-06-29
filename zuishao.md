@@ -1,48 +1,54 @@
-# 海口海关动植物检疫中心测序服务采购项目流标公告
+# 韩国央行新任委员称中东冲突导致通胀担忧加剧
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-根据《海口海关动植物检疫中心测序服务采购项目》确定的评审原则和要求，经检疫中心采购小组审核，有效投标单位不足法定2家，本次比选采购按流标处理。 有关本项目下一步的采购活动，请留意中国招标投标公共服务平台、海口海关门户网。 采购人：海口海关动植物检疫中心； 地址：海南省海口市海秀西路9号；联系人：舒女士、李女士； 电话：0898-68616278； 监督单位：海口海关监察室； 举
+韩国央行货币政策委员会新任委员Kim Jin-ill周五表示，受中东冲突引发的高油价影响，通胀担忧加剧。 他指出，在科技行业的带动下，经济状况正在改善，但全球投资前景不明朗，国内也存在不平等问题。 关于金融稳定，Kim Jin-ill表示，资本流动风险引发的担忧日益加剧，同时家庭债务和房价问题依然存在。 Kim Jin-ill于周五正式就任韩国央行七人政策委员会委员，任期四年。
 
 ## 正文
 
-根据《海口海关动植物检疫中心测序服务采购项目》确定的评审原则和要求，经检疫中心采购小组审核，有效投标单位不足法定2家，本次比选采购按流标处理。
+韩国央行货币政策委员会新任委员Kim Jin-ill周五表示，受中东冲突引发的高油价影响，通胀担忧加剧。
 
-有关本项目下一步的采购活动，请留意中国招标投标公共服务平台、海口海关门户网。
+他指出，在科技行业的带动下，经济状况正在改善，但全球投资前景不明朗，国内也存在不平等问题。
 
-采购人：海口海关动植物检疫中心； 地址：海南省海口市海秀西路9号；联系人：舒女士、李女士； 电话：0898-68616278； 监督单位：海口海关监察室； 举报电话：0898-66188110。
+关于金融稳定，Kim Jin-ill表示，资本流动风险引发的担忧日益加剧，同时家庭债务和房价问题依然存在。
+
+Kim Jin-ill于周五正式就任韩国央行七人政策委员会委员，任期四年。
+
+他的首次利率决策会议将于5月28日举行。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:13 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:09 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:58 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:11 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:16 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:10 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:08 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:14 - [人民之心｜“为官一任，造福一方”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:16 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:08 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:04 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:19 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:12 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:22 - [芭蕾舞演员、医学专家带民众走出减重“误区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:54 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:58 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:54 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:00 - [外交部：中美双方就两国元首年内互动安排保持着沟通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:20 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:57 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:18 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:15 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:21 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.blog.minike.top/Article/details/78256979810.shtml)
-- 2026-06-29 11:53 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.blog.minike.top/Article/details/85077898.shtml)
-- 2026-06-29 12:04 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.blog.kurohicncr.top/Article/details/760873.shtml)
-- 2026-06-29 12:14 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.minike.top/Article/details/03413.shtml)
-- 2026-06-29 12:07 - [伊朗武装部队称随时准备开火](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.kurohicncr.top/Article/details/6642401.shtml)
-- 2026-06-29 12:15 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.share.kurohicncr.top/Article/details/644971.shtml)
-- 2026-06-29 11:57 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.minike.top/Article/details/027384647.shtml)
-- 2026-06-29 12:06 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [光大期货：4月13日软商品日报](http://www.share.kurohicncr.top/Article/details/48404360.shtml)
-- 2026-06-29 11:56 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.share.minike.top/Article/details/08523938.shtml)
-- 2026-06-29 11:52 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.share.kurohicncr.top/Article/details/1905137456.shtml)
-- 2026-06-29 11:54 - [天津边检推多项便利举措 助力高水平对外开放](http://www.share.kurohicncr.top/Article/details/399990249550.shtml)
-- 2026-06-29 11:53 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.share.minike.top/Article/details/572315613947.shtml)
+- 2026-06-29 12:06 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.share.minike.top/Article/details/64139166.shtml)
+- 2026-06-29 12:10 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](http://www.blog.minike.top/Article/details/2527316585.shtml)
+- 2026-06-29 12:09 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](http://www.share.minike.top/Article/details/45895034114.shtml)
+- 2026-06-29 12:22 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](http://www.blog.minike.top/Article/details/17173.shtml)
+- 2026-06-29 12:16 - [浙江省欧美同学会金融委员会举行座谈交流活动](http://www.blog.minike.top/Article/details/78992.shtml)
+- 2026-06-29 12:14 - [特朗普结束访华回国途中，与高市早苗通电话](http://www.blog.minike.top/Article/details/980804163.shtml)
+- 2026-06-29 11:54 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](http://www.share.kurohicncr.top/Article/details/35141794.shtml)
+- 2026-06-29 12:01 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [尾盘：国债收益率大涨 美股继续下滑](http://www.share.kurohicncr.top/Article/details/5849260.shtml)
+- 2026-06-29 12:07 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](http://www.share.minike.top/Article/details/4798248.shtml)
+- 2026-06-29 12:01 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](http://www.share.kurohicncr.top/Article/details/676966213717.shtml)
+- 2026-06-29 12:16 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](http://www.share.kurohicncr.top/Article/details/21603130318.shtml)
+- 2026-06-29 12:04 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.blog.minike.top/Article/details/23479.shtml)
+- 2026-06-29 11:54 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](http://www.blog.minike.top/Article/details/824671.shtml)
+- 2026-06-29 11:56 - [日本央行理事称投资基金活动对金融体系构成潜在风险](http://www.share.kurohicncr.top/Article/details/72482296.shtml)

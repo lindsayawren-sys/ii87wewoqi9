@@ -1,57 +1,57 @@
-# 柳化股份业绩预告“大变脸”，受损股民或可索赔
+# 广西柳州成立具身智能机器人技术应用中心
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、业绩预告突然“变脸” 4月10日晚间，柳化股份（维权）2025年业绩预告突然“大变脸”，由原先预告的盈利逾600万元骤然转为巨亏3000万元。这一突如其来的转变，意味着公司将直面退市风险警示（*ST）。 具体来看，根据柳化股份发布的2025年年度业绩预告更正公告，公司预计2025年实现归属于上市公司股东的净利润为-3000万
+中新网柳州5月15日电(张尚梅 黄光聪 陆佳豪)5月15日，具身智能机器人技术应用中心在广西柳州职业技术大学(以下称“柳职大”)揭牌成立。广西将在具身智能机器人领域的产教融合、技术创新与产业赋能上迈入全新阶段。 该中心由柳职大联合智元创新(上海)科技股份有限公司、北京FANUC机电有限公司、联想研究院三大全球行业领军企业、研究机构，以及东风柳州汽车有限公司、广西汽车集团有限公司
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、业绩预告突然“变脸” 4月10日晚间，柳化股份（维权）2025年业绩预告突然“大变脸”，由原先预告的盈利逾600万元骤然转为巨亏3000万元。
+中新网柳州5月15日电(张尚梅 黄光聪 陆佳豪)5月15日，具身智能机器人技术应用中心在广西柳州职业技术大学(以下称“柳职大”)揭牌成立。
 
-这一突如其来的转变，意味着公司将直面退市风险警示（*ST）。
+广西将在具身智能机器人领域的产教融合、技术创新与产业赋能上迈入全新阶段。
 
-具体来看，根据柳化股份发布的2025年年度业绩预告更正公告，公司预计2025年实现归属于上市公司股东的净利润为-3000万元，扣非净利润为-3020万元。
+该中心由柳职大联合智元创新(上海)科技股份有限公司、北京FANUC机电有限公司、联想研究院三大全球行业领军企业、研究机构，以及东风柳州汽车有限公司、广西汽车集团有限公司等柳州汽车制造龙头企业共同组建。
 
-然而，在不到三个月前的1月21日，公司发布的业绩预告称，预计2025年归属于上市公司股东的净利润为628万元。
+具身智能机器人技术应用中心紧扣国家智能制造战略与广西“北上广研发+广西集成+东盟应用”的人工智能发展布局，立足柳州汽车、机械、冶金等支柱产业智能化升级需求，以应用技术研究与工程转化为核心，聚焦具身机器人系统集成、场景落地、关键零部件制造及人才培养四大方向，着力破解产业智能化转型共性技术瓶颈。
 
-对于此次业绩的巨大落差，柳化股份在公告中给出的解释直指审计环节：“与前次业绩预告相比，审计机构采取了更为审慎的原则，对公司计提大额资产减值损失，致使本期利润减少。
+近年来，西南工业重镇柳州正加速转型升级。
 
-” 二、退市风险高悬 值得注意的是由于同时触及“净利润为负”与“营收低于3亿”两条硬指标，待4月25日正式年报披露后，柳化股份难逃被*ST的命运。
+2025年，“柳产”人形机器人正式走进本地汽车生产线，实现“柳产机器人造柳产车”的产业闭环；全市人工智能终端及机器人产业产值逾237亿元人民币，同比增长近四成。
 
-上海沪紫律师事务所刘鹏律师表示上市公司业绩预告不准或变脸的现象，至少是上市公司编制业绩预告工作的不准确和不透明问题，这意味着公司的财务管理不规范和内部控制不完善。
-
-柳化股份这种业绩“大变脸”的行为，已经构成证券虚假陈述，上市公司因信息披露违法违规导致投资者遭受损失的，受损投资者有权依法提起民事赔偿诉讼。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:53 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:02 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:06 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:11 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:08 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:59 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:12 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:09 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:59 - [肉类食品巨头JBS罢工以加薪告终](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:15 - [天泓文创与长沙棠艺签订战略合作意向书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:58 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:58 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:18 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:08 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:18 - [土耳其理工名校掀起中国热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:20 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:02 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:15 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:03 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:11 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:08 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:01 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:59 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/103653392.shtml)
-- 2026-06-29 12:09 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.share.kurohicncr.top/Article/details/62357074587.shtml)
-- 2026-06-29 12:00 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](http://www.share.minike.top/Article/details/604025853282.shtml)
-- 2026-06-29 11:55 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.kurohicncr.top/Article/details/67084710.shtml)
-- 2026-06-29 12:01 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](http://www.share.kurohicncr.top/Article/details/146325.shtml)
-- 2026-06-29 12:17 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](http://www.share.minike.top/Article/details/072170096.shtml)
-- 2026-06-29 12:04 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](http://www.blog.kurohicncr.top/Article/details/807178768700.shtml)
-- 2026-06-29 12:06 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.blog.kurohicncr.top/Article/details/240485388.shtml)
-- 2026-06-29 12:13 - [广东自然资源资产组合供应首个项目在深圳落地](http://www.blog.minike.top/Article/details/0492283954.shtml)
-- 2026-06-29 11:58 - [【西街观察】创业板不再“唯利润论”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [不得向8岁以下儿童开放！网信办发布11条网络直播打赏规定](http://www.share.kurohicncr.top/Article/details/38056.shtml)
-- 2026-06-29 12:11 - [特朗普：不在乎伊朗是否重返谈判桌](http://www.blog.minike.top/Article/details/8512524.shtml)
-- 2026-06-29 11:55 - [深蓝汽车喻成：新能源汽车进入大众阶段，产品要从早期“制造爽点”转向“打造差异化”](http://www.share.minike.top/Article/details/488870053896.shtml)
-- 2026-06-29 12:13 - [正式会谈前 伊美代表团将分别与巴基斯坦总理会面](http://www.share.minike.top/Article/details/89856.shtml)
+- 2026-06-29 11:58 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](http://www.blog.minike.top/Article/details/8781047726.shtml)
+- 2026-06-29 12:22 - [吉林打造长白山环山骑行品牌](http://www.blog.kurohicncr.top/Article/details/55465723831.shtml)
+- 2026-06-29 12:08 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.blog.minike.top/Article/details/2881702.shtml)
+- 2026-06-29 12:04 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](http://www.blog.kurohicncr.top/Article/details/36681308.shtml)
+- 2026-06-29 12:10 - [王毅向媒体介绍中美元首会晤情况和共识](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [中资企业持续助力柬埔寨教育发展](http://www.blog.kurohicncr.top/Article/details/839243947668.shtml)
+- 2026-06-29 12:04 - [华泰 | A股策略：均衡配置应对内外风险](http://www.share.minike.top/Article/details/007087287.shtml)
+- 2026-06-29 12:02 - [首次，首项，首个！本周我国多领域实现突破 创新实力亮眼](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [广发证券：这是一场EPS上调速度和利率上行速度的较量](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [诗承千年风起庐陵 第二届“迦陵杯”中华诗教大会江西吉安举行](http://www.share.kurohicncr.top/Article/details/730203165859.shtml)
+- 2026-06-29 12:07 - [从增量扩张到存量提质 建设现代化人民城市](http://www.blog.minike.top/Article/details/970717902392.shtml)
+- 2026-06-29 12:17 - [日本宫城县附近海域发生6.3级地震 震源深度50公里](http://www.blog.kurohicncr.top/Article/details/29848524.shtml)
+- 2026-06-29 12:00 - [（侨乡新貌）南宁侨场成食品产业新城 侨企入驻占商机](http://www.share.minike.top/Article/details/5046065031.shtml)
+- 2026-06-29 12:13 - [金正恩要求加强守卫南部边境的一线部队](http://www.share.kurohicncr.top/Article/details/78833665699.shtml)
+- 2026-06-29 12:03 - [伊朗军方：若美国再次发起军事行动将面临“进攻性回应”](http://www.share.kurohicncr.top/Article/details/71639100785.shtml)

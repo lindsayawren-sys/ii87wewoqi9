@@ -1,56 +1,60 @@
-# 韩国政府将向收入下游70%人群发放现金援助 以缓解油价上涨压力
+# 小鹏汽车王谭：电动化与智能化正在从根本上重塑汽车设计
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-韩国政府周六宣布，为缓解油价上涨带来的经济压力，将向收入下游70%人群发放现金援助。 援助将首先于4月27日发放给该收入群体中最弱势的群体，并于5月18日扩大到更广泛的符合条件的人群。 约有3250万人符合援助资格，根据收入水平和所在地区，每人可获得10万韩元（约合67.30美元）至60万韩元不等的援助金。 韩国国会前一天通过了一项总额达26.2万亿韩元的追加预算案，旨在应对持
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。小鹏汽车造型中心总经理王谭出席并演讲。 王谭指出，电动化与智能化正在从根本上重塑汽车的“骨相”与“皮相”。他认为，当前汽车设计面临的“转折”并非简单的迭代，而是一场彻底的革命。这一转折的核心驱动力正是汽车的电动化与智能化。 王谭认为，智能化对设计的影响同样深远。但
 
 ## 正文
 
-韩国政府周六宣布，为缓解油价上涨带来的经济压力，将向收入下游70%人群发放现金援助。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-援助将首先于4月27日发放给该收入群体中最弱势的群体，并于5月18日扩大到更广泛的符合条件的人群。
+小鹏汽车造型中心总经理王谭出席并演讲。
 
-约有3250万人符合援助资格，根据收入水平和所在地区，每人可获得10万韩元（约合67.30美元）至60万韩元不等的援助金。
+王谭指出，电动化与智能化正在从根本上重塑汽车的“骨相”与“皮相”。
 
-韩国国会前一天通过了一项总额达26.2万亿韩元的追加预算案，旨在应对持续的中东冲突带来的经济影响。
+他认为，当前汽车设计面临的“转折”并非简单的迭代，而是一场彻底的革命。
 
-其中，拨款6.1万亿韩元的现金援助计划便是该预算案的一部分。
+这一转折的核心驱动力正是汽车的电动化与智能化。
 
-责任编辑：于健 SF069
+王谭认为，智能化对设计的影响同样深远。
+
+但他也强调，设计是一个轮回，在追求极致语音交互的同时，保留部分高效、直观的物理按键依然是必要的交互补充。
+
+此外，高阶辅助驾驶系统的快速迭代正在重新定义车内空间。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:09 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:10 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:15 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:04 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:14 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:11 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:56 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:50 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:48 - [美国释放第二批848万桶战略石油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:09 - [人形机器人深夜“狂飙”半马：开跑就冲刺 还能自主导航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:55 - [奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:08 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:03 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:07 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:15 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:14 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:22 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:13 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:21 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:13 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:14 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:05 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:59 - [越秀交通基建3月广州北二环高速路费收入8487.3万元 同比下降7.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:23 - [诸多对手虎视眈眈！英国首相斯塔默面临“生死之战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:01 - [（乡村行·看振兴）江苏扬州：沙头头茬西瓜开卖 “小西瓜”带动村集体增收逾百万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:14 - [515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:23 - [迈阿密愈发富庶，人口却持续缩减](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:50 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](http://www.blog.minike.top/Article/details/959216019.shtml)
-- 2026-06-29 11:51 - [严格落实直播打赏新规谋求治理实效](http://www.blog.kurohicncr.top/Article/details/279831111.shtml)
-- 2026-06-29 11:53 - [（经济观察）封关赋能开放 外资加速入琼](http://www.share.minike.top/Article/details/624063835.shtml)
-- 2026-06-29 12:09 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.share.kurohicncr.top/Article/details/712659.shtml)
-- 2026-06-29 11:55 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.blog.minike.top/Article/details/68618.shtml)
-- 2026-06-29 11:49 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.blog.minike.top/Article/details/978980093779.shtml)
-- 2026-06-29 12:04 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.blog.kurohicncr.top/Article/details/404713676215.shtml)
-- 2026-06-29 12:05 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.share.kurohicncr.top/Article/details/10665.shtml)
-- 2026-06-29 12:02 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.kurohicncr.top/Article/details/433430588067.shtml)
-- 2026-06-29 12:10 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](http://www.blog.minike.top/Article/details/8186272.shtml)
-- 2026-06-29 11:59 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](http://www.blog.kurohicncr.top/Article/details/357777009.shtml)
-- 2026-06-29 11:53 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.blog.kurohicncr.top/Article/details/9709726.shtml)
-- 2026-06-29 11:52 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](http://www.share.minike.top/Article/details/05620562.shtml)
+- 2026-06-29 12:07 - [主力资金，“盯上”这些股票](http://www.blog.minike.top/Article/details/864431682031.shtml)
+- 2026-06-29 12:11 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.blog.kurohicncr.top/Article/details/0342745147.shtml)
+- 2026-06-29 12:23 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](http://www.share.kurohicncr.top/Article/details/71918661329.shtml)
+- 2026-06-29 12:05 - [中东部有大范围降水 黄海海域有大雾](http://www.blog.minike.top/Article/details/059001949056.shtml)
+- 2026-06-29 12:03 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.blog.kurohicncr.top/Article/details/8224866892.shtml)
+- 2026-06-29 11:56 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](http://www.blog.kurohicncr.top/Article/details/7053005619.shtml)
+- 2026-06-29 12:22 - [香港特区政府新一批基建及绿色债券在港发行](http://www.share.minike.top/Article/details/2520400635.shtml)
+- 2026-06-29 11:55 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [中国外交部发言人就美国总统特朗普访华情况答记者问](http://www.blog.kurohicncr.top/Article/details/607343129194.shtml)
+- 2026-06-29 12:23 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](http://www.blog.kurohicncr.top/Article/details/2557778031.shtml)
+- 2026-06-29 12:07 - [中国第12批援埃塞俄比亚军医专家组出征](http://www.share.kurohicncr.top/Article/details/344738022240.shtml)
+- 2026-06-29 12:00 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](http://www.blog.minike.top/Article/details/59328.shtml)
+- 2026-06-29 12:20 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](http://www.share.kurohicncr.top/Article/details/49561.shtml)
+- 2026-06-29 11:57 - [受降雨影响 国铁广州局今明两天部分列车停运](http://www.blog.kurohicncr.top/Article/details/49131.shtml)

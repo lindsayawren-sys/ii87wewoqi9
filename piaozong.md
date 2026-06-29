@@ -1,61 +1,51 @@
-# 美国释放第二批848万桶战略石油储备
+# 越秀交通基建3月广州北二环高速路费收入8487.3万元 同比下降7.7%
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-新华社北京4月11日电 美国能源部10日说，已从战略石油储备中出借848万桶原油给4家美国石油公司。这是2月28日伊朗战事开始以来特朗普政府为平抑油价释放的第二批石油储备。 据路透社报道，这4家企业分别是贡沃尔石油贸易公司美国公司、菲利普斯66控股公司、托克贸易公司和麦格理贸易公司。 国际能源署3月11日宣布，32个成员国一致同意释放4亿桶战略石油储备，以应对因美国和以色列对伊
+越秀交通基建（01052）发布公告，于2026年3月，广州北二环高速路费收入8487.3万元，环比上升63.8%，同比下降7.7%。 2026年1-3月，广州北二环高速路费收入累计2.23亿元，同比下降7.2%。责任编辑：卢昱君
 
 ## 正文
 
-新华社北京4月11日电 美国能源部10日说，已从战略石油储备中出借848万桶原油给4家美国石油公司。
+越秀交通基建（01052）发布公告，于2026年3月，广州北二环高速路费收入8487.3万元，环比上升63.8%，同比下降7.7%。
 
-这是2月28日伊朗战事开始以来特朗普政府为平抑油价释放的第二批石油储备。
+2026年1-3月，广州北二环高速路费收入累计2.23亿元，同比下降7.2%。
 
-据路透社报道，这4家企业分别是贡沃尔石油贸易公司美国公司、菲利普斯66控股公司、托克贸易公司和麦格理贸易公司。
-
-国际能源署3月11日宣布，32个成员国一致同意释放4亿桶战略石油储备，以应对因美国和以色列对伊朗军事打击引发的全球石油供应紧张局面。
-
-这是国际能源署迄今协调规模最大的一次石油储备释放。
-
-相关储备随后陆续投放市场。
-
-作为上述计划的一部分，美国计划从其战略石油储备中释放1.72亿桶原油，供应将持续至2027年。
-
-在上月第一批释放的石油储备中，能源企业提取了4520万桶，约占美国能源部供应量的52%。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:13 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:00 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:15 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:59 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:50 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:17 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:57 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:57 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:15 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:06 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:17 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:52 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:56 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:03 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:20 - [美国爱达荷州一空军基地发生空中撞机 飞行员弹射逃生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:16 - [Whale Rock一季度大幅调仓：建仓苹果微软，减持英伟达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:01 - [江西85后富豪夫妇又要IPO了，身家65亿，一年狂揽34亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:03 - [篮球比赛最后5秒 少年以超远3分球反超 这一刻 人生高光！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:54 - [从“决断”到“转折”：2026轩辕汽车蓝皮书论坛在广州闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:04 - [【市场聚焦】黑色：回落压力较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:04 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:12 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:05 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:03 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:54 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:12 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:04 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:24 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:00 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [南部战区新闻发言人发表谈话](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.blog.minike.top/Article/details/1305495.shtml)
-- 2026-06-29 11:52 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](http://www.blog.kurohicncr.top/Article/details/20679.shtml)
-- 2026-06-29 12:11 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.share.kurohicncr.top/Article/details/363531561069.shtml)
-- 2026-06-29 12:00 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](http://www.blog.minike.top/Article/details/8763382120.shtml)
-- 2026-06-29 12:04 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](http://www.blog.minike.top/Article/details/5198642.shtml)
-- 2026-06-29 11:53 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.share.minike.top/Article/details/9018081.shtml)
-- 2026-06-29 12:10 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](http://www.blog.minike.top/Article/details/180212501.shtml)
-- 2026-06-29 12:12 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.blog.kurohicncr.top/Article/details/555365997.shtml)
-- 2026-06-29 11:49 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.share.kurohicncr.top/Article/details/29559168.shtml)
+- 2026-06-29 12:23 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [九连板之后，002207公告：无注入算力资产的计划](http://www.share.kurohicncr.top/Article/details/376191412259.shtml)
+- 2026-06-29 12:23 - [日本财务大臣片山皋月否认需要编制额外预算](http://www.blog.kurohicncr.top/Article/details/418528.shtml)
+- 2026-06-29 12:18 - [美国侨胞：期待新定位领航中美关系行稳致远](http://www.blog.kurohicncr.top/Article/details/758950.shtml)
+- 2026-06-29 12:22 - [珠江流域持续暴雨 广东多地停课](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.blog.minike.top/Article/details/890280677289.shtml)
+- 2026-06-29 12:09 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.blog.minike.top/Article/details/50423.shtml)
+- 2026-06-29 12:23 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](http://www.share.minike.top/Article/details/7860146669.shtml)
+- 2026-06-29 12:01 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.share.minike.top/Article/details/3443679.shtml)
+- 2026-06-29 12:22 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.blog.kurohicncr.top/Article/details/13633153570.shtml)
+- 2026-06-29 12:18 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.share.kurohicncr.top/Article/details/250485826.shtml)
+- 2026-06-29 12:16 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.blog.kurohicncr.top/Article/details/6185552102.shtml)

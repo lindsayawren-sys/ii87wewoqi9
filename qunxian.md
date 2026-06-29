@@ -1,58 +1,50 @@
-# 岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势
+# 重庆对8个区县启动地质灾害四级应急响应
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 岚图汽车科技股份有限公司总经理蒋焘表示，智能电动汽车的最终形态目前还没有形成，这就像2000年初的手机一样，从传统功能机向智能手机进化的过程中，其最终形态经历了巨大的变化，而现在的汽车，实际
+中新网重庆5月16日电 (记者 刘相琳)记者从重庆市应急管理局获悉，经重庆市抗震救灾和地质灾害防治救援指挥部会商研判，决定于16日13时，针对8个区县启动地质灾害四级应急响应。 据气象部门预测，5月16日白天，重庆中东部地区中雨，局地大雨(20至40毫米)，西部地区阵雨。按照《重庆市地质灾害应急预案》有关规定，经重庆市抗震救灾和地质灾害防治救援指挥部会商研判，决定于16日13时
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网重庆5月16日电 (记者 刘相琳)记者从重庆市应急管理局获悉，经重庆市抗震救灾和地质灾害防治救援指挥部会商研判，决定于16日13时，针对8个区县启动地质灾害四级应急响应。
 
-岚图汽车科技股份有限公司总经理蒋焘表示，智能电动汽车的最终形态目前还没有形成，这就像2000年初的手机一样，从传统功能机向智能手机进化的过程中，其最终形态经历了巨大的变化，而现在的汽车，实际上也还没有达到最终的成熟状态。
+据气象部门预测，5月16日白天，重庆中东部地区中雨，局地大雨(20至40毫米)，西部地区阵雨。
 
-汽车智能化必将对整个行业带来巨大影响，也会深刻改变用户的消费选择。
+按照《重庆市地质灾害应急预案》有关规定，经重庆市抗震救灾和地质灾害防治救援指挥部会商研判，决定于16日13时，针对綦江区、南川区、武隆区、开州区、城口县、巫溪县、奉节县、巫山县等8个区县启动地质灾害四级应急响应，维持针对黔江区、彭水县、酉阳县等3个区县启动的地质灾害四级应急响应，终止针对合川区启动的地质灾害四级应急响应。
 
-在他看来，未来的汽车，有可能变得非常简单，也有可能变得非常复杂。
+重庆市抗震救灾和地质灾害防治救援指挥部要求，各区县抗震救灾和地质灾害防治救援指挥部要基于本级风险研判，按照预案要求，适时调整响应等级，严格落实相应等级应急响应行动措施，持续做好监测预警、群测群防、综合治理、值班值守等工作，对地质灾害高易发区、高和极高风险区等重点区域，农村自建房边坡、公路边坡、已查明地灾隐患点等重点部位开展排查核查，及时除险清患，严防次生灾害，确保民众生命财产安全。
 
-说它简单，是因为未来汽车可能只包含两个大的智能体：第一个智能体是控制车辆本身，负责将车辆从A点安全移动到B点，它会把现在的智能驾驶、自动测控、车灯控制等功能全部融合在一起；第二个智能体就是智能座舱，主要负责与用户进行沟通和交互，满足用户的个性化需求。
-
-说它复杂，是因为要实现这样的智能水平，需要高度的集成化，每个功能模块下，都会把智能座舱、自动驾驶、测控系统、智能底盘等全部融合在一起，车辆的内部架构会越来越复杂，但对于用户而言，呈现出来的操作和体验却会越来越简单。
-
-他指出，这种变化会带来三个核心问题。
-
-第一个问题，就是要重新定义“什么是一辆好车”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:12 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:50 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:11 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:03 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:13 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:02 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:11 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:03 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:52 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:14 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:58 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:58 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:03 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:01 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:01 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:08 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:07 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:03 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:57 - [美国侨胞：期待新定位领航中美关系行稳致远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:16 - [珠江流域持续暴雨 广东多地停课](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:14 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.blog.minike.top/Article/details/0922102.shtml)
-- 2026-06-29 11:59 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.blog.minike.top/Article/details/06953623622.shtml)
-- 2026-06-29 12:03 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.blog.kurohicncr.top/Article/details/88034756.shtml)
-- 2026-06-29 12:05 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.kurohicncr.top/Article/details/215993.shtml)
-- 2026-06-29 11:59 - [广西三江：花映楼桥入画来](http://www.share.kurohicncr.top/Article/details/675928116923.shtml)
-- 2026-06-29 11:52 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.blog.minike.top/Article/details/2409106188.shtml)
-- 2026-06-29 11:53 - [A股周一缩量上涨 创业板指创四年多新高](http://www.share.minike.top/Article/details/842515132616.shtml)
-- 2026-06-29 12:01 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.blog.kurohicncr.top/Article/details/17785589.shtml)
-- 2026-06-29 11:51 - [*ST万方，停牌！拟终止上市！](http://www.share.kurohicncr.top/Article/details/398185.shtml)
-- 2026-06-29 12:12 - [摩根大通就停火风险提示油价走势](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](http://www.blog.minike.top/Article/details/945485414430.shtml)
-- 2026-06-29 11:48 - [个贷不良依然压力山大](http://www.blog.kurohicncr.top/Article/details/975069762.shtml)
-- 2026-06-29 12:14 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.blog.kurohicncr.top/Article/details/481280444619.shtml)
-- 2026-06-29 11:49 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](http://www.share.kurohicncr.top/Article/details/6681395318.shtml)
-- 2026-06-29 12:13 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.share.minike.top/Article/details/275552.shtml)
+- 2026-06-29 12:12 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.share.minike.top/Article/details/40848532842.shtml)
+- 2026-06-29 12:02 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.share.minike.top/Article/details/8287660046.shtml)
+- 2026-06-29 12:03 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.kurohicncr.top/Article/details/05711182730.shtml)
+- 2026-06-29 11:58 - [广西南宁首批10个人工智能OPC创业社区集中开放](http://www.share.kurohicncr.top/Article/details/04684780251.shtml)
+- 2026-06-29 11:54 - [中方回应中美是否达成农业方面协议](http://www.blog.kurohicncr.top/Article/details/463295.shtml)
+- 2026-06-29 12:24 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.blog.minike.top/Article/details/5291764676.shtml)
+- 2026-06-29 12:15 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](http://www.blog.kurohicncr.top/Article/details/21235997.shtml)
+- 2026-06-29 11:58 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](http://www.share.kurohicncr.top/Article/details/900451.shtml)
+- 2026-06-29 12:07 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](http://www.blog.kurohicncr.top/Article/details/90943442596.shtml)
+- 2026-06-29 12:19 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [2027澳网亚太区外卡赛将落地成都](http://www.share.kurohicncr.top/Article/details/73730.shtml)
+- 2026-06-29 12:00 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](http://www.blog.kurohicncr.top/Article/details/71587850701.shtml)
+- 2026-06-29 12:00 - [国际人士：中美元首外交意义重大 推动世界和平发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [三星会长李在镕就劳资纠纷向公众致歉](http://www.share.minike.top/Article/details/01218158998.shtml)
+- 2026-06-29 12:20 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](http://www.blog.minike.top/Article/details/09022345527.shtml)

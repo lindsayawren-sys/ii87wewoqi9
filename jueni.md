@@ -1,58 +1,57 @@
-# 羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛
+# 主力资金，“盯上”这些股票
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新社宁波4月11日电 (张煜欢)11日，2026亚洲羽毛球锦标赛在浙江宁波展开半决赛争夺。中国女双组合刘圣书/谭宁与李怡婧/罗徐敏分别战胜各自对手，成功会师决赛，提前为中国羽毛球队包揽本届亚锦赛女双冠亚军。单打赛场，王祉怡逆转山口茜，石宇奇轻取周天成，双双晋级决赛。 女双赛场，面对此前爆冷淘汰韩国名将白荷娜/李绍希的印尼“黑马”阿玛莉亚/拉马丹蒂，刘圣书/谭宁直落两局击败对手
+本周，A股市场表现分化。上证指数、深证成指分别累计下跌1.07%、0.02%，创业板指累计上涨3.50%。行业板块中，通信、电子、机械设备行业领涨，涨幅最大的股票中船特气涨逾82%（剔除本周上市新股）。 Wind数据显示，截至5月15日收盘，A股市场总市值为130.12万亿元。 资金层面，Wind数据显示，本周沪深两市主力资金有4个交易日出现净流出，主力资金加仓天孚通信超49亿
 
 ## 正文
 
-中新社宁波4月11日电 (张煜欢)11日，2026亚洲羽毛球锦标赛在浙江宁波展开半决赛争夺。
+本周，A股市场表现分化。
 
-中国女双组合刘圣书/谭宁与李怡婧/罗徐敏分别战胜各自对手，成功会师决赛，提前为中国羽毛球队包揽本届亚锦赛女双冠亚军。
+上证指数、深证成指分别累计下跌1.07%、0.02%，创业板指累计上涨3.50%。
 
-单打赛场，王祉怡逆转山口茜，石宇奇轻取周天成，双双晋级决赛。
+行业板块中，通信、电子、机械设备行业领涨，涨幅最大的股票中船特气涨逾82%（剔除本周上市新股）。
 
-女双赛场，面对此前爆冷淘汰韩国名将白荷娜/李绍希的印尼“黑马”阿玛莉亚/拉马丹蒂，刘圣书/谭宁直落两局击败对手，挺进决赛。
+Wind数据显示，截至5月15日收盘，A股市场总市值为130.12万亿元。
 
-谭宁表示，这是首次与这对印尼组合交手，赛前难以做针对性准备，更多是依靠临场感觉调整战术。
+资金层面，Wind数据显示，本周沪深两市主力资金有4个交易日出现净流出，主力资金加仓天孚通信超49亿元。
 
-女单方面，中国选手王祉怡在先丢一局的情况下连扳两局，逆转日本名将山口茜，锁定决赛席位。
+中船特气本周大涨超82% 本周，A股三大指数表现分化，半导体设备、长江存储、工业气体等主题概念板块表现亮眼。
 
-王祉怡将在决赛再度迎战现世界排名第一的韩国选手安洗莹。
+Wind数据显示，本周申万一级31个行业中，通信、电子、机械设备、公用事业、家用电器行业上涨，涨幅分别为6.77%、4.70% 、1.81%、1.18%、0.52%；有色金属、钢铁、美容护理行业跌幅居前，分别下跌7.39%、5.92%、5.63%。
 
-展望这场对决，王祉怡表示：“明天将会是一场艰苦的对决，希望把自己最好的状态展现出来。
+数据来源：Wind Wind数据显示，本周A股有115只股票涨幅超20%。
 
 ## 相关推荐
 
-- 2026-06-29 11:53 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:59 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:04 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:11 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:09 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:04 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:16 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:02 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:58 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:00 - [南部战区新闻发言人发表谈话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:07 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:57 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:14 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:58 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:03 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:12 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:11 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:11 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:56 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:56 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:24 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:17 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:02 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [香港学子安徽行收获满满](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.blog.minike.top/Article/details/44868790014.shtml)
-- 2026-06-29 12:09 - [日韩股市集体低开 韩股跌超2%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.kurohicncr.top/Article/details/8604176.shtml)
-- 2026-06-29 12:16 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.share.kurohicncr.top/Article/details/0041218263.shtml)
-- 2026-06-29 11:56 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.kurohicncr.top/Article/details/06373928.shtml)
-- 2026-06-29 12:03 - [广西三江：花映楼桥入画来](http://www.blog.minike.top/Article/details/2990162075.shtml)
-- 2026-06-29 12:10 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.blog.minike.top/Article/details/48541227657.shtml)
-- 2026-06-29 11:57 - [A股周一缩量上涨 创业板指创四年多新高](http://www.blog.minike.top/Article/details/07568902642.shtml)
-- 2026-06-29 12:07 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](http://www.share.minike.top/Article/details/5594656172.shtml)
-- 2026-06-29 11:58 - [*ST万方，停牌！拟终止上市！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [摩根大通就停火风险提示油价走势](http://www.share.minike.top/Article/details/41523.shtml)
+- 2026-06-29 11:58 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.blog.kurohicncr.top/Article/details/532365410328.shtml)
+- 2026-06-29 12:02 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.blog.minike.top/Article/details/01369806.shtml)
+- 2026-06-29 11:58 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](http://www.share.kurohicncr.top/Article/details/56887142482.shtml)
+- 2026-06-29 12:07 - [光大证券：整固蓄势 积极看多](http://www.blog.kurohicncr.top/Article/details/314908341544.shtml)
+- 2026-06-29 11:55 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.share.minike.top/Article/details/024226507325.shtml)
+- 2026-06-29 12:15 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.share.minike.top/Article/details/841779.shtml)
+- 2026-06-29 11:58 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [广西南宁首批10个人工智能OPC创业社区集中开放](http://www.blog.minike.top/Article/details/029071142.shtml)
+- 2026-06-29 12:21 - [中方回应中美是否达成农业方面协议](http://www.blog.kurohicncr.top/Article/details/515795783.shtml)
+- 2026-06-29 11:56 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.share.minike.top/Article/details/80055451.shtml)
+- 2026-06-29 12:13 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](http://www.share.minike.top/Article/details/3320696519.shtml)
+- 2026-06-29 11:54 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](http://www.blog.kurohicncr.top/Article/details/0096735942.shtml)

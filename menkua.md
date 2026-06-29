@@ -1,43 +1,59 @@
-# “津”非昔比丨这个春天必须冲天津海棠
+# 天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 10:05 来源：人民网-人民视频 责任编辑：【杨彦宇】
+新浪科技讯 5月15日晚间消息，近日，MediaTek 今日召开天玑开发者大会2026（MDDC 2026），推出面向全球开发者的一系列先进工具和创新解决方案。 过去三年，天玑 AI 生态伙伴的成长量提升至240%，天玑AI开发套件的下载量提升至440%。 同时，MediaTek正式发布天玑 AI 智能体化引擎 2.0 。会上，MediaTek还公布了与OPPO 、Xiaomi
 
 ## 正文
 
-发布时间：2026年04月13日 10:05 来源：人民网-人民视频 责任编辑：【杨彦宇】
+新浪科技讯 5月15日晚间消息，近日，MediaTek 今日召开天玑开发者大会2026（MDDC 2026），推出面向全球开发者的一系列先进工具和创新解决方案。
+
+过去三年，天玑 AI 生态伙伴的成长量提升至240%，天玑AI开发套件的下载量提升至440%。
+
+同时，MediaTek正式发布天玑 AI 智能体化引擎 2.0 。
+
+会上，MediaTek还公布了与OPPO 、Xiaomi和传音合作的系统原生Claw。
+
+此外，MediaTek 还推出天玑 AI 开发套件 3.0，升级端侧智能体全模态能力并加速智能体应用的端侧部署。
+
+据悉，天玑 AI 开发套件3.0有四大特性，分别是支持LVM 模型可视化部署、新增 Low Bit 压缩工具包、新增eNPU开发工具包及新增天玑 AI Partner，端侧 LLM模型部署耗时节省可达 90%。
+
+本届大会上，MediaTek也介绍了Ray Tracing Pipeline（RTP）移动端光线追踪技术与合作成果，该方案可呈现游戏视野外的环境及物体反射。
+
+MediaTek 与腾讯《三角洲行动》游戏项目组携手合作预研新的 RTP 技术方案，未来将为玩家打造出更加身临其境的视觉体验。
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:48 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:57 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:16 - [严格落实直播打赏新规谋求治理实效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:05 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:11 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:55 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:56 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:00 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:16 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:52 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:00 - [时令水果批量上市 专家提示当心糖分超标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:00 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:56 - [主力资金，“盯上”这些股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:15 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:59 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:55 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:12 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:14 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:10 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:22 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 12:21 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:18 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:22 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:13 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.blog.kurohicncr.top/Article/details/14121.shtml)
-- 2026-06-29 12:03 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [人民之心｜“为官一任，造福一方”](http://www.blog.minike.top/Article/details/226065.shtml)
-- 2026-06-29 12:10 - [加拿大开普勒卫星集群开启在轨计算商业化探索](http://www.share.minike.top/Article/details/62624631.shtml)
-- 2026-06-29 11:56 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.blog.minike.top/Article/details/970807.shtml)
-- 2026-06-29 11:58 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](http://www.blog.kurohicncr.top/Article/details/471675.shtml)
-- 2026-06-29 12:12 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.share.kurohicncr.top/Article/details/5176699.shtml)
-- 2026-06-29 12:15 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](http://www.blog.kurohicncr.top/Article/details/153517933.shtml)
-- 2026-06-29 12:09 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.share.kurohicncr.top/Article/details/551898.shtml)
-- 2026-06-29 12:14 - [香港学子安徽行收获满满](http://www.blog.minike.top/Article/details/885079883.shtml)
-- 2026-06-29 11:59 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.share.kurohicncr.top/Article/details/10459618.shtml)
-- 2026-06-29 12:06 - [日韩股市集体低开 韩股跌超2%](http://www.share.minike.top/Article/details/920453913292.shtml)
-- 2026-06-29 12:05 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.blog.kurohicncr.top/Article/details/36149393.shtml)
-- 2026-06-29 12:08 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.blog.minike.top/Article/details/01272.shtml)
+- 2026-06-29 12:23 - [外交部：中美双方就两国元首年内互动安排保持着沟通](http://www.blog.kurohicncr.top/Article/details/6273098.shtml)
+- 2026-06-29 12:02 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](http://www.blog.minike.top/Article/details/59034.shtml)
+- 2026-06-29 12:20 - [相向而行，共同开启中美关系新篇章（钟声）](http://www.share.minike.top/Article/details/30106689.shtml)
+- 2026-06-29 12:16 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](http://www.share.kurohicncr.top/Article/details/572437.shtml)
+- 2026-06-29 12:23 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](http://www.share.kurohicncr.top/Article/details/37884240646.shtml)
+- 2026-06-29 12:22 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.blog.kurohicncr.top/Article/details/417565580.shtml)
+- 2026-06-29 12:16 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](http://www.share.kurohicncr.top/Article/details/3698656.shtml)
+- 2026-06-29 12:01 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](http://www.share.kurohicncr.top/Article/details/7308817.shtml)
+- 2026-06-29 12:03 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](http://www.blog.minike.top/Article/details/2809990220.shtml)
+- 2026-06-29 11:55 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.blog.kurohicncr.top/Article/details/583034092759.shtml)
+- 2026-06-29 12:00 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.blog.minike.top/Article/details/72734769.shtml)
+- 2026-06-29 12:07 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](http://www.blog.kurohicncr.top/Article/details/82345.shtml)
+- 2026-06-29 12:03 - [光大证券：整固蓄势 积极看多](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.share.minike.top/Article/details/025380.shtml)

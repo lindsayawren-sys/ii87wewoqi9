@@ -1,57 +1,59 @@
-# 2026年湖北省城市足球联赛开赛
+# 小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 16:19 来源：中国新闻网 4月12日晚，2026年湖北省城市足球联赛揭幕战在湖北省黄石市奥体中心开赛。在揭幕战中，主场作战的黄石队1：1战平荆州恒隆队。据规划，首届“楚超”由湖北省17个市州(直管市、林区)各组建一支代表队参赛，进行146场比赛，全部安排在周末进行。第一阶段常规赛实行主客场单循环，展开17轮136场对决。常规赛前8名晋级第二
+摩根大通发布研报称，将阿里巴巴-W（09988）2027及2028财年经调整每股盈利预测分别上调4%及3%，以反映云端利润率前景改善。该行将阿里H股目标价由195港元上调至200港元，阿里（BABA.US）美股目标价则由200美元上调至205美元，均维持“增持”评级。 小摩对阿里巴巴未来12个月结构性增长信心升级。阿里披露3月底止末财季云端外部收入增长加速至40%，模型即服务（
 
 ## 正文
 
-发布时间：2026年04月13日 16:19 来源：中国新闻网 4月12日晚，2026年湖北省城市足球联赛揭幕战在湖北省黄石市奥体中心开赛。
+摩根大通发布研报称，将阿里巴巴-W（09988）2027及2028财年经调整每股盈利预测分别上调4%及3%，以反映云端利润率前景改善。
 
-在揭幕战中，主场作战的黄石队1：1战平荆州恒隆队。
+该行将阿里H股目标价由195港元上调至200港元，阿里（BABA.US）美股目标价则由200美元上调至205美元，均维持“增持”评级。
 
-据规划，首届“楚超”由湖北省17个市州(直管市、林区)各组建一支代表队参赛，进行146场比赛，全部安排在周末进行。
+小摩对阿里巴巴未来12个月结构性增长信心升级。
 
-第一阶段常规赛实行主客场单循环，展开17轮136场对决。
+阿里披露3月底止末财季云端外部收入增长加速至40%，模型即服务（MaaS）的年度运行率（ARR）从超过80亿元人民币，有望在年底达到300亿元人民币。
 
-常规赛前8名晋级第二阶段淘汰赛，争夺年度冠军。
+此外，云端业务EBITA利润率指引将在未来一至两个季度从9%提升至双位数，确立阿里云作为中国最大的AI及云端特许经营商地位，但市场现时仍以经典电商公司对阿里定价，意味阿里云业务价值尚未被充份定价。
 
-(吴淘淘） 责任编辑：【周驰】
+该行指出，按分类加总估值法（SOTP）计算，阿里云的隐含价值远超目前合并股权中的定价。
+
+尽管市场仍存在路径风险，如客户管理收入（CMR）受抵减收入计划影响在四个季度内将面临约7个百分点的拖累，且资本回报信号尚未明确，但云端利润率的改善为短期主要催化剂。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:17 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:59 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:14 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:52 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:02 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:02 - [徐寅生：愿“乒乓外交”精神代代相传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:03 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:09 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:07 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:51 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:15 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:03 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:52 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:54 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:48 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:18 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:58 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:12 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:18 - [联播+｜读懂中国的特别窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:19 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:14 - [星网宇达：截至2026年4月20日公司股东人数为40184户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:02 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:21 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:11 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:21 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:20 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:08 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 12:08 - [文脉华章丨一个博物院就是一所大学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.blog.minike.top/Article/details/07402265892.shtml)
-- 2026-06-29 12:09 - [陕西渭南：华山迎壮丽日落景观](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](http://www.blog.kurohicncr.top/Article/details/820880002833.shtml)
-- 2026-06-29 12:12 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.share.minike.top/Article/details/800182.shtml)
-- 2026-06-29 11:51 - [永升服务于4月10日斥资37.65万港元回购20万股](http://www.blog.minike.top/Article/details/866769283.shtml)
-- 2026-06-29 12:04 - [全军后勤重点行业领域职业道德规范出台](http://www.blog.minike.top/Article/details/22006.shtml)
-- 2026-06-29 12:06 - [黎巴嫩称已同意周二举行停火谈判会议](http://www.blog.minike.top/Article/details/53818.shtml)
-- 2026-06-29 12:07 - [广东清远“五大百亿”农业产业全产业链产值已超461亿元](http://www.blog.minike.top/Article/details/4192937.shtml)
-- 2026-06-29 11:54 - [Palantir的代理型人工智能势头强劲](http://www.share.kurohicncr.top/Article/details/62598798100.shtml)
-- 2026-06-29 12:15 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](http://www.share.minike.top/Article/details/0584158938.shtml)
-- 2026-06-29 11:48 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.blog.minike.top/Article/details/893514.shtml)
-- 2026-06-29 11:48 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](http://www.share.minike.top/Article/details/11057.shtml)
-- 2026-06-29 12:06 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](http://www.share.kurohicncr.top/Article/details/51919.shtml)
-- 2026-06-29 11:48 - [国家疾控局发布通知推进重点虫媒传染病防控](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.share.kurohicncr.top/Article/details/93188.shtml)
+- 2026-06-29 12:21 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](http://www.share.minike.top/Article/details/0648762650.shtml)
+- 2026-06-29 12:14 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](http://www.blog.minike.top/Article/details/19935.shtml)
+- 2026-06-29 12:02 - [湖南省文化馆数字文旅体验空间开馆](http://www.blog.kurohicncr.top/Article/details/33301183.shtml)
+- 2026-06-29 12:20 - [Token越来越贵？别慌！算力网已在来的路上](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [印度与阿联酋将全面深化合作](http://www.blog.kurohicncr.top/Article/details/1645255.shtml)
+- 2026-06-29 12:16 - [蔚来李斌：换电从来不是失血点，而是超前投入期](http://www.share.kurohicncr.top/Article/details/18360945.shtml)
+- 2026-06-29 12:15 - [马祖摄影人在福建霞浦共赴光影之约](http://www.blog.minike.top/Article/details/659302656.shtml)
+- 2026-06-29 11:56 - [江苏沛县西瓜促农文旅融合 “甜蜜产业” 赋能乡村振兴](http://www.blog.kurohicncr.top/Article/details/9613213.shtml)
+- 2026-06-29 11:57 - [（乡村行·看振兴）湖北宜昌：科技助农“慧种田”](http://www.share.kurohicncr.top/Article/details/290993.shtml)
+- 2026-06-29 12:06 - [伊朗，突传大消息！刚刚，集体大跳水！](http://www.blog.minike.top/Article/details/238517942726.shtml)
+- 2026-06-29 12:23 - [国际足联为何服软了](http://www.share.kurohicncr.top/Article/details/825462.shtml)
+- 2026-06-29 12:06 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [广州银行，罚单接二连三](http://www.blog.minike.top/Article/details/80126857836.shtml)
+- 2026-06-29 12:07 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](http://www.share.minike.top/Article/details/270738185333.shtml)
+- 2026-06-29 11:56 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](https://github.com/lisacumin64-arch)

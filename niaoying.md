@@ -1,48 +1,57 @@
-# 摩根大通就停火风险提示油价走势
+# 英国国债大跌 投资者为伯纳姆挑战斯塔默做准备
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-摩根大通策略师许长泰表示，围绕美伊谈判的短期波动性可能使原油价格保持高位——若谈判破裂则接近100美元，若达成持久停火则可能下行至80美元左右。责任编辑：张俊 SF065
+英国国债下跌，此前曼彻斯特市长安迪·伯纳姆获得了一条可能挑战基尔·斯塔默英国首相职位的路径，这引发了市场对英国可能再次出现政治不稳定的担忧，而投资者担心这会带来更加宽松的财政政策。 对政治风险最为敏感的30年期英国国债收益率飙升20个基点至5.86%，创1998年以来最高水平。与此同时，全球范围内对高能源成本和通胀的担忧也推动了这一走势。伯纳姆宣布他打算竞选议会议员 —— 这是
 
 ## 正文
 
-摩根大通策略师许长泰表示，围绕美伊谈判的短期波动性可能使原油价格保持高位——若谈判破裂则接近100美元，若达成持久停火则可能下行至80美元左右。
+英国国债下跌，此前曼彻斯特市长安迪·伯纳姆获得了一条可能挑战基尔·斯塔默英国首相职位的路径，这引发了市场对英国可能再次出现政治不稳定的担忧，而投资者担心这会带来更加宽松的财政政策。
 
-责任编辑：张俊 SF065
+对政治风险最为敏感的30年期英国国债收益率飙升20个基点至5.86%，创1998年以来最高水平。
+
+与此同时，全球范围内对高能源成本和通胀的担忧也推动了这一走势。
+
+伯纳姆宣布他打算竞选议会议员 —— 这是挑战斯塔默所必需的前提条件 —— 使英镑兑美元势将录得自2024年以来最差的单周表现。
+
+尽管伯纳姆最终成为首相仍面临许多障碍，但英国债券交易员仍将这种可能性视为一种风险。
+
+他们担心，伯纳姆可能会增加公共支出，从而扩大英国国债的发行规模。
+
+虽然伯纳姆表示，他去年关于英国“受制于债券市场”的言论被断章取义，但这些言论仍然令投资者感到不安。
+
+此外，他还曾暗示，国防支出可能会被视为例外情况。
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:56 - [伊美第三轮会谈在伊斯兰堡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:54 - [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:06 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:17 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 11:53 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:52 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:48 - [伊朗武装部队称随时准备开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:00 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:59 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:14 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:10 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:17 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:07 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:19 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:03 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:59 - [002342，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:22 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:22 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:14 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:03 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:18 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:10 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:15 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:57 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [中国东方演艺集团将创排全新舞剧《山海经》](http://www.blog.minike.top/Article/details/58328113.shtml)
-- 2026-06-29 11:59 - [两艘空载油轮在霍尔木兹海峡临时掉头](http://www.share.minike.top/Article/details/182039735.shtml)
-- 2026-06-29 12:10 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](http://www.blog.minike.top/Article/details/310206.shtml)
-- 2026-06-29 12:15 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](http://www.blog.minike.top/Article/details/31305099.shtml)
-- 2026-06-29 12:00 - [非瘟以来两轮猪周期回顾](http://www.blog.kurohicncr.top/Article/details/26189274.shtml)
-- 2026-06-29 12:13 - [2026年湖北省城市足球联赛开赛](http://www.share.minike.top/Article/details/833042354.shtml)
-- 2026-06-29 12:03 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [新疆银行被罚30万元：信贷业务不审慎](http://www.blog.kurohicncr.top/Article/details/35215.shtml)
-- 2026-06-29 12:08 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](http://www.blog.minike.top/Article/details/6632186.shtml)
-- 2026-06-29 11:49 - [辽宁持续发力打造营商环境好口碑](http://www.blog.kurohicncr.top/Article/details/0002173351.shtml)
-- 2026-06-29 12:11 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](http://www.blog.kurohicncr.top/Article/details/60772.shtml)
-- 2026-06-29 12:10 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](http://www.blog.minike.top/Article/details/762967569016.shtml)
-- 2026-06-29 11:53 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](http://www.share.kurohicncr.top/Article/details/299915704968.shtml)
-- 2026-06-29 12:14 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](http://www.share.kurohicncr.top/Article/details/35868086537.shtml)
+- 2026-06-29 12:09 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.share.kurohicncr.top/Article/details/861225.shtml)
+- 2026-06-29 12:02 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](http://www.blog.minike.top/Article/details/5537319236.shtml)
+- 2026-06-29 12:15 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.blog.minike.top/Article/details/22114510077.shtml)
+- 2026-06-29 12:15 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.blog.kurohicncr.top/Article/details/56315404577.shtml)
+- 2026-06-29 12:23 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.blog.kurohicncr.top/Article/details/0016941.shtml)
+- 2026-06-29 12:09 - [总书记引领强国之路｜聚天下英才而用之](http://www.share.kurohicncr.top/Article/details/374688131061.shtml)
+- 2026-06-29 12:10 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.blog.minike.top/Article/details/172337.shtml)
+- 2026-06-29 11:57 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.blog.kurohicncr.top/Article/details/5094447500.shtml)
+- 2026-06-29 11:57 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.share.minike.top/Article/details/07276.shtml)
+- 2026-06-29 12:08 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.blog.minike.top/Article/details/8069442.shtml)
+- 2026-06-29 12:16 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.blog.kurohicncr.top/Article/details/515762237.shtml)
+- 2026-06-29 12:04 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.blog.minike.top/Article/details/4173281.shtml)

@@ -1,60 +1,59 @@
-# 海峡两岸各界人士在合肥祭拜刘铭传
+# 能源危机叠加日元贬值，日本实体经济正为中东战火埋单
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中国简牍宝库破圈揭秘丝路故事“千年药乡”陇西：种子上天入地享智能家居、机器保姆壮族绣球“赶潮”“三月三”成流量新宠中泰合作如何转化为惠及民众的切实福祉？中国各级部门全力推进生态环境法典落地见效2026北京半程马拉松收官 王文杰打破全国纪录夺冠美伊都在宣布胜利，真正被改写的却是霍尔木兹规则中东冲突为何陷入循环“魔咒”？中东战火搅乱全球体育产业美国和伊朗谈判，为何选在巴基斯坦专家解
+如果日常零食的包装褪去所有色彩，只剩单调黑白，你还愿意购买吗？ 别觉得这一假设夸张。当地时间5月12日，日本零食巨头卡乐比宣布，旗下薯片、虾条等14款主力产品将全面改用黑白包装，淡盐味橙蓝、海苔味黄绿等标志性彩色设计全部取消。 该公司表示，这一切的原因是难以采购原材料石脑油。 霍尔木兹海峡航运受阻后，全球能源供应链遭受重创。石脑油是石油炼制的核心中间品，彩色印刷油墨的溶剂、塑料
 
 ## 正文
 
-中国简牍宝库破圈揭秘丝路故事“千年药乡”陇西：种子上天入地享智能家居、机器保姆壮族绣球“赶潮”“三月三”成流量新宠中泰合作如何转化为惠及民众的切实福祉？
+如果日常零食的包装褪去所有色彩，只剩单调黑白，你还愿意购买吗？
 
-中国各级部门全力推进生态环境法典落地见效2026北京半程马拉松收官 王文杰打破全国纪录夺冠美伊都在宣布胜利，真正被改写的却是霍尔木兹规则中东冲突为何陷入循环“魔咒”？
+别觉得这一假设夸张。
 
-中东战火搅乱全球体育产业美国和伊朗谈判，为何选在巴基斯坦专家解析中国“保持制造业合理比重”背后深意从一场高规格座谈会看中国经济工作新动向手抖=衰老？
+当地时间5月12日，日本零食巨头卡乐比宣布，旗下薯片、虾条等14款主力产品将全面改用黑白包装，淡盐味橙蓝、海苔味黄绿等标志性彩色设计全部取消。
 
-这些信号，早发现能救命！
+该公司表示，这一切的原因是难以采购原材料石脑油。
 
-美伊今日开始谈判：谁来谈？
+霍尔木兹海峡航运受阻后，全球能源供应链遭受重创。
 
-谈什么？
+石脑油是石油炼制的核心中间品，彩色印刷油墨的溶剂、塑料包装原料均高度依赖它，此次航运受阻直接导致其采购困难、供应受限。
 
-谈崩了怎么办？
+据日本内阁府统计，日本约40%的石脑油依赖中东进口。
 
-中美“乒乓外交”在当下有何特殊意义？
+自战争爆发以来，石脑油的价格已上涨约66%。
 
 ## 相关推荐
 
-- 2026-06-29 11:59 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:08 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:09 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:51 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:01 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:07 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:17 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:54 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:02 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:15 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:16 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:06 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:10 - [广西三江：花映楼桥入画来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:07 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:20 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:10 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:07 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:04 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:13 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:13 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:20 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:13 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:01 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:16 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:21 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:09 - [广西南宁首批10个人工智能OPC创业社区集中开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:59 - [中方回应中美是否达成农业方面协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.share.kurohicncr.top/Article/details/689263697.shtml)
-- 2026-06-29 12:02 - [天津边检推多项便利举措 助力高水平对外开放](http://www.share.kurohicncr.top/Article/details/98058.shtml)
-- 2026-06-29 12:13 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.blog.minike.top/Article/details/544814.shtml)
-- 2026-06-29 11:57 - [北摩高科：拟每10股分红1.3元](http://www.share.minike.top/Article/details/000975037325.shtml)
-- 2026-06-29 11:52 - [全国无党派人士考察团在浙江开展年度重点考察调研](http://www.share.minike.top/Article/details/319846479.shtml)
-- 2026-06-29 12:16 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.share.kurohicncr.top/Article/details/45887916.shtml)
-- 2026-06-29 12:06 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.share.kurohicncr.top/Article/details/319040940.shtml)
-- 2026-06-29 12:02 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.share.minike.top/Article/details/316140893.shtml)
-- 2026-06-29 12:07 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](http://www.share.kurohicncr.top/Article/details/16555924561.shtml)
-- 2026-06-29 12:08 - [比亚迪：公司储能业务在全球市场持续发力](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](http://www.share.minike.top/Article/details/67162914.shtml)
-- 2026-06-29 11:57 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](http://www.share.minike.top/Article/details/241159.shtml)
-- 2026-06-29 11:48 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [以军空袭黎南部造成至少24人死亡](http://www.blog.kurohicncr.top/Article/details/092843.shtml)
-- 2026-06-29 11:54 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](http://www.share.kurohicncr.top/Article/details/8195345.shtml)
+- 2026-06-29 12:04 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.share.kurohicncr.top/Article/details/47638553.shtml)
+- 2026-06-29 12:23 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](http://www.share.minike.top/Article/details/86722028607.shtml)
+- 2026-06-29 12:20 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](http://www.blog.minike.top/Article/details/6881609.shtml)
+- 2026-06-29 11:54 - [CBA观察：我们需要一支怎样的山西男篮](http://www.share.minike.top/Article/details/54463773.shtml)
+- 2026-06-29 11:56 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:12 - [全国广电民生节目在渝交流创新经验](http://www.blog.minike.top/Article/details/52995.shtml)
+- 2026-06-29 12:01 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](http://www.share.kurohicncr.top/Article/details/30185451.shtml)
+- 2026-06-29 11:59 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](http://www.share.kurohicncr.top/Article/details/2727040.shtml)
+- 2026-06-29 12:01 - [助力“东北超”歌曲《绿茵逐梦》上线](http://www.share.kurohicncr.top/Article/details/103715180.shtml)
+- 2026-06-29 12:21 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](http://www.share.minike.top/Article/details/974167031.shtml)
+- 2026-06-29 12:03 - [广西首批村集体持有林票线上竞价交易](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](http://www.share.kurohicncr.top/Article/details/905401922900.shtml)

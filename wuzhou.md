@@ -1,55 +1,59 @@
-# 伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”
+# 一粒红芸豆改写边境乡镇产业轨迹
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-伊朗最高领袖军事顾问穆赫辛·雷扎伊12日表示，伊朗“不是一个能够被(社交媒体)帖文和幻想方案封锁的地方”。 雷扎伊在社交媒体上发文说，美国在霍尔木兹海峡遭受“历史性失败”，其海上封锁同样“注定失败”。他说，伊朗武装力量不会允许美国实施封锁，并拥有“尚未动用的强大筹码”应对此类威胁。 另据伊朗伊斯兰共和国广播电视台12日报道，伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼也警告说，美国和
+中新网乌兰察布5月15日电 题：一粒红芸豆改写边境乡镇产业轨迹 中新网记者 张林虎 5月的阳光洒在内蒙古自治区乌兰察布市化德县公腊胡洞乡的红芸豆田里，刚播下的种子正在沙砾土下积蓄力量。这片曾被当地人形容为“种一坡、收一车”的瘠薄旱地，如今已成为红芸豆特色种植区。 2025年，公腊胡洞乡2200亩红芸豆亩均净利润570元，精细化种植户亩产最高380斤，亩均毛收入超1500元。 公
 
 ## 正文
 
-伊朗最高领袖军事顾问穆赫辛·雷扎伊12日表示，伊朗“不是一个能够被(社交媒体)帖文和幻想方案封锁的地方”。
+中新网乌兰察布5月15日电 题：一粒红芸豆改写边境乡镇产业轨迹 中新网记者 张林虎 5月的阳光洒在内蒙古自治区乌兰察布市化德县公腊胡洞乡的红芸豆田里，刚播下的种子正在沙砾土下积蓄力量。
 
-雷扎伊在社交媒体上发文说，美国在霍尔木兹海峡遭受“历史性失败”，其海上封锁同样“注定失败”。
+这片曾被当地人形容为“种一坡、收一车”的瘠薄旱地，如今已成为红芸豆特色种植区。
 
-他说，伊朗武装力量不会允许美国实施封锁，并拥有“尚未动用的强大筹码”应对此类威胁。
+2025年，公腊胡洞乡2200亩红芸豆亩均净利润570元，精细化种植户亩产最高380斤，亩均毛收入超1500元。
 
-另据伊朗伊斯兰共和国广播电视台12日报道，伊朗伊斯兰革命卫队“圣城旅”指挥官卡尼也警告说，美国和以色列应当记得他们是如何两手空空地从也门、曼德海峡和红海仓皇逃窜的，这一次他们同样将毫无所获地离开这一地区。
+公腊胡洞乡地处北纬41度冷凉带，年降水不足300毫米，土地零散、沙砾较多，传统种植物小麦、莜麦的收益微薄，导致当地大量耕地被撂荒。
 
-美国总统特朗普12日早些时候在社交媒体发文称，美国海军将开始阻止任何船只进出霍尔木兹海峡。
+“以前老百姓总说这地‘天生不养人’，要推新产业，没人信、没人敢试。
 
-美军中央司令部同日说，其部队将于美国东部时间13日10时起对所有进出伊朗港口的船只实施封锁。
+”公腊胡洞乡党委书记于平说。
 
-来源：央视新闻客户端
+2024年，公腊胡洞乡经过调研发现，当地冷凉气候和沙砾土透气性好、病虫害少的特点，非常适合红芸豆的生长。
+
+为打消农户顾虑，乡里引导西水村种植大户付小军流转1000亩连片土地先行试种，并全程提供技术指导。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:12 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:48 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:15 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:48 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:07 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:16 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:51 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:11 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:49 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:10 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:01 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:59 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:57 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:08 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:12 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:17 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:10 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:02 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:20 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:54 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:05 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:23 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:55 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [5亿元科创基金100%投向中大成果转化](http://www.share.minike.top/Article/details/696606155.shtml)
-- 2026-06-29 12:03 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](http://www.share.minike.top/Article/details/48869959800.shtml)
-- 2026-06-29 12:01 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](http://www.share.kurohicncr.top/Article/details/3398075789.shtml)
-- 2026-06-29 11:58 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.share.kurohicncr.top/Article/details/67044374.shtml)
-- 2026-06-29 12:12 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](http://www.share.kurohicncr.top/Article/details/177864.shtml)
-- 2026-06-29 12:00 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.share.kurohicncr.top/Article/details/913643.shtml)
-- 2026-06-29 11:56 - [第十四届北京国际风筝节启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [张果彤:黄金中线二次探底概率较大](http://www.share.minike.top/Article/details/9723466005.shtml)
-- 2026-06-29 12:17 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](http://www.share.minike.top/Article/details/93397.shtml)
-- 2026-06-29 12:11 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](http://www.share.minike.top/Article/details/808406391081.shtml)
-- 2026-06-29 12:11 - [肉类食品巨头JBS罢工以加薪告终](http://www.blog.minike.top/Article/details/3368018.shtml)
-- 2026-06-29 12:03 - [天泓文创与长沙棠艺签订战略合作意向书](http://www.share.minike.top/Article/details/6674552.shtml)
-- 2026-06-29 12:06 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.blog.minike.top/Article/details/84486277961.shtml)
-- 2026-06-29 12:04 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.blog.minike.top/Article/details/0751591666.shtml)
+- 2026-06-29 12:08 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.blog.minike.top/Article/details/6641027.shtml)
+- 2026-06-29 12:16 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:03 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.kurohicncr.top/Article/details/212130445.shtml)
+- 2026-06-29 12:12 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.share.kurohicncr.top/Article/details/10900781.shtml)
+- 2026-06-29 12:06 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.blog.kurohicncr.top/Article/details/85006782.shtml)
+- 2026-06-29 12:03 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.share.kurohicncr.top/Article/details/749563.shtml)
+- 2026-06-29 12:00 - [土耳其理工名校掀起中国热](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.blog.kurohicncr.top/Article/details/38652942.shtml)
+- 2026-06-29 12:20 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.kurohicncr.top/Article/details/511437504.shtml)
+- 2026-06-29 11:56 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.minike.top/Article/details/222515640.shtml)
+- 2026-06-29 12:02 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](http://www.blog.minike.top/Article/details/75617737534.shtml)
+- 2026-06-29 12:18 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](http://www.blog.kurohicncr.top/Article/details/1200874.shtml)

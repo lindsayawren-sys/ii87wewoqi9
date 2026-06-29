@@ -1,55 +1,56 @@
-# 爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及
+# 美联储任命鲍威尔为临时主席 直至沃什宣誓就职
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，在智能电动汽车发展高层论坛2026期间，爱芯元智创始人、董事长仇肖莘与媒体对话。 对于现在国产芯片占比及无人驾驶的实现，仇肖莘表示：“中国智能驾驶芯片的占比肯定小于50%。但在新车的搭载率上，国产芯片快速上升，包括地平线、爱芯等在智能驾驶芯片的采用率在快速往上走。我随着中国车企出海，中国车企经过这几年的
+美联储理事会周五表示，已任命杰罗姆·鲍威尔担任临时主席，直至凯文·沃什宣誓就任美国央行新任主席。 沃什预计将很快由美国总统特朗普主持宣誓就职，但具体日期尚未公布。 鲍威尔担任美联储主席的八年任期已于周五正式届满。 美联储理事会成员米兰和鲍曼在一份联合声明中表示，他们不支持让鲍威尔继续担任主席的措施，因为该措施未规定其临时任职的具体期限。 尽管鲍威尔将卸任主席一职，但他表示，在确
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，在智能电动汽车发展高层论坛2026期间，爱芯元智创始人、董事长仇肖莘与媒体对话。
+美联储理事会周五表示，已任命杰罗姆·鲍威尔担任临时主席，直至凯文·沃什宣誓就任美国央行新任主席。
 
-对于现在国产芯片占比及无人驾驶的实现，仇肖莘表示：“中国智能驾驶芯片的占比肯定小于50%。
+沃什预计将很快由美国总统特朗普主持宣誓就职，但具体日期尚未公布。
 
-但在新车的搭载率上，国产芯片快速上升，包括地平线、爱芯等在智能驾驶芯片的采用率在快速往上走。
+鲍威尔担任美联储主席的八年任期已于周五正式届满。
 
-我随着中国车企出海，中国车企经过这几年的验证，也认为国内的芯片是足以满足欧洲各种强法规要求的，所以你会发现国内芯片的市占率在今后两三年之内会快速爬升，我觉得都会爬升到80%、90%的水平。
+美联储理事会成员米兰和鲍曼在一份联合声明中表示，他们不支持让鲍威尔继续担任主席的措施，因为该措施未规定其临时任职的具体期限。
 
-” 关于L3、L4智能驾驶，他也表示：“我觉得在三年之内应该会看到智能驾驶比较普及，因为现在智能驾驶的体验已经做得非常好了。
+尽管鲍威尔将卸任主席一职，但他表示，在确信特朗普政府已终止对其的刑事调查之前，他将继续留任美联储理事会成员。
 
-但是不是能达到真正无人驾驶的程度，可能还需要几年不断地再优化和演进一下，我觉得目标是可实现的，并不是像原来那么遥远。
-
-”责任编辑：郝欣煜
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 11:51 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:11 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:01 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:55 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:16 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:53 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:00 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:12 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:51 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:05 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:04 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:02 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:22 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:16 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:19 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:20 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:09 - [文脉华章丨一个博物院就是一所大学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:20 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:01 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:02 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:14 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:19 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:13 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:21 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:15 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [广东清远“五大百亿”农业产业全产业链产值已超461亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [Palantir的代理型人工智能势头强劲](http://www.share.kurohicncr.top/Article/details/6633413.shtml)
-- 2026-06-29 12:14 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.blog.minike.top/Article/details/011472098.shtml)
-- 2026-06-29 12:17 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](http://www.share.minike.top/Article/details/26204455.shtml)
-- 2026-06-29 12:04 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](http://www.share.minike.top/Article/details/211160.shtml)
-- 2026-06-29 12:14 - [国家疾控局发布通知推进重点虫媒传染病防控](http://www.blog.minike.top/Article/details/08757604.shtml)
-- 2026-06-29 11:51 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.share.minike.top/Article/details/580069288009.shtml)
-- 2026-06-29 12:14 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.blog.minike.top/Article/details/1844239790.shtml)
-- 2026-06-29 11:50 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.share.kurohicncr.top/Article/details/37886.shtml)
-- 2026-06-29 12:06 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.kurohicncr.top/Article/details/49149093.shtml)
-- 2026-06-29 11:48 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.blog.kurohicncr.top/Article/details/5993853773.shtml)
-- 2026-06-29 12:05 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.minike.top/Article/details/819728248.shtml)
-- 2026-06-29 12:04 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.blog.minike.top/Article/details/274562.shtml)
+- 2026-06-29 12:23 - [江苏沛县西瓜促农文旅融合 “甜蜜产业” 赋能乡村振兴](http://www.share.kurohicncr.top/Article/details/6310979509.shtml)
+- 2026-06-29 11:56 - [（乡村行·看振兴）湖北宜昌：科技助农“慧种田”](http://www.share.kurohicncr.top/Article/details/7089667.shtml)
+- 2026-06-29 12:15 - [伊朗，突传大消息！刚刚，集体大跳水！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [国际足联为何服软了](http://www.blog.kurohicncr.top/Article/details/10232838.shtml)
+- 2026-06-29 12:11 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](http://www.blog.kurohicncr.top/Article/details/900714.shtml)
+- 2026-06-29 12:08 - [广州银行，罚单接二连三](http://www.share.minike.top/Article/details/600709.shtml)
+- 2026-06-29 11:57 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:10 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](http://www.share.kurohicncr.top/Article/details/1785689111.shtml)
+- 2026-06-29 12:03 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [北方炎热持续升级南方强降雨频发](http://www.share.minike.top/Article/details/648166.shtml)
+- 2026-06-29 12:08 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](http://www.share.minike.top/Article/details/96219.shtml)
+- 2026-06-29 11:56 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.blog.kurohicncr.top/Article/details/704436.shtml)
+- 2026-06-29 12:00 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.blog.kurohicncr.top/Article/details/53891442.shtml)
+- 2026-06-29 11:58 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.blog.kurohicncr.top/Article/details/928710585530.shtml)

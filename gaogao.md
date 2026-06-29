@@ -1,56 +1,58 @@
-# 黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力
+# 市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。黑芝麻智能创始人兼CEO单记章表示，前几年AI快速发展，特别是语言模型发展迅猛，但最近一两年物理AI正在向我们走来，甚至世界模型已经应用在智能驾驶领域。 他表示，未来的智能驾驶，VLA加上世界
+记者今天(15日)从市场监管总局发布会获悉，2026年产品质量国家监督抽查计划已制定发布。今年将对电子电器、建筑和装饰装修材料、日用及纺织品、食品相关产品等8大类173种重点产品开展监督抽查，抽查总批次将超过1.6万批次，同比增加8个百分点。1 坚持问题导向，着重抽查以往不合格率高的产品。 市场监管总局对往年抽查结果深入研究分析，聚焦重点行业、重点区域、重点问题，提高以往抽查不
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+记者今天(15日)从市场监管总局发布会获悉，2026年产品质量国家监督抽查计划已制定发布。
 
-黑芝麻智能创始人兼CEO单记章表示，前几年AI快速发展，特别是语言模型发展迅猛，但最近一两年物理AI正在向我们走来，甚至世界模型已经应用在智能驾驶领域。
+今年将对电子电器、建筑和装饰装修材料、日用及纺织品、食品相关产品等8大类173种重点产品开展监督抽查，抽查总批次将超过1.6万批次，同比增加8个百分点。
 
-他表示，未来的智能驾驶，VLA加上世界模型可能是一个非常好的解决方案，尤其是对于高阶智能驾驶。
+1 坚持问题导向，着重抽查以往不合格率高的产品。
 
-他谈到，当时阿尔法go、阿尔法Zero这类AI在围棋领域打败了人类，而VLA加世界模型，或许会超越人类的驾驶能力。
+市场监管总局对往年抽查结果深入研究分析，聚焦重点行业、重点区域、重点问题，提高以往抽查不合格率较高、舆情反映强烈、存在质量安全风险产品的抽查比例。
 
-VLA和世界模型相结合，我们不仅能看到过去几秒钟的驾驶历史，从而选择下一步操作，世界模型还能推演未来五到十秒钟各个目标、各个智能体的交互情况，这样可以大幅提升智能驾驶的能力和水平，所以我们认为在这种技术框架下，有机会超越人类的驾驶能力。
+例如，电动汽车充电桩、防爆电器等2025年抽查不合格率20%以上的32种产品，均纳入了今年抽查计划。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+同时，注重聚焦重点安全问题，今年抽查的173种产品中，直接涉及安全检测项目的有166种，占比达96%。
 
-责任编辑：李思阳
+2 聚焦重点领域，全面加强网售领域产品抽查。
+
+2025年，市场监管总局在网售领域对95种产品开展国家监督抽查7418批次，覆盖拼多多、淘宝、天猫、京东等32个电商平台，发现1415批次产品不合格，抽查不合格率为19.1%，较2024年下降4.4个百分点，但仍比2025年生产领域抽查不合格率高出12.2个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 11:58 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:10 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:50 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:10 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:08 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:15 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:17 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:00 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:10 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:58 - [人民之心｜“为官一任，造福一方”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:03 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:00 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:11 - [特朗普说“伊斯兰国”二号头目被“清除”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:14 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:01 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:05 - [芭蕾舞演员、医学专家带民众走出减重“误区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:02 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:15 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 12:11 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:04 - [外交部：中美双方就两国元首年内互动安排保持着沟通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:16 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:56 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:10 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:08 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [尼泊尔民众拉战车迎接尼历新年](http://www.blog.kurohicncr.top/Article/details/8984524186.shtml)
-- 2026-06-29 11:53 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.share.kurohicncr.top/Article/details/62238752573.shtml)
-- 2026-06-29 11:57 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.blog.minike.top/Article/details/143900.shtml)
-- 2026-06-29 11:48 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.share.kurohicncr.top/Article/details/3077471011.shtml)
-- 2026-06-29 12:08 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.minike.top/Article/details/185375438472.shtml)
-- 2026-06-29 12:00 - [伊朗武装部队称随时准备开火](http://www.blog.kurohicncr.top/Article/details/624404.shtml)
-- 2026-06-29 11:58 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.kurohicncr.top/Article/details/227342.shtml)
-- 2026-06-29 12:09 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.share.kurohicncr.top/Article/details/70923674.shtml)
-- 2026-06-29 12:07 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.minike.top/Article/details/56431380.shtml)
-- 2026-06-29 12:13 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.minike.top/Article/details/804766.shtml)
-- 2026-06-29 12:01 - [光大期货：4月13日软商品日报](http://www.blog.minike.top/Article/details/35034312.shtml)
-- 2026-06-29 11:55 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.share.minike.top/Article/details/99230.shtml)
-- 2026-06-29 12:17 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.share.kurohicncr.top/Article/details/31408076905.shtml)
-- 2026-06-29 12:14 - [天津边检推多项便利举措 助力高水平对外开放](http://www.blog.minike.top/Article/details/24740624494.shtml)
+- 2026-06-29 11:57 - [002342，被证监会立案！](http://www.blog.kurohicncr.top/Article/details/6144236217.shtml)
+- 2026-06-29 12:18 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.blog.minike.top/Article/details/49634.shtml)
+- 2026-06-29 12:03 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](http://www.share.minike.top/Article/details/1171776.shtml)
+- 2026-06-29 12:12 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](http://www.blog.kurohicncr.top/Article/details/7090351.shtml)
+- 2026-06-29 11:57 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](http://www.share.minike.top/Article/details/69598392722.shtml)
+- 2026-06-29 12:19 - [浙江省欧美同学会金融委员会举行座谈交流活动](http://www.share.kurohicncr.top/Article/details/96343605838.shtml)
+- 2026-06-29 12:20 - [特朗普结束访华回国途中，与高市早苗通电话](http://www.blog.minike.top/Article/details/01172898.shtml)
+- 2026-06-29 11:54 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](http://www.share.minike.top/Article/details/581514767.shtml)
+- 2026-06-29 11:59 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](http://www.blog.kurohicncr.top/Article/details/3307230381.shtml)
+- 2026-06-29 12:07 - [尾盘：国债收益率大涨 美股继续下滑](http://www.blog.minike.top/Article/details/870039178.shtml)
+- 2026-06-29 12:06 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](http://www.share.minike.top/Article/details/8262147.shtml)
+- 2026-06-29 12:18 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](http://www.share.minike.top/Article/details/8585865.shtml)
+- 2026-06-29 12:22 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](http://www.blog.minike.top/Article/details/53131269.shtml)
+- 2026-06-29 11:54 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.share.kurohicncr.top/Article/details/39221016.shtml)
+- 2026-06-29 12:04 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](http://www.blog.minike.top/Article/details/12118.shtml)

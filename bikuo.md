@@ -1,56 +1,57 @@
-# 昆明海关涉案财物普通仓库租赁服务项目更正公告
+# “算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-一、项目基本情况 原公告的采购项目编号：HCZB03202603009 原公告的采购项目名称：昆明海关涉案财物普通仓库租赁服务项目 首次公告日期：2026年04月02日二、更正信息 更正事项：采购公告 更正内容： 1.原公告“三、获取招标文件1.时间：2026年4月3日至2026年4月9日，每天上午08:30至12:00，下午13:30至17:30(北京时间，法定节假日除外)，
+“Token工厂”这一发端于英伟达GTC2026大会的前沿概念，正以惊人速度在中国从理论走向大规模商业落地。 5月17日，中国电信在全国层面推出系列试商用Token套餐，向开发者及中小微企业客户、个人及家庭客户、Token生态合作伙伴，提供差异化套餐服务。个人及家庭月费9.9元/1000万Tokens起，开发者及中小微企业月费39.9元/1500万Tokens起。 此前，上海电
 
 ## 正文
 
-一、项目基本情况 原公告的采购项目编号：HCZB03202603009 原公告的采购项目名称：昆明海关涉案财物普通仓库租赁服务项目 首次公告日期：2026年04月02日二、更正信息 更正事项：采购公告 更正内容： 1.原公告“三、获取招标文件1.时间：2026年4月3日至2026年4月9日，每天上午08:30至12:00，下午13:30至17:30(北京时间，法定节假日除外)，逾期的不予受理。
+“Token工厂”这一发端于英伟达GTC2026大会的前沿概念，正以惊人速度在中国从理论走向大规模商业落地。
 
-”变更为“三、获取招标文件1.时间：2026年4月3日至2026年4月10日，每天上午08:30至12:00，下午13:30至17:30(北京时间，法定节假日除外)，逾期的不予受理。
+5月17日，中国电信在全国层面推出系列试商用Token套餐，向开发者及中小微企业客户、个人及家庭客户、Token生态合作伙伴，提供差异化套餐服务。
 
-” 2.递交投标文件的截止时间及开标时间变更为：2026年4月27日09时30分(北京时间)。
+个人及家庭月费9.9元/1000万Tokens起，开发者及中小微企业月费39.9元/1500万Tokens起。
 
-3.其余内容不变。
+此前，上海电信已在当地推出Token套餐体系，成为上海首个发布Token套餐的运营商。
 
-更正日期：2026年04月09日 三、其他补充事宜 无 四、凡对本次公告内容提出询问，请按以下方式联系。
+而就在两天前，国内AI算力龙头企业弘信电子（300657.SZ）联手无锡高新区打造的江苏省内首个华为昇腾384超节点算力集群，签约落户无锡。
 
-1.采购人信息 名 称：中华人民共和国昆明海关 地址：云南省昆明市北京路618号 联系方式：张老师 0871-63016344 2.采购代理机构信息 名 称：昆明华辰招标代理有限公司 地 址：昆明市北京路900号颐高数码中心A座15楼 联系方式：陈楚虹、何定建、杨永婧 0871-64875672、0871-64885092 3.项目联系方式 项目联系人：陈楚虹、何定建、杨永婧 电 话：0871-64875672、0871-64885092 日期：2026年4月9日
+与此同时，以华为超节点算力集群为首期基础设施，弘信电子将在无锡建立一座大规模“Token工厂”。
+
+这将成为规模化、高性能“国芯国模”算力集群新样板。
+
+更早之前，中国电信宁夏分公司2026年“Token工厂”生成能力服务集中采购项目标包一已公布中标候选人，整体项目预估规模达164.51亿元（不含税），含税规模174.38亿元。
 
 ## 相关推荐
 
-- 2026-06-29 12:03 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:14 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:50 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:54 - [日经指数下跌0.4% 受科技股和电子股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:06 - [天津边检推多项便利举措 助力高水平对外开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:06 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:55 - [北摩高科：拟每10股分红1.3元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:50 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:15 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:02 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:15 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:59 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:02 - [比亚迪：公司储能业务在全球市场持续发力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:01 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:21 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:00 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:17 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:07 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:17 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:22 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:11 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:13 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:16 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:19 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:23 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [英国监管机构紧急评估Anthropic最新AI模型的风险](http://www.share.minike.top/Article/details/34772821479.shtml)
-- 2026-06-29 12:06 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](http://www.blog.minike.top/Article/details/483900260875.shtml)
-- 2026-06-29 11:58 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](http://www.share.minike.top/Article/details/0689392150.shtml)
-- 2026-06-29 12:14 - [徐寅生：愿“乒乓外交”精神代代相传](http://www.blog.kurohicncr.top/Article/details/18879980996.shtml)
-- 2026-06-29 12:00 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](http://www.blog.minike.top/Article/details/763060215846.shtml)
-- 2026-06-29 11:57 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](http://www.blog.kurohicncr.top/Article/details/62155727.shtml)
-- 2026-06-29 12:01 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](http://www.blog.minike.top/Article/details/64643174.shtml)
-- 2026-06-29 12:06 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](http://www.share.kurohicncr.top/Article/details/5579226.shtml)
-- 2026-06-29 12:08 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](http://www.share.minike.top/Article/details/09785134.shtml)
-- 2026-06-29 12:15 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](http://www.blog.kurohicncr.top/Article/details/437023518.shtml)
-- 2026-06-29 11:58 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](http://www.share.minike.top/Article/details/20127.shtml)
-- 2026-06-29 12:15 - [贝壳-W于4月9日斥资700万美元回购133.6万股](http://www.blog.kurohicncr.top/Article/details/42133380237.shtml)
+- 2026-06-29 12:04 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.blog.minike.top/Article/details/67870889.shtml)
+- 2026-06-29 12:10 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [联播+｜读懂中国的特别窗口](http://www.blog.kurohicncr.top/Article/details/297801030.shtml)
+- 2026-06-29 12:08 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.share.kurohicncr.top/Article/details/7972658.shtml)
+- 2026-06-29 12:22 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](http://www.blog.kurohicncr.top/Article/details/27599610786.shtml)
+- 2026-06-29 12:14 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](http://www.blog.kurohicncr.top/Article/details/931868.shtml)
+- 2026-06-29 12:17 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.share.minike.top/Article/details/135258858.shtml)
+- 2026-06-29 12:20 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](http://www.share.minike.top/Article/details/960046749396.shtml)
+- 2026-06-29 12:19 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](http://www.blog.kurohicncr.top/Article/details/73066.shtml)
+- 2026-06-29 12:15 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.share.kurohicncr.top/Article/details/9037042851.shtml)
+- 2026-06-29 12:19 - [文脉华章丨一个博物院就是一所大学校](http://www.share.kurohicncr.top/Article/details/19917.shtml)
+- 2026-06-29 11:56 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](http://www.share.kurohicncr.top/Article/details/10386.shtml)

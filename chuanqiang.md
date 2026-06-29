@@ -1,58 +1,57 @@
-# *ST万方，停牌！拟终止上市！
+# 债券承销违规！国都证券又被点名，一项目负责人被禁业1年
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 4月13日晚间，*ST万方（维权）（000638）披露公告称，公司收到深交所下发的《终止上市事先告知书》。公司股票将自4月14日起停牌。 公告显示，截至4月13日，*ST万方已连续二十个交易日收盘总市值均低于5亿元，已触及终止上市的情形。根据《股票上市规则》第9.2.1条规定，若公司股票连续
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！因在债券承销个别项目中未勤勉尽责，国都证券又被监管点名。 5月15日，北京证监局集中披露了五份行政监管措施决定书。经查，国都证券股份有限公司（下称“国都证券”，870488.NQ）在公司债券承销个别项目中，存在未审慎核查发行人主要客户变化情况及相关销售收入真
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：资本秘闻 4月13日晚间，*ST万方（维权）（000638）披露公告称，公司收到深交所下发的《终止上市事先告知书》。
+因在债券承销个别项目中未勤勉尽责，国都证券又被监管点名。
 
-公司股票将自4月14日起停牌。
+5月15日，北京证监局集中披露了五份行政监管措施决定书。
 
-公告显示，截至4月13日，*ST万方已连续二十个交易日收盘总市值均低于5亿元，已触及终止上市的情形。
+经查，国都证券股份有限公司（下称“国都证券”，870488.NQ）在公司债券承销个别项目中，存在未审慎核查发行人主要客户变化情况及相关销售收入真实性、应收账款和存货涉及的相关工程项目真实性等问题。
 
-根据《股票上市规则》第9.2.1条规定，若公司股票连续二十个交易日收盘总市值均低于5亿元，公司股票将被深交所终止上市交易。
+北京证监局指出，上述行为违反了《公司债券发行与交易管理办法》相关规定，决定对国都证券采取监管谈话的行政监管措施，并要求公司主要负责人按指定日期携带有效身份证件到北京证监局接受监管谈话。
 
-因触及交易类强制退市情形而终止上市的股票不进入退市整理期。
+同日，被北京证监局点名的还有国都证券4名项目相关人员。
 
-责任编辑：杨红卜
+其中，项目负责人被禁业1年，3名项目组成员均被采取出具警示函的行政监管措施。
+
+具体而言，因上述违规行为，北京证监局认定项目负责人扈海天为不适当人选，自行政监管措施决定作出之日起1年内不得担任证券公司债券承销业务相关职务或实际履行上述职务。
 
 ## 相关推荐
 
-- 2026-06-29 11:54 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:06 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:51 - [伊美第三轮会谈在伊斯兰堡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:57 - [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:56 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:54 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:03 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:01 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:57 - [伊朗武装部队称随时准备开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:01 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:14 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:16 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:07 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:12 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:17 - [中国大陆学者首获英国皇家经济学会终身院士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:13 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:11 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:19 - [002342，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:55 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:20 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:14 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:57 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:15 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:05 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:01 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:17 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](http://www.blog.kurohicncr.top/Article/details/936274964282.shtml)
-- 2026-06-29 12:14 - [中国东方演艺集团将创排全新舞剧《山海经》](http://www.blog.kurohicncr.top/Article/details/540867734668.shtml)
-- 2026-06-29 12:07 - [两艘空载油轮在霍尔木兹海峡临时掉头](http://www.share.kurohicncr.top/Article/details/737196033092.shtml)
-- 2026-06-29 12:07 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [非瘟以来两轮猪周期回顾](http://www.share.minike.top/Article/details/336415.shtml)
-- 2026-06-29 12:15 - [2026年湖北省城市足球联赛开赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [一季度中国铁路固定资产投资同比增长5.1%](http://www.share.minike.top/Article/details/39012539064.shtml)
-- 2026-06-29 11:51 - [新疆银行被罚30万元：信贷业务不审慎](http://www.share.minike.top/Article/details/459206095.shtml)
-- 2026-06-29 12:13 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](http://www.share.kurohicncr.top/Article/details/95308.shtml)
-- 2026-06-29 12:13 - [辽宁持续发力打造营商环境好口碑](http://www.share.kurohicncr.top/Article/details/70761263.shtml)
-- 2026-06-29 11:53 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](http://www.share.kurohicncr.top/Article/details/6652660130.shtml)
-- 2026-06-29 11:50 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](http://www.share.kurohicncr.top/Article/details/194705.shtml)
-- 2026-06-29 12:01 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [英国监管机构紧急评估Anthropic最新AI模型的风险](http://www.blog.kurohicncr.top/Article/details/5201319202.shtml)
+- 2026-06-29 12:15 - [天润工业：公司与银轮股份没有业务往来](http://www.share.kurohicncr.top/Article/details/739179289.shtml)
+- 2026-06-29 12:12 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](http://www.share.kurohicncr.top/Article/details/200479943925.shtml)
+- 2026-06-29 11:54 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.blog.kurohicncr.top/Article/details/5753466.shtml)
+- 2026-06-29 12:22 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](http://www.blog.kurohicncr.top/Article/details/444544.shtml)
+- 2026-06-29 12:23 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.blog.minike.top/Article/details/4469154013.shtml)
+- 2026-06-29 12:08 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.share.minike.top/Article/details/867073605.shtml)
+- 2026-06-29 12:23 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.share.kurohicncr.top/Article/details/680260397.shtml)
+- 2026-06-29 11:55 - [总书记引领强国之路｜聚天下英才而用之](http://www.share.kurohicncr.top/Article/details/542466203635.shtml)
+- 2026-06-29 12:07 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](http://www.blog.minike.top/Article/details/0332281.shtml)
+- 2026-06-29 12:13 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.blog.kurohicncr.top/Article/details/680904.shtml)
+- 2026-06-29 12:21 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.share.kurohicncr.top/Article/details/81939650.shtml)
+- 2026-06-29 12:19 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.share.kurohicncr.top/Article/details/96443749.shtml)
+- 2026-06-29 11:58 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.share.minike.top/Article/details/204858716885.shtml)
+- 2026-06-29 12:15 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.share.minike.top/Article/details/0006780.shtml)
+- 2026-06-29 12:13 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lisacumin64-arch)

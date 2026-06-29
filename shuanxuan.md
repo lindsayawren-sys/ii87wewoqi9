@@ -1,59 +1,61 @@
-# 百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域
+# NG Energy一季度营收激增48%，产量创新高并发现新气藏
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 百度地图事业部副总经理刘增刚谈到，近期，很多主机厂推出了中国版的“智驾+座舱”融合方案，未来的AI汽车将发展成为全能的出行伙伴，成为一个超级AI智能体。 他指出，这个超级AI智能体具备三个核
+核心财务数据 NG Energy International Corp．公布2026年第一季度财报。公司天然气及液化天然气销售额达950万美元，同比增长48%，主要受益于产量提升和稳定的销售价格。综合实现天然气价格为8.50美元/千立方英尺，高于去年同期的8.28美元/千立方英尺。 产量创纪录增长 第一季度平均日净产量达12，413千立方英尺/天，同比增长显著。其中，Maria
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+核心财务数据 NG Energy International Corp．公布2026年第一季度财报。
 
-百度地图事业部副总经理刘增刚谈到，近期，很多主机厂推出了中国版的“智驾+座舱”融合方案，未来的AI汽车将发展成为全能的出行伙伴，成为一个超级AI智能体。
+公司天然气及液化天然气销售额达950万美元，同比增长48%，主要受益于产量提升和稳定的销售价格。
 
-他指出，这个超级AI智能体具备三个核心角色：第一，是经验丰富、能应对各种复杂路况的“老司机”；第二，是能打通车控与服务、处理各类复杂任务的贴心AI助理；第三，是能想用户所想、共情互动，提供情绪价值的AI搭子。
+综合实现天然气价格为8.50美元/千立方英尺，高于去年同期的8.28美元/千立方英尺。
 
-他谈到，端到端AI语音量产之后，我们统计发现，语音伴聊的交互次数增长了13倍；同时，手机端春节期间上线的AI搭子功能，日活用户增长达到了54倍。
+产量创纪录增长 第一季度平均日净产量达12，413千立方英尺/天，同比增长显著。
 
-此外，AI语音的交互场景也发生了显著变化，不再局限于导航和车控，闲聊已经成为最高频的应用领域。
+其中，Maria Conchita区块贡献8，227千立方英尺/天，Sinu-9区块贡献4，186千立方英尺/天。
 
-“这表明，当前用户迫切需要情绪价值，与AI交互的欲望非常强烈，我们判断，AI陪伴式出行将成为越来越多用户的出行习惯。
+资产负债表转型与流动性 公司于2026年1月完成与Maurel & Prom及Sinu-9少数股东的系列交易，获得总计1.5亿美元现金对价，大幅改善资产负债表。
 
-”他说。
+截至季末，公司持有现金1195万美元，另有6110万美元应收款项，其中3110万美元已于季末后收到，剩余3000万美元将于2026年6月和7月分两期等额支付。
 
-谈到自动驾驶领域，他表示，自动驾驶呈现出三个明显的发展趋势：第一，加速普及，大家提到的L2+渗透率去年已经超过三成，部分车型已经开始量产城市NOA；第二，体验升级，用户不再满足于局部场景的使用，而是期待“车位到车位”的全程智能体验；第三，座舱与智驾一体的竞争加剧。
+Macquarie债务余额为2300万美元。
 
 ## 相关推荐
 
-- 2026-06-29 12:12 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:14 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:07 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:14 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:00 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:55 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:10 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:07 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:48 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:02 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:55 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:16 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:13 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:54 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:08 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:17 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:12 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:15 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:00 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:14 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:00 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:15 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:17 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:13 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:08 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:01 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:56 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:56 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:17 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.minike.top/Article/details/08208887.shtml)
-- 2026-06-29 12:15 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](http://www.blog.minike.top/Article/details/76024232120.shtml)
-- 2026-06-29 12:17 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.share.kurohicncr.top/Article/details/66645771.shtml)
-- 2026-06-29 12:07 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.minike.top/Article/details/476154881.shtml)
-- 2026-06-29 12:16 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.share.minike.top/Article/details/2958085.shtml)
-- 2026-06-29 12:05 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.kurohicncr.top/Article/details/216258492.shtml)
-- 2026-06-29 12:05 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.share.minike.top/Article/details/1940872.shtml)
-- 2026-06-29 12:04 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.blog.minike.top/Article/details/95393637.shtml)
-- 2026-06-29 11:50 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.blog.minike.top/Article/details/812062645557.shtml)
-- 2026-06-29 12:05 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.minike.top/Article/details/69742.shtml)
-- 2026-06-29 11:59 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.minike.top/Article/details/2212783846.shtml)
-- 2026-06-29 12:00 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](http://www.share.minike.top/Article/details/445770748.shtml)
+- 2026-06-29 11:59 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](http://www.blog.minike.top/Article/details/810739779370.shtml)
+- 2026-06-29 12:15 - [北方炎热持续升级南方强降雨频发](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](http://www.share.minike.top/Article/details/887815778.shtml)
+- 2026-06-29 12:07 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.blog.kurohicncr.top/Article/details/0923087700.shtml)
+- 2026-06-29 12:13 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.share.minike.top/Article/details/86144092634.shtml)
+- 2026-06-29 11:55 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.blog.kurohicncr.top/Article/details/00221.shtml)
+- 2026-06-29 12:23 - [长岛铁路工人或于今夜举行罢工](http://www.blog.kurohicncr.top/Article/details/4054453.shtml)
+- 2026-06-29 11:58 - [688549突发利好，股价短期已翻倍](http://www.blog.kurohicncr.top/Article/details/621783.shtml)
+- 2026-06-29 12:08 - [交响组曲《想你——永远的焦裕禄》在兰考上演](http://www.share.minike.top/Article/details/70009154.shtml)
+- 2026-06-29 12:09 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](http://www.share.minike.top/Article/details/7830233799.shtml)
+- 2026-06-29 11:55 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [吉林打造长白山环山骑行品牌](http://www.share.kurohicncr.top/Article/details/487763612.shtml)

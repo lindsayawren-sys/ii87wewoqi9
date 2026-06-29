@@ -1,59 +1,45 @@
-# 禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%
+# 世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 禾赛科技高级副总裁张伟表示，禾赛科技是车载激光雷达行业最早提出芯片化路线的公司。他介绍，截止到今天，到2025年底，自研芯片累计交付已经超过2亿颗。“大家都说行业比较卷，但我们认为，所有的“
+在刚刚结束的2026世界超级摩托车锦标赛(WSBK)捷克站WorldSSP组别比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯位列超级杆位赛第三名。
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
-
-禾赛科技高级副总裁张伟表示，禾赛科技是车载激光雷达行业最早提出芯片化路线的公司。
-
-他介绍，截止到今天，到2025年底，自研芯片累计交付已经超过2亿颗。
-
-“大家都说行业比较卷，但我们认为，所有的“卷”都是行业竞争力的不断迭代。
-
-我们仅用了短短的五六年时间，就完成了四代芯片化产品的迭代。
-
-截止今天，我们单AT128产品的出货量已经超过100万颗，目前最新一代的ATX产品出货量也将近100万颗，累计出口量已超过200万颗。
-
-”他说。
-
-他谈到，2017年，我们手工组装一台激光雷达需要整整一天时间，而到了今天，只需要10秒。
+在刚刚结束的2026世界超级摩托车锦标赛(WSBK)捷克站WorldSSP组别比赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯位列超级杆位赛第三名。
 
 ## 相关推荐
 
-- 2026-06-29 11:50 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:52 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:56 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:07 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:01 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:52 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:54 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:59 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:15 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:12 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:52 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:15 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:11 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:01 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:20 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:08 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:11 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:20 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:06 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:17 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:02 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:00 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:21 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:22 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:19 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:17 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](http://www.blog.minike.top/Article/details/9726647915.shtml)
-- 2026-06-29 11:51 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](http://www.share.kurohicncr.top/Article/details/0867598.shtml)
-- 2026-06-29 11:48 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.blog.minike.top/Article/details/0047107.shtml)
-- 2026-06-29 12:17 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.blog.minike.top/Article/details/3858225.shtml)
-- 2026-06-29 11:50 - [香港学子安徽行收获满满](http://www.blog.kurohicncr.top/Article/details/8199241.shtml)
-- 2026-06-29 12:14 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](http://www.share.kurohicncr.top/Article/details/02624540.shtml)
-- 2026-06-29 11:48 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [日韩股市集体低开 韩股跌超2%](http://www.blog.kurohicncr.top/Article/details/45672.shtml)
-- 2026-06-29 12:16 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.blog.kurohicncr.top/Article/details/3056724512.shtml)
-- 2026-06-29 12:10 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.kurohicncr.top/Article/details/50594890.shtml)
-- 2026-06-29 12:11 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.blog.kurohicncr.top/Article/details/730205085566.shtml)
-- 2026-06-29 12:09 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](http://www.blog.minike.top/Article/details/7390402.shtml)
-- 2026-06-29 12:11 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.kurohicncr.top/Article/details/60247006941.shtml)
-- 2026-06-29 12:11 - [广西三江：花映楼桥入画来](http://www.blog.minike.top/Article/details/1272988509.shtml)
+- 2026-06-29 11:58 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](http://www.share.minike.top/Article/details/0053924030.shtml)
+- 2026-06-29 12:12 - [日本央行警示：投资基金活动暗藏金融体系风险](http://www.share.kurohicncr.top/Article/details/7289224.shtml)
+- 2026-06-29 12:00 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](http://www.share.minike.top/Article/details/591606.shtml)
+- 2026-06-29 12:08 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](http://www.share.kurohicncr.top/Article/details/4593872732.shtml)
+- 2026-06-29 11:58 - [高盛：中国移动目标价升至94港元 维持“中性”评级](http://www.blog.kurohicncr.top/Article/details/091511.shtml)
+- 2026-06-29 11:58 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.share.kurohicncr.top/Article/details/2488083424.shtml)
+- 2026-06-29 11:54 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](http://www.blog.kurohicncr.top/Article/details/242839436024.shtml)
+- 2026-06-29 12:12 - [光大证券：整固蓄势 积极看多](http://www.blog.kurohicncr.top/Article/details/03540053826.shtml)
+- 2026-06-29 12:08 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](http://www.share.kurohicncr.top/Article/details/11891137363.shtml)
+- 2026-06-29 12:08 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.minike.top/Article/details/1767032342.shtml)
+- 2026-06-29 12:23 - [广西南宁首批10个人工智能OPC创业社区集中开放](http://www.share.kurohicncr.top/Article/details/627079.shtml)
+- 2026-06-29 12:12 - [中方回应中美是否达成农业方面协议](http://www.blog.minike.top/Article/details/42100.shtml)

@@ -1,59 +1,56 @@
-# 去年超55亿人次在基层看病，医保支付也要“分级”
+# 总书记引领强国之路｜聚天下英才而用之
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-各地医保部门要因地制宜适当拉开参保人员在不同等级医疗机构的住院和门诊报销水平，在基层可以享受更高的报销比例。 截至目前，我国分级诊疗格局已基本建立。进入提质增效阶段后，该体系建设的下一步，需要通过供给侧能力提升与需求侧就医引导的双向发力，进一步引导患者转“被动转诊”为“主动首诊”。 近日，国务院办公厅发布《关于加快建设分级诊疗体系的若干措施》（下称《若干措施》），明确到2030
+原标题：学习新语·总书记引领强国之路｜聚天下英才而用之 视频：总书记引领强国之路｜聚天下英才而用之来源：新华社 “尊重劳动、尊重知识、尊重人才、尊重创造”“聚天下英才而用之”“让事业激励人才，让人才成就事业”⋯⋯党的十八大以来，习近平总书记引领推进新时代人才强国战略，推动人才工作取得历史性成就、发生历史性变革。 翻开“十五五”规划纲要，“人才”一词出现50余次。规划纲要提出一体
 
 ## 正文
 
-各地医保部门要因地制宜适当拉开参保人员在不同等级医疗机构的住院和门诊报销水平，在基层可以享受更高的报销比例。
+原标题：学习新语·总书记引领强国之路｜聚天下英才而用之 视频：总书记引领强国之路｜聚天下英才而用之来源：新华社 “尊重劳动、尊重知识、尊重人才、尊重创造”“聚天下英才而用之”“让事业激励人才，让人才成就事业”⋯⋯党的十八大以来，习近平总书记引领推进新时代人才强国战略，推动人才工作取得历史性成就、发生历史性变革。
 
-截至目前，我国分级诊疗格局已基本建立。
+翻开“十五五”规划纲要，“人才”一词出现50余次。
 
-进入提质增效阶段后，该体系建设的下一步，需要通过供给侧能力提升与需求侧就医引导的双向发力，进一步引导患者转“被动转诊”为“主动首诊”。
+规划纲要提出一体推进教育科技人才发展，对建设人才强国作出一系列部署。
 
-近日，国务院办公厅发布《关于加快建设分级诊疗体系的若干措施》（下称《若干措施》），明确到2030年，以紧密型医联体为抓手的分级诊疗协同机制基本建立，医疗卫生服务同质化水平和便利性、可及性进一步提高，就医秩序更加合理规范。
+千秋基业，人才为本。
 
-其中，供给侧能力提升的重点有二：一是重点强化基层网底自身的运转和服务能力，二是让患者能够在不同层级之间获得连续衔接的医疗服务。
+新征程上，深入实施新时代人才强国战略，下大气力全方位培养、引进、用好人才，我们就一定能让各类人才的创造活力竞相迸发、聪明才智充分涌流，为推进强国建设、民族复兴伟业汇聚磅礴力量。
 
-尤其是针对基层常见病种，坚持“药随病走”，满足下转患者连续用药需求。
-
-至于需求侧就医引导，则需要更好发挥医保的杠杆作用。
-
-国家医保局医药服务管理司司长黄心宇13日在国新办举办的新闻发布会上表示，接下来，在支付改革中，将因地制宜适当拉开参保人员在不同等级医疗机构的住院和门诊报销水平。
+策划：石锋 吴丹 统筹：黄庆华 周年钧 编导：李丽洋 新华社新媒体中心制作 新华社出品
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:16 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:11 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:10 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:49 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:15 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:16 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:48 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:53 - [美国释放第二批848万桶战略石油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:59 - [人形机器人深夜“狂飙”半马：开跑就冲刺 还能自主导航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:14 - [奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:51 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:52 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:15 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:08 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:55 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:12 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:18 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:08 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:19 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:01 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:58 - [越秀交通基建3月广州北二环高速路费收入8487.3万元 同比下降7.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:02 - [诸多对手虎视眈眈！英国首相斯塔默面临“生死之战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:02 - [（乡村行·看振兴）江苏扬州：沙头头茬西瓜开卖 “小西瓜”带动村集体增收逾百万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:12 - [515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:01 - [迈阿密愈发富庶，人口却持续缩减](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:00 - [武汉推行河湖长制十年 构筑人水和谐共生优美画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [严格落实直播打赏新规谋求治理实效](http://www.share.kurohicncr.top/Article/details/07914.shtml)
-- 2026-06-29 12:18 - [（经济观察）封关赋能开放 外资加速入琼](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.blog.kurohicncr.top/Article/details/1182507151.shtml)
-- 2026-06-29 12:13 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.blog.minike.top/Article/details/45021.shtml)
-- 2026-06-29 12:10 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.blog.kurohicncr.top/Article/details/437557055947.shtml)
-- 2026-06-29 11:57 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.blog.kurohicncr.top/Article/details/2764023020.shtml)
-- 2026-06-29 12:09 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.blog.kurohicncr.top/Article/details/08644.shtml)
-- 2026-06-29 12:06 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.minike.top/Article/details/70084599133.shtml)
-- 2026-06-29 12:04 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.share.minike.top/Article/details/94704129.shtml)
-- 2026-06-29 12:17 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](http://www.share.kurohicncr.top/Article/details/849844.shtml)
-- 2026-06-29 11:59 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](http://www.share.kurohicncr.top/Article/details/43882838396.shtml)
-- 2026-06-29 11:54 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.blog.kurohicncr.top/Article/details/958526957.shtml)
-- 2026-06-29 12:09 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:11 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](http://www.blog.kurohicncr.top/Article/details/4078958.shtml)
+- 2026-06-29 12:08 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.blog.minike.top/Article/details/003560866.shtml)
+- 2026-06-29 12:05 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](http://www.blog.minike.top/Article/details/72869372.shtml)
+- 2026-06-29 11:57 - [中东部有大范围降水 黄海海域有大雾](http://www.share.minike.top/Article/details/1375883.shtml)
+- 2026-06-29 11:58 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.share.kurohicncr.top/Article/details/0542753742.shtml)
+- 2026-06-29 12:12 - [重庆对8个区县启动地质灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/980233529.shtml)
+- 2026-06-29 12:21 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](http://www.blog.minike.top/Article/details/844898.shtml)
+- 2026-06-29 12:08 - [香港特区政府新一批基建及绿色债券在港发行](http://www.share.minike.top/Article/details/70254.shtml)
+- 2026-06-29 12:12 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](http://www.blog.kurohicncr.top/Article/details/86530356.shtml)
+- 2026-06-29 12:11 - [中国外交部发言人就美国总统特朗普访华情况答记者问](http://www.share.kurohicncr.top/Article/details/3065373803.shtml)
+- 2026-06-29 12:19 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [中国第12批援埃塞俄比亚军医专家组出征](http://www.blog.kurohicncr.top/Article/details/924780334208.shtml)
+- 2026-06-29 12:18 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](http://www.blog.minike.top/Article/details/7470361821.shtml)
+- 2026-06-29 12:22 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](http://www.blog.kurohicncr.top/Article/details/8428536357.shtml)
+- 2026-06-29 12:01 - [受降雨影响 国铁广州局今明两天部分列车停运](http://www.blog.kurohicncr.top/Article/details/5355825701.shtml)
+- 2026-06-29 12:05 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](http://www.blog.kurohicncr.top/Article/details/664312640.shtml)

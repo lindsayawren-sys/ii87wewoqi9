@@ -1,58 +1,53 @@
-# 天津邮轮游春日渐热 东疆边检高效护航“海上春游”
+# 2027澳网亚太区外卡赛将落地成都
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网天津4月12日电 (记者 周亚强)春和景明，天津邮轮旅游市场持续升温。12日，搭载着1500余名旅客的“理想”号邮轮从天津国际邮轮母港缓缓驶离，开启为期六天五晚的春日海上之旅。东疆出入境边防检查站提前部署、精准施策，保障旅客安全顺畅通关。 随着天气回暖，选择乘邮轮出海旅行的旅客数量明显增长。针对近期客流上升趋势，东疆边检站提前与口岸联检单位、邮轮公司、代理公司等沟通对接，
+中新网成都5月15日电 (记者 岳依桐)15日在成都举行的四川省与澳大利亚维多利亚州建立友好省州关系十周年庆祝活动上，维多利亚州州督加德纳宣布，2027澳大利亚网球公开赛亚太区外卡赛将落户成都，这将是成都继2024年、2025年后，第三次举办该项赛事。 澳大利亚网球公开赛创办于1905年，已有100多年的历史，是网球四大满贯赛事之一。澳网亚太区外卡赛则是澳网官方在中国设立的一站
 
 ## 正文
 
-中新网天津4月12日电 (记者 周亚强)春和景明，天津邮轮旅游市场持续升温。
+中新网成都5月15日电 (记者 岳依桐)15日在成都举行的四川省与澳大利亚维多利亚州建立友好省州关系十周年庆祝活动上，维多利亚州州督加德纳宣布，2027澳大利亚网球公开赛亚太区外卡赛将落户成都，这将是成都继2024年、2025年后，第三次举办该项赛事。
 
-12日，搭载着1500余名旅客的“理想”号邮轮从天津国际邮轮母港缓缓驶离，开启为期六天五晚的春日海上之旅。
+澳大利亚网球公开赛创办于1905年，已有100多年的历史，是网球四大满贯赛事之一。
 
-东疆出入境边防检查站提前部署、精准施策，保障旅客安全顺畅通关。
+澳网亚太区外卡赛则是澳网官方在中国设立的一站国际赛事，每年11月下旬或12月上旬举办，旨在为亚洲和太平洋周边国家和地区的低排名网球运动员提供进入大满贯正赛的机会。
 
-随着天气回暖，选择乘邮轮出海旅行的旅客数量明显增长。
+每年外卡赛的单双打冠军，均可获得一张外卡直接参加澳网公开赛正赛。
 
-针对近期客流上升趋势，东疆边检站提前与口岸联检单位、邮轮公司、代理公司等沟通对接，详细分析旅客构成，制定专项通关保障方案，确保旅客出入境高效有序。
-
-据介绍，当日“理想”号邮轮旅客以家庭出行为主，老人和儿童占比较高。
-
-为此，东疆边检站在通关现场加派引导警力，开足人工与快捷查验通道，最大限度缩短旅客候检时间。
-
-同时，站内专门开设“特别通道”，为老、弱、病、残、孕等特殊旅客群体提供优先通关便利；并设立“紧急求助窗口”，及时应对旅客证件遗失、突发伤病等意外情况，以高效、暖心的服务护航旅客“海上春游”平安愉快。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 11:55 - [伊美第三轮会谈在伊斯兰堡举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:50 - [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:48 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:03 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:55 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 11:59 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:48 - [伊朗武装部队称随时准备开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:02 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:55 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:15 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:48 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:52 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:13 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:13 - [002342，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:06 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:14 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:54 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:57 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:10 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:23 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:20 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:59 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:17 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:17 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:55 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [两艘空载油轮在霍尔木兹海峡临时掉头](http://www.share.minike.top/Article/details/5036783.shtml)
-- 2026-06-29 11:53 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](http://www.share.kurohicncr.top/Article/details/34191.shtml)
-- 2026-06-29 11:48 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [非瘟以来两轮猪周期回顾](http://www.blog.kurohicncr.top/Article/details/747181903.shtml)
-- 2026-06-29 11:57 - [2026年湖北省城市足球联赛开赛](http://www.blog.kurohicncr.top/Article/details/200013794.shtml)
-- 2026-06-29 11:56 - [一季度中国铁路固定资产投资同比增长5.1%](http://www.share.minike.top/Article/details/36219.shtml)
-- 2026-06-29 11:48 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](http://www.blog.kurohicncr.top/Article/details/996127158.shtml)
-- 2026-06-29 12:14 - [辽宁持续发力打造营商环境好口碑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:06 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](http://www.blog.kurohicncr.top/Article/details/610747.shtml)
-- 2026-06-29 11:52 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](http://www.blog.kurohicncr.top/Article/details/042524591690.shtml)
-- 2026-06-29 11:58 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [英国监管机构紧急评估Anthropic最新AI模型的风险](http://www.share.kurohicncr.top/Article/details/963393915.shtml)
-- 2026-06-29 12:12 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](http://www.share.minike.top/Article/details/53391190961.shtml)
-- 2026-06-29 12:00 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](http://www.share.kurohicncr.top/Article/details/0389966113.shtml)
+- 2026-06-29 12:00 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](http://www.blog.minike.top/Article/details/499151.shtml)
+- 2026-06-29 12:11 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](http://www.share.kurohicncr.top/Article/details/18598011525.shtml)
+- 2026-06-29 12:02 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.blog.kurohicncr.top/Article/details/537134195.shtml)
+- 2026-06-29 12:04 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.share.kurohicncr.top/Article/details/79582168862.shtml)
+- 2026-06-29 12:19 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [总书记引领强国之路｜聚天下英才而用之](http://www.share.kurohicncr.top/Article/details/616773.shtml)
+- 2026-06-29 12:06 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](http://www.share.kurohicncr.top/Article/details/6759927.shtml)
+- 2026-06-29 12:13 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.blog.kurohicncr.top/Article/details/150577546.shtml)
+- 2026-06-29 12:02 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.share.kurohicncr.top/Article/details/4260018170.shtml)
+- 2026-06-29 12:01 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.share.kurohicncr.top/Article/details/96789.shtml)
+- 2026-06-29 12:23 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.share.kurohicncr.top/Article/details/856777605.shtml)
+- 2026-06-29 12:13 - [联播+｜读懂中国的特别窗口](http://www.blog.kurohicncr.top/Article/details/41822560.shtml)

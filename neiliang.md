@@ -1,54 +1,58 @@
-# 酱板鸭销量大增 湖南常德多家企业加紧赶订单
+# 台湾写真：台湾学子迎考试季 文昌宫里祈福忙
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月13日 19:39 来源：中国新闻网 近日，一部在两岸受到关注的AI短片《雪山救狐狸》带火了酱板鸭。湖南常德酱板鸭销量大涨，相关企业连日来加紧赶订单。 精选的洞庭湖麻鸭，在辣椒与几十味天然香辛料的“调教”下，历经腌、酱、烤、卤、煮、蒸等十几道工序的“千锤百炼”，最终蜕变成一只只色泽油亮、酥香鲜嫩的酱板鸭。如今，常德酱板鸭已聚集成拥有42家企业的“鸭军团
+中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。 位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。宫庙自5月13日起连续三日举行法会，为考生集体祈福。连日来，该
 
 ## 正文
 
-发布时间：2026年04月13日 19:39 来源：中国新闻网 近日，一部在两岸受到关注的AI短片《雪山救狐狸》带火了酱板鸭。
+中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。
 
-湖南常德酱板鸭销量大涨，相关企业连日来加紧赶订单。
+考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。
 
-精选的洞庭湖麻鸭，在辣椒与几十味天然香辛料的“调教”下，历经腌、酱、烤、卤、煮、蒸等十几道工序的“千锤百炼”，最终蜕变成一只只色泽油亮、酥香鲜嫩的酱板鸭。
+位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。
 
-如今，常德酱板鸭已聚集成拥有42家企业的“鸭军团”，年产值近30亿元。
+宫庙自5月13日起连续三日举行法会，为考生集体祈福。
 
-(蔡文龙 姜沛 代云 李雨钦 制作 刘鹏） 责任编辑：【罗攀】
+连日来，该宫庙人山人海，宫庙前空地上特意增设数张供品桌，便利民众摆放各式供品。
+
+在中华传统文化中，文昌帝君掌管学业、考试与功名，倡导勤学向善，千百年来，广受读书人尊崇。
+
+时至今日，学子赶考前“拜文昌”，祈求考试顺遂、金榜题名，已是两岸民间深入人心的一项传统。
+
+走进台北市文昌宫，右侧入口处一幅写有“将相无种凭才德，男儿自强习文章”的对联赫然入目；两侧的柱子上，密密麻麻挂满考生许愿牌，写着对学业与未来的美好祝愿；供品桌上，准考证复印件、考生衣服以及葱、蒜、芹菜、白萝卜、粽子等各式供品整齐摆放。
 
 ## 相关推荐
 
-- 2026-06-29 12:04 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:59 - [以军空袭黎南部造成至少24人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:04 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:56 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:00 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:53 - [RYOEX:黄金价值重估与结构演变趋势分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:52 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:49 - [手机黑屏变“砖头” 一根回形针切断“诈骗通道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:03 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:02 - [2026年全国教育科研工作会议在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:17 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:10 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:15 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:02 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:59 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:22 - [广西首批村集体持有林票线上竞价交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:11 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:57 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:15 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:11 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:57 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:10 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:59 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:21 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:54 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:14 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](http://www.blog.kurohicncr.top/Article/details/2848505.shtml)
-- 2026-06-29 12:03 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](http://www.blog.minike.top/Article/details/056361.shtml)
-- 2026-06-29 12:13 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](http://www.blog.minike.top/Article/details/722607286.shtml)
-- 2026-06-29 12:08 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](http://www.blog.minike.top/Article/details/01717735.shtml)
-- 2026-06-29 11:48 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](http://www.share.minike.top/Article/details/60979969.shtml)
-- 2026-06-29 12:17 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](http://www.share.kurohicncr.top/Article/details/0631657.shtml)
-- 2026-06-29 12:00 - [白银跳空低开跌2%，避险失效？](http://www.blog.minike.top/Article/details/37654.shtml)
-- 2026-06-29 12:02 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](http://www.blog.minike.top/Article/details/958512270.shtml)
-- 2026-06-29 12:16 - [5亿元科创基金100%投向中大成果转化](http://www.blog.kurohicncr.top/Article/details/634949.shtml)
-- 2026-06-29 12:06 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](http://www.blog.kurohicncr.top/Article/details/503525141.shtml)
-- 2026-06-29 12:03 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](http://www.share.kurohicncr.top/Article/details/10173151.shtml)
-- 2026-06-29 11:52 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.share.minike.top/Article/details/563338.shtml)
-- 2026-06-29 12:17 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](http://www.blog.minike.top/Article/details/9066039.shtml)
+- 2026-06-29 12:17 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [日本国债收益率飙升 投资者押注日资从美债回流本土](http://www.blog.kurohicncr.top/Article/details/27362563.shtml)
+- 2026-06-29 12:08 - [首届中国新文创市集满场“黑科技” 观众：超出预期](http://www.blog.minike.top/Article/details/06897.shtml)
+- 2026-06-29 12:02 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](http://www.blog.kurohicncr.top/Article/details/120348.shtml)
+- 2026-06-29 12:15 - [广西柳州成立具身智能机器人技术应用中心](http://www.share.kurohicncr.top/Article/details/036800099.shtml)
+- 2026-06-29 12:17 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.blog.minike.top/Article/details/328496681485.shtml)
+- 2026-06-29 12:22 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.share.kurohicncr.top/Article/details/97249782.shtml)
+- 2026-06-29 12:23 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.blog.minike.top/Article/details/426210490525.shtml)
+- 2026-06-29 12:12 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](http://www.blog.minike.top/Article/details/61726.shtml)
+- 2026-06-29 12:01 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.share.minike.top/Article/details/52290.shtml)
+- 2026-06-29 12:06 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](http://www.share.minike.top/Article/details/460694877522.shtml)
+- 2026-06-29 12:08 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.kurohicncr.top/Article/details/1096174.shtml)
+- 2026-06-29 12:13 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.blog.minike.top/Article/details/333723784281.shtml)

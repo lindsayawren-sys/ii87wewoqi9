@@ -1,57 +1,61 @@
-# 加拿大开普勒卫星集群开启在轨计算商业化探索
+# 股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-尽管对太空数据中心的各种炒作很多，但目前在轨运行的GPU数量其实非常稀少。随着这一局面开始改变，轨道算力的短期商业形态正逐步成型。 目前在轨规模最大的算力集群由加拿大开普勒通信公司（Kepler Communications）于今年1月发射，由10颗在轨卫星搭载约40块英伟达Orin边缘处理器组成，并通过激光通信链路实现星间组网。 该公司目前已拥有18家客户，并于周一宣布了最新
+2026年5月15日，股指期货震荡下行，沪深300股指期货（IF）主力合约跌1.63%，上证50股指期货（IH）主力合约跌1.64%，中证500股指期货（IC）主力合约跌2.44%，中证1000股指期货（IM）主力合约跌1.84%。 A股三大指数今日集体下跌，截至收盘，上证指数跌1.02%，深证成指跌1.17%，创业板指跌0.56%，北证50跌0.47%。全市场成交额33702
 
 ## 正文
 
-尽管对太空数据中心的各种炒作很多，但目前在轨运行的GPU数量其实非常稀少。
+2026年5月15日，股指期货震荡下行，沪深300股指期货（IF）主力合约跌1.63%，上证50股指期货（IH）主力合约跌1.64%，中证500股指期货（IC）主力合约跌2.44%，中证1000股指期货（IM）主力合约跌1.84%。
 
-随着这一局面开始改变，轨道算力的短期商业形态正逐步成型。
+A股三大指数今日集体下跌，截至收盘，上证指数跌1.02%，深证成指跌1.17%，创业板指跌0.56%，北证50跌0.47%。
 
-目前在轨规模最大的算力集群由加拿大开普勒通信公司（Kepler Communications）于今年1月发射，由10颗在轨卫星搭载约40块英伟达Orin边缘处理器组成，并通过激光通信链路实现星间组网。
+全市场成交额33702亿元，较上日成交额缩量179亿元，全市场超3500只个股下跌。
 
-该公司目前已拥有18家客户，并于周一宣布了最新合作伙伴：初创企业索菲亚航天（Sophia Space）。
+板块题材上，氟化工概念、人形机器人、半导体设备、工程机械、短剧游戏板块涨幅居前；贵金属、工业金属、多元金融、港口航运、白酒、保险、光伏设备板块跌幅居前。
 
-后者将在开普勒的卫星星座上测试其专用轨道计算机软件。
+盘面上，报道称韩国半导体级氢氟酸供应链预计6至7月大幅涨价，氟化工产业链多数走高，中巨芯、滨化股份、多氟多等股涨停。
 
-专家预计，类似SpaceX或蓝色起源构想的大型太空数据中心，要到2030年代才可能出现。
+Figure发布双机器人整理床单视频，人形机器人板块热度持续攀升，三瑞智能、纽威数控、方正电机等近10股封板。
 
-现阶段的第一步，是对在轨采集的数据进行实时处理，以提升企业与政府部门所使用的天基传感器效能。
+半导体设备板块同样表现活跃，中微公司、芯源微、拓荆科技涨幅居前。
 
-开普勒通信首席执行官Mina Mitry表示，公司并不把自己定位为数据中心企业，而是太空应用基础设施提供商。
+另一方面，美国通胀数据持续升温引发市场对高利率维持更久的担忧，黄金价格面临压力，有色金属板块领跌市场，兴业银锡、山金国际、湖南白银等多股下跌。
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:50 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:06 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:10 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:58 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:49 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:15 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:56 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:56 - [广西三江：花映楼桥入画来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:17 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:01 - [A股周一缩量上涨 创业板指创四年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:57 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:56 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:00 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:11 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:07 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:57 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:03 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:03 - [广西南宁首批10个人工智能OPC创业社区集中开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:00 - [中方回应中美是否达成农业方面协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:59 - [沪港文化交流再升级：从“经典展演”到“多元共创”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:04 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:22 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:01 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:10 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:16 - [2027澳网亚太区外卡赛将落地成都](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:00 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.share.minike.top/Article/details/83731847857.shtml)
-- 2026-06-29 11:52 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.blog.kurohicncr.top/Article/details/558303.shtml)
-- 2026-06-29 11:55 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.blog.minike.top/Article/details/5870604566.shtml)
-- 2026-06-29 11:49 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](http://www.share.kurohicncr.top/Article/details/10320805.shtml)
-- 2026-06-29 12:12 - [比亚迪：公司储能业务在全球市场持续发力](http://www.share.kurohicncr.top/Article/details/281572.shtml)
-- 2026-06-29 12:14 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](http://www.share.minike.top/Article/details/63568494658.shtml)
-- 2026-06-29 12:17 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](http://www.share.kurohicncr.top/Article/details/56839778.shtml)
-- 2026-06-29 12:14 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](http://www.blog.kurohicncr.top/Article/details/35736494750.shtml)
-- 2026-06-29 11:58 - [以军空袭黎南部造成至少24人死亡](http://www.blog.kurohicncr.top/Article/details/62211073322.shtml)
-- 2026-06-29 12:02 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](http://www.share.minike.top/Article/details/247593341.shtml)
-- 2026-06-29 12:06 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](http://www.blog.minike.top/Article/details/36071837.shtml)
-- 2026-06-29 12:16 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [RYOEX:黄金价值重估与结构演变趋势分析](http://www.share.kurohicncr.top/Article/details/530043.shtml)
-- 2026-06-29 11:48 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](http://www.share.minike.top/Article/details/52321.shtml)
+- 2026-06-29 12:22 - [沃尔玛希望Flipkart放慢节奏并实现盈利](http://www.share.minike.top/Article/details/774139542.shtml)
+- 2026-06-29 12:22 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](http://www.share.minike.top/Article/details/14558003193.shtml)
+- 2026-06-29 12:10 - [CBA观察：我们需要一支怎样的山西男篮](http://www.blog.kurohicncr.top/Article/details/509228463055.shtml)
+- 2026-06-29 12:05 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](http://www.blog.kurohicncr.top/Article/details/28335838.shtml)
+- 2026-06-29 12:22 - [全国广电民生节目在渝交流创新经验](http://www.blog.minike.top/Article/details/178074343.shtml)
+- 2026-06-29 12:21 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](http://www.share.minike.top/Article/details/086108302144.shtml)
+- 2026-06-29 12:01 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](http://www.blog.kurohicncr.top/Article/details/7917236.shtml)
+- 2026-06-29 12:11 - [助力“东北超”歌曲《绿茵逐梦》上线](http://www.share.minike.top/Article/details/184827.shtml)
+- 2026-06-29 12:19 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](http://www.share.kurohicncr.top/Article/details/40103037.shtml)
+- 2026-06-29 12:22 - [广西首批村集体持有林票线上竞价交易](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](http://www.blog.kurohicncr.top/Article/details/19075.shtml)
+- 2026-06-29 12:08 - [一粒红芸豆改写边境乡镇产业轨迹](http://www.share.minike.top/Article/details/64482.shtml)
+- 2026-06-29 12:22 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](http://www.blog.kurohicncr.top/Article/details/641619638.shtml)
+- 2026-06-29 12:07 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](http://www.share.kurohicncr.top/Article/details/59831070130.shtml)
+- 2026-06-29 11:59 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](http://www.blog.minike.top/Article/details/613524712.shtml)

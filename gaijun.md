@@ -1,58 +1,59 @@
-# 近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相
+# 珠江流域持续暴雨 广东多地停课
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网北京4月12日电 (记者 吕少威)作为2026北京国际长跑节—北京半程马拉松系列活动之一的欢聚跑11日在北京奥林匹克森林公园南园举办。 北京奥运城市发展促进中心作为协办方，以“我为奥运城市而跑”为主题，召集近200名参加过北京2008年奥运会或者北京2022年冬奥会的奥运人参加欢聚跑活动，营造全民参与、乐享奔跑、共筑“双奥”城市的浓厚氛围。 此外，继4月9日、10日在20
+中新社广州5月15日电 (记者 王坚)珠江流域近期持续强降雨，局地雨势猛烈。15日，广东广州、佛山、东莞等地遭遇暴雨，多地发布暴雨红色预警，道路出现严重水浸，学校停课。 15日13至14时，广东有3个镇街录得1小时降雨量逾百毫米的大暴雨，有58个镇街录得50毫米至100毫米的暴雨，广州越秀区北京街道录得降雨量达117.6毫米。目前，珠江防总、中国水利部珠江水利委员会(下称“珠江
 
 ## 正文
 
-中新网北京4月12日电 (记者 吕少威)作为2026北京国际长跑节—北京半程马拉松系列活动之一的欢聚跑11日在北京奥林匹克森林公园南园举办。
+中新社广州5月15日电 (记者 王坚)珠江流域近期持续强降雨，局地雨势猛烈。
 
-北京奥运城市发展促进中心作为协办方，以“我为奥运城市而跑”为主题，召集近200名参加过北京2008年奥运会或者北京2022年冬奥会的奥运人参加欢聚跑活动，营造全民参与、乐享奔跑、共筑“双奥”城市的浓厚氛围。
+15日，广东广州、佛山、东莞等地遭遇暴雨，多地发布暴雨红色预警，道路出现严重水浸，学校停课。
 
-此外，继4月9日、10日在2026北京国际半程马拉松博览会首秀后，“双奥文化大篷车”在当天的活动现场亮相，跑者和游客纷纷在车前驻足打卡留念。
+15日13至14时，广东有3个镇街录得1小时降雨量逾百毫米的大暴雨，有58个镇街录得50毫米至100毫米的暴雨，广州越秀区北京街道录得降雨量达117.6毫米。
 
-“双奥文化大篷车”是由北京奥运城市发展促进会联合首旅集团对1辆50座旅游大巴进行整体设计与专业化改装而成，旨在推动“双奥”文化从“观看”走向“体验”和“参与”，努力实现“双奥”文化全民共享、奥运精神全民传承。
+目前，珠江防总、中国水利部珠江水利委员会(下称“珠江委”)维持防汛、洪水防御Ⅳ级应急响应。
 
-“‘双奥文化大篷车’助力北京半程马拉松，不仅展示奥运文化藏品，还售卖奥运主题文创，弘扬奥林匹克精神，进一步丰富参赛选手的体验。
+珠江委介绍，自13日以来，贵州南部、广西北部、广东东部及南部、福建西南部等地出现一次强降雨过程，累计降雨量超过50毫米笼罩面积9.03万平方公里，超过100毫米笼罩面积1.45万平方公里。
 
-”北京奥运城市发展促进中心副主任夏日红说。
+珠江委表示，受强降雨影响，洛清江支流西河、韩江支流松源河、粤东沿海崩坎水等11条河流发生超警洪水，最大超警幅度0.16至1.58米，其中韩江支流永定河、黄潭河发生超保洪水，最大超保幅度0.04至0.08米。
 
-4月12日，“双奥文化大篷车”开往2026北京半程马拉松终点，继续开展移动式、沉浸式“双奥”文化宣传推广，为赛事增添“双奥”文化内涵。
+15日午后，广州暴雨如注。
 
-(完)
+强降雨不仅影响了民众出行，还导致多条街道出现严重水浸。
 
 ## 相关推荐
 
-- 2026-06-29 12:15 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:04 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:50 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:04 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:13 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:18 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:16 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:12 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:07 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:01 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:53 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:06 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:05 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:20 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:55 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 12:01 - [特朗普说“伊斯兰国”二号头目被“清除”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:22 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:21 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:03 - [芭蕾舞演员、医学专家带民众走出减重“误区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:05 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 12:23 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:09 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:14 - [外交部：中美双方就两国元首年内互动安排保持着沟通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:12 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:11 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.minike.top/Article/details/601254357.shtml)
-- 2026-06-29 12:01 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.kurohicncr.top/Article/details/075002748684.shtml)
-- 2026-06-29 11:49 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.share.minike.top/Article/details/69172.shtml)
-- 2026-06-29 12:06 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.blog.minike.top/Article/details/461238.shtml)
-- 2026-06-29 12:04 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.minike.top/Article/details/846690422.shtml)
-- 2026-06-29 11:54 - [伊朗武装部队称随时准备开火](http://www.share.minike.top/Article/details/702296673.shtml)
-- 2026-06-29 12:06 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.minike.top/Article/details/0012287890.shtml)
-- 2026-06-29 11:55 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.kurohicncr.top/Article/details/92725894.shtml)
-- 2026-06-29 11:56 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.share.minike.top/Article/details/560136124.shtml)
-- 2026-06-29 11:52 - [光大期货：4月13日软商品日报](http://www.blog.kurohicncr.top/Article/details/281478948170.shtml)
-- 2026-06-29 12:07 - [游客喊话“欢迎回来” 郑丽文北京行显温情](http://www.blog.minike.top/Article/details/1680984.shtml)
+- 2026-06-29 11:56 - [中国大陆学者首获英国皇家经济学会终身院士](http://www.blog.minike.top/Article/details/5668755159.shtml)
+- 2026-06-29 12:10 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](http://www.share.kurohicncr.top/Article/details/7238017836.shtml)
+- 2026-06-29 12:14 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](http://www.share.minike.top/Article/details/7692926.shtml)
+- 2026-06-29 12:10 - [002342，被证监会立案！](http://www.blog.minike.top/Article/details/656952099915.shtml)
+- 2026-06-29 12:10 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.share.minike.top/Article/details/62950196321.shtml)
+- 2026-06-29 11:58 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](http://www.blog.minike.top/Article/details/649996351.shtml)
+- 2026-06-29 12:11 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](http://www.share.minike.top/Article/details/881954759.shtml)
+- 2026-06-29 12:15 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](http://www.share.kurohicncr.top/Article/details/2092152759.shtml)
+- 2026-06-29 12:23 - [浙江省欧美同学会金融委员会举行座谈交流活动](http://www.blog.kurohicncr.top/Article/details/41534.shtml)
+- 2026-06-29 12:04 - [特朗普结束访华回国途中，与高市早苗通电话](http://www.share.kurohicncr.top/Article/details/2992658004.shtml)
+- 2026-06-29 12:17 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](http://www.blog.kurohicncr.top/Article/details/5148619.shtml)
+- 2026-06-29 12:17 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](http://www.blog.minike.top/Article/details/06590214.shtml)
+- 2026-06-29 11:58 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](http://www.share.minike.top/Article/details/96009753.shtml)
+- 2026-06-29 12:16 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](http://www.blog.minike.top/Article/details/0103433395.shtml)

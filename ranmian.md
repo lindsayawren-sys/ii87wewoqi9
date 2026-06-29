@@ -1,57 +1,59 @@
-# 非瘟以来两轮猪周期回顾
+# 尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-农产品—自2024年8月中猪价见顶回落，时至今日，猪价持续下跌进入深度亏损状态，市场关注重心转向猪周期见底，在这种情况下，本文试图从生猪价格、仔猪价格、能繁母猪存栏、生猪出栏体重、上市企业表现等多个方面回顾非瘟以来的两轮周期下行阶段，为投资者判断本轮周期底部提供参考。012021-22年回顾2019年非洲猪瘟带来猪价大幅上涨，2020年高位震荡以后，2021年年初猪价即告下跌，
+中新网加德满都5月15日电 (记者 崔楠)尼泊尔侨界14日在尼首都加德满都举行“同心筑梦聚力促统”专题座谈会。 中国驻尼泊尔大使张茂明、首席馆员周攀公使衔参赞，尼泊尔华侨华人协会会长、尼泊尔中国和平统一促进会会长金晓东及40余名在尼侨胞出席座谈会。 金晓东首先介绍了其日前回国出席“文脉中华·同心筑梦”实地参访等活动的有关情况。他指出，相关参访使海外侨胞进一步了解祖国发展成就，也
 
 ## 正文
 
-农产品—自2024年8月中猪价见顶回落，时至今日，猪价持续下跌进入深度亏损状态，市场关注重心转向猪周期见底，在这种情况下，本文试图从生猪价格、仔猪价格、能繁母猪存栏、生猪出栏体重、上市企业表现等多个方面回顾非瘟以来的两轮周期下行阶段，为投资者判断本轮周期底部提供参考。
+中新网加德满都5月15日电 (记者 崔楠)尼泊尔侨界14日在尼首都加德满都举行“同心筑梦聚力促统”专题座谈会。
 
-012021-22年回顾2019年非洲猪瘟带来猪价大幅上涨，2020年高位震荡以后，2021年年初猪价即告下跌，但由于市场多有消息称局部地区非瘟疫情造成生猪存栏损失，市场尚未意识到生猪已经转向严重过剩，直至3月中旬，市场开始逐步转向恐慌，猪价加速下跌，此轮从年初的超过35元下跌至10月中旬的11元/公斤，跌幅超过2/3。
+中国驻尼泊尔大使张茂明、首席馆员周攀公使衔参赞，尼泊尔华侨华人协会会长、尼泊尔中国和平统一促进会会长金晓东及40余名在尼侨胞出席座谈会。
 
-仔猪价格下跌滞后于猪价，3月初开启下跌过程，但下跌过剩更为流畅，从超过1600元跌至100元下方，跌幅超过9成。
+金晓东首先介绍了其日前回国出席“文脉中华·同心筑梦”实地参访等活动的有关情况。
 
-图1、生猪全国均价走势数据来源：同花顺 广州期货研究中心能繁母猪存栏下降再滞后于仔猪，农业农村部数据显示，高点出现在2021年6月，为4564万头，低点出现在2022年的4月，为4177万头，历时10个月，降幅为8.48%，但由于当时能繁母猪有相当比例源于三元回交，生产效率如PSY与MSY相对较低，因此，能繁母猪存栏下降只是此轮猪周期见底的主要因素之一，市场普遍认为的另一个因素是生猪出栏体重，其从132公斤持续下降至10月的123公斤，2022年年后再继续下降至120公斤左右，降幅接近5%。
+他指出，相关参访使海外侨胞进一步了解祖国发展成就，也更加深刻认识到海外统促会在凝聚侨心、促进交流、推动祖国统一事业中的责任。
 
-图2、生猪出栏体重在此轮生猪周期中倒下的企业是正邦科技，从下图3可以看出，正邦科技自非瘟以来持续扩张，生猪出栏从2020年1月的30万头持续增加至2021年7月的171万头，但随着猪价的回落，其在多个省份的农户代养推出，生猪存栏快速回落至2022年2月的50万头，后续进入破产重组程序。
+随后，多名旅尼侨胞在座谈会上踊跃发言。
 
-图3、正邦科技月度生猪出栏量数据来源：上市公司公告 广州期货研究中心022023-2024年回顾2022年经过春节后消费淡季，猪价自3月下旬开启上涨，于10月中旬见顶回落，2023年除了3季度反弹之外，全年维持在14年上下波动，从高点的28元跌到14年下方，跌幅接近5成。
+尼泊尔华侨华人协会副会长黄二东表示，自己在尼泊尔打拼二十多年，越发感受到祖国强大，海外侨胞才更有底气。
 
-在此轮周期中，仔猪价格表现相对抗跌，2022年8月到2023年7月维持在360元/头上方，之后加速下跌至10月底的140元左右，跌幅接近75%。
+他表示，台湾是中国不可分割的一部分，一个中国原则不容动摇。
 
-图4、能繁母猪存栏量数据来源：农业农村部 广州期货研究中心能繁母猪存栏在2022年12月见到高点4390万头，在2023年12月见到低点4142万头，降幅为5.65%。
+海外侨胞将坚定反“独”促统立场，一同维护中华民族共同家园。
 
 ## 相关推荐
 
-- 2026-06-29 11:59 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:15 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:02 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:56 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:11 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:10 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:09 - [徐寅生：愿“乒乓外交”精神代代相传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:03 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:54 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:54 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:49 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:01 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:12 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:02 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:59 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:17 - [联播+｜读懂中国的特别窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:16 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:21 - [星网宇达：截至2026年4月20日公司股东人数为40184户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:07 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:55 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:19 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:19 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:58 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:16 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:01 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.share.minike.top/Article/details/63625447.shtml)
-- 2026-06-29 12:16 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.blog.kurohicncr.top/Article/details/3301839323.shtml)
-- 2026-06-29 12:16 - [陕西渭南：华山迎壮丽日落景观](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](http://www.blog.minike.top/Article/details/38876266450.shtml)
-- 2026-06-29 12:06 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.share.minike.top/Article/details/875111799.shtml)
-- 2026-06-29 12:13 - [永升服务于4月10日斥资37.65万港元回购20万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [全军后勤重点行业领域职业道德规范出台](http://www.blog.kurohicncr.top/Article/details/559156246.shtml)
-- 2026-06-29 11:58 - [黎巴嫩称已同意周二举行停火谈判会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [广东清远“五大百亿”农业产业全产业链产值已超461亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [Palantir的代理型人工智能势头强劲](http://www.blog.kurohicncr.top/Article/details/25503741.shtml)
-- 2026-06-29 12:02 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.share.minike.top/Article/details/84659.shtml)
-- 2026-06-29 12:16 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](http://www.blog.minike.top/Article/details/306685.shtml)
-- 2026-06-29 12:04 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](http://www.blog.minike.top/Article/details/33025.shtml)
-- 2026-06-29 12:00 - [国家疾控局发布通知推进重点虫媒传染病防控](http://www.share.kurohicncr.top/Article/details/892016.shtml)
+- 2026-06-29 12:17 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](http://www.blog.minike.top/Article/details/052228111485.shtml)
+- 2026-06-29 12:05 - [湖南省文化馆数字文旅体验空间开馆](http://www.share.kurohicncr.top/Article/details/863577845057.shtml)
+- 2026-06-29 11:54 - [Token越来越贵？别慌！算力网已在来的路上](http://www.share.minike.top/Article/details/401965438005.shtml)
+- 2026-06-29 12:03 - [印度与阿联酋将全面深化合作](http://www.share.minike.top/Article/details/713575252.shtml)
+- 2026-06-29 12:13 - [蔚来李斌：换电从来不是失血点，而是超前投入期](http://www.share.kurohicncr.top/Article/details/0697682.shtml)
+- 2026-06-29 12:16 - [马祖摄影人在福建霞浦共赴光影之约](http://www.share.kurohicncr.top/Article/details/837265544.shtml)
+- 2026-06-29 12:22 - [江苏沛县西瓜促农文旅融合 “甜蜜产业” 赋能乡村振兴](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [（乡村行·看振兴）湖北宜昌：科技助农“慧种田”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [伊朗，突传大消息！刚刚，集体大跳水！](http://www.share.minike.top/Article/details/1173887.shtml)
+- 2026-06-29 12:00 - [国际足联为何服软了](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](http://www.blog.kurohicncr.top/Article/details/7061515.shtml)
+- 2026-06-29 12:06 - [广州银行，罚单接二连三](http://www.blog.minike.top/Article/details/403972013.shtml)
+- 2026-06-29 12:22 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](http://www.share.minike.top/Article/details/09988975.shtml)

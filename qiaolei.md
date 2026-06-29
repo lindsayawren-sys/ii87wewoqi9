@@ -1,57 +1,57 @@
-# 华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市
+# 赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。华为数字能源充电网络全球业务副总裁彭鹏出席并演讲。 回顾中国汽车电动化进程，彭鹏提到，基本上可以分为三个阶段：第一阶段以出租车、客车、运营车辆为主；第二阶段是私家乘用车发展的浪潮；现在正在经历
+中新网庐山5月17日电 (记者 吴鹏泉)记者16日在中国(庐山)杏林文化园看到，赣派微短剧《云深有灵》正在紧张拍摄中。 《云深有灵》15日在江西省庐山市开机。该剧讲述了医科大学高材生苏叶的一段非凡人生旅程。剧中，苏叶出生在中医世家，因双手受伤失去工作能力，加之身陷情感背叛与生存危机，身心俱疲回到故乡寻找诊治之法。在整理同为医者的爷爷遗物时，一本古老的家传医籍《云栖草本志》意外改
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网庐山5月17日电 (记者 吴鹏泉)记者16日在中国(庐山)杏林文化园看到，赣派微短剧《云深有灵》正在紧张拍摄中。
 
-华为数字能源充电网络全球业务副总裁彭鹏出席并演讲。
+《云深有灵》15日在江西省庐山市开机。
 
-回顾中国汽车电动化进程，彭鹏提到，基本上可以分为三个阶段：第一阶段以出租车、客车、运营车辆为主；第二阶段是私家乘用车发展的浪潮；现在正在经历以重卡为代表的商用车电动化发展浪潮，这一波浪潮将促进交通与能源的深度融合。
+该剧讲述了医科大学高材生苏叶的一段非凡人生旅程。
 
-“电动重卡作为交通网和能源网的超级连接器，将把这两个网络从以前的轻连接、轻相关，带到未来的高度融合。
+剧中，苏叶出生在中医世家，因双手受伤失去工作能力，加之身陷情感背叛与生存危机，身心俱疲回到故乡寻找诊治之法。
 
-” 由于重卡具备“两高两广”的特性，给能源和交通领域带来四大重构：第一，能源消耗高。
+在整理同为医者的爷爷遗物时，一本古老的家传医籍《云栖草本志》意外改变了她的命运轨迹。
 
-第二，能量带载高。
+“我们试图通过苏叶从城市回归乡土、从迷茫走向坚定的成长历程，探讨当代年轻人如何将个人理想融入服务社会的大叙事中，在山川草木间找到安顿身心的力量。
 
-第三，补能网络的广覆盖。
+”该剧导演罗澎表示，《云深有灵》并非单纯的奇幻爱情剧，它更像是一部献给现代人的“疗愈日记”。
 
-第四，重卡运营范围广、运营场所广（矿山、港口、物流园区等）。
+江西庐山中医药文化源远流长，中国古代名医董奉在此隐居行医，留下“杏林春暖”的千古佳话。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:51 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:10 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:51 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:04 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:57 - [贝壳-W于4月9日斥资700万美元回购133.6万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:03 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:58 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:59 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:11 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:10 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:13 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:03 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:55 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:22 - [文脉华章丨一个博物院就是一所大学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:08 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:18 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:03 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:11 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:03 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:59 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:23 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [甘肃发布百条线路研学体系 破“游大于研”行业难点](http://www.share.minike.top/Article/details/60891.shtml)
-- 2026-06-29 11:52 - [伊朗代理防长：伊武装力量处于最高级别戒备状态](http://www.share.minike.top/Article/details/74817.shtml)
-- 2026-06-29 11:49 - [同花顺五项违规收罚单，“最严基金销售规范”倒逼行业生态重塑](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [海内外15000名跑者用脚步丈量“霞客故里”江苏江阴](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [国家疾控局发布通知推进重点虫媒传染病防控](http://www.share.kurohicncr.top/Article/details/73130372.shtml)
-- 2026-06-29 11:57 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](http://www.blog.kurohicncr.top/Article/details/47522355.shtml)
-- 2026-06-29 12:03 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.blog.kurohicncr.top/Article/details/4550408114.shtml)
-- 2026-06-29 12:12 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.blog.minike.top/Article/details/29507.shtml)
-- 2026-06-29 11:55 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.minike.top/Article/details/692301651429.shtml)
-- 2026-06-29 11:59 - [郑丽文一行圆满结束大陆参访 离京返台](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.kurohicncr.top/Article/details/5039751.shtml)
-- 2026-06-29 12:07 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.share.kurohicncr.top/Article/details/137157564.shtml)
-- 2026-06-29 11:52 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [伊朗，突传大消息！刚刚，集体大跳水！](http://www.blog.kurohicncr.top/Article/details/9869890.shtml)
+- 2026-06-29 12:11 - [国际足联为何服软了](http://www.share.kurohicncr.top/Article/details/242141599.shtml)
+- 2026-06-29 12:01 - [浙商策略：双创冲高回落大盘调整 短线或震荡、中线暂无忧](http://www.share.kurohicncr.top/Article/details/01149.shtml)
+- 2026-06-29 12:14 - [广州银行，罚单接二连三](http://www.share.kurohicncr.top/Article/details/0350770124.shtml)
+- 2026-06-29 12:07 - [知情人士：SpaceX股东批准普通股1拆5拆分方案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [美证券交易委员会已与印度富豪阿达尼就一项民事欺诈诉讼达成和解](http://www.blog.minike.top/Article/details/215214431649.shtml)
+- 2026-06-29 12:19 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [北方炎热持续升级南方强降雨频发](http://www.share.kurohicncr.top/Article/details/68121046.shtml)
+- 2026-06-29 12:20 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](http://www.share.minike.top/Article/details/943509390.shtml)
+- 2026-06-29 12:08 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](http://www.share.minike.top/Article/details/984020101.shtml)
+- 2026-06-29 12:21 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.blog.minike.top/Article/details/650245914.shtml)
+- 2026-06-29 12:11 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.share.minike.top/Article/details/68531456832.shtml)
+- 2026-06-29 12:11 - [长岛铁路工人或于今夜举行罢工](http://www.share.kurohicncr.top/Article/details/05104.shtml)
+- 2026-06-29 12:21 - [688549突发利好，股价短期已翻倍](http://www.blog.kurohicncr.top/Article/details/9553251.shtml)

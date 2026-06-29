@@ -1,60 +1,56 @@
-# 川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与
+# 公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网重庆4月12日电 (梁钦卿)第45届川渝“校园之春”文化艺术体育科技活动推介发布暨“红岩新青年”大学生思政课11日在合川举办，部分高校团委负责同志、青年师生代表及社会观众等4800余人现场参加活动。 本届“校园之春”活动立足长江经济带发展战略实施十周年重要节点，在传承经典的基础上持续创新，进一步优化升级赛事体系，将举办团干部素质能力大赛、辅导员素质能力大赛、歌唱大赛、街舞
+中新网5月15日电 据“中国禁毒”微信公众号消息，近年来，国家禁毒办多次发布通告提醒相关企业和个人谨慎向境外销售可制毒物品及新精神活性物质，防范境外法律风险。然而，国内仍有部分不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品，并逐渐形成化工“黑灰”产业链，造成重大涉毒风险。公安部对此高度重视，多轮次部署开展打击管控专项行动，破获一批重点案件、整治一批问题企业
 
 ## 正文
 
-中新网重庆4月12日电 (梁钦卿)第45届川渝“校园之春”文化艺术体育科技活动推介发布暨“红岩新青年”大学生思政课11日在合川举办，部分高校团委负责同志、青年师生代表及社会观众等4800余人现场参加活动。
+中新网5月15日电 据“中国禁毒”微信公众号消息，近年来，国家禁毒办多次发布通告提醒相关企业和个人谨慎向境外销售可制毒物品及新精神活性物质，防范境外法律风险。
 
-本届“校园之春”活动立足长江经济带发展战略实施十周年重要节点，在传承经典的基础上持续创新，进一步优化升级赛事体系，将举办团干部素质能力大赛、辅导员素质能力大赛、歌唱大赛、街舞大赛、篮球大赛、电竞大赛、机器人大赛、机甲大师联盟赛、“挑战杯”创业计划竞赛等赛事活动，促进学生德智体美劳全面发展，不断构建“红岩新青年”高校大思政体系。
+然而，国内仍有部分不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品，并逐渐形成化工“黑灰”产业链，造成重大涉毒风险。
 
-“‘校园之春’见证了我的成长，也见证了一届届职教人的梦想接力。
+公安部对此高度重视，多轮次部署开展打击管控专项行动，破获一批重点案件、整治一批问题企业、惩处一批犯罪分子，全力消除涉毒风险隐患，整治网络营商环境，保障我国化工行业健康发展。
 
-”第26届“校园之春”数控技能大赛一等奖获得者、重庆工业职业技术大学机械工程学院高级实验师韩辉辉说，对他而言，校园之春不仅是荣誉，更是学生们成长锻炼收获自信的舞台。
+2025年以来，共破获相关刑事案件29起，抓获犯罪嫌疑人157名，缴获毒品720公斤、新精神活性物质1.3吨、兴奋剂0.9公斤，查扣非列管前体化学品27.7吨。
 
-“新时代需要大国工匠，新征程呼唤工匠精神，我将和学生们一起以匠心铸就梦想，用技能报效国家，贡献职教人的青春力量。
+为充分发挥警示教育作用，公安部15日公布近年来公安机关侦办的典型案例。
 
-” 第34届“校园之春”高校学生干部“说·写·行”风采大赛一等奖获得者邱新园如今已投身公安工作，扎根反诈一线。
+一、汤某某等走私制贩新精神活性物质案 2025年12月，公安机关侦破汤某某走私制贩新精神活性物质案，抓获犯罪嫌疑人21名，缴获毒品31.89公斤、新精神活性物质1.01吨，查扣各类制毒原料15.4吨，捣毁制毒窝点和前体生产窝点各1处，冻结涉案资金692万元，行政处罚化工企业3家。
 
-她说，一路走来，“校园之春”这个舞台不仅褪去了她的胆怯，赋予她从容自信，更照亮她成长的道路。
+经查，汤某某通过搭建2个网站向境外发布化学品广告，待境外客户下单后，在国内多地委托研制客户订购化学品，通过国际货代公司向境外国家走私贩运，收取境外买家虚拟货币货款。
 
-当年在赛场上沉淀的表达能力、抗压底气，陪着她从校园走向岗位，成为守护平安、履职担当的勇气和力量。
+2026年1月，汤某某、陈某某因涉嫌走私、贩卖、运输、制造毒品罪，被依法批准逮捕；于某某、张某某因涉嫌非法生产、买卖、运输制毒物品罪，被依法批准逮捕；另有8名涉案人员因涉嫌污染环境罪，被公安机关依法采取刑事强制措施。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:16 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:03 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:53 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:49 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:48 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:00 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:15 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:10 - [辽宁持续发力打造营商环境好口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:00 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:00 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:55 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:49 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:55 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:08 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:22 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:02 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:04 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:08 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:21 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:01 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:18 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:03 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:07 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.blog.kurohicncr.top/Article/details/45898447.shtml)
-- 2026-06-29 11:50 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](http://www.blog.minike.top/Article/details/84217850.shtml)
-- 2026-06-29 12:16 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [第十四届北京国际风筝节启幕](http://www.share.kurohicncr.top/Article/details/1238167628.shtml)
-- 2026-06-29 11:57 - [张果彤:黄金中线二次探底概率较大](http://www.share.kurohicncr.top/Article/details/44107182.shtml)
-- 2026-06-29 12:02 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](http://www.share.minike.top/Article/details/85158.shtml)
-- 2026-06-29 11:51 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [肉类食品巨头JBS罢工以加薪告终](http://www.blog.minike.top/Article/details/018023.shtml)
-- 2026-06-29 11:53 - [天泓文创与长沙棠艺签订战略合作意向书](http://www.blog.kurohicncr.top/Article/details/39182912.shtml)
-- 2026-06-29 12:05 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.blog.minike.top/Article/details/80114.shtml)
-- 2026-06-29 11:53 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.share.kurohicncr.top/Article/details/47138412488.shtml)
-- 2026-06-29 12:07 - [陕西渭南：华山迎壮丽日落景观](http://www.share.kurohicncr.top/Article/details/83137329.shtml)
-- 2026-06-29 11:59 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](http://www.blog.minike.top/Article/details/950157362608.shtml)
-- 2026-06-29 12:14 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.blog.kurohicncr.top/Article/details/894213515.shtml)
+- 2026-06-29 11:57 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.kurohicncr.top/Article/details/33473.shtml)
+- 2026-06-29 12:07 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.blog.kurohicncr.top/Article/details/0452504.shtml)
+- 2026-06-29 12:09 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.blog.kurohicncr.top/Article/details/51267.shtml)
+- 2026-06-29 12:06 - [土耳其理工名校掀起中国热](http://www.share.minike.top/Article/details/120187169.shtml)
+- 2026-06-29 12:11 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.blog.minike.top/Article/details/0139819835.shtml)
+- 2026-06-29 11:59 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.blog.kurohicncr.top/Article/details/658828.shtml)
+- 2026-06-29 12:07 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.minike.top/Article/details/545568387.shtml)
+- 2026-06-29 12:12 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.kurohicncr.top/Article/details/11140586.shtml)
+- 2026-06-29 12:24 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](http://www.share.kurohicncr.top/Article/details/349532.shtml)
+- 2026-06-29 12:19 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](http://www.blog.minike.top/Article/details/6982727.shtml)
+- 2026-06-29 12:07 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](http://www.blog.minike.top/Article/details/383377388.shtml)
+- 2026-06-29 12:08 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [湖南省文化馆数字文旅体验空间开馆](http://www.blog.kurohicncr.top/Article/details/806783.shtml)
+- 2026-06-29 12:03 - [Token越来越贵？别慌！算力网已在来的路上](http://www.share.minike.top/Article/details/123703585945.shtml)

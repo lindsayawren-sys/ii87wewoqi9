@@ -1,61 +1,61 @@
-# 今夜，跳水！特朗普：美军将封锁！霍尔木兹海峡，再生变数！两艘油轮紧急掉头
+# 多家银行关停独立信用卡App，有何影响？
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！伊朗局势突变！ 据最新消息，当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。他还表示，美国将开始“摧毁”伊朗人在霍尔木兹海峡布设的水雷。 特朗普12日还对伊朗发出新的威胁，称“在适当时间，我们会完全‘准备就绪’，我们的军队将把伊朗
+中国银行本周发布公告，信用卡专属手机应用程序“缤纷生活”将从7月1日起停止服务，此前，多家银行也陆续宣布关停信用卡手机应用程序。那么，银行是不是在收缩信用卡服务，对我们持卡人有什么影响？ 记者第一时间联系了中国银行，中行表示，关停信用卡手机应用程序，不会影响客户的使用和体验，他们将原有的服务全部整合进了中国银行手机应用里。部分同样宣布关停信用卡手机应用的银行也表示，他们只是将手
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中国银行本周发布公告，信用卡专属手机应用程序“缤纷生活”将从7月1日起停止服务，此前，多家银行也陆续宣布关停信用卡手机应用程序。
 
-伊朗局势突变！
+那么，银行是不是在收缩信用卡服务，对我们持卡人有什么影响？
 
-据最新消息，当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。
+记者第一时间联系了中国银行，中行表示，关停信用卡手机应用程序，不会影响客户的使用和体验，他们将原有的服务全部整合进了中国银行手机应用里。
 
-他还表示，美国将开始“摧毁”伊朗人在霍尔木兹海峡布设的水雷。
+部分同样宣布关停信用卡手机应用的银行也表示，他们只是将手机端的应用程序进行了整合，让用户更方便地通过一个入口进入，目标是让用户更方便，不会因此降低信用卡的服务标准。
 
-特朗普12日还对伊朗发出新的威胁，称“在适当时间，我们会完全‘准备就绪’，我们的军队将把伊朗的残余力量终结。
+此前，部分银行还停发了一些联名信用卡、主题信用卡等。
 
-” 上述消息传开后，加密货币市场出现跳水，比特币跌破7.1万美元。
+那么，银行是不是在调整信用卡业务？
 
-截至发稿，比特币跌2.32%报70998美元，以太坊、BNB、Solana跌超2%，艾达币、Hyperliquid跌超4%。
+上海金融与发展实验室副主任 董希淼：从信用卡业务来看，它正从原来的“跑马圈地”阶段进入到一个“精耕细作”的阶段，银行业的竞争已经从增量竞争转向存量博弈，银行可能会更多服务好存量客户群体，而不是继续扩张。
 
-1个小时内，加密货币全网爆仓超1900万美元。
+信用卡不只是一个金融工具，它会成为一个综合的生活的助手，融入你生活的各类场景。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [去年超55亿人次在基层看病，医保支付也要“分级”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:06 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:16 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:15 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:15 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:56 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:59 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:59 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:13 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:59 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:59 - [伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:58 - [西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:02 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:17 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:16 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:58 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:55 - [自强不息追光逐梦 五名残疾人代表共话奋斗故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:09 - [金融监管总局发布2026年一季度银行业保险业主要监管指标数据情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:22 - [厦门港新增一条直航印度尼西亚货运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:01 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 11:56 - [和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:56 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:56 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:14 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:00 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:09 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:05 - [浙江北仑灵峰工业社区：打造“家门口”的红色精神家园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:57 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:54 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:11 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:10 - [山东荣成：核电科普研学兴起](http://www.blog.kurohicncr.top/Article/details/580355891.shtml)
-- 2026-06-29 12:02 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](http://www.share.minike.top/Article/details/547074824.shtml)
-- 2026-06-29 12:09 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](http://www.blog.kurohicncr.top/Article/details/4311890722.shtml)
-- 2026-06-29 12:17 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.blog.minike.top/Article/details/931702.shtml)
-- 2026-06-29 12:02 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.blog.minike.top/Article/details/725315261.shtml)
-- 2026-06-29 12:13 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](http://www.share.kurohicncr.top/Article/details/63637307.shtml)
-- 2026-06-29 12:02 - [严格落实直播打赏新规谋求治理实效](http://www.share.minike.top/Article/details/288026304794.shtml)
-- 2026-06-29 12:10 - [（经济观察）封关赋能开放 外资加速入琼](http://www.blog.minike.top/Article/details/8161428.shtml)
-- 2026-06-29 11:56 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.share.minike.top/Article/details/546374.shtml)
-- 2026-06-29 12:01 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.share.minike.top/Article/details/79283437157.shtml)
-- 2026-06-29 12:16 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.share.kurohicncr.top/Article/details/57701694.shtml)
-- 2026-06-29 12:01 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.blog.kurohicncr.top/Article/details/48145114.shtml)
-- 2026-06-29 11:50 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.blog.minike.top/Article/details/3664140237.shtml)
-- 2026-06-29 11:53 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.kurohicncr.top/Article/details/56698833136.shtml)
+- 2026-06-29 12:20 - [高德专车上线静音服务，用户可一键定制“静音专车”](http://www.blog.kurohicncr.top/Article/details/660759024836.shtml)
+- 2026-06-29 12:02 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](http://www.blog.minike.top/Article/details/743840.shtml)
+- 2026-06-29 12:19 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](http://www.blog.minike.top/Article/details/626226037482.shtml)
+- 2026-06-29 11:55 - [时令水果批量上市 专家提示当心糖分超标](http://www.blog.minike.top/Article/details/6522847.shtml)
+- 2026-06-29 11:57 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](http://www.blog.minike.top/Article/details/97509181.shtml)
+- 2026-06-29 12:11 - [主力资金，“盯上”这些股票](http://www.share.minike.top/Article/details/111309841.shtml)
+- 2026-06-29 12:12 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.blog.minike.top/Article/details/591354261.shtml)
+- 2026-06-29 12:10 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [中东部有大范围降水 黄海海域有大雾](http://www.blog.kurohicncr.top/Article/details/8538114978.shtml)
+- 2026-06-29 12:10 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.share.kurohicncr.top/Article/details/622118.shtml)
+- 2026-06-29 12:03 - [重庆对8个区县启动地质灾害四级应急响应](http://www.share.minike.top/Article/details/519488929930.shtml)
+- 2026-06-29 12:19 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [香港特区政府新一批基建及绿色债券在港发行](http://www.blog.minike.top/Article/details/732206258.shtml)
+- 2026-06-29 12:08 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](http://www.share.kurohicncr.top/Article/details/631577514.shtml)

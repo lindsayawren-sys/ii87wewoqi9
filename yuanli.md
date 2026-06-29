@@ -1,56 +1,59 @@
-# Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目
+# Whale Rock一季度大幅调仓：建仓苹果微软，减持英伟达
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-Vineyard Wind已提起诉讼，试图阻止GE Vernova旗下的一家风机供应部门终止协议，并放弃马萨诸塞州一个价值45亿美元的海上风电场在竣工前夕的工作。 Vineyard Wind是西班牙Iberdrola与丹麦哥本哈根基础设施合作伙伴的合资企业，本周在波士顿一家州法院提起诉讼，指控GE Vernova的这家子公司错误地试图在该风电项目“最脆弱阶段”终止合同。 该项目
+科技股仓位重大调整 波士顿对冲基金Whale Rock Capital Management近日向美国证券交易委员会提交了13F文件，披露了其2026年第一季度末的持仓变化。文件显示，该基金在一季度进行了显著的科技股仓位调整：新建仓苹果和微软，同时大幅减持了近年来炙手可热的英伟达股票。 建仓逻辑：从硬件转向软件生态 虽然苹果近期因iPhone销量疲软和AI布局迟缓面临市场压力，
 
 ## 正文
 
-Vineyard Wind已提起诉讼，试图阻止GE Vernova旗下的一家风机供应部门终止协议，并放弃马萨诸塞州一个价值45亿美元的海上风电场在竣工前夕的工作。
+科技股仓位重大调整 波士顿对冲基金Whale Rock Capital Management近日向美国证券交易委员会提交了13F文件，披露了其2026年第一季度末的持仓变化。
 
-Vineyard Wind是西班牙Iberdrola与丹麦哥本哈根基础设施合作伙伴的合资企业，本周在波士顿一家州法院提起诉讼，指控GE Vernova的这家子公司错误地试图在该风电项目“最脆弱阶段”终止合同。
+文件显示，该基金在一季度进行了显著的科技股仓位调整：新建仓苹果和微软，同时大幅减持了近年来炙手可热的英伟达股票。
 
-该项目是美国前总统唐纳德·特朗普政府以国家安全为由于2025年底下令停止建设的五个主要东海岸海上风电项目之一。
+建仓逻辑：从硬件转向软件生态 虽然苹果近期因iPhone销量疲软和AI布局迟缓面临市场压力，但Whale Rock建仓苹果的举动可能意味着其看好苹果在服务收入和边缘AI领域的长期潜力。
 
-在提起诉讼后，联邦法官允许所有五个项目恢复建设。
+苹果当前拥有超过20亿台活跃设备，服务业务毛利率持续维持在70%以上的高位，成为稳定利润来源。
 
-恢复建设后，Vineyard Wind位于玛莎葡萄园岛沿岸海域的806兆瓦项目于今年2月成为美国首个开始初期运营的大型海上风电场。
+与此同时，Whale Rock将微软作为另一重点建仓对象。
 
-但诉讼称，几天后，设计、制造和安装Vineyard Wind风机发电机的GE Renewables US LLC向其发出通知，威胁要终止其风机供应协议。
+微软凭借与OpenAI的深度合作，已成为企业AI软件和应用层的领导者。
 
-Vineyard Wind在日期为4月9日的诉状中表示，GE这样做是援引其未能支付根据13亿美元合同到期应付款项的理由。
+Azure云业务增速重新加速，叠加Microsoft 365 Copilot等AI生产力工具的逐步落地，市场预期微软将在AI商业化进程中率先受益。
 
-Vineyard Wind表示，由于GE“公认的糟糕表现”——2024年其一片海上叶片坍塌并落入楠塔基特岛附近海域导致项目延误——公司已行使其扣留约3.08亿美元款项的权利。
+Whale Rock此轮调仓反映出从硬件基础设施向软件应用和服务迁移的布局思路。
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:07 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:11 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:10 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:11 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:53 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:06 - [“津”非昔比丨这个春天必须冲天津海棠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:58 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:08 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:57 - [山东荣成：核电科普研学兴起](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 11:54 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:04 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:03 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:02 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:19 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:14 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:13 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:14 - [郑丽文：反对“台独”是稳定台海关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:05 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:18 - [高德专车上线静音服务，用户可一键定制“静音专车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:07 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:09 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:12 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [海口海关动植物检疫中心测序服务采购项目流标公告](http://www.share.kurohicncr.top/Article/details/271281.shtml)
-- 2026-06-29 12:12 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/87639918.shtml)
-- 2026-06-29 11:55 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:53 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.share.kurohicncr.top/Article/details/2584431586.shtml)
-- 2026-06-29 11:48 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](http://www.blog.kurohicncr.top/Article/details/315147.shtml)
-- 2026-06-29 12:06 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.share.minike.top/Article/details/786849074694.shtml)
-- 2026-06-29 11:49 - [巴基斯坦陆军参谋长已会见伊朗代表团](http://www.share.kurohicncr.top/Article/details/478246260004.shtml)
-- 2026-06-29 11:58 - [普京宣布成立委员会制定俄人工智能发展战略](http://www.share.minike.top/Article/details/6032855.shtml)
-- 2026-06-29 11:50 - [多晶硅：减产涨价预期带动多晶硅期货涨停](http://www.share.kurohicncr.top/Article/details/9804572614.shtml)
-- 2026-06-29 11:56 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.blog.minike.top/Article/details/8219044.shtml)
-- 2026-06-29 12:16 - [第一观察｜习近平主席寄望中美青年](http://www.share.kurohicncr.top/Article/details/5802816.shtml)
-- 2026-06-29 12:01 - [超百位港籍长者入住深圳光明区养老](http://www.blog.kurohicncr.top/Article/details/8791132222.shtml)
-- 2026-06-29 12:09 - [海峡两岸各界人士在合肥祭拜刘铭传](http://www.blog.kurohicncr.top/Article/details/048076.shtml)
-- 2026-06-29 11:59 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](http://www.blog.minike.top/Article/details/989896610755.shtml)
-- 2026-06-29 12:05 - [周亚琳（女，1977年生），年薪1013.5万元](http://www.share.kurohicncr.top/Article/details/101888806.shtml)
+- 2026-06-29 12:12 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.share.kurohicncr.top/Article/details/075558257.shtml)
+- 2026-06-29 12:13 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](http://www.share.kurohicncr.top/Article/details/271991630877.shtml)
+- 2026-06-29 12:08 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.blog.kurohicncr.top/Article/details/994247215.shtml)
+- 2026-06-29 11:55 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](http://www.share.minike.top/Article/details/06472709165.shtml)
+- 2026-06-29 11:57 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.blog.minike.top/Article/details/19762270809.shtml)
+- 2026-06-29 12:03 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.blog.kurohicncr.top/Article/details/89204631236.shtml)
+- 2026-06-29 11:59 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.share.kurohicncr.top/Article/details/5338339061.shtml)
+- 2026-06-29 12:01 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](http://www.blog.kurohicncr.top/Article/details/42602884973.shtml)
+- 2026-06-29 12:02 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](http://www.share.kurohicncr.top/Article/details/026890.shtml)
+- 2026-06-29 12:14 - [芭蕾舞演员、医学专家带民众走出减重“误区”](http://www.blog.kurohicncr.top/Article/details/974965.shtml)
+- 2026-06-29 12:16 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](http://www.blog.kurohicncr.top/Article/details/3168035.shtml)
+- 2026-06-29 12:15 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](http://www.blog.kurohicncr.top/Article/details/677354478.shtml)
+- 2026-06-29 12:17 - [外交部：中美双方就两国元首年内互动安排保持着沟通](http://www.share.minike.top/Article/details/840863282.shtml)
+- 2026-06-29 12:16 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lisacumin64-arch)

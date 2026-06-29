@@ -1,56 +1,57 @@
-# 小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统
+# 郑州缘何连续四年高规格举办大学生集中毕业典礼？
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，金管局已宣布向汇丰控股（00005）及渣打集团（02888）合资企业发出稳定币发行人牌照。该行视此为正面发展，有助缓解市场对香港特区政府可能暂缓数字资产发展的担忧。 小摩指，由于汇丰及渣打均为香港的发钞银行，预期两家稳定币发行人将与金管局紧密合作，尽量减少稳定币流通对现有金融系统可能造成的干扰。在公司层面，该行预计汇丰与渣打将把稳定币整合至各自的支付生态系统
+中新网郑州5月17日电 题：郑州缘何连续四年高规格举办大学生集中毕业典礼？ 记者 韩章云 又到一年毕业季，河南郑州以城市之名向高校毕业生发出诚挚邀约。 5月16日，“‘郑’好需要你 未来皆可期”2026郑州·大学生集中毕业典礼在郑州轻工业大学举行，15所驻郑高校的近千名毕业生代表齐聚一堂，共同见证这场青春盛会。 这是郑州连续第四年，以城市之名为大学生高规格举办集中毕业典礼。活动
 
 ## 正文
 
-摩根大通发布研报称，金管局已宣布向汇丰控股（00005）及渣打集团（02888）合资企业发出稳定币发行人牌照。
+中新网郑州5月17日电 题：郑州缘何连续四年高规格举办大学生集中毕业典礼？
 
-该行视此为正面发展，有助缓解市场对香港特区政府可能暂缓数字资产发展的担忧。
+记者 韩章云 又到一年毕业季，河南郑州以城市之名向高校毕业生发出诚挚邀约。
 
-小摩指，由于汇丰及渣打均为香港的发钞银行，预期两家稳定币发行人将与金管局紧密合作，尽量减少稳定币流通对现有金融系统可能造成的干扰。
+5月16日，“‘郑’好需要你 未来皆可期”2026郑州·大学生集中毕业典礼在郑州轻工业大学举行，15所驻郑高校的近千名毕业生代表齐聚一堂，共同见证这场青春盛会。
 
-在公司层面，该行预计汇丰与渣打将把稳定币整合至各自的支付生态系统。
+这是郑州连续第四年，以城市之名为大学生高规格举办集中毕业典礼。
 
-相比之下，渣打在数字资产业务的布局更全面，因此可能拥有比汇丰更多的应用场景。
+活动由郑州市委、郑州市政府、共青团河南省委、郑州轻工业大学主办，郑州市委书记安伟等领导出席，既为青年送行，更为青年加油喝彩。
 
-该行并不预期稳定币业务在短期至中期内为两家银行带来显著的收入贡献，然而应有助提振汇丰及渣打两只股票的交易情绪。
+安伟向2026届毕业生发出留郑创业就业的诚挚邀约，勉励他们坚定理想信念、勇担时代使命，在郑州这片热土上贡献青春力量、成就人生价值、书写时代华章。
 
-责任编辑：史丽君
+多措赋能青年发展 郑州以诚意留青年人才，青年在郑州乐业安居。
+
+郑州，这座有着3600多年历史的古老城市，与青年双向奔赴。
 
 ## 相关推荐
 
-- 2026-06-29 11:55 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:17 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:52 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 11:58 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:06 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:13 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:57 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:50 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:01 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:58 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:54 - [第十四届北京国际风筝节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:48 - [张果彤:黄金中线二次探底概率较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:14 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:23 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:07 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:18 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:03 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:01 - [“超级食物”真有那么神奇吗？专家揭秘真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:12 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:19 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:55 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:17 - [土耳其理工名校掀起中国热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:11 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:02 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.share.minike.top/Article/details/63079.shtml)
-- 2026-06-29 12:08 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.blog.minike.top/Article/details/40387926330.shtml)
-- 2026-06-29 12:00 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.blog.kurohicncr.top/Article/details/2287731861.shtml)
-- 2026-06-29 11:54 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](http://www.blog.minike.top/Article/details/7324040209.shtml)
-- 2026-06-29 11:53 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.share.kurohicncr.top/Article/details/3661260.shtml)
-- 2026-06-29 12:15 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/505557119.shtml)
-- 2026-06-29 12:06 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](http://www.blog.kurohicncr.top/Article/details/49225824.shtml)
-- 2026-06-29 12:13 - [旅客遇高反 拉萨火车站“铁路人”紧急救助](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [英国不会参与特朗普拟对霍尔木兹海峡实施的封锁](http://www.blog.minike.top/Article/details/71333983.shtml)
-- 2026-06-29 12:01 - [乡村三大球运动会在贵州台江启动 面向全国开放办赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [秘鲁汽水生产商AJE看好委内瑞拉市场复苏，目前工厂产能利用率仅为5%-10%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [港股主题基金发行热潮：46只新品抢滩，ETF细分赛道扩容](http://www.share.minike.top/Article/details/35970359.shtml)
-- 2026-06-29 11:58 - [“擦边赛道”非法牟利，AI“造黄”产业链曝光](http://www.blog.kurohicncr.top/Article/details/4943110076.shtml)
-- 2026-06-29 12:02 - [广东自然资源资产组合供应首个项目在深圳落地](http://www.blog.minike.top/Article/details/08493558022.shtml)
+- 2026-06-29 12:15 - [长岛铁路工人或于今夜举行罢工](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [688549突发利好，股价短期已翻倍](http://www.share.minike.top/Article/details/449616874000.shtml)
+- 2026-06-29 11:54 - [交响组曲《想你——永远的焦裕禄》在兰考上演](http://www.share.minike.top/Article/details/5056961.shtml)
+- 2026-06-29 12:12 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.blog.kurohicncr.top/Article/details/46505.shtml)
+- 2026-06-29 11:57 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [吉林打造长白山环山骑行品牌](http://www.share.kurohicncr.top/Article/details/556418.shtml)
+- 2026-06-29 12:20 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.share.minike.top/Article/details/31603.shtml)
+- 2026-06-29 11:59 - [保障灾区基本通信 国家应急通信融合接入平台启动全国应用](http://www.blog.kurohicncr.top/Article/details/89214.shtml)
+- 2026-06-29 12:10 - [王毅向媒体介绍中美元首会晤情况和共识](http://www.share.minike.top/Article/details/28187236245.shtml)
+- 2026-06-29 12:04 - [中资企业持续助力柬埔寨教育发展](http://www.share.kurohicncr.top/Article/details/66278.shtml)
+- 2026-06-29 12:04 - [华泰 | A股策略：均衡配置应对内外风险](http://www.share.minike.top/Article/details/5184554368.shtml)
+- 2026-06-29 12:04 - [首次，首项，首个！本周我国多领域实现突破 创新实力亮眼](http://www.share.minike.top/Article/details/30768677.shtml)
+- 2026-06-29 11:59 - [广发证券：这是一场EPS上调速度和利率上行速度的较量](http://www.share.minike.top/Article/details/4554190263.shtml)
+- 2026-06-29 12:11 - [诗承千年风起庐陵 第二届“迦陵杯”中华诗教大会江西吉安举行](http://www.share.kurohicncr.top/Article/details/0883709.shtml)

@@ -1,60 +1,58 @@
-# 第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”
+# 蓝皮书：“十五五”时期中国机器人产业将现两大新趋势
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网上海4月12日电 (记者 缪璐)2026年第八届上海合作组织(以下简称“上合组织”)国家国际象棋团体赛11日在上海青浦正式收官。由世界冠军丁立人、世界棋后居文君、世界团体冠军成员余泱漪领衔的中国一队，在决赛中力克卫冕冠军俄罗斯队，夺得本届赛事冠军。 本届比赛共有来自12个国家的13支队伍参赛，俄罗斯、哈萨克斯坦、吉尔吉斯斯坦等国的顶尖棋手悉数登场，东道主中国则派出两支高水
+中新社北京5月15日电 (记者 王梦瑶)15日在北京发布的《产业蓝皮书：中国产业竞争力报告(2025)No.14》指出，“十五五”时期，中国机器人产业将保持高增长态势，技术进步和产品迭代也将进一步加速。与以往相比，将出现两大新趋势，即应用领域的扩散和人形机器人的兴起。这份由产业蓝皮书课题组和社会科学文献出版社联合发布的蓝皮书指出，从机器人的市场应用看，汽车制造业等装备制造业仍然
 
 ## 正文
 
-中新网上海4月12日电 (记者 缪璐)2026年第八届上海合作组织(以下简称“上合组织”)国家国际象棋团体赛11日在上海青浦正式收官。
+中新社北京5月15日电 (记者 王梦瑶)15日在北京发布的《产业蓝皮书：中国产业竞争力报告(2025)No.14》指出，“十五五”时期，中国机器人产业将保持高增长态势，技术进步和产品迭代也将进一步加速。
 
-由世界冠军丁立人、世界棋后居文君、世界团体冠军成员余泱漪领衔的中国一队，在决赛中力克卫冕冠军俄罗斯队，夺得本届赛事冠军。
+与以往相比，将出现两大新趋势，即应用领域的扩散和人形机器人的兴起。
 
-本届比赛共有来自12个国家的13支队伍参赛，俄罗斯、哈萨克斯坦、吉尔吉斯斯坦等国的顶尖棋手悉数登场，东道主中国则派出两支高水平队伍应战。
+这份由产业蓝皮书课题组和社会科学文献出版社联合发布的蓝皮书指出，从机器人的市场应用看，汽车制造业等装备制造业仍然是机器人使用最多的产业。
 
-其中，中国一队由世界冠军丁立人、世界棋后居文君、奥赛冠军余泱漪组成。
+但随着机器人智能化水平的提高，纺织服装、食品饮料以及大量服务业等以往机器人使用较少的行业，也将成为机器人应用市场新的高增长点。
 
-本次比赛采用快棋形式，时限为每方15分钟，每步棋加10秒。
+此外，机器人开始走进家庭，在更加复杂的家政、养老领域将会出现价格能够被接受的机器人产品。
 
-此前的半决赛中，中国一队和俄罗斯队分别战胜白俄罗斯队与蒙古国队，会师冠亚军决赛。
+蓝皮书指出，人形机器人相对于传统机器人有突出的特征和优势，在机械构造、智能化、拟人仿生等技术领域有显著的进步。
 
-当天的决赛中，中国一队与上届冠军俄罗斯队杀得难解难分，最终中国一队凭借突然死亡加赛惊险胜出，获得冠军，俄罗斯队获得亚军。
+不同类型机器人有各自擅长的领域，对比目前工业转型升级需求和人形机器人的发展方向，人形机器人更适合应用于商业和家庭，在满足工业生产的可靠性和性价比方面的性能低于传统工业机器人。
 
-三四名决赛中，蒙古国队战胜白俄罗斯队，获得季军，白俄罗斯队位列第四。
+尽管如此，蓝皮书认为，人形机器人是机器人技术、工艺的重要验证平台，能够促进机器人动力系统、感知系统的进一步优化，人形机器人拟人化的发展理念也会对工业机器人未来发展有重大启示，这将对工业的机械化、智能发展产生持续影响。
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:08 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:56 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:58 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:16 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:54 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:01 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:53 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:01 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:58 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:05 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:48 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:56 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:53 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:07 - [《后遗症》作者秦汝璧谈女性成长困境：要更注重精神层面的超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:21 - [美国爱达荷州一空军基地发生空中撞机 飞行员弹射逃生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:01 - [Whale Rock一季度大幅调仓：建仓苹果微软，减持英伟达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:00 - [江西85后富豪夫妇又要IPO了，身家65亿，一年狂揽34亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:57 - [篮球比赛最后5秒 少年以超远3分球反超 这一刻 人生高光！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:54 - [从“决断”到“转折”：2026轩辕汽车蓝皮书论坛在广州闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:23 - [【市场聚焦】黑色：回落压力较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:11 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:19 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:54 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:59 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:04 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:59 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](http://www.share.kurohicncr.top/Article/details/887003758076.shtml)
-- 2026-06-29 11:55 - [南部战区新闻发言人发表谈话](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.share.kurohicncr.top/Article/details/353370333.shtml)
-- 2026-06-29 11:54 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.blog.kurohicncr.top/Article/details/66116965417.shtml)
-- 2026-06-29 12:01 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.share.minike.top/Article/details/5311594.shtml)
-- 2026-06-29 12:06 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.share.kurohicncr.top/Article/details/99188616528.shtml)
-- 2026-06-29 12:16 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.share.kurohicncr.top/Article/details/72237.shtml)
-- 2026-06-29 11:54 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](http://www.blog.minike.top/Article/details/547658.shtml)
-- 2026-06-29 12:16 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/516005.shtml)
-- 2026-06-29 12:04 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](http://www.share.minike.top/Article/details/484017676502.shtml)
-- 2026-06-29 12:14 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.share.kurohicncr.top/Article/details/93441609653.shtml)
-- 2026-06-29 11:57 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](http://www.blog.kurohicncr.top/Article/details/2789467.shtml)
-- 2026-06-29 11:58 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.blog.minike.top/Article/details/447244375703.shtml)
+- 2026-06-29 12:11 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](http://www.blog.kurohicncr.top/Article/details/71054976442.shtml)
+- 2026-06-29 11:54 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.blog.kurohicncr.top/Article/details/82689088602.shtml)
+- 2026-06-29 12:15 - [九连板之后，002207公告：无注入算力资产的计划](http://www.blog.minike.top/Article/details/8477891.shtml)
+- 2026-06-29 12:00 - [日本财务大臣片山皋月否认需要编制额外预算](http://www.blog.minike.top/Article/details/52662006.shtml)
+- 2026-06-29 12:00 - [美国侨胞：期待新定位领航中美关系行稳致远](http://www.share.kurohicncr.top/Article/details/3206992736.shtml)
+- 2026-06-29 12:09 - [珠江流域持续暴雨 广东多地停课](http://www.share.kurohicncr.top/Article/details/3884892293.shtml)
+- 2026-06-29 12:10 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](http://www.blog.minike.top/Article/details/203939.shtml)
+- 2026-06-29 12:08 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.share.kurohicncr.top/Article/details/82879489.shtml)
+- 2026-06-29 12:11 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.blog.minike.top/Article/details/080593187367.shtml)
+- 2026-06-29 12:11 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.blog.minike.top/Article/details/6068147271.shtml)
+- 2026-06-29 11:59 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.blog.kurohicncr.top/Article/details/7986889618.shtml)
+- 2026-06-29 12:04 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.blog.kurohicncr.top/Article/details/154991490.shtml)

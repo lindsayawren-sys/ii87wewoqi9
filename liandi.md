@@ -1,59 +1,53 @@
-# （八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智
+# 宁波银行回应拨备覆盖率下降：整体上符合行业趋势
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。 他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经
+5月15日金融一线消息，宁波银行今日举行2025年度网上业绩说明会。谈及拨备覆盖率下降，董事会秘书俞罡表示，截至2025年末，公司拨备覆盖率373.16%，但仍保持了行业较高水平。拨备覆盖率的下降，整体上符合行业趋势。责任编辑：李琳琳
 
 ## 正文
 
-中新社福建宁德4月11日电 题：探访“中国刀剪之乡”柘荣：百年铁火淬新智 中新社记者 吕巧琴 叶茂 “叮当，叮当。
+5月15日金融一线消息，宁波银行今日举行2025年度网上业绩说明会。
 
-”还未踏入位于福建省宁德市柘荣县城区溪坪上街的传统剪刀制造技艺工坊，清脆而有力的铁锤锻打声已穿门而出。
+谈及拨备覆盖率下降，董事会秘书俞罡表示，截至2025年末，公司拨备覆盖率373.16%，但仍保持了行业较高水平。
 
-坊内，柘荣剪刀制造技艺福建省级非遗代表性传承人林龙醒手中铁锤起落之间，一把剪刀的雏形在火花与汗水中显现。
+拨备覆盖率的下降，整体上符合行业趋势。
 
-他11日接受中新社记者采访时说，从下钢到成品，一把剪刀要经过20多道工序，每一步都不能省略，差一点火候，剪刀的韧性就会不足。
-
-据《柘荣县志》记载，雍正年间，柘荣就有能工巧匠用生铁加钢刃锻打剪刀，特别是在下钢、淬火、水磨三道传统技艺方面形成了独特的柘荣剪刀制造技艺，至今已约三百年。
-
-溪坪街是柘荣剪刀的发源与传承之地，这里流传着一句民谣：“上街打剪刀，中街生意仔，下街读书郎”。
-
-今年57岁的林龙醒自小跟随爷爷和父亲学习打剪刀。
-
-他介绍，柘荣刀剪延续传统手工艺，始终讲究精工细雕，镶嵌钢刃要均匀，磨工精细，雕刻精巧。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [探访南京超级充电绿色示范站 快充只需十分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:02 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:57 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:15 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:11 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:17 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:57 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:09 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:53 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:55 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:53 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:57 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:51 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:15 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:19 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:58 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:59 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:19 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:22 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:13 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:12 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:59 - [特朗普说“伊斯兰国”二号头目被“清除”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:18 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:59 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:06 - [芭蕾舞演员、医学专家带民众走出减重“误区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:22 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:03 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:12 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:12 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](http://www.share.minike.top/Article/details/0985280.shtml)
-- 2026-06-29 11:48 - [个贷不良依然压力山大](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](http://www.share.minike.top/Article/details/214701032.shtml)
-- 2026-06-29 11:58 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [【早盘三分钟】4月13日华宝基金ETF早知道](http://www.share.kurohicncr.top/Article/details/18816124095.shtml)
-- 2026-06-29 12:05 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](http://www.share.minike.top/Article/details/443554276.shtml)
-- 2026-06-29 11:53 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.kurohicncr.top/Article/details/179577.shtml)
-- 2026-06-29 12:15 - [尼泊尔民众拉战车迎接尼历新年](http://www.share.kurohicncr.top/Article/details/23249178665.shtml)
-- 2026-06-29 11:51 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](http://www.blog.kurohicncr.top/Article/details/872548294.shtml)
-- 2026-06-29 12:17 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.minike.top/Article/details/813638314.shtml)
-- 2026-06-29 11:53 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](http://www.blog.minike.top/Article/details/267947.shtml)
-- 2026-06-29 12:00 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.kurohicncr.top/Article/details/97858140.shtml)
-- 2026-06-29 12:05 - [伊朗武装部队称随时准备开火](http://www.share.minike.top/Article/details/3332436134.shtml)
-- 2026-06-29 11:56 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [2027澳网亚太区外卡赛将落地成都](http://www.share.kurohicncr.top/Article/details/425864549.shtml)
+- 2026-06-29 12:11 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](http://www.share.kurohicncr.top/Article/details/03205.shtml)
+- 2026-06-29 11:56 - [国际人士：中美元首外交意义重大 推动世界和平发展](http://www.blog.minike.top/Article/details/944582628.shtml)
+- 2026-06-29 12:18 - [三星会长李在镕就劳资纠纷向公众致歉](http://www.share.kurohicncr.top/Article/details/733468725.shtml)
+- 2026-06-29 12:22 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](http://www.share.kurohicncr.top/Article/details/5433349.shtml)
+- 2026-06-29 11:59 - [中国大陆学者首获英国皇家经济学会终身院士](http://www.share.kurohicncr.top/Article/details/891563.shtml)
+- 2026-06-29 11:55 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](http://www.blog.kurohicncr.top/Article/details/998220930838.shtml)
+- 2026-06-29 12:10 - [002342，被证监会立案！](http://www.share.minike.top/Article/details/20563.shtml)
+- 2026-06-29 12:23 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.share.kurohicncr.top/Article/details/779060038024.shtml)
+- 2026-06-29 12:19 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](http://www.share.kurohicncr.top/Article/details/6463395.shtml)
+- 2026-06-29 11:58 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [浙江省欧美同学会金融委员会举行座谈交流活动](http://www.share.minike.top/Article/details/587071.shtml)
+- 2026-06-29 12:02 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lisacumin64-arch)

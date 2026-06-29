@@ -1,61 +1,57 @@
-# 新书《烽火连三月》：重新审视和塑造革命中的女性形象
+# 515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网广州4月13日电 (记者 程景伟)2026湾区书屋·花城书房文学阅读月系列活动近日在广州珠江公园开启，作家张梅携新书《烽火连三月》，以“追寻革命时代的岭南‘烟火气’”为主题，与诗人世宾、制片人冯令沂、编辑肖玉泉等嘉宾展开对谈。 《烽火连三月》由花城出版社推出，作品以同盟会首位澳门女会员赵连城与其丈夫冯秋雪的经历为原型，通过多线叙事和时空交错的笔法，将市井烟火中的百态人生与
+专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。鹏华基金凭借鹏华国民教育高质量投教课程，荣获2026年度“最佳投资者教育创新奖”。 据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于
 
 ## 正文
 
-中新网广州4月13日电 (记者 程景伟)2026湾区书屋·花城书房文学阅读月系列活动近日在广州珠江公园开启，作家张梅携新书《烽火连三月》，以“追寻革命时代的岭南‘烟火气’”为主题，与诗人世宾、制片人冯令沂、编辑肖玉泉等嘉宾展开对谈。
+专题：515投资者保护！
 
-《烽火连三月》由花城出版社推出，作品以同盟会首位澳门女会员赵连城与其丈夫冯秋雪的经历为原型，通过多线叙事和时空交错的笔法，将市井烟火中的百态人生与革命的历史洪流紧密相连，既写时代之激荡，亦显岭南文化以烟火气滋养革命的韧性。
+新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
 
-“在我着手写这部小说之前，我有一个梦想，那就是通过一部小说来重新构建我心中的广州。
+鹏华基金凭借鹏华国民教育高质量投教课程，荣获2026年度“最佳投资者教育创新奖”。
 
-我选择了回望辛亥革命这段风云际会的历史，重新审视和塑造革命中的女性形象，完成我笔下的广州的一次重构。
+据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于为广大高校学子搭建触达行业前沿理论与实务的学习交流平台，在课程打造方面结合高校需求，以“成体系，有深度”为原则，精准施教，于2025年秋季携手上海证券报、上海财经大学成功举办第五期《基金实战专题》国民教育高质量投教课程，为来自近10所高校的100余位硕士研究生带来了一场体系完备、内容精深的金融实务课。
 
-”张梅首先分享了创作体会。
+该课程延续“成体系、有深度”的核心原则，特邀鹏华基金8位基本面投资专家组成讲师团队，围绕“创新科技、创新消费、创新国粹”三大主题，精心设计了八大核心专题。
 
-“《烽火连三月》展现了一种革命年代的烟火日常，这种软性的、非传统的革命叙事非常吸引我。
+讲师们凭借扎实的理论功底与丰富的实战经验，将前沿投资理论与市场实践深度融合，助力学子构建从认知到实战的完整知识框架。
 
-”诗人世宾认为，张梅在《烽火连三月》中运用魔幻现实主义的手法，通过细腻的语言和生动描绘，展现清末时代背景下的生活细节与时代日常，使个人命运、市井生活以及时代浪潮都得到充分呈现，因此更加真实可信。
+课程内容紧密契合国家产业发展趋势，覆盖科技、消费、医药、半导体、化工、AI等重点领域，课程层层递进、脉络清晰，赢得学子广泛好评。
 
-制片人冯令沂是《烽火连三月》中主人公人物原型的亲属。
+第五期课程在传承既往高品质的基础上，进一步优化内容呈现方式，通过专业课件、案例拆解与互动答疑等多种形式，将复杂金融知识转化为生动易懂的教学内容，有效提升了学习体验。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:00 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:54 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:55 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:06 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:03 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:08 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:06 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:00 - [白银跳空低开跌2%，避险失效？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 11:53 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:11 - [5亿元科创基金100%投向中大成果转化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:01 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:51 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:55 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:58 - [巴基斯坦总理会见美国副总统万斯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:58 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:19 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:16 - [日本国债收益率飙升 投资者押注日资从美债回流本土](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:07 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:10 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:12 - [广西柳州成立具身智能机器人技术应用中心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:16 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:05 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:09 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:18 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:11 - [兰州新区全链赋能丝路“甘味”香飘海内外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:05 - [2026北京半程马拉松收官 王文杰破全国纪录夺冠](http://www.share.kurohicncr.top/Article/details/768392.shtml)
-- 2026-06-29 11:56 - [瑞银下调ServiceNow评级，指企业支出重心正在转移](http://www.share.kurohicncr.top/Article/details/914462288.shtml)
-- 2026-06-29 11:56 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.kurohicncr.top/Article/details/697801698.shtml)
-- 2026-06-29 12:07 - [郑丽文一行圆满结束大陆参访 离京返台](http://www.share.minike.top/Article/details/82841297.shtml)
-- 2026-06-29 12:14 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.share.kurohicncr.top/Article/details/3194425030.shtml)
-- 2026-06-29 11:54 - [如何看待车企自研芯片？爱芯元智仇肖莘：苹果选择自研但过程非常曲折，绝大部分厂商不会自研而是靠行业分工](http://www.share.kurohicncr.top/Article/details/1906466.shtml)
-- 2026-06-29 12:17 - [酒价内参4月13日价格发布，水晶剑南春小幅回落1元](http://www.blog.minike.top/Article/details/65211.shtml)
-- 2026-06-29 12:16 - [我国首个海上注碳增气项目开工 年封存超百万吨二氧化碳](http://www.share.minike.top/Article/details/904183735.shtml)
-- 2026-06-29 11:59 - [商业银行金融债券发行启动，债券供给边际放缓](http://www.share.minike.top/Article/details/582566.shtml)
-- 2026-06-29 11:52 - [华泰期货：美伊谈判未达成协议，燃料油市场地缘不确定性仍存](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [股价跌近3%，保变电气回应年报多项指标变动原因](http://www.blog.kurohicncr.top/Article/details/1043828.shtml)
-- 2026-06-29 11:57 - [工信部原副部长苏波：燃油新车市场受挤压，会倒逼加快车企电动化转型](http://www.share.kurohicncr.top/Article/details/8066629.shtml)
-- 2026-06-29 12:08 - [伊朗第一副总统：若美方代表“以色列优先” 谈判将无果而终](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [呼吸衰竭3天后转危为安，被蛇咬了怎么办？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [阿联酋加速建设第二条东西向石油管道，绕道避开霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/606237087108.shtml)
+- 2026-06-29 12:06 - [北方炎热持续升级南方强降雨频发](http://www.share.kurohicncr.top/Article/details/703508046.shtml)
+- 2026-06-29 11:55 - [新疆于田县第九届玫瑰风情文化旅游活动开幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [住房城乡建设部：地级及以上城市、县级市全面开展城市体检](http://www.blog.minike.top/Article/details/174461940.shtml)
+- 2026-06-29 12:21 - [ST迪瑞的警示：内控失控、业绩变脸、治理动荡三重困局](http://www.blog.kurohicncr.top/Article/details/532586002331.shtml)
+- 2026-06-29 11:59 - [三星电子CEO与最大工会领导层会面 表达继续谈判意愿](http://www.share.kurohicncr.top/Article/details/97332.shtml)
+- 2026-06-29 12:08 - [生长周期缩短近半 “太空种子”在内蒙古大漠成功开花](http://www.share.kurohicncr.top/Article/details/147424777531.shtml)
+- 2026-06-29 12:11 - [长岛铁路工人或于今夜举行罢工](http://www.share.kurohicncr.top/Article/details/64344.shtml)
+- 2026-06-29 12:15 - [688549突发利好，股价短期已翻倍](http://www.share.minike.top/Article/details/51267.shtml)
+- 2026-06-29 12:12 - [交响组曲《想你——永远的焦裕禄》在兰考上演](http://www.blog.minike.top/Article/details/83636874.shtml)
+- 2026-06-29 12:24 - [中视金桥于5月15日斥资147.4万港元回购72.6万股](http://www.blog.minike.top/Article/details/66800.shtml)
+- 2026-06-29 12:20 - [蚊子藏隐患？乙脑怎么防？这套“防护攻略”快收好|科普时间](http://www.share.kurohicncr.top/Article/details/080221354.shtml)
+- 2026-06-29 12:11 - [2026重庆六一缤纷跑欢乐起跑 3500余组亲子家庭乐享运动时光](http://www.share.minike.top/Article/details/3349269243.shtml)
+- 2026-06-29 11:57 - [吉林打造长白山环山骑行品牌](http://www.blog.minike.top/Article/details/192841900975.shtml)
+- 2026-06-29 12:16 - [超5000名小勇士挑战2026斯巴达勇士儿童赛杭州站](http://www.share.kurohicncr.top/Article/details/060444.shtml)

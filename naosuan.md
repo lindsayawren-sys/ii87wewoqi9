@@ -1,57 +1,52 @@
-# 2026年全国教育科研工作会议在京举行
+# 重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网北京4月12日电 (记者 曾玥)记者从中国教育科学研究院获悉，2026年全国教育科研工作会议4月10至11日在北京举行。此次会议聚焦基础教育高质量发展的关键性与引领性议题，围绕基础教育发展战略暨义务教育法实施四十周年开展主题研讨。教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。会议指出，党的十八大以来，我国基础教育取得了历史性成就、发生了格局性变化，各项关键指标显著提
+发布时间：2026年05月15日 12:55 来源：中国新闻网 5月14日晚，重庆忠县大型山水实景演艺《烽烟三国》上演，吸引海内外游客齐聚三峡之畔，共赴一场穿越千年的忠义文化之约。该演出以壮美三峡为背景，以三峡港湾为舞台，以三国人物为原型，以关公故事为主线，是长江三峡首部古代战争题材、刻画关羽忠义形象的大型山水实景剧，演出重现了“火烧赤壁”“桃园结义”等经典场景。近年来，忠县以
 
 ## 正文
 
-中新网北京4月12日电 (记者 曾玥)记者从中国教育科学研究院获悉，2026年全国教育科研工作会议4月10至11日在北京举行。
+发布时间：2026年05月15日 12:55 来源：中国新闻网 5月14日晚，重庆忠县大型山水实景演艺《烽烟三国》上演，吸引海内外游客齐聚三峡之畔，共赴一场穿越千年的忠义文化之约。
 
-此次会议聚焦基础教育高质量发展的关键性与引领性议题，围绕基础教育发展战略暨义务教育法实施四十周年开展主题研讨。
+该演出以壮美三峡为背景，以三峡港湾为舞台，以三国人物为原型，以关公故事为主线，是长江三峡首部古代战争题材、刻画关羽忠义形象的大型山水实景剧，演出重现了“火烧赤壁”“桃园结义”等经典场景。
 
-教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。
+近年来，忠县以《烽烟三国》为核心IP，持续推动文旅融合升级，还联动石宝寨、皇华城等周边文旅资源放大IP影响力，吸引更多中外游客走进忠县、读懂忠义文化。
 
-会议指出，党的十八大以来，我国基础教育取得了历史性成就、发生了格局性变化，各项关键指标显著提升。
-
-“十五五”时期是贯彻落实民生为大、基教优先的关键阶段，基础教育改革发展既面临重要机遇，也面临诸多挑战。
-
-要深刻把握时代变局、人口变化、教育功利化倾向、学生身心健康和人工智能快速发展带来的新要求、新考验。
-
-牢牢守住意识形态主阵地，精准配置教育资源，统筹推进学前教育优质普惠、义务教育优质均衡、高中教育优质特色发展，全面深入推进“人工智能+教育”，持续营造风清气正的教育生态。
-
-会议强调，教育科研是推动教育事业发展的战略引擎，必须切实发挥好教育科研作用，从学科发展逻辑向问题解决逻辑转变，加快AI+科研范式转型，构建能够指导教育强国建设的自主知识体系。
+(陈媛 梁钦卿 制作 王佳琪） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-29 11:56 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:05 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:06 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:09 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:48 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:15 - [辽宁持续发力打造营商环境好口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:02 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:14 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:02 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:11 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:17 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:17 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:02 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:00 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:07 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:20 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:57 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:12 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:05 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:06 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:01 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:05 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:09 - [联播+｜读懂中国的特别窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:20 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:03 - [星网宇达：截至2026年4月20日公司股东人数为40184户](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:15 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.blog.kurohicncr.top/Article/details/554909.shtml)
-- 2026-06-29 11:54 - [第十四届北京国际风筝节启幕](http://www.blog.kurohicncr.top/Article/details/0860647609.shtml)
-- 2026-06-29 12:07 - [张果彤:黄金中线二次探底概率较大](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](http://www.share.kurohicncr.top/Article/details/81750734.shtml)
-- 2026-06-29 12:14 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:10 - [肉类食品巨头JBS罢工以加薪告终](http://www.share.kurohicncr.top/Article/details/39130.shtml)
-- 2026-06-29 12:14 - [天泓文创与长沙棠艺签订战略合作意向书](http://www.share.kurohicncr.top/Article/details/689399747.shtml)
-- 2026-06-29 11:52 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.share.minike.top/Article/details/23390386.shtml)
-- 2026-06-29 12:16 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:07 - [陕西渭南：华山迎壮丽日落景观](http://www.share.minike.top/Article/details/764877458.shtml)
-- 2026-06-29 12:03 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](http://www.blog.minike.top/Article/details/877474.shtml)
-- 2026-06-29 12:14 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.share.minike.top/Article/details/169649570.shtml)
-- 2026-06-29 12:06 - [永升服务于4月10日斥资37.65万港元回购20万股](http://www.share.kurohicncr.top/Article/details/8634175.shtml)
-- 2026-06-29 12:11 - [全军后勤重点行业领域职业道德规范出台](http://www.blog.kurohicncr.top/Article/details/561811.shtml)
-- 2026-06-29 11:54 - [黎巴嫩称已同意周二举行停火谈判会议](http://www.share.kurohicncr.top/Article/details/80794082.shtml)
+- 2026-06-29 12:16 - [土耳其理工名校掀起中国热](http://www.blog.minike.top/Article/details/55612901.shtml)
+- 2026-06-29 12:15 - [中美元首会谈是否讨论人工智能合作？中方回应](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.blog.minike.top/Article/details/218795.shtml)
+- 2026-06-29 11:54 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.blog.minike.top/Article/details/559040312.shtml)
+- 2026-06-29 12:17 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.blog.minike.top/Article/details/243162726.shtml)
+- 2026-06-29 11:54 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.blog.kurohicncr.top/Article/details/8937956.shtml)
+- 2026-06-29 11:58 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](http://www.blog.minike.top/Article/details/60890419.shtml)
+- 2026-06-29 12:10 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](http://www.share.minike.top/Article/details/58372269393.shtml)
+- 2026-06-29 12:06 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](http://www.blog.kurohicncr.top/Article/details/80831065.shtml)
+- 2026-06-29 12:06 - [湖南省文化馆数字文旅体验空间开馆](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [Token越来越贵？别慌！算力网已在来的路上](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [印度与阿联酋将全面深化合作](http://www.blog.kurohicncr.top/Article/details/6524661108.shtml)
+- 2026-06-29 12:17 - [蔚来李斌：换电从来不是失血点，而是超前投入期](http://www.blog.kurohicncr.top/Article/details/1284328.shtml)
+- 2026-06-29 11:56 - [马祖摄影人在福建霞浦共赴光影之约](http://www.share.minike.top/Article/details/869215989544.shtml)

@@ -1,57 +1,59 @@
-# 广西资源苗家阿妹“山歌”“带货”“春江水”
+# 515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新社桂林4月12日电 题：广西资源苗家阿妹“山歌”“带货”“春江水” 作者 莫伟雯 欧惠兰 “山歌好比春江水——广西‘三月三’就要到了，带你们到我家乡对山歌！”临近广西“三月三”假期，广西桂林穿山公园“塔山清影”的碧波上，身着苗族盛装的苗族阿妹肖孝云(艺名“阿肖朵”)，站立在竹筏上，踏歌而来。她向直播间观众“种草”桂林山水，带大家一起感受民族特色与桂林山水的魅力。 阿肖朵来自
+专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，上银基金2026年精心打造的投资者教育系列作品——“涨了鸭的投资旅途”系列投教漫画及视频。以“投资是一场长途旅行”为核心隐喻，通过拟人化卡通形象“涨了鸭”及其伙伴的趣味故事，将复杂的金融知识转化为通俗易懂、富有情感共鸣的视觉叙事。 该系列不仅包含精心设计的系列海报，更延伸制作了配套动画视频，形成多媒介
 
 ## 正文
 
-中新社桂林4月12日电 题：广西资源苗家阿妹“山歌”“带货”“春江水” 作者 莫伟雯 欧惠兰 “山歌好比春江水——广西‘三月三’就要到了，带你们到我家乡对山歌！
+专题：515投资者保护！
 
-”临近广西“三月三”假期，广西桂林穿山公园“塔山清影”的碧波上，身着苗族盛装的苗族阿妹肖孝云(艺名“阿肖朵”)，站立在竹筏上，踏歌而来。
+新浪财经2026年度投教案例评选结果公布 5月15日，上银基金2026年精心打造的投资者教育系列作品——“涨了鸭的投资旅途”系列投教漫画及视频。
 
-她向直播间观众“种草”桂林山水，带大家一起感受民族特色与桂林山水的魅力。
+以“投资是一场长途旅行”为核心隐喻，通过拟人化卡通形象“涨了鸭”及其伙伴的趣味故事，将复杂的金融知识转化为通俗易懂、富有情感共鸣的视觉叙事。
 
-阿肖朵来自桂林资源县车田苗族乡。
+该系列不仅包含精心设计的系列海报，更延伸制作了配套动画视频，形成多媒介联动的立体化投教矩阵。
 
-“我不是科班出身的歌手。
+本系列内容既不生硬说教，又有效强化了风险意识。
 
-”阿肖朵说，她小时候跟着长辈唱苗歌，听到苗寨里阿哥阿姐在吊脚楼对山歌，还有古装电视剧歌曲，也喜欢跟着唱。
+其角色设计可爱亲民，语言风格轻松幽默，极大降低了金融知识的理解门槛，尤其对年轻投资者和理财新手具有很强的吸引力和教育价值。
 
-“这里是哪里，风景这么美？
-
-这是哪个民族的服饰？
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 12:01 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:53 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:49 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:14 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:04 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 11:54 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:03 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:56 - [巴斯大学校长泰勒：中国能源体系规模大、建设快、成本可控](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:49 - [东阳光药于4月10日斥资10.51万港元回购2400股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:52 - [伊朗表示随时准备应对违反停火行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:03 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:02 - [篮球比赛最后5秒 少年以超远3分球反超 这一刻 人生高光！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:54 - [从“决断”到“转折”：2026轩辕汽车蓝皮书论坛在广州闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:14 - [【市场聚焦】黑色：回落压力较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:56 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:05 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:58 - [亚行行长神田真人称准备向菲律宾提供高达17.5亿美元的融资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:07 - [Slate Grocery REIT宣布派发5月每单位0.072美元股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:01 - [大和：腾讯控股目标价降至700港元 重申“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:23 - [证监会重击107起案件罚没33亿，近200只股票或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:13 - [竞争对手航空公司正在瓜分精神航空的航线和机场时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:06 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 12:10 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:09 - [郑丽文：反对“台独”是稳定台海关键](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:10 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 12:20 - [高德专车上线静音服务，用户可一键定制“静音专车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.blog.kurohicncr.top/Article/details/281754.shtml)
-- 2026-06-29 11:56 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](http://www.share.kurohicncr.top/Article/details/5393855236.shtml)
-- 2026-06-29 11:49 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.share.minike.top/Article/details/99046487.shtml)
-- 2026-06-29 11:57 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](http://www.blog.minike.top/Article/details/951711040.shtml)
-- 2026-06-29 11:55 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](http://www.blog.minike.top/Article/details/6268055.shtml)
-- 2026-06-29 11:59 - [解锁AI社科应用新场景 上海举办公益训练营为青年搭建创新实践平台](http://www.blog.minike.top/Article/details/3375718.shtml)
-- 2026-06-29 12:03 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](http://www.blog.minike.top/Article/details/00339.shtml)
-- 2026-06-29 11:59 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [普京宣布成立委员会制定俄人工智能发展战略](http://www.share.kurohicncr.top/Article/details/00192130004.shtml)
-- 2026-06-29 11:56 - [多晶硅：减产涨价预期带动多晶硅期货涨停](http://www.blog.minike.top/Article/details/37801510.shtml)
-- 2026-06-29 11:52 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](http://www.blog.kurohicncr.top/Article/details/714572018.shtml)
+- 2026-06-29 12:11 - [美国侨胞：期待新定位领航中美关系行稳致远](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [珠江流域持续暴雨 广东多地停课](http://www.blog.kurohicncr.top/Article/details/325861001.shtml)
+- 2026-06-29 12:22 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](http://www.blog.kurohicncr.top/Article/details/69134.shtml)
+- 2026-06-29 12:16 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.blog.kurohicncr.top/Article/details/943627.shtml)
+- 2026-06-29 12:01 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.blog.kurohicncr.top/Article/details/900457691976.shtml)
+- 2026-06-29 12:03 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.share.kurohicncr.top/Article/details/7415366.shtml)
+- 2026-06-29 11:54 - [2026长三角国际田径钻石赛（上海/绍兴柯桥）开赛](http://www.blog.minike.top/Article/details/88002686240.shtml)
+- 2026-06-29 12:14 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](http://www.blog.kurohicncr.top/Article/details/8866440.shtml)
+- 2026-06-29 12:23 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](http://www.share.kurohicncr.top/Article/details/14906599416.shtml)
+- 2026-06-29 12:10 - [特朗普说“伊斯兰国”二号头目被“清除”](http://www.blog.minike.top/Article/details/506228424.shtml)
+- 2026-06-29 12:08 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [芭蕾舞演员、医学专家带民众走出减重“误区”](http://www.share.kurohicncr.top/Article/details/1785385113.shtml)

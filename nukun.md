@@ -1,57 +1,61 @@
-# 中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关
+# 中国大陆学者首获英国皇家经济学会终身院士
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-近来，中东局势持续紧张推动全球原油价格一路上涨，对全球造成一系列影响。在一些国家，车没有断油，反而是塑料制品、医疗等行业感受到巨大压力，这是为什么？ 中东局势紧张 在全球范围引起“蝴蝶效应” 刚刚过去的3月，全球石油价格多次上涨，给不少国家、多个领域造成很大影响：在韩国，一场“垃圾袋荒”正在进行，由于担心垃圾袋断货，一些韩国民众大量购买垃圾袋，甚至有超市对塑料袋采取限购措施。
+中新社沈阳5月16日电 (记者 韩宏)辽宁大学16日发布消息称，英国皇家经济学会(Royal Economic Society, RES)近日授予辽宁大学校长余淼杰英国皇家经济学会终身院士(RES Fellow)，并授予其终身勋衔FREcon。这是该学会首次将这一荣誉授予中国大陆经济学者。英国皇家经济学会创立于1890年，长期致力于推动经济学研究、教育和公共政策讨论，在全球经济
 
 ## 正文
 
-近来，中东局势持续紧张推动全球原油价格一路上涨，对全球造成一系列影响。
+中新社沈阳5月16日电 (记者 韩宏)辽宁大学16日发布消息称，英国皇家经济学会(Royal Economic Society, RES)近日授予辽宁大学校长余淼杰英国皇家经济学会终身院士(RES Fellow)，并授予其终身勋衔FREcon。
 
-在一些国家，车没有断油，反而是塑料制品、医疗等行业感受到巨大压力，这是为什么？
+这是该学会首次将这一荣誉授予中国大陆经济学者。
 
-中东局势紧张 在全球范围引起“蝴蝶效应” 刚刚过去的3月，全球石油价格多次上涨，给不少国家、多个领域造成很大影响：在韩国，一场“垃圾袋荒”正在进行，由于担心垃圾袋断货，一些韩国民众大量购买垃圾袋，甚至有超市对塑料袋采取限购措施。
+英国皇家经济学会创立于1890年，长期致力于推动经济学研究、教育和公共政策讨论，在全球经济学界享有崇高声誉。
 
-在日本医疗界，注射器、针头、橡胶手套等医疗物资都出现了一定程度的短缺，出现了类似抢购的状况。
+其主办旗舰期刊《经济学期刊》(The Economic Journal)是现代经济学的重要学术期刊之一。
 
-有些物资的价格甚至上涨了约50%。
+据介绍，英国皇家经济学会院士(RES Fellow)是英国皇家经济学会授予经济学者的重要学术荣誉，经英国皇家经济学会专门评审程序遴选产生，旨在表彰在原创研究、教学育人、学科服务等方面对经济学学科作出卓越贡献的杰出学者。
 
-而在塞尔维亚，当地板材企业正面临成本飙升与供应不稳的双重打击，经营变得举步维艰。
+当前英国皇家经济学会院士全球仅127人，汇聚世界经济学界最具影响力的代表性学者。
 
-这些看起来和石油没有直接关联的领域，为什么会受到如此大的冲击？
+余淼杰主要研究领域为国际贸易与中国经济发展，他长期深耕企业异质性、加工贸易、全球价值链和贸易政策等研究领域，在推动中国经济研究进入国际主流经济学研究主题方面作出杰出贡献。
 
-与你生活息息相关 石油可转化为数千种化工原料 石油经过炼制和深加工，会分离出不同组分，转化为数千种化工原料，最终变成我们身边的各类产品 。
+至今，余淼杰已在国内外权威期刊发表同行评审论文200余篇。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:04 - [伊朗武装部队称随时准备开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:55 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:06 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:02 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:59 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:49 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:02 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:03 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:53 - [日经指数下跌0.4% 受科技股和电子股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:16 - [天津边检推多项便利举措 助力高水平对外开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:10 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:07 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:59 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:16 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:22 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:13 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:07 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:07 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:22 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:20 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:55 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 12:13 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:16 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:08 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:55 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:08 - [一季度中国铁路固定资产投资同比增长5.1%](http://www.share.kurohicncr.top/Article/details/94915170409.shtml)
-- 2026-06-29 12:07 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](http://www.share.kurohicncr.top/Article/details/0266073.shtml)
-- 2026-06-29 12:10 - [辽宁持续发力打造营商环境好口碑](http://www.share.minike.top/Article/details/97497.shtml)
-- 2026-06-29 12:11 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](http://www.blog.kurohicncr.top/Article/details/736163.shtml)
-- 2026-06-29 11:55 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:09 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](http://www.blog.minike.top/Article/details/30600.shtml)
-- 2026-06-29 11:52 - [英国监管机构紧急评估Anthropic最新AI模型的风险](http://www.share.minike.top/Article/details/47333543.shtml)
-- 2026-06-29 12:10 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](http://www.share.minike.top/Article/details/25929465952.shtml)
-- 2026-06-29 11:57 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](http://www.share.minike.top/Article/details/52268512090.shtml)
-- 2026-06-29 11:58 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](http://www.share.kurohicncr.top/Article/details/05501.shtml)
-- 2026-06-29 11:59 - [徐寅生：愿“乒乓外交”精神代代相传](http://www.blog.minike.top/Article/details/759308854.shtml)
-- 2026-06-29 12:02 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](http://www.share.kurohicncr.top/Article/details/490914975.shtml)
-- 2026-06-29 11:56 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](http://www.blog.minike.top/Article/details/7364077443.shtml)
-- 2026-06-29 12:04 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [总书记引领强国之路｜聚天下英才而用之](http://www.share.minike.top/Article/details/384725.shtml)
+- 2026-06-29 12:15 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.share.kurohicncr.top/Article/details/904219804.shtml)
+- 2026-06-29 11:58 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.share.kurohicncr.top/Article/details/51148224.shtml)
+- 2026-06-29 12:02 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.share.minike.top/Article/details/607233173.shtml)
+- 2026-06-29 12:17 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.blog.minike.top/Article/details/649212123.shtml)
+- 2026-06-29 12:21 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.blog.kurohicncr.top/Article/details/86063536.shtml)
+- 2026-06-29 12:09 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.share.minike.top/Article/details/0050949306.shtml)
+- 2026-06-29 12:19 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.share.kurohicncr.top/Article/details/3638467039.shtml)
+- 2026-06-29 12:08 - [联播+｜读懂中国的特别窗口](http://www.blog.kurohicncr.top/Article/details/7136948828.shtml)
+- 2026-06-29 11:54 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.share.minike.top/Article/details/48234.shtml)
+- 2026-06-29 12:16 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.share.minike.top/Article/details/736004921393.shtml)
+- 2026-06-29 12:22 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](http://www.blog.minike.top/Article/details/7022320928.shtml)
+- 2026-06-29 12:06 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.blog.kurohicncr.top/Article/details/662753557949.shtml)

@@ -1,56 +1,58 @@
-# 北美票房：“超级马里奥”跃升2026年迄今北美票房榜首
+# 光大证券：整固蓄势 积极看多
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新社洛杉矶4月12日电 (记者 张朔)《超级马里奥银河大电影》(The Super Mario Galaxy Movie)自4月1日亮相以来北美票房迅速突破3亿美元，跃升至2026年迄今北美票房总排行榜首位。 据票房统计网站BoxOfficeMojo4月12日发布的电影市场数据，30部影片北美周末票房(4月10日至12日)报收约1.26亿美元，较前一周末减少约36%。在“超级
+来源：光大证券 本周A 股市场出现回调 受市场风险偏好下降影响，本周A 股市场出现回调。受市场情绪转弱、风险偏好下降影响，本周A 股市场出现回调，主要宽基指数大多下跌。在主要宽基指数中，创业板指表现最好，涨跌幅为3.5%，而中证500 表现最差，涨跌幅为-1.8%。 行业方面，本周申万一级行业大多下跌。通信、电子、机械设备等行业表现相对较好，有色金属、钢铁、美容护理等行业表现相
 
 ## 正文
 
-中新社洛杉矶4月12日电 (记者 张朔)《超级马里奥银河大电影》(The Super Mario Galaxy Movie)自4月1日亮相以来北美票房迅速突破3亿美元，跃升至2026年迄今北美票房总排行榜首位。
+来源：光大证券 本周A 股市场出现回调 受市场风险偏好下降影响，本周A 股市场出现回调。
 
-据票房统计网站BoxOfficeMojo4月12日发布的电影市场数据，30部影片北美周末票房(4月10日至12日)报收约1.26亿美元，较前一周末减少约36%。
+受市场情绪转弱、风险偏好下降影响，本周A 股市场出现回调，主要宽基指数大多下跌。
 
-在“超级马里奥”带动下，北美周末票房连续两个统计周期保持在1亿美元之上。
+在主要宽基指数中，创业板指表现最好，涨跌幅为3.5%，而中证500 表现最差，涨跌幅为-1.8%。
 
-改编自任天堂经典游戏的奇幻冒险动画片《超级马里奥银河大电影》雄霸北美单日票房冠军；第二个上映周末票房虽环比下跌47.6%，但仍以约6900万美元在最新一期北美周末票房排行榜继续强势领跑。
+行业方面，本周申万一级行业大多下跌。
 
-其平均票房达16106美元，亦再次成为北美周末票房十强中平均票房最高的影片。
+通信、电子、机械设备等行业表现相对较好，有色金属、钢铁、美容护理等行业表现相对靠后。
 
-这部拥有庞大粉丝群的游戏改编电影北美票房现约3.08亿美元，跃升至2026年迄今北美票房总排行榜首位。
+本周重要事件 政策及会议方面，央行发布一季度货币政策执行报告、美国总统特朗普访华。
 
-其全球票房现约6.29亿美元，升至2026年迄今全球票房总排行榜次席，票房成绩逼近运动喜剧剧情片《飞驰人生3》。
+国务院总理李强5 月9 日主持召开国务院常务会议；5 月11 日，中国人民银行发布《2026 年第一季度中国货币政策执行报告》；应习近平主席邀请，美国总统特朗普对中国进行国事访问。
 
-《你我在托斯卡纳》(You，Me & Tuscany)、“防弹少年团”(BTS)巡演纪录片、《死亡面孔》(Faces of Death)和《8号出口》(Exit 8)等4部新片，冲入最新一期北美周末票房十强。
+这是中美两国元首继去年10 月釜山之后再次面对面会晤，也是美国总统时隔9 年再次访华。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [A股周一缩量上涨 创业板指创四年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:14 - [国民党方面回应十项“和平利好”：希望台湾有关方面共同来推动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:51 - [*ST万方，停牌！拟终止上市！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:07 - [摩根大通就停火风险提示油价走势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:12 - [天津邮轮游春日渐热 东疆边检高效护航“海上春游”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:15 - [个贷不良依然压力山大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:07 - [排队2小时只为买个零钱包？潮玩IP产品持续走热](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:04 - [河南省郑州市人大常委会原副主任宋书杰接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:48 - [【早盘三分钟】4月13日华宝基金ETF早知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:05 - [中东局势紧张为什么塑料袋先受影响？石油其实和你的日常生活息息相关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:19 - [日本不断加速扩军修宪图谋：日本抛修宪构想 拟设紧急政令扩内阁权限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:07 - [国常会：审议通过《加快农业农村现代化“十五五”规划》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:12 - [债券承销违规！国都证券又被点名，一项目负责人被禁业1年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:57 - [英国国债大跌 投资者为伯纳姆挑战斯塔默做准备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:07 - [2027澳网亚太区外卡赛将落地成都](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:04 - [何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:59 - [国际人士：中美元首外交意义重大 推动世界和平发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:02 - [三星会长李在镕就劳资纠纷向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:22 - [海南自贸港封关运作成绩单：实现高标准开局 红利加快释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:19 - [中国大陆学者首获英国皇家经济学会终身院士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:17 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:10 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:52 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](http://www.blog.minike.top/Article/details/1810279.shtml)
-- 2026-06-29 11:56 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](http://www.blog.kurohicncr.top/Article/details/94575.shtml)
-- 2026-06-29 11:57 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](http://www.blog.kurohicncr.top/Article/details/17019.shtml)
-- 2026-06-29 12:12 - [RYOEX:黄金价值重估与结构演变趋势分析](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](http://www.blog.minike.top/Article/details/987936906.shtml)
-- 2026-06-29 12:03 - [手机黑屏变“砖头” 一根回形针切断“诈骗通道”](http://www.blog.kurohicncr.top/Article/details/44534149169.shtml)
-- 2026-06-29 12:01 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](http://www.share.minike.top/Article/details/1419405611.shtml)
-- 2026-06-29 12:10 - [2026年全国教育科研工作会议在京举行](http://www.blog.kurohicncr.top/Article/details/7462278488.shtml)
-- 2026-06-29 12:03 - [郑丽文一行拜谒孙中山先生衣冠冢](http://www.share.kurohicncr.top/Article/details/44787760.shtml)
-- 2026-06-29 11:51 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](http://www.blog.minike.top/Article/details/57983.shtml)
-- 2026-06-29 12:12 - [中国东方演艺集团将创排全新舞剧《山海经》](http://www.blog.kurohicncr.top/Article/details/93982300.shtml)
-- 2026-06-29 11:49 - [两艘空载油轮在霍尔木兹海峡临时掉头](http://www.blog.minike.top/Article/details/0633799.shtml)
-- 2026-06-29 11:58 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](http://www.blog.kurohicncr.top/Article/details/4958592120.shtml)
-- 2026-06-29 11:52 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](http://www.share.kurohicncr.top/Article/details/6255793178.shtml)
-- 2026-06-29 11:49 - [非瘟以来两轮猪周期回顾](http://www.share.minike.top/Article/details/806131615.shtml)
+- 2026-06-29 12:06 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](http://www.share.kurohicncr.top/Article/details/4251872.shtml)
+- 2026-06-29 12:06 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](http://www.share.kurohicncr.top/Article/details/76101.shtml)
+- 2026-06-29 12:00 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [5名意大利公民在马尔代夫潜水时身亡](http://www.blog.kurohicncr.top/Article/details/6397341116.shtml)
+- 2026-06-29 12:14 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](http://www.share.kurohicncr.top/Article/details/854109.shtml)
+- 2026-06-29 12:22 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](http://www.blog.minike.top/Article/details/9566120.shtml)
+- 2026-06-29 12:20 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](http://www.blog.minike.top/Article/details/15642442.shtml)
+- 2026-06-29 12:08 - [天润工业：公司与银轮股份没有业务往来](http://www.share.minike.top/Article/details/838704178.shtml)
+- 2026-06-29 12:20 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](http://www.blog.kurohicncr.top/Article/details/7380750.shtml)
+- 2026-06-29 12:19 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](http://www.share.minike.top/Article/details/9799034282.shtml)
+- 2026-06-29 12:16 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.share.minike.top/Article/details/46336.shtml)
+- 2026-06-29 12:13 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lisacumin64-arch)

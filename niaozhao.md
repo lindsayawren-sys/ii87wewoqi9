@@ -1,61 +1,59 @@
-# 天津边检推多项便利举措 助力高水平对外开放
+# 2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网天津4月11日电 (记者 周亚强)天津市政府新闻办10日在天津国际邮轮母港举行“守护国门安全 服务开放发展”新闻发布会。天津边检总站介绍了助力高水平对外开放的系列举措，涵盖支持邮轮产业发展、便利国际船员消费、优化外国人免签政策、建设智慧边检及保障重大外事活动等方面。 记者从会上了解到，在支持邮轮产业发展方面，天津边检推出五项便利措施，包括推广访问港大型邮轮境外随船查验模式
+中新网固原5月17日电 (记者 李佩珊)2026年宁夏足球超级联赛(下称“宁超”)固原赛区首场赛事16日在宁夏师范大学足球场落幕，固原六盘山长缨队坐镇主场，与宁东基地队展开激烈角逐，最终双方以1:1战平，各积一分。 当日比赛现场人气高涨，数千名球迷到场观赛，赛场氛围热烈。赛前，现场设置互动抽奖环节，固原景区门票、本地特产礼包、机票等福利陆续送出，进一步点燃球迷热情。文艺表演颇具
 
 ## 正文
 
-中新网天津4月11日电 (记者 周亚强)天津市政府新闻办10日在天津国际邮轮母港举行“守护国门安全 服务开放发展”新闻发布会。
+中新网固原5月17日电 (记者 李佩珊)2026年宁夏足球超级联赛(下称“宁超”)固原赛区首场赛事16日在宁夏师范大学足球场落幕，固原六盘山长缨队坐镇主场，与宁东基地队展开激烈角逐，最终双方以1:1战平，各积一分。
 
-天津边检总站介绍了助力高水平对外开放的系列举措，涵盖支持邮轮产业发展、便利国际船员消费、优化外国人免签政策、建设智慧边检及保障重大外事活动等方面。
+当日比赛现场人气高涨，数千名球迷到场观赛，赛场氛围热烈。
 
-记者从会上了解到，在支持邮轮产业发展方面，天津边检推出五项便利措施，包括推广访问港大型邮轮境外随船查验模式，实现旅客“靠港即下、好来快走”；优化邮轮旅客通关流程，外籍旅客查验时间压缩80%；简化国际邮轮船员查验手续；首创邮轮“静态游”凭身份证登轮体验；支持中韩“双母港”邮轮新业态发展。
+赛前，现场设置互动抽奖环节，固原景区门票、本地特产礼包、机票等福利陆续送出，进一步点燃球迷热情。
 
-为促进国际船员在津消费，边检机关依托“三零举措”“速审直推”提升通关效率，平均为每艘靠港国际船舶节省1.1小时查验时间；在各港区前沿设置24小时查验窗口，就近办理船员登陆、换班查验手续；对随船抵港并申请登陆的外籍船员前置受理、当场审批、按需签发临时入境许可。
+文艺表演颇具本土特色，红色经典诵读、鼓韵表演、秦腔联唱等节目轮番上演，将红色文化、民族风情与本土文脉融入赛事，让赛场兼具竞技热度与文化底蕴。
 
-外国人免签政策方面，目前共有86个国家的外国人可适用单免、互免及240小时过境免签从天津口岸入境。
+比赛开始后，双方球员迅速进入状态，攻防转换节奏明快，精彩配合不断。
 
-同时，对24小时内过境的外籍旅客实行不限国籍、不限口岸免签入境；对乘坐邮轮抵津的外国旅游团实行不限国籍、整团免签入境；对天津市有关单位邀请紧急来津的外国人，可免费签发停留不超15天的紧急临时入境许可。
+上半场第30分钟，固原六盘山长缨队抓住前场角球机会破门，率先取得1:0领先，并将这一比分保持至中场。
 
-智慧边检建设方面，天津边检运用数字孪生、人工智能等技术建成数字化智慧监管平台，研发应用“速审直推”系统、智能巡检装备，并在邮轮母港和机场建设23条边检快捷通道，旅客仅需10余秒即可通关。
+下半场赛事愈发激烈，两队均全力进攻，多次制造极具威胁的射门机会，可惜均未能改写比分。
 
-此外，天津边检组建全语种保障团队，升级改造机场入境查验场地，设立专用通道确保重大外事活动参会团组通关时长均不超过20分钟，全力护航天津高水平对外开放。
+比赛进入补时阶段，宁东基地队在最后一分钟凭借一脚精准远射破门，将比分扳平。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:04 - [比亚迪：公司储能业务在全球市场持续发力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:13 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:52 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:55 - [特朗普称封锁霍尔木兹海峡“需要一点时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:10 - [以军空袭黎南部造成至少24人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:04 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:06 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:10 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:13 - [RYOEX:黄金价值重估与结构演变趋势分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 12:10 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:02 - [手机黑屏变“砖头” 一根回形针切断“诈骗通道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:01 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:04 - [2026年全国教育科研工作会议在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:08 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:04 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:20 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:56 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:16 - [助力“东北超”歌曲《绿茵逐梦》上线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:58 - [泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:56 - [广西首批村集体持有林票线上竞价交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:23 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:09 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:59 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:11 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:04 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:01 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:04 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](http://www.share.minike.top/Article/details/562444184.shtml)
-- 2026-06-29 12:01 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](http://www.share.kurohicncr.top/Article/details/97275845409.shtml)
-- 2026-06-29 12:07 - [江西铜业股份：江铜集团完成发行50亿元可交换公司债券](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:04 - [贝壳-W于4月9日斥资700万美元回购133.6万股](http://www.share.minike.top/Article/details/1394509022.shtml)
-- 2026-06-29 12:06 - [小摩：料汇丰控股与渣打集团将把稳定币整合至其支付生态系统](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:01 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](http://www.blog.minike.top/Article/details/453771088.shtml)
-- 2026-06-29 12:02 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](http://www.blog.minike.top/Article/details/0258421633.shtml)
-- 2026-06-29 12:07 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](http://www.share.minike.top/Article/details/321990.shtml)
-- 2026-06-29 11:57 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](http://www.share.kurohicncr.top/Article/details/230324.shtml)
-- 2026-06-29 12:10 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](http://www.share.kurohicncr.top/Article/details/014558381352.shtml)
-- 2026-06-29 11:57 - [白银跳空低开跌2%，避险失效？](http://www.blog.kurohicncr.top/Article/details/5405529665.shtml)
-- 2026-06-29 11:53 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](http://www.blog.kurohicncr.top/Article/details/7341690938.shtml)
-- 2026-06-29 12:13 - [5亿元科创基金100%投向中大成果转化](http://www.share.kurohicncr.top/Article/details/5015934898.shtml)
+- 2026-06-29 12:09 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.blog.minike.top/Article/details/666553044.shtml)
+- 2026-06-29 12:23 - [文脉华章丨一个博物院就是一所大学校](http://www.blog.kurohicncr.top/Article/details/82625.shtml)
+- 2026-06-29 12:22 - [CBA季后赛首场半决赛：上海队主场险胜北京队 收获“开门红”](http://www.blog.minike.top/Article/details/103906.shtml)
+- 2026-06-29 11:56 - [上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [郑州缘何连续四年高规格举办大学生集中毕业典礼？](http://www.share.kurohicncr.top/Article/details/2817712.shtml)
+- 2026-06-29 12:11 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](http://www.share.kurohicncr.top/Article/details/25300.shtml)
+- 2026-06-29 12:08 - [日本国债收益率飙升 投资者押注日资从美债回流本土](http://www.blog.minike.top/Article/details/286854291.shtml)
+- 2026-06-29 11:59 - [首届中国新文创市集满场“黑科技” 观众：超出预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](http://www.blog.minike.top/Article/details/163505.shtml)
+- 2026-06-29 12:05 - [广西柳州成立具身智能机器人技术应用中心](http://www.share.kurohicncr.top/Article/details/09667350714.shtml)
+- 2026-06-29 12:12 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.share.kurohicncr.top/Article/details/05467180.shtml)
+- 2026-06-29 11:59 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.blog.kurohicncr.top/Article/details/3755852.shtml)
+- 2026-06-29 12:19 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.share.kurohicncr.top/Article/details/2088260495.shtml)
+- 2026-06-29 12:19 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.blog.kurohicncr.top/Article/details/45108100.shtml)

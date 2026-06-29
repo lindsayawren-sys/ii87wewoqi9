@@ -1,57 +1,58 @@
-# 滴滴自动驾驶张博：聚焦安全和体验，推动自动驾驶全球化落地
+# 苏州银行：张伟、毛竹春、蒋亮获批担任董事，夏平、赵欣、吴杰获批担任独立董事
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，滴滴自动驾驶公司CEO张博出席2026智能电动汽车发展高层论坛，新一代Robotaxi车型同步亮相。张博在演讲中表示，安全与体验是自动驾驶行稳致远的根基，滴滴自动驾驶坚持负责任的科技创新，将基于在AI核心技术、硬件、出行场景三大领域的积累，持续加大投入，不断优化产品和服务。 去年四季度，滴滴自动驾驶在广
+5月15日金融一线消息，苏州银行今日发布公告称，该行该行近日收到《江苏金融监管局关于张伟等 6 人苏州银行董事、独立董事任职资格的批复》（苏金复〔2026〕139号），核准张伟、毛竹春、蒋亮等 3 人该行董事的任职资格，核准夏平、赵欣、吴杰等 3 人该行独立董事的任职资格。 公开资料显示，张伟，男，1988 年 4 月出生，硕士研究生学历，高级会计师、中级经济师，现任苏州高新区
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，滴滴自动驾驶公司CEO张博出席2026智能电动汽车发展高层论坛，新一代Robotaxi车型同步亮相。
+5月15日金融一线消息，苏州银行今日发布公告称，该行该行近日收到《江苏金融监管局关于张伟等 6 人苏州银行董事、独立董事任职资格的批复》（苏金复〔2026〕139号），核准张伟、毛竹春、蒋亮等 3 人该行董事的任职资格，核准夏平、赵欣、吴杰等 3 人该行独立董事的任职资格。
 
-张博在演讲中表示，安全与体验是自动驾驶行稳致远的根基，滴滴自动驾驶坚持负责任的科技创新，将基于在AI核心技术、硬件、出行场景三大领域的积累，持续加大投入，不断优化产品和服务。
+公开资料显示，张伟，男，1988 年 4 月出生，硕士研究生学历，高级会计师、中级经济师，现任苏州高新区国有资本控股集团有限公司总经理助理。
 
-去年四季度，滴滴自动驾驶在广州、北京部分示范应用区域开启全天候、全无人载客测试。
+历任苏州高新区经济发展集团总公司内控部科员、副科长，苏州新港物业服务有限公司财务副总监，苏州苏高新科技产业发展有限公司财务副总监、二级财务总监，苏州苏高新集团有限公司内控部主任助理、副主任等职。
 
-据张博介绍，与广汽埃安合作的新一代Robotaxi车型已于今年1月正式交付并开启道路测试。
+毛竹春，男，1973 年 10 月出生，本科学历，注册会计师，现任江苏吴中集团有限公司执行副总裁、财务总监。
 
-新车型严格按车规级标准完成了冬测、夏测、综合耐久、腐蚀老化、高低温环境模拟等一系列极端工况试验，在L4软硬件技术及智能座舱体验上实现全新升级。
+历任江南学院经济管理学助教，江苏吴中集团有限公司资产审计部经理，江苏吴中集团有限公司财务总监，中国汇融金融控股有限公司执行董事、首席财务官等职。
 
-在张博看来，混合出行网络是自动驾驶冷启动的最佳路径。
+蒋亮，女，1981 年 11 月出生，硕士研究生学历，现任本行总行群团工作部总经理。
 
-面向Robotaxi全球化发展，滴滴自动驾驶将依托L4全栈自研能力和滴滴多年海外服务经验，携手行业合作伙伴，推动中国自动驾驶成果全球落地。
+历任中国银行悉尼分行公司部客户经理，交通银行总行公司部产品经理、投资管理部投资并购专员（其间挂职交通银行苏州分行零贷部副总经理、授信部副总经理、投行部副总经理、托管部总经理、金融同业部总经理），本行公司银行总部综合管理部副总经理、公司银行总部企划综合部副总经理、总行办公室副主任。
 
-责任编辑：郝欣煜
+夏平，男，1963 年 7 月出生，研究生学历，硕士学位，正高级经济师。
 
 ## 相关推荐
 
-- 2026-06-29 11:52 - [韩国政府将向收入下游70%人群发放现金援助 以缓解油价上涨压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:03 - [去年超55亿人次在基层看病，医保支付也要“分级”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 11:58 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:00 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:52 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:05 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 11:59 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:10 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:15 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:52 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:49 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:20 - [小鹏汽车王谭：电动化与智能化正在从根本上重塑汽车设计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:06 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:09 - [自强不息追光逐梦 五名残疾人代表共话奋斗故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:16 - [金融监管总局发布2026年一季度银行业保险业主要监管指标数据情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:54 - [厦门港新增一条直航印度尼西亚货运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:54 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:15 - [和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:21 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:17 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:01 - [6连板！澄清与英伟达关系后，蒙娜丽莎继续涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:12 - [三星工会称仍计划于下周举行罢工，谈判要到罢工结束后进行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:08 - [邦达亚洲:市场的避险情绪挥之不去 澳元承压下行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:09 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](http://www.share.minike.top/Article/details/3020847.shtml)
-- 2026-06-29 11:53 - [山东荣成：核电科普研学兴起](http://www.blog.kurohicncr.top/Article/details/1039501411.shtml)
-- 2026-06-29 11:52 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](http://www.share.minike.top/Article/details/361553526457.shtml)
-- 2026-06-29 11:56 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](http://www.blog.kurohicncr.top/Article/details/5298945.shtml)
-- 2026-06-29 12:08 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:03 - [严格落实直播打赏新规谋求治理实效](http://www.blog.kurohicncr.top/Article/details/4046911.shtml)
-- 2026-06-29 11:55 - [（经济观察）封关赋能开放 外资加速入琼](http://www.blog.minike.top/Article/details/710120290248.shtml)
-- 2026-06-29 12:14 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.blog.kurohicncr.top/Article/details/29349.shtml)
-- 2026-06-29 11:55 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.share.kurohicncr.top/Article/details/94679346.shtml)
-- 2026-06-29 12:13 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](http://www.blog.kurohicncr.top/Article/details/86320536074.shtml)
-- 2026-06-29 11:58 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.share.minike.top/Article/details/888164.shtml)
-- 2026-06-29 12:14 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.share.minike.top/Article/details/2990805.shtml)
+- 2026-06-29 12:00 - [在霍尔木兹海峡或长期关闭之际 油价上涨](http://www.share.minike.top/Article/details/140455625021.shtml)
+- 2026-06-29 12:04 - [高德专车上线静音服务，用户可一键定制“静音专车”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](http://www.blog.minike.top/Article/details/20722113.shtml)
+- 2026-06-29 12:10 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](http://www.blog.minike.top/Article/details/960402157201.shtml)
+- 2026-06-29 11:59 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [时令水果批量上市 专家提示当心糖分超标](http://www.blog.kurohicncr.top/Article/details/70949.shtml)
+- 2026-06-29 12:04 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](http://www.share.minike.top/Article/details/7061804112.shtml)
+- 2026-06-29 12:20 - [主力资金，“盯上”这些股票](http://www.blog.minike.top/Article/details/213778.shtml)
+- 2026-06-29 11:55 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:17 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:20 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.blog.kurohicncr.top/Article/details/4164617819.shtml)
+- 2026-06-29 12:14 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:00 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](http://www.blog.kurohicncr.top/Article/details/962857.shtml)
+- 2026-06-29 11:57 - [香港特区政府新一批基建及绿色债券在港发行](http://www.blog.minike.top/Article/details/181556.shtml)

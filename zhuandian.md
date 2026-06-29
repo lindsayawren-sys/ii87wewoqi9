@@ -1,56 +1,50 @@
-# 繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行
+# 内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网广州4月11日电 (记者 蔡敏婕)“父亲一生简朴，生前向往自然，选择花坛葬，繁花相伴、草木为邻，就是对亲人最好的思念寄托。”广州市民李先生11日表示，从最初心存顾虑到如今真心认可，感受到生态安葬既圆亲人回归自然之愿，又为后代留存更多绿色空间。 广州市银河革命公墓当天在生态葬区举行“生命融于自然 思念长留人间”2026年花坛葬集中安放暨祭扫仪式，通过节地生态安葬方式，让逝者
+中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法问题进行了立案审查调查。 经查，刘学武丧失理想信念，背弃初心使命，政绩观错位，违背新发展理念、背离高质量发展要求，违规开展融资性贸易；无视中央八项规定精神，违规收受礼品、礼金、消费卡，借用管理和服务对象车辆，接受可能影响
 
 ## 正文
 
-中新网广州4月11日电 (记者 蔡敏婕)“父亲一生简朴，生前向往自然，选择花坛葬，繁花相伴、草木为邻，就是对亲人最好的思念寄托。
+中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法问题进行了立案审查调查。
 
-”广州市民李先生11日表示，从最初心存顾虑到如今真心认可，感受到生态安葬既圆亲人回归自然之愿，又为后代留存更多绿色空间。
+经查，刘学武丧失理想信念，背弃初心使命，政绩观错位，违背新发展理念、背离高质量发展要求，违规开展融资性贸易；无视中央八项规定精神，违规收受礼品、礼金、消费卡，借用管理和服务对象车辆，接受可能影响公正执行公务的宴请；组织观念淡漠，不如实报告个人有关事项，在干部、职工录用、职务晋升等工作中为他人谋取利益并收受财物，为亲属在职工录用方面提供帮助；廉洁底线失守，利用职务便利为他人谋取利益并收受财物，借用管理和服务对象钱款，违规从事营利活动，经商办企业；失职失责，违规干预和插手工程项目招投标；毫无纪法底线，将公权力异化为谋取私利的工具，利用职务便利为他人在项目承揽、工程款拨付等方面谋利，并非法收受巨额财物。
 
-广州市银河革命公墓当天在生态葬区举行“生命融于自然 思念长留人间”2026年花坛葬集中安放暨祭扫仪式，通过节地生态安葬方式，让逝者安息于繁花绿茵间，引导民众树立文明祭扫、生态安葬的观念。
+刘学武严重违反党的政治纪律、组织纪律、廉洁纪律和工作纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，特别是党的二十大后仍不知止，情节严重，影响恶劣，应予严肃处理。
 
-仪式现场简约肃穆，氛围庄重雅致。
-
-在工作人员引导下，逝者亲属手持环保可降解骨灰容器，将骨灰缓缓放入花坛之中，覆土掩埋，让生命与自然相融共生。
-
-现场依次开展默哀追思、敬献鲜花、集体祭扫等环节，流程庄重有序、饱含人文温情，既赋予告别仪式满满的庄重感与仪式感，又守护民众“入土为安”的传统情感诉求。
-
-当下，生态安葬已从社会新风尚转变为民众的新选择。
-
-广州累计投入2446万元完善生态安葬设施，节地生态安葬率达90.5%。
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经内蒙古自治区纪委常委会会议研究并报内蒙古自治区党委批准，决定给予刘学武开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 12:13 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:48 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:56 - [岚图总经理蒋焘：现在车辆屏幕越来越多，但这不会是未来发展趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:15 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:52 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:50 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:14 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:11 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:48 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:11 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:04 - [中东部有大范围降水 黄海海域有大雾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:11 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:16 - [重庆对8个区县启动地质灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:22 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:20 - [香港特区政府新一批基建及绿色债券在港发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:14 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:14 - [中国外交部发言人就美国总统特朗普访华情况答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:56 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:01 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:20 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:10 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:10 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:00 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](http://www.share.kurohicncr.top/Article/details/15330626.shtml)
-- 2026-06-29 12:00 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](http://www.share.minike.top/Article/details/698819708.shtml)
-- 2026-06-29 11:56 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](http://www.share.minike.top/Article/details/60734213.shtml)
-- 2026-06-29 12:14 - [香港学子安徽行收获满满](http://www.blog.kurohicncr.top/Article/details/78720405.shtml)
-- 2026-06-29 11:48 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/74356.shtml)
-- 2026-06-29 12:09 - [北森控股于4月13日斥资19.34万港元回购5万股](http://www.share.kurohicncr.top/Article/details/4833981079.shtml)
-- 2026-06-29 11:53 - [日韩股市集体低开 韩股跌超2%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](http://www.blog.kurohicncr.top/Article/details/19275761091.shtml)
-- 2026-06-29 12:08 - [美官员否认美国已同意解冻伊朗被冻结资产](http://www.share.kurohicncr.top/Article/details/57206704450.shtml)
-- 2026-06-29 11:57 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](http://www.blog.minike.top/Article/details/41252498869.shtml)
-- 2026-06-29 12:07 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:15 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](http://www.blog.minike.top/Article/details/30073.shtml)
-- 2026-06-29 12:03 - [广西三江：花映楼桥入画来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:05 - [从“1”到“23” 自贸试验区构筑开放“雁阵”格局](http://www.share.minike.top/Article/details/734828300129.shtml)
+- 2026-06-29 12:10 - [日本央行警示：投资基金活动暗藏金融体系风险](http://www.share.kurohicncr.top/Article/details/5693055397.shtml)
+- 2026-06-29 12:16 - [中国铁塔将于6月30日派发末期股息每股0.32539元](http://www.blog.minike.top/Article/details/024690.shtml)
+- 2026-06-29 12:18 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](http://www.blog.kurohicncr.top/Article/details/8507552058.shtml)
+- 2026-06-29 12:17 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](http://www.share.kurohicncr.top/Article/details/5281195.shtml)
+- 2026-06-29 12:06 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](http://www.share.minike.top/Article/details/4835806.shtml)
+- 2026-06-29 12:08 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:22 - [以“生活”叙事陕味浓郁 《主角》热播引关注](http://www.blog.kurohicncr.top/Article/details/1922184428.shtml)
+- 2026-06-29 11:58 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](http://www.share.kurohicncr.top/Article/details/9833043253.shtml)
+- 2026-06-29 11:59 - [光大证券：整固蓄势 积极看多](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](http://www.blog.kurohicncr.top/Article/details/88186368054.shtml)
+- 2026-06-29 12:16 - [美工商界人士谈中美元首会晤成果：坚定了深耕中国市场的信心](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [北汽集团单伟：许多企业忽略了扎实的基础研究，导致后续开发缺乏明确方向](http://www.blog.kurohicncr.top/Article/details/812458223807.shtml)
+- 2026-06-29 12:17 - [广西南宁首批10个人工智能OPC创业社区集中开放](http://www.blog.minike.top/Article/details/8620222.shtml)
+- 2026-06-29 12:00 - [中方回应中美是否达成农业方面协议](http://www.share.kurohicncr.top/Article/details/72528944.shtml)
+- 2026-06-29 12:10 - [沪港文化交流再升级：从“经典展演”到“多元共创”](http://www.share.minike.top/Article/details/82335183.shtml)

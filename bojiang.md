@@ -1,57 +1,56 @@
-# 时习之丨“西迁精神”的核心是爱国主义
+# 和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-2026年4月7日，习近平总书记在给四所交通大学全体师生的回信中强调，“传承弘扬西迁精神，聚焦国家重大战略需求，加强科技自主创新和人才自主培养”。 20世纪50年代，党中央作出将创立于上海的交通大学迁往西安的决定，这是调整新中国工业建设布局、高等教育布局的战略决策。数千名交通大学师生义无反顾登上西行列车，积极投身到祖国最需要的地方，用青春和汗水在西北建设了一所著名的高等学府，为
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：深圳商报·读创 5月17日，针对网络平台有个别用户发表涉及公司六氟化钨产品产能下半年量产、已获客户认证的不实内容，近期走出“5天3板”强劲行情的和远气体（002971）发布了澄清公告。 公告称，经公司自查，目前公司六氟化钨产品尚处于试生产阶段，公司尚未签署任何具有法律约束力的实质性订单协议，且该产品尚未产生任何业绩。公司郑
 
 ## 正文
 
-2026年4月7日，习近平总书记在给四所交通大学全体师生的回信中强调，“传承弘扬西迁精神，聚焦国家重大战略需求，加强科技自主创新和人才自主培养”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：深圳商报·读创 5月17日，针对网络平台有个别用户发表涉及公司六氟化钨产品产能下半年量产、已获客户认证的不实内容，近期走出“5天3板”强劲行情的和远气体（002971）发布了澄清公告。
 
-20世纪50年代，党中央作出将创立于上海的交通大学迁往西安的决定，这是调整新中国工业建设布局、高等教育布局的战略决策。
+公告称，经公司自查，目前公司六氟化钨产品尚处于试生产阶段，公司尚未签署任何具有法律约束力的实质性订单协议，且该产品尚未产生任何业绩。
 
-数千名交通大学师生义无反顾登上西行列车，积极投身到祖国最需要的地方，用青春和汗水在西北建设了一所著名的高等学府，为西部发展奠定了深厚扎实的科研基础，铸就了“胸怀大局、无私奉献、弘扬传统、艰苦创业”的“西迁精神”。
+公司郑重提醒广大投资者，公司六氟化钨产品相关信息请以公司在深圳证券交易所网站及指定信息披露媒体上刊登的正式公告为准，切勿轻信网络平台的不实言论。
 
-习近平总书记指出，“‘西迁精神’的核心是爱国主义”。
+和远气体强调：“公司目前经营情况正常，内外部经营环境未发生重大变化。
 
-70年来，“西迁精神”在薪火相传中历久弥新，激励着一代又一代知识分子，为党和国家事业发展贡献智慧和力量。
+” 公开资料显示，和远气体成立于2003年11月20日，2020年1月13日在深交所上市，公司主营业务涉及各类气体产品的研发、生产、销售、服务以及工业尾气回收循环利用。
 
-策划、剪辑：王先进 资料来源：人民日报、新华社、央视网、西安交通大学等
+从2025年年报来看，和远气体大宗气体业务营收7.91亿元，占总收入比重达47.53%；工业级化学品收入占比28.52%；二者合计占主营业务收入比重升至76.05%。
+
+电子特气及电子化学品、清洁能源营收分别实现4.88%、2.89%的小幅增长。
+
+公司电子特气中就包含六氟化钨。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [“森拉克”将继续增强 最强可达超强台风级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:02 - [湖北城市足球联赛揭幕 146场对决点燃荆楚绿茵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:50 - [第八届上合组织国家国际象棋团体赛收官 国外棋手赞园林中比赛“很特别”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:01 - [美国释放第二批848万桶战略石油储备](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:50 - [人形机器人深夜“狂飙”半马：开跑就冲刺 还能自主导航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 11:59 - [奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:52 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:10 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:04 - [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:51 - [电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:00 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:56 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:17 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:09 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:10 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:56 - [“活力乡村”重庆援尼畜牧和水产支持项目在尼泊尔启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:17 - [俄梁赞州州长：乌无人机袭击首府致3死12伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:19 - [蓝皮书：“十五五”时期中国机器人产业将现两大新趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:03 - [越秀交通基建3月广州北二环高速路费收入8487.3万元 同比下降7.7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:10 - [诸多对手虎视眈眈！英国首相斯塔默面临“生死之战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 12:20 - [（乡村行·看振兴）江苏扬州：沙头头茬西瓜开卖 “小西瓜”带动村集体增收逾百万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:07 - [515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:58 - [迈阿密愈发富庶，人口却持续缩减](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 12:19 - [武汉推行河湖长制十年 构筑人水和谐共生优美画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:56 - [《后遗症》作者秦汝璧谈女性成长困境：要更注重精神层面的超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [巴西非遗乐团走进北京丰台 跨洋展演奏响友谊乐章](http://www.blog.minike.top/Article/details/470014.shtml)
-- 2026-06-29 12:05 - [原油现货与期货之间价差巨大 实物原油发出"短缺"信号](http://www.blog.minike.top/Article/details/550928414.shtml)
-- 2026-06-29 12:09 - [在交流合作中相知相亲 在互学互鉴中携手前行——习近平主席致中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式的贺信引发热烈反响](http://www.blog.kurohicncr.top/Article/details/3196168166.shtml)
-- 2026-06-29 11:58 - [中东紧张局势升级 日本10年期国债收益率升至1997年以来最高水平](http://www.blog.kurohicncr.top/Article/details/91033876723.shtml)
-- 2026-06-29 12:02 - [美的集团于4月10日斥资5678.9万元回购74.46万股A股](http://www.share.minike.top/Article/details/7512665221.shtml)
-- 2026-06-29 11:59 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](http://www.blog.kurohicncr.top/Article/details/09647702128.shtml)
-- 2026-06-29 11:48 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.blog.kurohicncr.top/Article/details/1818812669.shtml)
-- 2026-06-29 12:04 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](http://www.blog.minike.top/Article/details/14412918783.shtml)
-- 2026-06-29 11:53 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [南部战区新闻发言人发表谈话](http://www.blog.minike.top/Article/details/4416778.shtml)
-- 2026-06-29 11:51 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.blog.minike.top/Article/details/03755775.shtml)
-- 2026-06-29 12:00 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.blog.kurohicncr.top/Article/details/837221868514.shtml)
-- 2026-06-29 12:13 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.blog.kurohicncr.top/Article/details/28889.shtml)
-- 2026-06-29 11:55 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.share.kurohicncr.top/Article/details/38013.shtml)
+- 2026-06-29 12:21 - [5月16日热门中概股普跌 台积电跌3.16%，阿里巴巴跌6.05%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [香港特区政府新一批基建及绿色债券在港发行](http://www.share.kurohicncr.top/Article/details/023140784667.shtml)
+- 2026-06-29 12:14 - [大咖研习社|国泰基金彭凌志：2026年夏季科技板块投资展望](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [中国外交部发言人就美国总统特朗普访华情况答记者问](http://www.blog.minike.top/Article/details/4809976079.shtml)
+- 2026-06-29 12:22 - [澳门特区立法会举办开放日活动 公众近距离了解立法会运作机制](http://www.blog.minike.top/Article/details/500995004926.shtml)
+- 2026-06-29 11:59 - [中国第12批援埃塞俄比亚军医专家组出征](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:58 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](http://www.blog.kurohicncr.top/Article/details/719309669215.shtml)
+- 2026-06-29 12:13 - [受降雨影响 国铁广州局今明两天部分列车停运](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.blog.minike.top/Article/details/3051741357.shtml)
+- 2026-06-29 12:10 - [九连板之后，002207公告：无注入算力资产的计划](http://www.blog.kurohicncr.top/Article/details/1315296.shtml)
+- 2026-06-29 12:10 - [日本财务大臣片山皋月否认需要编制额外预算](http://www.share.kurohicncr.top/Article/details/6907022.shtml)
+- 2026-06-29 12:16 - [美国侨胞：期待新定位领航中美关系行稳致远](http://www.share.minike.top/Article/details/7199717.shtml)
+- 2026-06-29 12:01 - [珠江流域持续暴雨 广东多地停课](http://www.share.kurohicncr.top/Article/details/35619681.shtml)

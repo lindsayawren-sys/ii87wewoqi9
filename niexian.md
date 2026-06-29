@@ -1,60 +1,58 @@
-# 2025年未分配利润为负值、毛利率下滑……保变电气最新回应
+# 改标、换人、推新，迎驾贡酒如何“重生”？
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日早盘，保变电气股价明显下跌。截至午间收盘，公司股价报14.88元/股，跌3.31%。 消息面上，4月10日晚，保变电气披露2025年年报。外界对公司2025年未分配利润为负值、经营活动产生的现金流量净额同比下降、毛利率下滑等问题颇为关注。 保变电气在2025年年报中提到，经中兴华会计师事务所（特殊
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 文 | 酒讯 子煜 编辑 | 方圆 “洞藏”变“贡酒”，高管层密集换人，新战略正在酝酿，2025年，迎驾贡酒不断触发“重生”入口，开启一轮又一轮新副本。 伴随着自身重塑和行业调整，迎驾贡酒2025年出现上市以来首次营收净利双降，同时，包含主力系列洞藏系列在内的中高端产品销售出现下滑。 生态叙事也好，年轻叙事也罢，行业争夺
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 文 | 酒讯 子煜 编辑 | 方圆 “洞藏”变“贡酒”，高管层密集换人，新战略正在酝酿，2025年，迎驾贡酒不断触发“重生”入口，开启一轮又一轮新副本。
 
-4月13日早盘，保变电气股价明显下跌。
+伴随着自身重塑和行业调整，迎驾贡酒2025年出现上市以来首次营收净利双降，同时，包含主力系列洞藏系列在内的中高端产品销售出现下滑。
 
-截至午间收盘，公司股价报14.88元/股，跌3.31%。
+生态叙事也好，年轻叙事也罢，行业争夺空间愈来愈小，而迎驾贡酒将如何“重生”，重新构筑消费者心智？
 
-消息面上，4月10日晚，保变电气披露2025年年报。
+01 消失的“洞藏” 财报数据显示，2025年，迎驾贡酒实现营收60.19亿元，同比下滑18.04%；归母净利润19.86亿元，同比下滑23.31%，首次出现营利双降。
 
-外界对公司2025年未分配利润为负值、经营活动产生的现金流量净额同比下降、毛利率下滑等问题颇为关注。
+2025年，白酒行业普遍降速，但迎驾贡酒的成绩单仍然超出很多人的预料。
 
-保变电气在2025年年报中提到，经中兴华会计师事务所（特殊普通合伙）审计，保变电气母公司2025年年初未分配利润约-54.5亿元，2025年度实现净利润1057.4万元，盈余公积弥补亏损转入3.26亿元，资本公积弥补亏损转入约39.75亿元，2025年未分配利润约为-11.39亿元。
+2021-2023年，公司营收与净利连续三年双位数增长。
 
-公司目前不具备分红条件。
+2024年，迎驾贡酒仍交出营收与净利增长8.46%、13.45%的成绩单。
 
-对此，保变电气相关人士独家回应中国证券报·中证金牛座记者称，未分配利润为负数，主要与公司早些年投资新能源业务亏损较大有关。
+就在此前的2024年股东大会上，迎驾贡酒披露的年度预算目标为营收76亿元、净利润26.2亿元，但实际完成率分别仅为79.2%和75.8%。
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [国际观察：中国机遇为何吸引西班牙？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:50 - [浙江绍兴一馆藏战国青铜剑被指多处拼接痕 文物部门介入核查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:58 - [西班牙首相用中文说“大家好” 收获全场掌声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:05 - [韩国政府将向收入下游70%人群发放现金援助 以缓解油价上涨压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:05 - [去年超55亿人次在基层看病，医保支付也要“分级”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:07 - [TCL空调是一线品牌吗？定义AI新风时代行业标准的领军者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:56 - [俞浩：追觅今年营收挑战1000亿，后年1万亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:15 - [洛阳“太空牡丹”盛放 工作人员化身“代拍”暖心服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:57 - [外籍记者探访福建柘荣：山水藏长寿 非遗映振兴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:14 - [时习之丨“西迁精神”的核心是爱国主义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:16 - [从“一人一天”到“三人半年” 中国航天跑出加速度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:08 - [文远知行-W于4月10日斥资134.79万美元回购54万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:02 - [美称将对所有进出伊朗港口的海上交通实施封锁 伊朗海军司令称美方威胁“荒唐可笑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:01 - [国务院发展研究中心王青：二手商品的接受程度将会不断提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:00 - [泰晤士报：工党全国执行委员会批准伯纳姆竞选英国议员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:21 - [河北雄安新区：月季花开满城芳 繁花似锦醉初夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:55 - [打造“高效办成一件事”最佳体验地！上海出台重磅行动方案，有何深意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:06 - [小鹏汽车王谭：电动化与智能化正在从根本上重塑汽车设计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:00 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:54 - [自强不息追光逐梦 五名残疾人代表共话奋斗故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:18 - [金融监管总局发布2026年一季度银行业保险业主要监管指标数据情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:56 - [厦门港新增一条直航印度尼西亚货运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:01 - [跨越半个世纪的友谊接力——中美“乒乓外交”亲历者携青年再续体育情缘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:08 - [和远气体5天3板引关注，公司称六氟化钨产品暂未贡献业绩，尚处于试生产阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:56 - [山西太原：老人心跳骤停 急诊护士70秒抢救](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:02 - [薛定谔方程发表百年 “中二所的奇‘喵’冒险” 全面呈现科学魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:06 - [汇添富基金的2025年：规模涨了，利润降了，人才跑了](http://www.blog.kurohicncr.top/Article/details/96524568.shtml)
-- 2026-06-29 12:17 - [“津”非昔比丨这个春天必须冲天津海棠](http://www.blog.kurohicncr.top/Article/details/361610.shtml)
-- 2026-06-29 11:54 - [西班牙首相桑切斯访华 天安门广场挂起中西两国国旗](http://www.blog.minike.top/Article/details/6848591377.shtml)
-- 2026-06-29 12:17 - [供需双增，矿端消息扰动，碳酸锂如何“破局”？](http://www.blog.minike.top/Article/details/80447026045.shtml)
-- 2026-06-29 12:11 - [山东荣成：核电科普研学兴起](http://www.blog.kurohicncr.top/Article/details/98801650981.shtml)
-- 2026-06-29 11:49 - [禾赛科技张伟：预计到2030年，激光雷达搭载率将超过56%](http://www.blog.kurohicncr.top/Article/details/29439.shtml)
-- 2026-06-29 11:57 - [繁花伴逝者，绿色传思念：花坛葬集中安放仪式在广州举行](http://www.share.minike.top/Article/details/78834242.shtml)
-- 2026-06-29 12:10 - [券商热议深化创业板改革：新型消费等领域企业迎来上市“窗口期”](http://www.blog.minike.top/Article/details/03187405923.shtml)
-- 2026-06-29 12:06 - [宁夏大武口深耕文体健旅商融合发展 工业老城焕发新生](http://www.blog.kurohicncr.top/Article/details/192430.shtml)
-- 2026-06-29 12:04 - [瞄准升学焦虑：“中考专用”器材高价卖、私教特训声称“保过”](http://www.blog.minike.top/Article/details/18864.shtml)
-- 2026-06-29 12:12 - [羽毛球亚锦赛：国羽女双锁定金牌 王祉怡石宇奇晋级决赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [严格落实直播打赏新规谋求治理实效](http://www.share.kurohicncr.top/Article/details/464712721.shtml)
-- 2026-06-29 11:50 - [（经济观察）封关赋能开放 外资加速入琼](http://www.share.minike.top/Article/details/230234.shtml)
-- 2026-06-29 12:08 - [未来三天江南维持多雨模式 华南炎热不减多地气温或破纪录](http://www.share.minike.top/Article/details/831306.shtml)
-- 2026-06-29 12:00 - [聚焦依法惩治新型、隐性受贿犯罪 最高检发布第六十一批指导性案例](http://www.blog.kurohicncr.top/Article/details/194896978.shtml)
+- 2026-06-29 12:02 - [第十届中俄博览会开幕 46个国家和地区1500余家企业参展](http://www.blog.minike.top/Article/details/995767321797.shtml)
+- 2026-06-29 12:23 - [天玑开发者大会MDDC 2026：MediaTek AI开发套件下载量升至440%，发布多项重磅技术](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [郑丽文：反对“台独”是稳定台海关键](http://www.share.minike.top/Article/details/4234516.shtml)
+- 2026-06-29 11:54 - [在霍尔木兹海峡或长期关闭之际 油价上涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [高德专车上线静音服务，用户可一键定制“静音专车”](http://www.blog.kurohicncr.top/Article/details/433457.shtml)
+- 2026-06-29 11:55 - [世界超级摩托车锦标赛捷克站：“张雪机车”位列超级杆位赛第三名](http://www.blog.kurohicncr.top/Article/details/12306246694.shtml)
+- 2026-06-29 12:01 - [内蒙古交通集团有限公司原党委副书记、总经理、董事刘学武严重违纪违法被开除党籍](http://www.blog.kurohicncr.top/Article/details/34564960.shtml)
+- 2026-06-29 12:06 - [拉动文旅消费过亿 一场“村跑”何来如此大的能量？](http://www.blog.minike.top/Article/details/44236225152.shtml)
+- 2026-06-29 12:07 - [时令水果批量上市 专家提示当心糖分超标](http://www.blog.kurohicncr.top/Article/details/1232325195.shtml)
+- 2026-06-29 12:02 - [交通银行业绩会“解密”关键“话题”：二季度项目储备情况如何？公司估值如何提升？](http://www.blog.minike.top/Article/details/52193624646.shtml)
+- 2026-06-29 12:14 - [主力资金，“盯上”这些股票](http://www.share.kurohicncr.top/Article/details/229402387351.shtml)
+- 2026-06-29 11:54 - [聚焦科学补硒 专家学者齐聚河南济源探寻硒产业融合发展路径](http://www.share.minike.top/Article/details/6292495.shtml)
+- 2026-06-29 12:18 - [存储紧缺捧出2500亿巨头，江波龙造富了谁？](http://www.share.minike.top/Article/details/77444624.shtml)
+- 2026-06-29 12:08 - [中东部有大范围降水 黄海海域有大雾](http://www.share.minike.top/Article/details/30912407060.shtml)
+- 2026-06-29 11:58 - [中国银行辽宁省分行原党委书记、行长贾天兵被“双开”](http://www.share.minike.top/Article/details/065771879.shtml)

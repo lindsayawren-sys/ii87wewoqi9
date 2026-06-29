@@ -1,43 +1,47 @@
-# 巴基斯坦陆军参谋长已会见伊朗代表团
+# 特朗普说“伊斯兰国”二号头目被“清除”
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-据伊朗方面当地时间11日消息，巴基斯坦陆军参谋长穆尼尔“昨晚”会见了伊朗谈判代表团。
+新华社快讯：美国总统特朗普说极端组织“伊斯兰国”二号头目被“清除”。
 
 ## 正文
 
-据伊朗方面当地时间11日消息，巴基斯坦陆军参谋长穆尼尔“昨晚”会见了伊朗谈判代表团。
+新华社快讯：美国总统特朗普说极端组织“伊斯兰国”二号头目被“清除”。
 
 ## 相关推荐
 
-- 2026-06-29 11:48 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:07 - [周亚琳（女，1977年生），年薪1013.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:51 - [人民之心｜“为官一任，造福一方”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:04 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:03 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:49 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:16 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:04 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:01 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:13 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:14 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:03 - [外交部：中美双方就两国元首年内互动安排保持着沟通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:57 - [重庆举办“博物馆之夜”活动 亲子家庭沉浸式感受草原文化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:17 - [相向而行，共同开启中美关系新篇章（钟声）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:59 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:08 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:01 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:04 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:06 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 12:12 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:02 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:22 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:22 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:05 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:55 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:00 - [2026年“5·19中国旅游日”福州分会场活动在马尾启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:04 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.share.minike.top/Article/details/19503300982.shtml)
-- 2026-06-29 12:01 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.minike.top/Article/details/3550771.shtml)
-- 2026-06-29 12:15 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.minike.top/Article/details/83457851102.shtml)
-- 2026-06-29 11:56 - [光大期货：4月13日软商品日报](http://www.blog.kurohicncr.top/Article/details/8190711.shtml)
-- 2026-06-29 12:17 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.share.minike.top/Article/details/532290645.shtml)
-- 2026-06-29 12:06 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.blog.minike.top/Article/details/49659581288.shtml)
-- 2026-06-29 12:13 - [天津边检推多项便利举措 助力高水平对外开放](http://www.blog.minike.top/Article/details/20850.shtml)
-- 2026-06-29 11:56 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:16 - [北摩高科：拟每10股分红1.3元](http://www.blog.kurohicncr.top/Article/details/650477699.shtml)
-- 2026-06-29 11:54 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.share.kurohicncr.top/Article/details/09703.shtml)
-- 2026-06-29 12:17 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.blog.kurohicncr.top/Article/details/35295.shtml)
-- 2026-06-29 11:53 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.blog.minike.top/Article/details/449819.shtml)
-- 2026-06-29 12:17 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](http://www.blog.kurohicncr.top/Article/details/28783429201.shtml)
+- 2026-06-29 11:57 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](http://www.blog.kurohicncr.top/Article/details/5074943.shtml)
+- 2026-06-29 12:02 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](http://www.blog.minike.top/Article/details/76085.shtml)
+- 2026-06-29 12:01 - [尾盘：国债收益率大涨 美股继续下滑](http://www.share.minike.top/Article/details/90125212.shtml)
+- 2026-06-29 12:16 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](http://www.blog.minike.top/Article/details/355972.shtml)
+- 2026-06-29 12:08 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](http://www.blog.kurohicncr.top/Article/details/442355715340.shtml)
+- 2026-06-29 12:00 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](http://www.share.kurohicncr.top/Article/details/945939796066.shtml)
+- 2026-06-29 12:07 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](http://www.share.minike.top/Article/details/38883130.shtml)
+- 2026-06-29 12:01 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:04 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:06 - [全国广电民生节目在渝交流创新经验](http://www.share.minike.top/Article/details/5223263147.shtml)

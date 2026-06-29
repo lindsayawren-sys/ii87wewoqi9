@@ -1,51 +1,59 @@
-# 伊朗议长卡利巴夫率伊朗谈判代表团离开巴基斯坦
+# 邦达亚洲:市场的避险情绪挥之不去 澳元承压下行
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伊斯兰堡4月12日电（记者邹学冕杨恺）据巴基斯坦政府消息，伊朗伊斯兰议会议长卡利巴夫12日傍晚率领伊朗谈判代表团乘飞机离开巴基斯坦。（完）责任编辑：宋雅芳
+5月15日，美国劳工部周四公布的数据显示，截至5月9日当周，经季节性调整后，首次申请州失业救济金人数增加1.2万人，至21.1万人。这一数字略高于市场调查经济学家此前预期的20.5万人，但仍处于历史低位区间。四周移动平均值小幅上升750人，至20.375万人，平滑了短期波动后，就业基础依然稳健。分析人士指出，单周数据的小幅超预期尚不足以改变市场对劳动力市场整体韧性的判断。申领报
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月15日，美国劳工部周四公布的数据显示，截至5月9日当周，经季节性调整后，首次申请州失业救济金人数增加1.2万人，至21.1万人。
 
-新华社伊斯兰堡4月12日电（记者邹学冕杨恺）据巴基斯坦政府消息，伊朗伊斯兰议会议长卡利巴夫12日傍晚率领伊朗谈判代表团乘飞机离开巴基斯坦。
+这一数字略高于市场调查经济学家此前预期的20.5万人，但仍处于历史低位区间。
 
-（完）责任编辑：宋雅芳
+四周移动平均值小幅上升750人，至20.375万人，平滑了短期波动后，就业基础依然稳健。
+
+分析人士指出，单周数据的小幅超预期尚不足以改变市场对劳动力市场整体韧性的判断。
+
+申领报告同时显示，截至5月2日当周，在首次领取援助后继续领取失业金的人数（衡量招聘情况的一个关键指标）增加2.4万人，经季节性调整后为178.2万人。
+
+续请人数的上升表明，失业人群的再就业速度略有放缓，但仍远低于历史警戒水平。
+
+市场将密切关注该指标是否会在未来几周持续攀升——若突破180万关口，可能意味着企业招聘意愿出现实质性降温。
+
+另外，堪萨斯城联储主席施密德周四表示，尽管美国经济在面对多重挑战时展现出“显著韧性”，通胀依然是当前美国经济面临的最大风险，而就业市场整体仍保持稳定。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [奇瑞张志福：自研混动专用发动机热效率突破48%，目标突破50%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:58 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:12 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:57 - [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:52 - [电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:54 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:14 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:11 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:54 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:55 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:12 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:18 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:55 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:56 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:53 - [乐享集团与火山引擎签署《框架合作协议》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:59 - [（乡村行·看振兴）江苏扬州：沙头头茬西瓜开卖 “小西瓜”带动村集体增收逾百万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:04 - [515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 12:19 - [迈阿密愈发富庶，人口却持续缩减](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:17 - [武汉推行河湖长制十年 构筑人水和谐共生优美画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 12:20 - [《后遗症》作者秦汝璧谈女性成长困境：要更注重精神层面的超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 12:14 - [美国爱达荷州一空军基地发生空中撞机 飞行员弹射逃生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:07 - [Whale Rock一季度大幅调仓：建仓苹果微软，减持英伟达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:05 - [江西85后富豪夫妇又要IPO了，身家65亿，一年狂揽34亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:12 - [篮球比赛最后5秒 少年以超远3分球反超 这一刻 人生高光！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:58 - [从“决断”到“转折”：2026轩辕汽车蓝皮书论坛在广州闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:00 - [【市场聚焦】黑色：回落压力较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:18 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:09 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:16 - [调查显示澳大利亚近半数临近退休人群担心“人活着、钱没了”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:12 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](http://www.share.kurohicncr.top/Article/details/528682.shtml)
-- 2026-06-29 12:10 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.share.kurohicncr.top/Article/details/20931864393.shtml)
-- 2026-06-29 11:56 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](http://www.blog.kurohicncr.top/Article/details/39711798640.shtml)
-- 2026-06-29 11:49 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [南部战区新闻发言人发表谈话](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:08 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.share.kurohicncr.top/Article/details/7592696.shtml)
-- 2026-06-29 11:56 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.share.kurohicncr.top/Article/details/58226.shtml)
-- 2026-06-29 12:17 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.blog.minike.top/Article/details/9433073.shtml)
-- 2026-06-29 11:50 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.blog.minike.top/Article/details/94772369.shtml)
-- 2026-06-29 11:59 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](http://www.blog.kurohicncr.top/Article/details/9061196488.shtml)
-- 2026-06-29 11:52 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.blog.kurohicncr.top/Article/details/39741817.shtml)
-- 2026-06-29 11:55 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [海口海关动植物检疫中心测序服务采购项目流标公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:59 - [谈判无果而终，给伊朗战事留下两大疑问](http://www.share.minike.top/Article/details/337550048.shtml)
+- 2026-06-29 12:22 - [中国第12批援埃塞俄比亚军医专家组出征](http://www.blog.kurohicncr.top/Article/details/6936533.shtml)
+- 2026-06-29 12:21 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](http://www.share.minike.top/Article/details/29137151122.shtml)
+- 2026-06-29 12:08 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [受降雨影响 国铁广州局今明两天部分列车停运](http://www.share.kurohicncr.top/Article/details/8085613410.shtml)
+- 2026-06-29 12:06 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.share.kurohicncr.top/Article/details/639386480389.shtml)
+- 2026-06-29 11:57 - [九连板之后，002207公告：无注入算力资产的计划](http://www.blog.kurohicncr.top/Article/details/5931191.shtml)
+- 2026-06-29 12:15 - [日本财务大臣片山皋月否认需要编制额外预算](http://www.blog.kurohicncr.top/Article/details/61710169873.shtml)
+- 2026-06-29 12:21 - [美国侨胞：期待新定位领航中美关系行稳致远](http://www.blog.minike.top/Article/details/80692898763.shtml)
+- 2026-06-29 12:11 - [珠江流域持续暴雨 广东多地停课](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](http://www.share.minike.top/Article/details/102759756895.shtml)
+- 2026-06-29 12:05 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](http://www.blog.kurohicncr.top/Article/details/6100671.shtml)
+- 2026-06-29 11:55 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.blog.kurohicncr.top/Article/details/089395665.shtml)
+- 2026-06-29 11:58 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](http://www.share.kurohicncr.top/Article/details/6919456908.shtml)
+- 2026-06-29 12:12 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](http://www.share.minike.top/Article/details/86065420.shtml)

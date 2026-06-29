@@ -1,60 +1,59 @@
-# 欧阳明高：超冲闪充是在安全和寿命的边界上游走
+# CBA观察：我们需要一支怎样的山西男篮
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。清华大学教授欧阳明高出席并演讲。 欧阳明高指出，“十五五”提倡从卷价格到卷价值转变，通常讲的价值包括功能价值和情绪价值。对于零部件厂而言，主要是功能价值，汽车厂商主要是情绪价值，其实还有一个价
+中新网太原5月15日电 (记者 胡健)随着山西汾酒男篮在2025-2026赛季中国男子篮球职业联赛(CBA)季后赛1/4决赛中以总比分1比2不敌卫冕冠军浙江广厦，山西队的赛季征程就此止步。这是山西队连续第5个赛季闯入季后赛，也是队史首次连续两个赛季晋级八强。在CBA联赛征战的第20个赛季，这一成绩本身已值得肯定。 然而，如果将目光投向上个赛季——山西男篮以34胜12负的战绩高居
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
+中新网太原5月15日电 (记者 胡健)随着山西汾酒男篮在2025-2026赛季中国男子篮球职业联赛(CBA)季后赛1/4决赛中以总比分1比2不敌卫冕冠军浙江广厦，山西队的赛季征程就此止步。
 
-清华大学教授欧阳明高出席并演讲。
+这是山西队连续第5个赛季闯入季后赛，也是队史首次连续两个赛季晋级八强。
 
-欧阳明高指出，“十五五”提倡从卷价格到卷价值转变，通常讲的价值包括功能价值和情绪价值。
+在CBA联赛征战的第20个赛季，这一成绩本身已值得肯定。
 
-对于零部件厂而言，主要是功能价值，汽车厂商主要是情绪价值，其实还有一个价值，就是资产价值。
+然而，如果将目光投向上个赛季——山西男篮以34胜12负的战绩高居常规赛第二名，季后赛3比0横扫广东队挺进四强——那么本赛季的22胜20负、常规赛第十名的战绩，便多了一些值得深思的价值。
 
-他强调，要把功能价值、情绪价值和资产价值同等重视，让三个价值互相耦合。
+从“最大黑马”到止步八强，一年之间，变化缘何而生？
 
-欧阳明高还表示，要从高速发展到高质量发展，安全监管加严、技术门槛提高、舆论环境改善。
+回望这个充满起伏的赛季，或许能帮助我们回答那个球迷心中共同的问题：我们需要一支怎样的山西男篮？
 
-“最近舆论环境也在改善，有很多技术粉丝在做自媒体，比以前好多了，而且经常看到黑公关被抓，这是好事。
+我们需要一支对胜利有极度渴望的山西男篮 上赛季的山西男篮之所以令人振奋，首先在于那份令人动容的求胜欲。
 
-” 他提到，新旧动能转换，纯电动力主导。
+常规赛场均114.8分高居联赛得分榜首，季后赛面对11冠王广东队，全队上下展现出近乎“以命相搏”的战斗姿态。
 
 ## 相关推荐
 
-- 2026-06-29 12:11 - [以军空袭黎南部造成至少24人死亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:00 - [美国3月预算赤字为1641亿美元 经济学家预估赤字为1533亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:10 - [伊朗最高领袖军事顾问：伊朗不会“被帖文和幻想方案封锁”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:52 - [美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:00 - [RYOEX:黄金价值重估与结构演变趋势分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:05 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:07 - [手机黑屏变“砖头” 一根回形针切断“诈骗通道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:54 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:49 - [2026年全国教育科研工作会议在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:04 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:17 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:11 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:17 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:00 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:17 - [广西首批村集体持有林票线上竞价交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:59 - [马斯克诉 OpenAI案阶段性收官！奥特曼被曝内幕交易，昔日兄弟为何反目？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:05 - [一粒红芸豆改写边境乡镇产业轨迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:00 - [“莫斯科—哈尔滨”研讨会举行 共拓中俄地方合作新空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:15 - [宁德时代孟永健：V2G最难的不在反向放电，而是千万级车辆如何有序安全调度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:15 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:22 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:21 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:19 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:17 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:03 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:02 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:01 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:17 - [张瑜：从二战美国看变局下的“中游”突围——战略看多中游制造系列六](http://www.blog.minike.top/Article/details/463260.shtml)
-- 2026-06-29 12:06 - [绿地香港首3个月合约销售约为20.63亿元 同比增加222.34%](http://www.share.kurohicncr.top/Article/details/20375.shtml)
-- 2026-06-29 11:55 - [中阿卫视主持人阿思玛走进福建福鼎 山海魅力引国际友人点赞](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [房子两天内遭遇两次攻击，OpenAI CEO此前曾回应“AI焦虑”](http://www.share.minike.top/Article/details/384789600401.shtml)
-- 2026-06-29 12:06 - [柳化股份业绩预告“大变脸”，受损股民或可索赔](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:54 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](http://www.share.minike.top/Article/details/987934.shtml)
-- 2026-06-29 12:10 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](http://www.share.minike.top/Article/details/94274.shtml)
-- 2026-06-29 12:05 - [白银跳空低开跌2%，避险失效？](http://www.blog.minike.top/Article/details/293969.shtml)
-- 2026-06-29 12:07 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](http://www.share.kurohicncr.top/Article/details/5984278.shtml)
-- 2026-06-29 11:59 - [5亿元科创基金100%投向中大成果转化](http://www.share.kurohicncr.top/Article/details/1006396907.shtml)
-- 2026-06-29 11:58 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](http://www.share.minike.top/Article/details/03622.shtml)
-- 2026-06-29 11:59 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:48 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.blog.minike.top/Article/details/34820.shtml)
-- 2026-06-29 11:50 - [巴基斯坦总理会见美国副总统万斯](http://www.share.kurohicncr.top/Article/details/7303682.shtml)
-- 2026-06-29 12:02 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [外媒：利比亚球迷骚乱蔓延至首都周边，总理府遭纵火](http://www.blog.kurohicncr.top/Article/details/07891.shtml)
+- 2026-06-29 12:19 - [日本国债收益率飙升 投资者押注日资从美债回流本土](http://www.blog.kurohicncr.top/Article/details/11084305.shtml)
+- 2026-06-29 12:21 - [首届中国新文创市集满场“黑科技” 观众：超出预期](http://www.blog.minike.top/Article/details/78913.shtml)
+- 2026-06-29 12:23 - [中国闽台缘博物馆开馆二十周年 数千家书见证两岸血脉亲情](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [广西柳州成立具身智能机器人技术应用中心](http://www.share.kurohicncr.top/Article/details/40130.shtml)
+- 2026-06-29 12:06 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.share.kurohicncr.top/Article/details/343253671638.shtml)
+- 2026-06-29 12:07 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.share.minike.top/Article/details/60602732.shtml)
+- 2026-06-29 11:58 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:18 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](http://www.blog.minike.top/Article/details/5802196929.shtml)
+- 2026-06-29 12:05 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.share.kurohicncr.top/Article/details/584798102.shtml)
+- 2026-06-29 12:21 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:11 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.kurohicncr.top/Article/details/356037.shtml)
+- 2026-06-29 12:17 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:09 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.blog.kurohicncr.top/Article/details/383542184.shtml)
+- 2026-06-29 12:14 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.share.kurohicncr.top/Article/details/507000336326.shtml)

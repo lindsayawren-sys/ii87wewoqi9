@@ -1,59 +1,60 @@
-# 香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际
+# 助力“东北超”歌曲《绿茵逐梦》上线
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-这里，有海纳百川的开放气度，有互联互通的宽广平台，有敢为人先的创新基因……这里，就是“东方之珠”香港。4月13日至14日，2026年世界互联网大会亚太峰会再次在香港举行。开幕式、政企交流会、主论坛暨杰出贡献者盛典、部长级会议、多场主题论坛……两天时间里，来自亚太地区乃至全球多国的嘉宾将再聚一堂，围绕“数智赋能创新发展——携手构建网络空间命运共同体”主题，贡献智慧创见，回应各方关
+中新网哈尔滨5月16日电(记者 王妮娜)16日，由黑龙江省流行音乐协会出品的《绿茵逐梦》及完整版MV正式全网上线，这是专为首届东北地区城市足球联赛(“东北超”)量身打造的原创助威歌曲《绿茵逐梦》。这首集结黑龙江乐坛实力的热血之作，以铿锵旋律与豪迈歌词，为即将于23日燃情开赛的“东北超”注入强劲音乐力量。 首届“东北超”将于5月23日在辽、吉、黑、内蒙古三省一区同步揭幕，8支城市
 
 ## 正文
 
-这里，有海纳百川的开放气度，有互联互通的宽广平台，有敢为人先的创新基因……这里，就是“东方之珠”香港。
+中新网哈尔滨5月16日电(记者 王妮娜)16日，由黑龙江省流行音乐协会出品的《绿茵逐梦》及完整版MV正式全网上线，这是专为首届东北地区城市足球联赛(“东北超”)量身打造的原创助威歌曲《绿茵逐梦》。
 
-4月13日至14日，2026年世界互联网大会亚太峰会再次在香港举行。
+这首集结黑龙江乐坛实力的热血之作，以铿锵旋律与豪迈歌词，为即将于23日燃情开赛的“东北超”注入强劲音乐力量。
 
-开幕式、政企交流会、主论坛暨杰出贡献者盛典、部长级会议、多场主题论坛……两天时间里，来自亚太地区乃至全球多国的嘉宾将再聚一堂，围绕“数智赋能创新发展——携手构建网络空间命运共同体”主题，贡献智慧创见，回应各方关切，擘画普惠图景。
+首届“东北超”将于5月23日在辽、吉、黑、内蒙古三省一区同步揭幕，8支城市代表队将展开绿茵角逐。
 
-智能技术跃迁，赋能千行百业 从实验室构想走向产业实践，70年来，人工智能技术已然成长为驱动时代变革的重要力量。
+作为黑龙江省流行音乐界的献礼之作，《绿茵逐梦》以音乐为桥、以歌声为媒，实现文体深度融合，不仅为赛事呐喊助威，更展现黑龙江流行音乐的原创实力与家乡情怀。
 
-近期，名为“OpenClaw”的智能体工具，凭借自主执行复杂任务、可扩展技能包等强大能力，掀起了一股“养虾”热。
+本次歌曲汇聚乐坛群星，由姜鹏、李天华、姜达赫、李子墨四位实力歌手联袂倾情献唱。
 
-其爆火的同时，也暴露出了多重隐患。
+《绿茵逐梦》由知名音乐人李天华作曲，李兴龙编曲，乐乐、李天华联手作词，由主创团队精心打磨，创作紧扣“东北超”全民足球、为城而战的核心精神，旋律激昂奋进、节奏铿锵有力，歌词融入白山黑水、绿茵拼搏、兄弟同心等元素，既展现足球运动的激情与活力，更饱含东北人团结、热血、不服输的精神内核。
 
-一方面，人工智能正走向连接虚拟与物理世界，逐步从“对话”迈向“行动”，赋能属性愈加突显；另一方面，如何在安全前提下，更好进行技术创新应用，推动实现下一代人机协同新范式，也备受各方关注。
+目前，《绿茵逐梦》已在各大音乐平台全面上线。
 
-“我们需要人工智能方面的帮助，我们不想被落下……”谈及人工智能发展，萨摩亚通信监管局局长吉萨·珀塞尔在2025年亚太峰会泪洒现场。
+歌曲发布后，迅速引发歌迷与球迷的热烈反响，大家纷纷表示，旋律热血、歌词走心，是专属东北人的“绿茵战歌”，将陪伴“东北超”全程，为每一场比赛、每一支球队、每一位拼搏的球员加油鼓劲。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [川渝“校园之春”活动在重庆举行 45年来累计超千万人次参与](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:57 - [手机黑屏变“砖头” 一根回形针切断“诈骗通道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:09 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:09 - [2026年全国教育科研工作会议在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:58 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:10 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:53 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:08 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:54 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:14 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:11 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:53 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:11 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:59 - [公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:14 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 12:20 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:07 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:04 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:11 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:19 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:54 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:11 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:16 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:08 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 12:14 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:20 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:02 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:07 - [遵义马拉松开跑 1.2万名跑者竞速“贵州最速赛道”](http://www.share.minike.top/Article/details/61996497235.shtml)
-- 2026-06-29 12:12 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](http://www.share.kurohicncr.top/Article/details/0756121.shtml)
-- 2026-06-29 12:02 - [白银跳空低开跌2%，避险失效？](http://www.blog.minike.top/Article/details/80278832.shtml)
-- 2026-06-29 12:10 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [5亿元科创基金100%投向中大成果转化](http://www.blog.kurohicncr.top/Article/details/905941985113.shtml)
-- 2026-06-29 12:02 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](http://www.blog.minike.top/Article/details/3796741.shtml)
-- 2026-06-29 12:12 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](http://www.blog.kurohicncr.top/Article/details/94760.shtml)
-- 2026-06-29 11:51 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [巴基斯坦总理会见美国副总统万斯](http://www.share.minike.top/Article/details/088213099569.shtml)
-- 2026-06-29 11:58 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](http://www.share.minike.top/Article/details/7291560898.shtml)
-- 2026-06-29 11:50 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.blog.minike.top/Article/details/387285474104.shtml)
-- 2026-06-29 11:59 - [第十四届北京国际风筝节启幕](http://www.share.kurohicncr.top/Article/details/231612844974.shtml)
-- 2026-06-29 11:52 - [张果彤:黄金中线二次探底概率较大](http://www.blog.kurohicncr.top/Article/details/03334046.shtml)
-- 2026-06-29 11:55 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](http://www.share.minike.top/Article/details/160606860555.shtml)
-- 2026-06-29 12:14 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](http://www.blog.minike.top/Article/details/092240.shtml)
+- 2026-06-29 12:12 - [西安三大展同期开幕 “文物+科技”让汉唐文脉可触可感](http://www.blog.kurohicncr.top/Article/details/75094.shtml)
+- 2026-06-29 12:09 - [连连数字于5月15日斥资134.75万港元回购23.55万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:05 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](http://www.share.minike.top/Article/details/304128958.shtml)
+- 2026-06-29 11:56 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.blog.minike.top/Article/details/6645983.shtml)
+- 2026-06-29 12:23 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:02 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.minike.top/Article/details/403772057158.shtml)
+- 2026-06-29 12:01 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.kurohicncr.top/Article/details/187487631.shtml)
+- 2026-06-29 12:18 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.blog.minike.top/Article/details/776117.shtml)
+- 2026-06-29 11:55 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](http://www.blog.minike.top/Article/details/7090739.shtml)
+- 2026-06-29 12:14 - [土耳其理工名校掀起中国热](http://www.blog.kurohicncr.top/Article/details/98258585.shtml)
+- 2026-06-29 12:23 - [中美元首会谈是否讨论人工智能合作？中方回应](http://www.share.kurohicncr.top/Article/details/204215966.shtml)
+- 2026-06-29 12:22 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.share.kurohicncr.top/Article/details/65165387356.shtml)
+- 2026-06-29 11:56 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.blog.minike.top/Article/details/52606.shtml)
+- 2026-06-29 12:21 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.kurohicncr.top/Article/details/072743734.shtml)

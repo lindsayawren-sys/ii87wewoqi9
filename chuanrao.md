@@ -1,59 +1,61 @@
-# 全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场
+# 马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月13日，汇丰最新一项调查显示，在调整战略以捕捉增长机遇的过程中，全球企业和机构投资者正将目光投向亚洲，特别是中国内地。而人工智能与技术发展已成为影响企业国际业务拓展和资本部署的首要因素。 调查显示，93%的全球受访企业计划未来五年增加跨境贸易或投资。其中，中国内地市场成为最受期待的市场——超过四成（41
+在埃隆·马斯克起诉OpenAI、萨姆·奥尔特曼、格雷格·布罗克曼以及微软一案的第一阶段结案陈词结束后，微软仍处于市场关注焦点。 马斯克声称，OpenAI背离了其非营利使命，并将其捐赠的资金用于未经授权的商业目的。马斯克的律师还指控微软协助OpenAI涉嫌违反慈善信托义务。 OpenAI的律师驳斥了这些指控，称并未向马斯克就OpenAI的组织架构做出任何承诺，且其捐赠资金已被妥善
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+在埃隆·马斯克起诉OpenAI、萨姆·奥尔特曼、格雷格·布罗克曼以及微软一案的第一阶段结案陈词结束后，微软仍处于市场关注焦点。
 
-4月13日，汇丰最新一项调查显示，在调整战略以捕捉增长机遇的过程中，全球企业和机构投资者正将目光投向亚洲，特别是中国内地。
+马斯克声称，OpenAI背离了其非营利使命，并将其捐赠的资金用于未经授权的商业目的。
 
-而人工智能与技术发展已成为影响企业国际业务拓展和资本部署的首要因素。
+马斯克的律师还指控微软协助OpenAI涉嫌违反慈善信托义务。
 
-调查显示，93%的全球受访企业计划未来五年增加跨境贸易或投资。
+OpenAI的律师驳斥了这些指控，称并未向马斯克就OpenAI的组织架构做出任何承诺，且其捐赠资金已被妥善使用。
 
-其中，中国内地市场成为最受期待的市场——超过四成（41%）的全球受访者表示，未来五年内地市场对他们的经贸活动将变得更为重要，该比例在所有市场中最高。
+微软的律师则表示，公司对所指控的事件并不知情，也没有参与其中。
 
-在谈及如何推进国际化业务战略时，有一半（50%）的全球受访企业表示，未来三年，人工智能等关键技术和基础设施的可获得性将成为首要影响因素，其次是市场增长潜力和客户需求（49%）。
+由九人组成的陪审团将于周一开始审议，但其裁决仅具有咨询性质。
 
-全球来看，94%的受访企业和机构认为国际业务增长机遇依然强劲，该比例在内地受访企业中高达99%。
+美国地区法官伊冯·冈萨雷斯·罗杰斯将做出最终的责任裁定。
 
-对于内地企业而言，除了香港市场（43%）以外，欧洲大陆（52%）未来五年对他们的重要性也将增加。
+对投资者而言，此案至关重要，因为微软通过其人工智能战略和基础设施投入，与OpenAI仍保持着深度绑定关系。
 
 ## 相关推荐
 
-- 2026-06-29 12:08 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:59 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:49 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:05 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:10 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:58 - [日经指数下跌0.4% 受科技股和电子股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:01 - [天津边检推多项便利举措 助力高水平对外开放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:57 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:10 - [北摩高科：拟每10股分红1.3元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:12 - [全国无党派人士考察团在浙江开展年度重点考察调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:00 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:05 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:00 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:12 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:17 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:19 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 11:59 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:59 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:02 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:11 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:00 - [日本央行理事称投资基金活动对金融体系构成潜在风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:20 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:08 - [沃尔玛希望Flipkart放慢节奏并实现盈利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:21 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:05 - [CBA观察：我们需要一支怎样的山西男篮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:21 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:17 - [全国广电民生节目在渝交流创新经验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:07 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:56 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](http://www.blog.minike.top/Article/details/1597476.shtml)
-- 2026-06-29 12:11 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](http://www.blog.kurohicncr.top/Article/details/104103620.shtml)
-- 2026-06-29 11:54 - [英国监管机构紧急评估Anthropic最新AI模型的风险](http://www.blog.kurohicncr.top/Article/details/83439.shtml)
-- 2026-06-29 12:08 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](http://www.blog.kurohicncr.top/Article/details/49922.shtml)
-- 2026-06-29 12:09 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](http://www.blog.kurohicncr.top/Article/details/304833145.shtml)
-- 2026-06-29 12:13 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](http://www.share.kurohicncr.top/Article/details/986569005.shtml)
-- 2026-06-29 12:09 - [徐寅生：愿“乒乓外交”精神代代相传](http://www.share.kurohicncr.top/Article/details/09444802.shtml)
-- 2026-06-29 11:57 - [（八闽千姿）一盅鸡汤汆海蚌 两岸同胞共此鲜](http://www.share.minike.top/Article/details/381428.shtml)
-- 2026-06-29 11:59 - [百度地图刘增刚：AI语音交互场景中，闲聊成为最高频应用领域](http://www.blog.minike.top/Article/details/14843.shtml)
-- 2026-06-29 11:50 - [新书《烽火连三月》：重新审视和塑造革命中的女性形象](http://www.share.minike.top/Article/details/8965936.shtml)
-- 2026-06-29 11:54 - [李家超：人工智能是香港加速创科发展核心 正就AI发展制定全面策略](http://www.blog.minike.top/Article/details/659036397.shtml)
-- 2026-06-29 11:58 - [李升波：端到端技术是自动驾驶与具身智能的核心路径](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:57 - [股价年内涨幅超七成、市值站上千亿，卫星化学为何走高？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [北海康成-B授出合共637.26万份购股权及637.26万份受限制股份单位](http://www.blog.kurohicncr.top/Article/details/52523.shtml)
+- 2026-06-29 12:21 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.blog.minike.top/Article/details/14127746.shtml)
+- 2026-06-29 12:21 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](http://www.blog.kurohicncr.top/Article/details/12417440117.shtml)
+- 2026-06-29 12:21 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.blog.minike.top/Article/details/438926.shtml)
+- 2026-06-29 12:11 - [杭州欧美同学会国际文化交流工作委员会成立](http://www.blog.kurohicncr.top/Article/details/21267216431.shtml)
+- 2026-06-29 11:58 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](http://www.share.kurohicncr.top/Article/details/75377.shtml)
+- 2026-06-29 12:17 - [联播+｜读懂中国的特别窗口](http://www.blog.kurohicncr.top/Article/details/4679352.shtml)
+- 2026-06-29 12:21 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.share.minike.top/Article/details/655323194801.shtml)
+- 2026-06-29 12:00 - [星网宇达：截至2026年4月20日公司股东人数为40184户](http://www.blog.kurohicncr.top/Article/details/0546038860.shtml)
+- 2026-06-29 12:17 - [华北多地警惕极端降雨！下周暴雨不消停 新一轮大范围降雨排队上线](http://www.blog.minike.top/Article/details/20840033.shtml)
+- 2026-06-29 12:07 - [NG Energy一季度营收激增48%，产量创新高并发现新气藏](http://www.share.minike.top/Article/details/457214.shtml)
+- 2026-06-29 11:56 - [515投资者保护 | 覆盖15所高校！鹏华基金国民教育高质量投教课程荣获2026年度最佳投资者教育创新奖](http://www.blog.kurohicncr.top/Article/details/73736.shtml)
+- 2026-06-29 12:16 - [北京天坛中外游客盛赞“中式美学”：包容、和平、共赢](http://www.blog.minike.top/Article/details/52544270087.shtml)
+- 2026-06-29 12:22 - [Elevai Labs Q1营收大幅下滑，净亏损扩大](http://www.share.kurohicncr.top/Article/details/44049776.shtml)
+- 2026-06-29 12:00 - [文坛名家聚长春寄语青年：文学沃土孕育万千精神繁花](http://www.blog.minike.top/Article/details/2319878.shtml)
+- 2026-06-29 12:06 - [文脉华章丨一个博物院就是一所大学校](http://www.share.kurohicncr.top/Article/details/942670.shtml)

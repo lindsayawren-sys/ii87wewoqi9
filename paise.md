@@ -1,59 +1,58 @@
-# 西藏日喀则消防救援机动大队：严管火源 筑牢防火屏障
+# 浙江北仑灵峰工业社区：打造“家门口”的红色精神家园
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-中新网拉萨4月11日电 (洛桑顿珠)近日，西藏日喀则消防救援机动大队先后深入亚东县下亚东乡巴夏景区、吉隆县吉隆镇吉普大峡谷等地，通过设卡检查、隐患排查、携装巡护、现场宣讲等多种方式，从严强化火源管控，全方位筑牢火灾防控防线。 “您好，这是防火宣传手册，上面有注意事项，遇火情请拨打12119。”在执勤现场，消防救援人员向过往游客及群众发放防火宣传手册，用通俗语言普及安全常识和应急
+中新网宁波5月16日电 (张斌 刘子琳 骆泽明)“把党史课堂送到产业工人家门口，让红色精神扎根工业一线、赋能产业发展，这是我们深耕基层党史教育、践行正确政绩观的重要实践。”15日，浙江宁波北仑灵峰工业社区党委书记史孟艳在受访时表示。 当日，“党史面对面”系列活动走进北仑灵峰工业社区，以沉浸式宣讲、文艺展演、青年宣讲等多元形式，把鲜活的党史课堂送到产业工人身边，为工业一线注入红色
 
 ## 正文
 
-中新网拉萨4月11日电 (洛桑顿珠)近日，西藏日喀则消防救援机动大队先后深入亚东县下亚东乡巴夏景区、吉隆县吉隆镇吉普大峡谷等地，通过设卡检查、隐患排查、携装巡护、现场宣讲等多种方式，从严强化火源管控，全方位筑牢火灾防控防线。
+中新网宁波5月16日电 (张斌 刘子琳 骆泽明)“把党史课堂送到产业工人家门口，让红色精神扎根工业一线、赋能产业发展，这是我们深耕基层党史教育、践行正确政绩观的重要实践。
 
-“您好，这是防火宣传手册，上面有注意事项，遇火情请拨打12119。
+”15日，浙江宁波北仑灵峰工业社区党委书记史孟艳在受访时表示。
 
-”在执勤现场，消防救援人员向过往游客及群众发放防火宣传手册，用通俗语言普及安全常识和应急处置方法，引导群众牢固树立“森林防火，人人有责”的思想共识。
+当日，“党史面对面”系列活动走进北仑灵峰工业社区，以沉浸式宣讲、文艺展演、青年宣讲等多元形式，把鲜活的党史课堂送到产业工人身边，为工业一线注入红色动能。
 
-宣介过程中，消防救援人员重点排查景区消防设施完好性、可燃物清理及时性及应急处置准备情况。
+灵峰工业社区作为全国最大的压铸模具及相关汽车零部件生产基地，曾获评全国“最美志愿服务社区”。
 
-针对发现的消防安全隐患问题当场提出整改意见、指导工作人员立即整改，明确要求景区常态化可燃物清理，从源头遏制火灾隐患。
+该社区集聚企业88家、产业工人2.6万余名，党员435人、流动党员近千人，职工来自五湖四海，是推动区域制造业高质量发展的中坚力量。
 
-在吉隆县吉普大峡谷，消防救援人员在峡谷景区必经路段设卡宣讲，严格落实“逢车必查、逢人必检”制度，提醒游客自觉遵守防火管控规定，严禁携带火种进山、严禁违规用火。
+“产业工人平时生产任务重、时间紧，集中外出学习机会不多。
 
-同时发放藏汉双语宣传手册与灭烟袋，兼顾不同群体需求，切实守牢火源入口管控第一道防线。
+”史孟艳说，以往党员学习教育模式较为单一，此次“党史面对面”把主题党日直接搬到现场，邀请浙江全省优秀党史宣讲团队送课上门，让思想政治教育更鲜活、更接地气，让产业工人在家门口就能感受党史力量、厚植爱党爱国情怀。
 
-针对景区商铺经营者、施工人员等重点群体，消防救援人员详细解读违规用火的法律责任与安全危害，引导相关人员主动履行防火责任、遵守管控要求、积极参与群防群控，营造全民参与、齐抓共管的良好防火氛围。
+此外，活动现场还举行了“史志书房”授牌仪式，宁波市委党史研究室副主任刘士岭向史孟艳授牌，并现场赠送红色书籍。
 
 ## 相关推荐
 
-- 2026-06-29 12:05 - [广西资源苗家阿妹“山歌”“带货”“春江水”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:12 - [迅策早盘大涨超17%盘中创新高 与深数所正式签署战略合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:52 - [乌称敖德萨遭无人机袭击 已致2死2伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:00 - [电子布龙头，历史新高！具身智能有望催生万亿级市场，高增长概念股是这些](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:09 - [伊朗、美国和巴基斯坦三方会谈开始举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:51 - [Vineyard Wind起诉GE Vernova以阻止其退出海上风电项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:00 - [伊朗：美伊谈判涉及核问题、制裁、赔款及霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:03 - [“赌王”何鸿燊女儿何超蕸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:50 - [美国社会保障金将于4月15日发放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:02 - [33城公积金年报，20城超半数人只缴不用？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:08 - [4月11日外盘头条：美伊谈判在即 特朗普威胁若未达成协议将恢复打击 霍尔木兹海峡通行船只依然寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:59 - [郑州版“放牛班的春天”：用舞蹈微电影让孩子们绽放光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:07 - [亚洲攀岩锦标赛：日本选手铃木音生获男子难度赛金牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:10 - [515投资者保护|上银基金"涨了鸭的投资旅途"系列投教漫画及视频：语言轻松幽默 降低了金融知识的理解门槛化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:19 - [迈阿密愈发富庶，人口却持续缩减](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:19 - [武汉推行河湖长制十年 构筑人水和谐共生优美画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:04 - [《后遗症》作者秦汝璧谈女性成长困境：要更注重精神层面的超越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:57 - [美国爱达荷州一空军基地发生空中撞机 飞行员弹射逃生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:12 - [Whale Rock一季度大幅调仓：建仓苹果微软，减持英伟达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:23 - [江西85后富豪夫妇又要IPO了，身家65亿，一年狂揽34亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:17 - [篮球比赛最后5秒 少年以超远3分球反超 这一刻 人生高光！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:10 - [从“决断”到“转折”：2026轩辕汽车蓝皮书论坛在广州闭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:03 - [【市场聚焦】黑色：回落压力较大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:02 - [“中国哲学社会科学自主知识体系丛书”首批成果发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:06 - [“白色石油”再掀波澜 碳酸锂刚上20万元／吨就急跌 业内称跌幅有限](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:58 - [总书记的关切·落地的回响｜协同守护 千年运河正青春](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [张国清在中国雅江集团调研时强调 扛牢工程建设主体责任 全面提升运营管理能力](http://www.blog.minike.top/Article/details/08360540.shtml)
-- 2026-06-29 12:16 - [2026菏泽牡丹国际传播论坛举行 中外专家共议牡丹文化全球传播](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:13 - [（八闽千姿）探访“中国刀剪之乡”柘荣：百年铁火淬新智](http://www.share.kurohicncr.top/Article/details/2547698.shtml)
-- 2026-06-29 11:56 - [南部战区新闻发言人发表谈话](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [粤BA第三轮赛事开打 茂名队主场逆转绝杀佛山队](http://www.blog.minike.top/Article/details/957453.shtml)
-- 2026-06-29 12:01 - [亿腾嘉和于4月10日斥资19.62万港元回购6.65万股](http://www.share.kurohicncr.top/Article/details/405502433614.shtml)
-- 2026-06-29 12:17 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:02 - [近200名奥运人欢聚2026北京国际长跑节 “双奥文化大篷车”亮相](http://www.blog.minike.top/Article/details/423024.shtml)
-- 2026-06-29 11:55 - [快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%](http://www.blog.kurohicncr.top/Article/details/342821320427.shtml)
-- 2026-06-29 11:55 - [探访南京超级充电绿色示范站 快充只需十分钟](http://www.blog.minike.top/Article/details/130543.shtml)
-- 2026-06-29 12:08 - [黑芝麻智能单记章：VLA+世界模型，或许会超越人类的驾驶能力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:55 - [海口海关动植物检疫中心测序服务采购项目流标公告](http://www.share.kurohicncr.top/Article/details/103517133.shtml)
-- 2026-06-29 12:11 - [谈判无果而终，给伊朗战事留下两大疑问](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:51 - [苏泊尔“清仓式分红”背后：净利下滑，小家电龙头陷增长困局](http://www.blog.kurohicncr.top/Article/details/1785811765.shtml)
+- 2026-06-29 11:59 - [重庆巫溪一驾驶员用救护车捎带化肥？当地卫健委通报](http://www.share.minike.top/Article/details/610987.shtml)
+- 2026-06-29 12:06 - [从粤港澳大湾区走向全国 中演院线16周年处处有戏](http://www.blog.minike.top/Article/details/89410.shtml)
+- 2026-06-29 12:10 - [受降雨影响 国铁广州局今明两天部分列车停运](http://www.blog.kurohicncr.top/Article/details/119032.shtml)
+- 2026-06-29 11:56 - [宁波银行回应拨备覆盖率下降：整体上符合行业趋势](http://www.share.kurohicncr.top/Article/details/990144446563.shtml)
+- 2026-06-29 12:05 - [特朗普白宫宴会厅安保拨款遭参议院裁定删除](http://www.blog.minike.top/Article/details/21031.shtml)
+- 2026-06-29 12:11 - [九连板之后，002207公告：无注入算力资产的计划](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:01 - [日本财务大臣片山皋月否认需要编制额外预算](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [美国侨胞：期待新定位领航中美关系行稳致远](http://www.share.kurohicncr.top/Article/details/04273.shtml)
+- 2026-06-29 12:06 - [珠江流域持续暴雨 广东多地停课](http://www.blog.kurohicncr.top/Article/details/86226.shtml)
+- 2026-06-29 12:03 - [【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华](http://www.blog.kurohicncr.top/Article/details/453169444904.shtml)
+- 2026-06-29 12:21 - [“全球治理 青年新思·2026北京国际模拟联合国大会”在北京开幕](http://www.share.kurohicncr.top/Article/details/729081.shtml)
+- 2026-06-29 12:13 - [市场监管部门将抽查173种重点产品 网售领域覆盖所有头部平台](http://www.share.minike.top/Article/details/91780.shtml)
+- 2026-06-29 12:04 - [韩国央行新任委员称中东冲突导致通胀担忧加剧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [全国首例超大盾构洞内全流程作业项目开启盾构掘进](http://www.blog.minike.top/Article/details/96348192203.shtml)
+- 2026-06-29 12:02 - [515投资者保护 | “三打白骨精”教你识破投资陷阱，国泰基金“金融投教一出好戏”荣获最具影响力投教项目奖](http://www.blog.kurohicncr.top/Article/details/94153.shtml)

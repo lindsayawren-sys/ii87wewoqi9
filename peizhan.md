@@ -1,49 +1,57 @@
-# 机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”
+# 芭蕾舞演员、医学专家带民众走出减重“误区”
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月12日 10:04 来源：中国新闻网 机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”。 责任编辑：【张楠】
+中新网上海5月16日电 (记者 陈静)提起体重管理，很多人的第一反应就是刻意节食、高强度突击运动。但这样可能会陷入越减越焦虑、越减越易反弹的“怪圈”。 上海芭蕾舞团首席演员孙慎逸15日在一场健康科普活动中表示，芭蕾追求的从来不是单纯消瘦，而是力量、柔韧、线条与身心的平衡统一，职业舞者维持良好体态，依靠的是长期科学训练与规律作息，绝非极端克制饮食。 “动出优雅吃出轻盈——当芭蕾遇
 
 ## 正文
 
-发布时间：2026年04月12日 10:04 来源：中国新闻网 机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”。
+中新网上海5月16日电 (记者 陈静)提起体重管理，很多人的第一反应就是刻意节食、高强度突击运动。
 
-责任编辑：【张楠】
+但这样可能会陷入越减越焦虑、越减越易反弹的“怪圈”。
+
+上海芭蕾舞团首席演员孙慎逸15日在一场健康科普活动中表示，芭蕾追求的从来不是单纯消瘦，而是力量、柔韧、线条与身心的平衡统一，职业舞者维持良好体态，依靠的是长期科学训练与规律作息，绝非极端克制饮食。
+
+“动出优雅吃出轻盈——当芭蕾遇上卡路里”健康文化主题活动暨上海健康大讲堂专场15日举行。
+
+孙慎逸以芭蕾为切入点，重新定义健康体态与体重管理的内涵。
+
+民众普遍存在“只看体重数字”的认知偏差，殊不知同等重量下，肌肉体积远小于脂肪，很多人体重变化不大，但坚持形体训练后，肩背挺拔、线条紧致、气质明显提升。
+
+这正是体脂率优化、肌肉量提升的结果。
+
+孙慎逸指出，普通民众日常简单站姿塑形、肩颈拉伸、舒缓有氧练习，就能有效改善久坐带来的含胸驼背、腹部臃肿、肩颈僵硬等亚健康问题。
 
 ## 相关推荐
 
-- 2026-06-29 12:06 - [加拿大开普勒卫星集群开启在轨计算商业化探索](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:01 - [AI医疗全场景落地，深睿医疗、飞利浦、可孚医疗亮相CMEF](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:05 - [中科电气：公司一直坚持在新能源材料领域做相关前瞻性研究，其中硬碳负极材料已实现量产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:04 - [珠江委多维度构建珠江洪水控制、利用、塑造体系工作方案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:58 - [东兴海关综合技术服务中心试剂耗材定点供应商采购（GS2025-Z1-G097（重4））的更正公告(一)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:05 - [全国各地31所高校500学子齐聚南京江宁竞逐百公里接力赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:58 - [香港学子安徽行收获满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:14 - [刚刚，国际油价大涨！美军：将封锁伊朗港口海上交通！伊朗革命卫队：仍管控霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:07 - [北森控股于4月13日斥资19.34万港元回购5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:02 - [日韩股市集体低开 韩股跌超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:10 - [北美票房：“超级马里奥”跃升2026年迄今北美票房榜首](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:50 - [美官员否认美国已同意解冻伊朗被冻结资产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:56 - [摩根大通策略师：借地缘政治引发的市场疲软买入股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:59 - [灶台变擂台 福建三明乡村厨师大赛“烹”出烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:11 - [谈判破裂即封海峡！美启动霍尔木兹拦截令 布油突破103美元关口、欧洲天然气暴涨18%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:03 - [股指期货震荡下行 中证500股指期货（IC）主力合约跌2.44%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:01 - [公众科学日 ：民众走进合肥科学岛感受科技魅力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:55 - [日本央行警示：投资基金活动暗藏金融体系风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:14 - [中国铁塔将于6月30日派发末期股息每股0.32539元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:01 - [纪念越剧诞辰120周年 第六届中国越剧艺术节在绍兴举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:15 - [港股收评：恒指跌1.62%失守26000点 科指跌2.66% 科网股普跌 有色金属板块下挫 哔哩哔哩跌超8%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:58 - [宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:13 - [高盛：中国移动目标价升至94港元 维持“中性”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 12:12 - [以“生活”叙事陕味浓郁 《主角》热播引关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:05 - [周末影响市场重要资讯回顾：王毅向媒体介绍中美元首会晤情况和共识 普京将于5月19日至20日对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:55 - [光大证券：整固蓄势 积极看多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:11 - [光大期货：4月13日软商品日报](http://www.share.kurohicncr.top/Article/details/748242593981.shtml)
-- 2026-06-29 11:59 - [游客喊话“欢迎回来” 郑丽文北京行显温情](http://www.share.minike.top/Article/details/4010392022.shtml)
-- 2026-06-29 11:55 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.blog.kurohicncr.top/Article/details/30157125.shtml)
-- 2026-06-29 12:01 - [日经指数下跌0.4% 受科技股和电子股拖累](http://www.blog.minike.top/Article/details/149941474.shtml)
-- 2026-06-29 12:04 - [天津边检推多项便利举措 助力高水平对外开放](http://www.share.kurohicncr.top/Article/details/332364728.shtml)
-- 2026-06-29 12:08 - [方海峰：未来，中国新能源汽车技术路线将呈现多元竞争格局](http://www.share.minike.top/Article/details/500790851.shtml)
-- 2026-06-29 11:53 - [北摩高科：拟每10股分红1.3元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:49 - [全国无党派人士考察团在浙江开展年度重点考察调研](http://www.share.kurohicncr.top/Article/details/34753230284.shtml)
-- 2026-06-29 11:52 - [酱板鸭销量大增 湖南常德多家企业加紧赶订单](http://www.share.minike.top/Article/details/7733871.shtml)
-- 2026-06-29 11:48 - [欧阳明高：超冲闪充是在安全和寿命的边界上游走](http://www.share.kurohicncr.top/Article/details/3087788.shtml)
-- 2026-06-29 11:58 - [第一太平遭独立非执行董事李夙芯减持30万股 每股作价约5.52港元](http://www.blog.kurohicncr.top/Article/details/01835034.shtml)
-- 2026-06-29 12:05 - [以熊猫为纽带 “川渝生态共赏·熊猫文化联动”系列活动启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:56 - [比亚迪：公司储能业务在全球市场持续发力](http://www.share.minike.top/Article/details/6922225.shtml)
-- 2026-06-29 11:53 - [算力紧缺引发企业客户焦虑 GPU租金飙升48%](http://www.blog.minike.top/Article/details/5712963.shtml)
-- 2026-06-29 12:14 - [香江畔，绽放数智之光——写在2026年世界互联网大会亚太峰会开幕之际](http://www.share.kurohicncr.top/Article/details/8875110.shtml)
+- 2026-06-29 12:11 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](http://www.share.minike.top/Article/details/79574725.shtml)
+- 2026-06-29 12:04 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [2026年宁夏足球超级联赛固原赛区开赛 主场球队1：1战平对手](http://www.share.kurohicncr.top/Article/details/7441423.shtml)
+- 2026-06-29 12:01 - [日本央行理事称投资基金活动对金融体系构成潜在风险](http://www.blog.kurohicncr.top/Article/details/6234775541.shtml)
+- 2026-06-29 12:02 - [East Side Games Group一季度营收下滑32%，盈利指标显著改善](http://www.share.minike.top/Article/details/361993004133.shtml)
+- 2026-06-29 12:07 - [沃尔玛希望Flipkart放慢节奏并实现盈利](http://www.blog.kurohicncr.top/Article/details/03163461.shtml)
+- 2026-06-29 12:03 - [台湾写真：台湾学子迎考试季 文昌宫里祈福忙](http://www.share.kurohicncr.top/Article/details/34037786.shtml)
+- 2026-06-29 12:00 - [CBA观察：我们需要一支怎样的山西男篮](http://www.share.kurohicncr.top/Article/details/68879857.shtml)
+- 2026-06-29 11:55 - [第十四届矿博会在湖南郴州开幕 600多家中外展商参展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [全国广电民生节目在渝交流创新经验](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:54 - [515投资者保护 | 打造金融知识“夜间充电站”！景顺长城商圈夜校投教荣获2026年度最佳投资者教育创新奖](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [王选政：汽车设计文化主体性源于自信与共鸣，拒绝设计上的“忽悠”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:14 - [助力“东北超”歌曲《绿茵逐梦》上线](http://www.share.minike.top/Article/details/700859.shtml)

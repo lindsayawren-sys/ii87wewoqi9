@@ -1,50 +1,54 @@
-# 快讯：恒指低开0.71% 科指跌0.69% 科网股、黄金股低迷 油气股高开 百勤油服涨超10%
+# 【小新的Vlog】侠客视角探文博 吉林特色展览解锁古韵风华
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-美股上周五个别发展，美国3月份通胀上升至近两年新高，拖累大市走势回落，科技股表现较好，纳指逆市上升，三大指数收市升跌不一。美元走势向下，美国十年期债息先跌后回升，金价表现向上，油价则继续回落。 今日港股三大指数集体低开，恒指开盘跌0.71%，报25708.64点，恒科指跌0.69%，国企指数跌0.56%。盘面上，科网股跌多涨少，哔哩哔哩涨超1%，百度跌超3%，网易跌超2%，腾讯
+发布时间：2026年05月17日 15:43 来源：中国新闻网 你是否曾在博物馆里邂逅一场诗意幻境？吉林大学考古与艺术博物馆推出的“国色天工——中国传统技术与艺术”主题展览，沉浸式氛围感拉满。小新化身侠客置身“大漠”，体悟古人独有的色彩审美、人文意趣、精湛匠心与对美好生活的向往。 该展览以中国传统五色、传统制作技术与装饰艺术为主题，选取陶瓷器、玉器、青铜器、漆器等文物140余件
 
 ## 正文
 
-美股上周五个别发展，美国3月份通胀上升至近两年新高，拖累大市走势回落，科技股表现较好，纳指逆市上升，三大指数收市升跌不一。
+发布时间：2026年05月17日 15:43 来源：中国新闻网 你是否曾在博物馆里邂逅一场诗意幻境？
 
-美元走势向下，美国十年期债息先跌后回升，金价表现向上，油价则继续回落。
+吉林大学考古与艺术博物馆推出的“国色天工——中国传统技术与艺术”主题展览，沉浸式氛围感拉满。
 
-今日港股三大指数集体低开，恒指开盘跌0.71%，报25708.64点，恒科指跌0.69%，国企指数跌0.56%。
+小新化身侠客置身“大漠”，体悟古人独有的色彩审美、人文意趣、精湛匠心与对美好生活的向往。
 
-盘面上，科网股跌多涨少，哔哩哔哩涨超1%，百度跌超3%，网易跌超2%，腾讯、美团、联想跌超1%；油气股高开，百勤油服涨超10%；黄金股低开，赤峰黄金跌超1%；航空股普跌，东方航空跌超2%。
+该展览以中国传统五色、传统制作技术与装饰艺术为主题，选取陶瓷器、玉器、青铜器、漆器等文物140余件，共分色、相、技、艺4个单元，将电影台词、武侠画面与文物故事相融合。
 
-责任编辑：郝欣煜
+在这里，观众不仅在看展，也成了展览的一部分。
+
+当下文博展览形式不断创新升级，多元化、沉浸式展陈层出不穷，越来越多民众走进博物馆，在鲜活有趣的展示形式中读懂底蕴深厚的中华历史文化故事。
+
+(记者 吕盛楠 长春报道） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 12:07 - [白宫经济顾问哈塞特：霍尔木兹海峡有望在两个月内恢复通航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:06 - [伟俊集团控股于4月13日起短暂停牌 原因待公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:58 - [巴基斯坦陆军参谋长已会见伊朗代表团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:03 - [普京宣布成立委员会制定俄人工智能发展战略](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:06 - [多晶硅：减产涨价预期带动多晶硅期货涨停](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:10 - [机器人马拉松深夜测试，自主机器人冲线后“镜头感”十足 ，“坐在”车上“傲娇地休息”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:52 - [第一观察｜习近平主席寄望中美青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:17 - [超百位港籍长者入住深圳光明区养老](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:17 - [海峡两岸各界人士在合肥祭拜刘铭传](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:08 - [新加坡股市接近回到历史高位 战争增强其避险吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:02 - [“三载奋进，共启新程”——2026“幸会杭州·共筑未来”创新创业生态大会圆满召开](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:03 - [5·15特别关注｜2个真实理赔案，教你避开保险拒赔“坑”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:14 - [特朗普说“伊斯兰国”二号头目被“清除”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 11:56 - [哥伦比亚行业人士重庆探访畜牧科技 将加强交流合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:12 - [国家防办派工作组赴广西协助指导车辆坠河人员搜救工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:20 - [芭蕾舞演员、医学专家带民众走出减重“误区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:07 - [黄炎培职业教育奖获奖代表主题宣讲暨中华职教大讲坛在浙江举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:13 - [倒车接人？科创芯片震荡两连阴，原因找到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 12:07 - [能源危机叠加日元贬值，日本实体经济正为中东战火埋单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:20 - [外交部：中美双方就两国元首年内互动安排保持着沟通](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:49 - [西藏自治区人大常委会原党组副书记、副主任丁业现被查](http://www.blog.kurohicncr.top/Article/details/3436905.shtml)
-- 2026-06-29 12:11 - [伊美第三轮会谈在伊斯兰堡举行](http://www.share.minike.top/Article/details/61678974.shtml)
-- 2026-06-29 12:17 - [尼泊尔民众拉战车迎接尼历新年](http://www.blog.minike.top/Article/details/3815807221.shtml)
-- 2026-06-29 11:56 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](http://www.share.kurohicncr.top/Article/details/2486473.shtml)
-- 2026-06-29 12:04 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:14 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](http://www.blog.kurohicncr.top/Article/details/824031.shtml)
-- 2026-06-29 11:53 - [伊朗武装部队称随时准备开火](http://www.share.minike.top/Article/details/42547.shtml)
-- 2026-06-29 12:11 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](http://www.share.minike.top/Article/details/2286410.shtml)
-- 2026-06-29 11:56 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](http://www.blog.kurohicncr.top/Article/details/935181.shtml)
-- 2026-06-29 12:02 - [305家医疗机构实现医保影像云跨省秒调阅](http://www.share.minike.top/Article/details/94294.shtml)
-- 2026-06-29 12:03 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](http://www.blog.minike.top/Article/details/3000271.shtml)
-- 2026-06-29 12:01 - [光大期货：4月13日软商品日报](http://www.share.kurohicncr.top/Article/details/369589428.shtml)
-- 2026-06-29 12:08 - [游客喊话“欢迎回来” 郑丽文北京行显温情](http://www.share.minike.top/Article/details/331365831424.shtml)
-- 2026-06-29 11:59 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](http://www.blog.kurohicncr.top/Article/details/351054363828.shtml)
+- 2026-06-29 12:02 - [Lifeward Q1营收不及预期，战略转型费用拖累盈利](http://www.share.kurohicncr.top/Article/details/743831377.shtml)
+- 2026-06-29 12:17 - [我国迎今年首轮大范围持续性降雨过程 两部门会商部署重点地区防汛工作](http://www.blog.minike.top/Article/details/90207.shtml)
+- 2026-06-29 12:10 - [002342，被证监会立案！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:23 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](http://www.blog.minike.top/Article/details/75949324518.shtml)
+- 2026-06-29 12:05 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](http://www.blog.kurohicncr.top/Article/details/3027904619.shtml)
+- 2026-06-29 11:58 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](http://www.blog.minike.top/Article/details/826899501.shtml)
+- 2026-06-29 12:09 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](http://www.share.kurohicncr.top/Article/details/41166457.shtml)
+- 2026-06-29 12:18 - [浙江省欧美同学会金融委员会举行座谈交流活动](http://www.blog.minike.top/Article/details/5695109986.shtml)
+- 2026-06-29 12:18 - [特朗普结束访华回国途中，与高市早苗通电话](http://www.share.kurohicncr.top/Article/details/75208834.shtml)
+- 2026-06-29 11:55 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](http://www.share.kurohicncr.top/Article/details/03859807.shtml)
+- 2026-06-29 12:08 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](http://www.share.kurohicncr.top/Article/details/87698240953.shtml)
+- 2026-06-29 12:00 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:57 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:19 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](http://www.blog.kurohicncr.top/Article/details/47983120.shtml)
+- 2026-06-29 12:11 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lisacumin64-arch)

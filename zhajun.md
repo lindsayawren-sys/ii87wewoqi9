@@ -1,59 +1,60 @@
-# 个贷不良依然压力山大
+# 何小鹏谈自动驾驶：2028年实现L4概率极高，2030年或见L5雏形
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-来源：新金融琅琊榜 近期，上市银行2025年成绩单密集出炉。 乍看之下，上市银行资产质量总体稳中向好，整体不良贷款率稳中有降。 然而，拨开表层的数字迷雾，结构性风险隐患已然浮出水面——上市银行个人贷款不良率，几乎全线上行。 面对居高不下的个贷不良压力，如何跳出“贷前卷到极致、贷后束手无策”的困境？ 一场贷后管理领域的科技变革，已经给出了新解法。 01 年报整体：上市银行不良率保
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。小鹏集团董事长、CEO何小鹏在对话中谈及AI与自动驾驶研发时坦言，自己去年才真正理解“数据作为燃料”所带来的飞轮效应。他表示，在重构AI研发范式之后，自动驾驶的进化速度呈现出“6倍”的显著提升。 以此为基础，他对高阶自动驾驶的时间表作出了更为乐观的修正。何小鹏称，
 
 ## 正文
 
-来源：新金融琅琊榜 近期，上市银行2025年成绩单密集出炉。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-乍看之下，上市银行资产质量总体稳中向好，整体不良贷款率稳中有降。
+小鹏集团董事长、CEO何小鹏在对话中谈及AI与自动驾驶研发时坦言，自己去年才真正理解“数据作为燃料”所带来的飞轮效应。
 
-然而，拨开表层的数字迷雾，结构性风险隐患已然浮出水面——上市银行个人贷款不良率，几乎全线上行。
+他表示，在重构AI研发范式之后，自动驾驶的进化速度呈现出“6倍”的显著提升。
 
-面对居高不下的个贷不良压力，如何跳出“贷前卷到极致、贷后束手无策”的困境？
+以此为基础，他对高阶自动驾驶的时间表作出了更为乐观的修正。
 
-一场贷后管理领域的科技变革，已经给出了新解法。
+何小鹏称，过去他认为L5级自动驾驶在自己有生之年难以实现，但现在判断，2028年实现L4级软件能力的概率已经极高，而L5级自动驾驶的雏形也有望在2030年左右出现。
 
-01 年报整体：上市银行不良率保持平稳 截至目前，A股42家上市银行中已有20多家披露了2025年年报。
+何小鹏还强调，汽车产业正在经历从单纯的新能源化向智能化、机器人化的纵深转型，行业竞争的核心要素正在发生根本性变化。
 
-整体上，上市银行资产质量整体稳健，不良贷款率大多延续下降趋势。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-六大国有行中，整体不良率稳中有降。
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 12:10 - [尼泊尔民众拉战车迎接尼历新年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:10 - [全球目光投向中国！汇丰：93%企业拟增跨境投资，中国内地成最受期待市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:12 - [天沃科技股民一审胜诉 切勿错过索赔“末班车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:11 - [昆明海关涉案财物普通仓库租赁服务项目更正公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:09 - [全国轻型飞机锦标赛暨飞行嘉年华广东清远开幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:02 - [伊朗武装部队称随时准备开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:14 - [习近平主席特使、全国政协副主席姜信治出席缅甸总统敏昂莱就职仪式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:58 - [喜茶亮相第六届消博会，四大版块展示出海探索成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:53 - [305家医疗机构实现医保影像云跨省秒调阅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:56 - [民盟中央第四届乡村振兴发展论坛在河南济源举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:01 - [光大期货：4月13日软商品日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:15 - [游客喊话“欢迎回来” 郑丽文北京行显温情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:06 - [“弃英赴美”+1！Wise Q4 业绩亮眼，有望下月转战纳斯达克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:23 - [002342，被证监会立案！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:03 - [马斯克诉奥尔特曼案即将进入陪审团审议阶段，微软仍被列为本案被告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 12:20 - [陈茂波：香港经济基调良好前景正面 有助吸引更多国际长期资金投资](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:03 - [“算力网要来了”冲上热搜，A股龙头将建“Token工厂”，受益股一览（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:55 - [LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:08 - [浙江省欧美同学会金融委员会举行座谈交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:18 - [特朗普结束访华回国途中，与高市早苗通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:20 - [文远知行韩旭：Robotaxi规模化上量就在一两年内，呼吁避免“一人生病全行业吃药”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:22 - [寄望政策拓路 台湾少数民族同胞抢抓两岸发展新机遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:17 - [尾盘：国债收益率大涨 美股继续下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:03 - [拾光纪·着眼中美关系新定位，期待两国元首再相会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:55 - [太平洋财险曲沃支公司被罚9万元：利用保险代理人从事以虚构保险中介业务的方式套取费用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:04 - [从腾讯借款到卖股还债，世纪华通王佶拟减持2.2亿股套现35亿，一年净利56亿也难遮高杠杆旧账 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:00 - [安徽蚌埠第四届龙虾啤酒嗨玩节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:48 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](http://www.share.kurohicncr.top/Article/details/06398279052.shtml)
-- 2026-06-29 11:56 - [非瘟以来两轮猪周期回顾](http://www.share.minike.top/Article/details/23037342.shtml)
-- 2026-06-29 12:05 - [2026年湖北省城市足球联赛开赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [一季度中国铁路固定资产投资同比增长5.1%](http://www.blog.kurohicncr.top/Article/details/52428051098.shtml)
-- 2026-06-29 11:57 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](http://www.share.kurohicncr.top/Article/details/59640.shtml)
-- 2026-06-29 12:12 - [辽宁持续发力打造营商环境好口碑](http://www.blog.kurohicncr.top/Article/details/226854587699.shtml)
-- 2026-06-29 12:14 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](http://www.share.minike.top/Article/details/846127.shtml)
-- 2026-06-29 11:54 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:00 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](http://www.share.kurohicncr.top/Article/details/100180.shtml)
-- 2026-06-29 11:48 - [英国监管机构紧急评估Anthropic最新AI模型的风险](http://www.blog.minike.top/Article/details/397586371195.shtml)
-- 2026-06-29 12:15 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](http://www.blog.kurohicncr.top/Article/details/2346822247.shtml)
-- 2026-06-29 11:48 - [岚图汽车卢放：芯片、内存等价格都在快速上涨，对成本管控是巨大的考验，再涨下去会影响汽车终端的价格](http://www.share.kurohicncr.top/Article/details/360451818848.shtml)
-- 2026-06-29 12:08 - [长城汽车佘士东：当前智能座舱界面高度同质化，200多款车型相似度达95%以上](http://www.blog.minike.top/Article/details/67037025630.shtml)
+- 2026-06-29 12:19 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:21 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](http://www.blog.minike.top/Article/details/0240149.shtml)
+- 2026-06-29 12:02 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](http://www.blog.kurohicncr.top/Article/details/92283991858.shtml)
+- 2026-06-29 12:20 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](http://www.share.kurohicncr.top/Article/details/1649299453.shtml)
+- 2026-06-29 12:00 - [总书记引领强国之路｜聚天下英才而用之](http://www.blog.minike.top/Article/details/813894.shtml)
+- 2026-06-29 12:05 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](http://www.blog.kurohicncr.top/Article/details/61659.shtml)
+- 2026-06-29 12:07 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](http://www.share.minike.top/Article/details/46608425.shtml)
+- 2026-06-29 12:23 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](http://www.blog.minike.top/Article/details/5468137.shtml)
+- 2026-06-29 12:23 - [台湾西螺七嵌客家武术流派赴福建诏安交流](http://www.share.minike.top/Article/details/722265671.shtml)
+- 2026-06-29 12:12 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:59 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](http://www.share.minike.top/Article/details/229325892842.shtml)
+- 2026-06-29 12:10 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:56 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:08 - [联播+｜读懂中国的特别窗口](http://www.blog.minike.top/Article/details/803253143.shtml)
+- 2026-06-29 12:17 - [商务部新闻发言人就认定欧盟外国补贴调查相关做法构成不当域外管辖措施答记者问](http://www.blog.kurohicncr.top/Article/details/1212945949.shtml)

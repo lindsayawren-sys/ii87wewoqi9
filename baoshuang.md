@@ -1,59 +1,60 @@
-# 手机黑屏变“砖头” 一根回形针切断“诈骗通道”
+# 5名意大利公民在马尔代夫潜水时身亡
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-一根回形针，价值20万！ 女子手机被远程控制 手机黑屏无法操作 20万元即将转出之际一根小小的回形针发挥了大作用 这究竟是怎么回事？ 手机黑屏变“砖头” 一根回形针切断“诈骗通道” 4月4日，安徽省合肥市公安局包河分局芜湖路派出所接到一条紧急反诈预警，辖区王女士可能正在遭遇电信网络诈骗，民警马宁、辅警唐万青火速赶往现场。 途中，民警持续拨打王女士电话却始终无法接通，当两人赶到王
+中新社北京5月15日电 据多家媒体15日报道，5名意大利公民14日在马尔代夫瓦武环礁潜水时身亡。 综合法新社、英国广播公司、土耳其阿纳多卢通讯社等媒体消息，意大利外交部14日证实，该国5名潜水者“试图探索50米深的洞穴时身亡”，其中1人的遗体已被找到。 马尔代夫国防军在一份声明中说，14日下午接到5名潜水者失踪的报告后，便部署飞机和快艇展开大规模搜索。被找到的遗体位于水下60米
 
 ## 正文
 
-一根回形针，价值20万！
+中新社北京5月15日电 据多家媒体15日报道，5名意大利公民14日在马尔代夫瓦武环礁潜水时身亡。
 
-女子手机被远程控制 手机黑屏无法操作 20万元即将转出之际一根小小的回形针发挥了大作用 这究竟是怎么回事？
+综合法新社、英国广播公司、土耳其阿纳多卢通讯社等媒体消息，意大利外交部14日证实，该国5名潜水者“试图探索50米深的洞穴时身亡”，其中1人的遗体已被找到。
 
-手机黑屏变“砖头” 一根回形针切断“诈骗通道” 4月4日，安徽省合肥市公安局包河分局芜湖路派出所接到一条紧急反诈预警，辖区王女士可能正在遭遇电信网络诈骗，民警马宁、辅警唐万青火速赶往现场。
+马尔代夫国防军在一份声明中说，14日下午接到5名潜水者失踪的报告后，便部署飞机和快艇展开大规模搜索。
 
-途中，民警持续拨打王女士电话却始终无法接通，当两人赶到王女士家中时，她的手机已黑屏，且显示一段文字，“正在对接系统中心，请勿触碰手机屏幕……” 民警立即“夺”过手机，找来一根回形针，快速取出手机SIM卡。
+被找到的遗体位于水下60米深的一处洞穴中，马尔代夫当局认为其余4名潜水者的遗体也在其中。
 
-拔卡、断网、关机……一番紧急操作，诈骗分子控制手机的通道被彻底切断。
+意大利热那亚大学在社交媒体上发文说，遇难者包括该校1名海洋生物学教授及其女儿，以及两名年轻研究人员。
 
-冒充客服诱导受害者实施诈骗 据了解，王女士当天接到一个自称某短视频平台“客服”的电话，对方称其账号开通了直播会员，每月会自动扣费800元，如不需要可以帮助取消。
+据报道，事发区域是深受潜水爱好者欢迎的度假胜地。
 
-一听要扣钱，王女士顿时慌了神，于是按照所谓的“客服”指示下载了指定App，并填写了银行卡号和密码，还进行了人脸验证，输入了验证码。
+马尔代夫警方称，14日，事发区域天气恶劣，当局对客船和渔民发布了黄色预警。
 
-随后，手机便黑屏失控。
+马尔代夫当局表示，相关部门“正在积极参与搜救行动”。
 
 ## 相关推荐
 
-- 2026-06-29 12:09 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:16 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:09 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:13 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:01 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:05 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:06 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:55 - [辽宁持续发力打造营商环境好口碑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:51 - [第三届金鸡湖经济论坛举行 中外嘉宾共话“十五五”发展新前景](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:00 - [中兴之后第二家？消息称荣耀正与字节商谈“豆包手机”合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:11 - [爱芯元智仇肖莘：国产智驾芯片未来三年市占率将达90%，智能驾驶也将普及](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:48 - [英国监管机构紧急评估Anthropic最新AI模型的风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:08 - [华为彭鹏：华为兆瓦超充迈入产业化，2026年或将迎来百款车型上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:07 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:00 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:11 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:18 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 12:21 - [总书记引领强国之路｜聚天下英才而用之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:16 - [515投资者保护 | 穿越秦朝、普法全国！银华基金《防非·大秦奇遇》荣获2026年度最具影响力投教项目奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:14 - [2026环塔拉力赛开赛 中外车手“竞速沙海”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:21 - [埃及展出图坦卡蒙陵墓封墙等重要考古新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:03 - [台湾西螺七嵌客家武术流派赴福建诏安交流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:08 - [2025年河北户外赛事参赛观赛总人数达653.46万人 京津地区客源占比超四成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:14 - [美联储任命鲍威尔为临时主席 直至沃什宣誓就职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:23 - [杭州欧美同学会国际文化交流工作委员会成立](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:18 - [赣派微短剧《云深有灵》开机拍摄 演绎中医药传承故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:10 - [联播+｜读懂中国的特别窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:55 - [巴基斯坦总理会见美国副总统万斯](http://www.share.kurohicncr.top/Article/details/1154647565.shtml)
-- 2026-06-29 11:51 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](http://www.share.minike.top/Article/details/542364.shtml)
-- 2026-06-29 12:12 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.blog.kurohicncr.top/Article/details/2955154.shtml)
-- 2026-06-29 12:10 - [第十四届北京国际风筝节启幕](http://www.share.kurohicncr.top/Article/details/88914.shtml)
-- 2026-06-29 11:56 - [张果彤:黄金中线二次探底概率较大](http://www.blog.minike.top/Article/details/724076112.shtml)
-- 2026-06-29 12:13 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:17 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](http://www.blog.kurohicncr.top/Article/details/13942.shtml)
-- 2026-06-29 11:49 - [肉类食品巨头JBS罢工以加薪告终](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:58 - [天泓文创与长沙棠艺签订战略合作意向书](http://www.blog.kurohicncr.top/Article/details/4567690245.shtml)
-- 2026-06-29 11:57 - [比亚迪廉玉波：产业竞争重心正在从规模扩张向价值创造转变](http://www.blog.kurohicncr.top/Article/details/694287319.shtml)
-- 2026-06-29 11:52 - [德赛西威高大鹏：摒弃门户之见，是中国汽车产业链共同繁荣的关键](http://www.share.minike.top/Article/details/6690908837.shtml)
-- 2026-06-29 12:04 - [陕西渭南：华山迎壮丽日落景观](http://www.blog.kurohicncr.top/Article/details/8891104.shtml)
-- 2026-06-29 11:59 - [湖南城步苗乡三代人的传承 让民族文化焕发新生](http://www.share.minike.top/Article/details/0520396263.shtml)
-- 2026-06-29 11:51 - [靳玉志：买车一定要买带辅助驾驶系统的，而且要买华为的乾崑智驾系统](http://www.blog.kurohicncr.top/Article/details/718210835660.shtml)
-- 2026-06-29 11:56 - [永升服务于4月10日斥资37.65万港元回购20万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:15 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.share.kurohicncr.top/Article/details/67063.shtml)
+- 2026-06-29 11:58 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:07 - [土耳其理工名校掀起中国热](http://www.share.kurohicncr.top/Article/details/058826667.shtml)
+- 2026-06-29 12:00 - [中美元首会谈是否讨论人工智能合作？中方回应](http://www.blog.minike.top/Article/details/23068.shtml)
+- 2026-06-29 12:21 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:16 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.share.minike.top/Article/details/7543000.shtml)
+- 2026-06-29 12:11 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.kurohicncr.top/Article/details/281934171586.shtml)
+- 2026-06-29 11:59 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.kurohicncr.top/Article/details/90558007.shtml)
+- 2026-06-29 12:10 - [日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模](http://www.blog.minike.top/Article/details/35483.shtml)
+- 2026-06-29 11:57 - [Atrium Therapeutics Q1净亏损1660万美元，BMS里程碑付款支撑收入](http://www.blog.kurohicncr.top/Article/details/69792.shtml)
+- 2026-06-29 11:58 - [515投资者保护 | 27期漫画36万阅读！银华《投资者避坑宝典》系列投保栏目荣获2026年度投教项目优秀实践奖](http://www.blog.kurohicncr.top/Article/details/626928090172.shtml)
+- 2026-06-29 12:21 - [埃克森美孚昔日高额股息如今大幅缩水，改善方案来了](http://www.share.minike.top/Article/details/5859412.shtml)
+- 2026-06-29 12:19 - [湖南省文化馆数字文旅体验空间开馆](http://www.blog.minike.top/Article/details/5653389237.shtml)
+- 2026-06-29 12:21 - [Token越来越贵？别慌！算力网已在来的路上](http://www.blog.minike.top/Article/details/31122.shtml)
+- 2026-06-29 12:22 - [印度与阿联酋将全面深化合作](http://www.blog.kurohicncr.top/Article/details/95961.shtml)

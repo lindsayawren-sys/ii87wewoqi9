@@ -1,54 +1,57 @@
-# 特朗普称封锁霍尔木兹海峡“需要一点时间”
+# 泰尔茂一季度营收8315亿日元，GAAP每股收益74.25日元
 
-> 更新时间：2026-06-29 12:18:04 UTC+8
+> 更新时间：2026-06-29 12:24:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月12日电美国总统特朗普12日称，美国将封锁霍尔木兹海峡，“这需要一点时间”。 特朗普在接受美国福克斯新闻频道采访时称，美国还将调集更多扫雷艇前往霍尔木兹海峡，英国和其他国家也都正在派遣扫雷艇。 特朗普还称，美国在海湾地区的盟友已经开始在霍尔木兹海峡帮助美方，北约目前也想帮助解决霍尔木兹海峡问
+核心财务数据 泰尔茂公布2026财年第一季度财报。公司报告期内营收为8315亿日元，GAAP每股收益为74.25日元。此前公布的截至2025年12月31日的九个月业绩显示，归属于母公司股东的净利润增至1095.5亿日元，高于上年同期的986.2亿日元；每股收益74.25日元，上年同期为66.51日元；营业利润升至1448.7亿日元；营收增至8315.6亿日元。 业绩增长驱动因素
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+核心财务数据 泰尔茂公布2026财年第一季度财报。
 
-新华社华盛顿4月12日电美国总统特朗普12日称，美国将封锁霍尔木兹海峡，“这需要一点时间”。
+公司报告期内营收为8315亿日元，GAAP每股收益为74.25日元。
 
-特朗普在接受美国福克斯新闻频道采访时称，美国还将调集更多扫雷艇前往霍尔木兹海峡，英国和其他国家也都正在派遣扫雷艇。
+此前公布的截至2025年12月31日的九个月业绩显示，归属于母公司股东的净利润增至1095.5亿日元，高于上年同期的986.2亿日元；每股收益74.25日元，上年同期为66.51日元；营业利润升至1448.7亿日元；营收增至8315.6亿日元。
 
-特朗普还称，美国在海湾地区的盟友已经开始在霍尔木兹海峡帮助美方，北约目前也想帮助解决霍尔木兹海峡问题。
+业绩增长驱动因素 公司本季度业绩创下历史新高，主要得益于美国市场的强劲需求，尤其是心血管及血液与细胞技术业务板块的表现。
 
-（完）责任编辑：宋雅芳
+定价策略的有效实施和全球范围内的成本控制，使利润增速超过营收增速。
+
+剔除汇率影响后，总营收增长6%。
+
+三大业务板块表现 心血管公司营收在本地货币基础上增长7%，主要由美国市场的TIS和神经业务带动，营业利润率提升5个百分点至29%。
+
+血液与细胞技术板块在血浆创新领域实现显著增长，细胞和基因治疗领域需求增加。
 
 ## 相关推荐
 
-- 2026-06-29 11:57 - [手机黑屏变“砖头” 一根回形针切断“诈骗通道”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:08 - [伶仃洋上现通途——外国驻港领团和商界点赞深中通道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:12 - [2026年全国教育科研工作会议在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:50 - [郑丽文一行拜谒孙中山先生衣冠冢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:08 - [金价回吐上周涨幅 美国封锁霍尔木兹海峡的计划加剧通胀风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:57 - [中国东方演艺集团将创排全新舞剧《山海经》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:06 - [两艘空载油轮在霍尔木兹海峡临时掉头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:07 - [数读中国开局新活力丨游客涨、预订旺 “春日经济”催热八桂消费市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:09 - [宝马高级副总裁贝克尔：中国拥有独一无二的确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:59 - [非瘟以来两轮猪周期回顾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:13 - [2026年湖北省城市足球联赛开赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:08 - [一季度中国铁路固定资产投资同比增长5.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:15 - [新疆银行被罚30万元：信贷业务不审慎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:16 - [台商热议促进两岸交流合作十项新政：含金量高，诚意满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:15 - [5名意大利公民在马尔代夫潜水时身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:05 - [爱沙尼亚国防部长：军备采购价格涨50% 欧洲军工行业陷入恶性循环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:21 - [重庆忠县实景演艺《烽烟三国》 美国游客称赞体验令人震撼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:08 - [三星电子会长李在镕呼吁公司内部保持团结，并向公众致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:15 - [天润工业：公司与银轮股份没有业务往来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:56 - [美联储：鲍威尔将担任临时主席直至沃什宣誓就职 鲍曼和米兰持异议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:12 - [2026长三角国际田径钻石赛收官 产生多项赛会纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:12 - [酒价内参5月16日价格发布：飞天上涨 i茅台精品提价 总价创4月底以来新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:58 - [绍台两岸同胞同台献艺 百年越剧“圈粉”台胞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:59 - [尼泊尔侨界举行“同心筑梦 聚力促统”专题座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:20 - [小摩：阿里巴巴-W目标价上升至200港元 维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:14 - [于文红起诉海尔金控：造谣编排我的人，等着我一一起诉](http://www.share.kurohicncr.top/Article/details/75068964.shtml)
-- 2026-06-29 12:09 - [白银跳空低开跌2%，避险失效？](http://www.blog.minike.top/Article/details/99902723887.shtml)
-- 2026-06-29 12:07 - [CATL时代智能蔡建永：部分零部件企业为了应对价格竞争，降低了产品品质](http://www.share.minike.top/Article/details/0258062820.shtml)
-- 2026-06-29 12:16 - [5亿元科创基金100%投向中大成果转化](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:52 - [生活化轻喜叙事与都市爱情剧新姿 《你是迟来的欢喜》热播](http://www.share.kurohicncr.top/Article/details/487509.shtml)
-- 2026-06-29 12:00 - [受霍尔木兹海峡封锁威胁影响，油价周一飙升](http://www.share.minike.top/Article/details/12489028297.shtml)
-- 2026-06-29 12:14 - [微泰医疗-B于4月10日斥资37.05万港元回购5万股](http://www.share.kurohicncr.top/Article/details/0647710080.shtml)
-- 2026-06-29 11:58 - [巴基斯坦总理会见美国副总统万斯](http://www.share.kurohicncr.top/Article/details/48514047874.shtml)
-- 2026-06-29 11:51 - [中广核新能源3月完成发电量1663.9吉瓦时 同比减少5.7%](http://www.blog.kurohicncr.top/Article/details/94483.shtml)
-- 2026-06-29 12:15 - [美国联邦政府警告大型银行警惕Anthropic Mythos网络威胁](http://www.share.minike.top/Article/details/0484469642.shtml)
-- 2026-06-29 11:57 - [第十四届北京国际风筝节启幕](http://www.blog.minike.top/Article/details/05483799.shtml)
-- 2026-06-29 11:48 - [张果彤:黄金中线二次探底概率较大](http://www.share.minike.top/Article/details/472404.shtml)
-- 2026-06-29 12:03 - [特斯拉监督自动驾驶软件获荷兰批准 系欧洲首例](http://www.share.minike.top/Article/details/825283988577.shtml)
-- 2026-06-29 11:53 - [拾光纪·“时隔10年再次会面”，习近平指引两岸关系发展](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:50 - [肉类食品巨头JBS罢工以加薪告终](http://www.blog.kurohicncr.top/Article/details/5940457.shtml)
+- 2026-06-29 11:55 - [连连数字于5月15日斥资134.75万港元回购23.55万股](http://www.share.minike.top/Article/details/284084624790.shtml)
+- 2026-06-29 12:04 - [中信银行惠州分行被罚45.07万元：违反金融统计、支付结算、金融科技管理有关规定](http://www.share.minike.top/Article/details/77530844.shtml)
+- 2026-06-29 11:58 - [乳房再造公益项目十周年 专家吁以新起点促“美丽重绽”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:13 - [兰州新区全链赋能丝路“甘味”香飘海内外](http://www.share.minike.top/Article/details/884671.shtml)
+- 2026-06-29 12:03 - [长鑫科技：一季度营收同比增长719.13% 净利润330亿元](http://www.share.minike.top/Article/details/44424.shtml)
+- 2026-06-29 12:15 - [“超级食物”真有那么神奇吗？专家揭秘真相](http://www.share.minike.top/Article/details/506816704.shtml)
+- 2026-06-29 12:01 - [广汽冯兴亚回应“新汽车快消化”：买好车相当于“把钱存银行”，二手车残值会回报你](http://www.blog.minike.top/Article/details/24130.shtml)
+- 2026-06-29 12:22 - [银行持债破百万亿，“债券+信贷”重塑融资新格局](http://www.share.minike.top/Article/details/515570466.shtml)
+- 2026-06-29 12:14 - [各地打好就业服务“组合拳” 助力青年迈稳职业生涯“第一步”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:55 - [土耳其理工名校掀起中国热](http://www.share.kurohicncr.top/Article/details/18930.shtml)
+- 2026-06-29 12:23 - [中美元首会谈是否讨论人工智能合作？中方回应](http://www.share.minike.top/Article/details/906241504613.shtml)
+- 2026-06-29 12:23 - [女子称关闭支付功能后180多万元凌晨莫名通过支付宝捐给慈善机构支付宝账密是用户透露出去的](http://www.share.minike.top/Article/details/61663.shtml)
+- 2026-06-29 11:58 - [港股通创新药寻底，520880逼近历史低点！行情背离基本面，多头加速进场](http://www.blog.kurohicncr.top/Article/details/62667396452.shtml)
+- 2026-06-29 12:12 - [世界超级摩托车锦标赛捷克站：“张雪机车”夺赛季第五冠](http://www.share.kurohicncr.top/Article/details/605218515.shtml)
+- 2026-06-29 12:17 - [造假摆拍，无底线博流量！北京警方通报3起典型案例](http://www.share.kurohicncr.top/Article/details/7385668150.shtml)
