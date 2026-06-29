@@ -1,56 +1,58 @@
-# 全球南方视域下中国出版业国际化发展暨 “牛津大学出版史” 座谈会举办
+# “疆电入渝”工程年度外送电量突破百亿千瓦时
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月22日电(记者 王一安)近日，由中国社会科学出版社、北京外国语大学联合主办的“融通中外，智启新程——全球南方视域下中国出版业国际化发展暨‘牛津大学出版史’座谈会”在北京外国语大学成功举办。来自中外高校、出版机构及主流媒体的40余位嘉宾参会，围绕国际出版历史、全球南方文化传播、中非出版交流、出版数字化转型等议题展开深度研讨。 图为全球南方视域下中国出版业国际化发展暨
+中新网乌鲁木齐5月9日电 (闫文陆 王殿雄 郭振刚)记者9日从国网新疆电力有限公司获悉，截至5月8日，±800千伏哈密—重庆特高压直流输电工程(简称“疆电入渝”工程)2026年度累计外送电量突破100亿千瓦时，达101亿千瓦时，有力保障跨区域能源资源优化配置，助力全国能源绿色低碳转型。 作为国家“十四五”规划102项重大工程之一，哈密—重庆特高压直流工程是我国首个投产送电的沙戈
 
 ## 正文
 
-中新网北京6月22日电(记者 王一安)近日，由中国社会科学出版社、北京外国语大学联合主办的“融通中外，智启新程——全球南方视域下中国出版业国际化发展暨‘牛津大学出版史’座谈会”在北京外国语大学成功举办。
+中新网乌鲁木齐5月9日电 (闫文陆 王殿雄 郭振刚)记者9日从国网新疆电力有限公司获悉，截至5月8日，±800千伏哈密—重庆特高压直流输电工程(简称“疆电入渝”工程)2026年度累计外送电量突破100亿千瓦时，达101亿千瓦时，有力保障跨区域能源资源优化配置，助力全国能源绿色低碳转型。
 
-来自中外高校、出版机构及主流媒体的40余位嘉宾参会，围绕国际出版历史、全球南方文化传播、中非出版交流、出版数字化转型等议题展开深度研讨。
+作为国家“十四五”规划102项重大工程之一，哈密—重庆特高压直流工程是我国首个投产送电的沙戈荒新能源基地外送特高压工程，也是西南地区首条特高压直流受入通道。
 
-图为全球南方视域下中国出版业国际化发展暨“牛津大学出版史” 座谈会活动现场。
+工程西起新疆哈密巴里坤换流站，一路穿越甘肃、陕西、四川三省，终抵重庆渝北换流站，线路全长2260公里，总投资约286亿元，构筑起连通我国西北与西南的特高压直流能源大动脉。
 
-中新网 王一安 摄 中国社会科学出版社社长季为民在致辞中表示，出版是文明交流的桥梁、知识传播的载体，更是国家对话、民心相通的纽带。
+工程依托风光火储多能互补一体化开发模式，配套建设1420万千瓦电源，其中新能源装机占比超七成。
 
-牛津大学出版社数百年间在非洲的出版实践，留下了诸多可供研究复盘的案例。
+工程年均可向重庆输送电量超360亿千瓦时，清洁能源占比过半，每年可减少二氧化碳排放约1600万吨，经济、社会与生态效益显著。
 
-对比历史可以发现，区别于西方殖民非洲时期的“文化殖民”模式，中非出版交往走出了一条基于平等、互惠的文化互助之路，中国始终坚持大小国家一律平等原则，以务实的文化交流夯实中非友好根基。
+巴里坤换流站作为疆电外送送端核心枢纽，安全平稳运行是通道大功率高效送电的重要基础。
 
-如今全球南方国家加速崛起，国际出版行业机遇与挑战并存。
+4月15日至30日，巴里坤换流站完成投运后首次年度综合检修，新疆特高压电网实现首次阀组自主检修圆满完成。
 
-中国出版业坚持开放互鉴，一方面吸收借鉴国际先进经验，另一方面坚定文化自信，积极推动中外文明深度交融。
+源源不断的新疆清洁电力跨越千里直送山城，深度融入重庆民生保障与产业发展方方面面。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 23:17 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 23:19 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 22:55 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 23:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 23:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 23:10 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 22:56 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 23:07 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 23:23 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 23:17 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 23:07 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 23:03 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 23:19 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 23:22 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 23:08 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 23:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-29 23:16 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 23:07 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 23:01 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 23:06 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 23:20 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/93425.shtml)
-- 2026-06-29 23:19 - [杨德龙：创新药迎来新的发展机遇](https://www.share.minike.top/Article/details/8997114.shtml)
-- 2026-06-29 22:54 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/45789.shtml)
-- 2026-06-29 23:18 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/63200.shtml)
-- 2026-06-29 23:09 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/66391233.shtml)
-- 2026-06-29 22:59 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/620142413939.shtml)
-- 2026-06-29 23:10 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/589769475102.shtml)
-- 2026-06-29 23:05 - [这一刀 会很帅](https://www.share.minike.top/Article/details/268626686681.shtml)
-- 2026-06-29 22:58 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/037754764663.shtml)
-- 2026-06-29 23:10 - [女心理师](http://www.share.minike.top/Article/details/890778230.shtml)
-- 2026-06-29 23:16 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/964360.shtml)
-- 2026-06-29 23:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/34488.shtml)
-- 2026-06-29 22:59 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/3902299.shtml)
-- 2026-06-29 23:20 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/540745739.shtml)
-- 2026-06-29 23:03 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/1494174521.shtml)
+- 2026-06-29 23:11 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/5288389908.shtml)
+- 2026-06-29 23:12 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/854375.shtml)
+- 2026-06-29 23:01 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/953539.shtml)
+- 2026-06-29 23:23 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/221714901300.shtml)
+- 2026-06-29 23:07 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/1192867.shtml)
+- 2026-06-29 23:10 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/47116.shtml)
+- 2026-06-29 23:01 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/0065466359.shtml)
+- 2026-06-29 23:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/9115550.shtml)
+- 2026-06-29 23:09 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/60327.shtml)
+- 2026-06-29 23:11 - [法拉利车主已自行承担修理费近3万](https://www.blog.kurohicncr.top/Article/details/95841042.shtml)
+- 2026-06-29 23:11 - [杨德龙：创新药迎来新的发展机遇](http://www.share.minike.top/Article/details/9200142.shtml)
+- 2026-06-29 23:02 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/281113.shtml)
+- 2026-06-29 23:08 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/698146723484.shtml)
+- 2026-06-29 23:11 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/2197236531.shtml)
+- 2026-06-29 23:20 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/5007710.shtml)

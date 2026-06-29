@@ -1,58 +1,58 @@
-# 净利润持续下滑，鱼跃医疗拓展经营范围能否破局？
+# 剧集年报｜华策影视一季度营收重回下行轨道 净利润四连降逼近盈亏点 剧集一哥业绩缘何失速？
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：深圳商报 近日，鱼跃医疗发布公告称，根据公司经营管理的需要，保证业务顺利开展，公司拟增加经营范围：“物联网技术研发；技术服务、技术开发、技术咨询、技术交流、技术转让、技术推广；计算机软硬件及辅助设备零售；电子产品销售；网络技术服务；互联网安全服务；软件开发”，公司将按照相关法律法规对《公司章程》进行修
+出品：新浪财经上市公司研究院 作者：渚 根据云合数据统计，2025年的长剧市场仍处于深度调整期，用户注意力分散与头部剧集流量收缩令行业整体承压。2025年1-11月国产剧拍摄备案公示剧目总量为956部，同比减少60部；总集数则降至2.4万集，同比减少19%；部均25集，较2024年缩减4集/部。全年共上新长剧624部，同比减少31部；上新长剧霸屏榜TOP20正片有效播放296亿
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+出品：新浪财经上市公司研究院 作者：渚 根据云合数据统计，2025年的长剧市场仍处于深度调整期，用户注意力分散与头部剧集流量收缩令行业整体承压。
 
-来源：深圳商报 近日，鱼跃医疗发布公告称，根据公司经营管理的需要，保证业务顺利开展，公司拟增加经营范围：“物联网技术研发；技术服务、技术开发、技术咨询、技术交流、技术转让、技术推广；计算机软硬件及辅助设备零售；电子产品销售；网络技术服务；互联网安全服务；软件开发”，公司将按照相关法律法规对《公司章程》进行修订。
+2025年1-11月国产剧拍摄备案公示剧目总量为956部，同比减少60部；总集数则降至2.4万集，同比减少19%；部均25集，较2024年缩减4集/部。
 
-鱼跃医疗称，除上述修订内容和条款外， 《公司章程》其他条款保持不变。
+全年共上新长剧624部，同比减少31部；上新长剧霸屏榜TOP20正片有效播放296亿，同比缩减20%。
 
-《公司章程》以最终市场监督管理部门核准登记为准。
+反观短剧市场，2025年重点网络微短剧规划备案3182部（横屏+竖屏），同比增长20%；获得发行许可网络微短剧691部（横屏+竖屏），同比增长15%。
 
-以上《公司章程》相关条款的修订内容尚需经2026年第二次临时股东会通过后方可执行。
+视频平台上新短剧527部（横屏，单集时长3-20分钟），同比增长31%。
 
-公开资料显示，鱼跃医疗于2008年在深交所上市，是一家以提供家用医疗器械、医用临床产品以及与之相关的服务为主要业务的公司，目前公司产品主要集中在呼吸治疗解决方案、血糖管理及POCT解决方案、家用健康检测解决方案、临床器械及康复解决方案、急救解决方案及其他等领域。
+集数时长≥16分钟、总时长≥360分钟的部数占比均增加一成。
 
-业绩方面，2024年度、2025年度、2026年一季度，鱼跃医疗归母净利润同比持续下滑，降幅分别为24.63%、17.94%、31.44%。
+2025上新短剧公开累计分账票房5.74亿（截至2026.1.21，共100部公开），同比增长42%。
 
-截至2026年3月31日，鱼跃医疗应收账款为12.55亿元，同比增长12.66%；资产负债率为18.50%，同比减少4.75%。
+《朱雀堂》以4500万刷新行业票房纪录，但仍有8成短剧票房未过百万，行业马太效应加剧。
 
 ## 相关推荐
 
-- 2026-06-29 23:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 23:21 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 23:00 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 22:57 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 23:16 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 23:23 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 23:02 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 23:17 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 23:12 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 23:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 23:11 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 23:04 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 23:24 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 23:27 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 23:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 23:25 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 23:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 23:00 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 23:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 23:06 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 23:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 23:29 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 23:10 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 23:16 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/324603.shtml)
-- 2026-06-29 23:20 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/47360615453.shtml)
-- 2026-06-29 23:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/06976348.shtml)
-- 2026-06-29 23:22 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/08844514.shtml)
-- 2026-06-29 23:23 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/527155350.shtml)
-- 2026-06-29 23:18 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/136296.shtml)
-- 2026-06-29 22:58 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/5244010.shtml)
-- 2026-06-29 23:00 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/298612.shtml)
-- 2026-06-29 23:14 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/89258.shtml)
-- 2026-06-29 23:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/695969044245.shtml)
-- 2026-06-29 23:22 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/971691568054.shtml)
-- 2026-06-29 23:02 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/207645695193.shtml)
-- 2026-06-29 22:56 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/481399987.shtml)
-- 2026-06-29 22:58 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/298373572534.shtml)
-- 2026-06-29 23:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/4467294.shtml)
+- 2026-06-29 23:28 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/7623617.shtml)
+- 2026-06-29 23:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/14048.shtml)
+- 2026-06-29 23:04 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/16250275.shtml)
+- 2026-06-29 23:27 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/576288273861.shtml)
+- 2026-06-29 23:01 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6597385258.shtml)
+- 2026-06-29 23:25 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/630588668050.shtml)
+- 2026-06-29 23:04 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/210318378798.shtml)
+- 2026-06-29 23:10 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/22094579.shtml)
+- 2026-06-29 23:17 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/2722575423.shtml)
+- 2026-06-29 23:10 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/60845670.shtml)
+- 2026-06-29 23:24 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/219137.shtml)
+- 2026-06-29 23:24 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/81544416964.shtml)
+- 2026-06-29 23:14 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/46922319.shtml)
+- 2026-06-29 23:03 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/7470489.shtml)
+- 2026-06-29 23:04 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/34342.shtml)

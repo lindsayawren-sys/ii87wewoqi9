@@ -1,57 +1,47 @@
-# 铁路12306显示无票乘车时却发现有空座？票务专家回应
+# 5月11日增减持汇总：凯撒旅业等3股披露增持情况，国芯科技等25股拟减持（表）
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-端午假期，铁路客流大幅增长，热门线路再现购票紧张。有网友反映，部分热门区间“铁路12306显示无票，乘车时却发现有空座”，这是怎么回事？对此，近日，铁路12306票务专家作出解答。 “铁路12306显示无票，乘车时却发现有空座？” 专家回应 铁路12306技术中心副研究员 周姗琪：“铁路12306显示无票”是指旅客在某一时间点，通过铁路12306系统查询特定日期、车次、站间及席
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，5月11日盘后，凯撒旅业（维权）、ST兴化（维权）、中盐化工3家公司披露增持情况，包括国芯科技、传艺科技、亿道信息、协和电子、楚环科技、山东玻纤、诚达药业、银邦股份、喜悦智行、寒锐钴业、和远气体、肯特催化、港迪技术、奥浦迈、键凯科技、中巨芯、中安科、我乐家居（维权）、普门科技、城地香江、南华仪器、南
 
 ## 正文
 
-端午假期，铁路客流大幅增长，热门线路再现购票紧张。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-有网友反映，部分热门区间“铁路12306显示无票，乘车时却发现有空座”，这是怎么回事？
+据统计，5月11日盘后，凯撒旅业（维权）、ST兴化（维权）、中盐化工3家公司披露增持情况，包括国芯科技、传艺科技、亿道信息、协和电子、楚环科技、山东玻纤、诚达药业、银邦股份、喜悦智行、寒锐钴业、和远气体、肯特催化、港迪技术、奥浦迈、键凯科技、中巨芯、中安科、我乐家居（维权）、普门科技、城地香江、南华仪器、南王科技、海川智能、金石亚药、华荣股份在内的25家A股上市公司披露拟减持情况。
 
-对此，近日，铁路12306票务专家作出解答。
-
-“铁路12306显示无票，乘车时却发现有空座？
-
-” 专家回应 铁路12306技术中心副研究员 周姗琪：“铁路12306显示无票”是指旅客在某一时间点，通过铁路12306系统查询特定日期、车次、站间及席别的车票时，如系统没有完整匹配旅客需求的车票，则实时显示“无票”的情况。
-
-“乘车时发现有空座”是指旅客购买某次列车车票后乘车时，发现某些站间部分席位出现“空座”的情况。
-
-这位负责人解释说，这些空座实际上是系统未发售的与旅客出行需求不匹配的站间车票所对应的空余席位。
-
-比如，旅客想要购买的与其出行需求相匹配的站间车票售罄，至开车前也未产生新增票额，系统一直显示为“无票”，但与旅客出行需求不匹配的且有站间重合的车票未售出，这些未售出的车票对应的席位，在旅客乘车期间就会呈现“空座”状态。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 23:13 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 23:11 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 23:04 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 22:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 23:13 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 22:56 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 23:03 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 23:14 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 23:06 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 23:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 23:18 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 23:29 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 23:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 23:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 23:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 23:24 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 23:08 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 23:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 23:07 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 23:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 23:23 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:14 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/894491034.shtml)
-- 2026-06-29 22:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/28995561900.shtml)
-- 2026-06-29 22:57 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/384249.shtml)
-- 2026-06-29 23:12 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/20921671185.shtml)
-- 2026-06-29 22:54 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/55679429.shtml)
-- 2026-06-29 23:01 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/43030.shtml)
-- 2026-06-29 23:11 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/818377261.shtml)
-- 2026-06-29 23:02 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/36921000664.shtml)
-- 2026-06-29 23:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/5539208.shtml)
-- 2026-06-29 23:22 - [金牌调解](https://www.blog.minike.top/Article/details/170987.shtml)
-- 2026-06-29 23:16 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/7463167.shtml)
-- 2026-06-29 23:22 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/72323397.shtml)
-- 2026-06-29 23:02 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/97402184017.shtml)
-- 2026-06-29 23:07 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/959324847.shtml)
-- 2026-06-29 22:55 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/5089001.shtml)
+- 2026-06-29 23:10 - [世界杯](http://www.blog.minike.top/Article/details/707130.shtml)
+- 2026-06-29 23:23 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/6727189.shtml)
+- 2026-06-29 23:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/364473677.shtml)
+- 2026-06-29 23:08 - [锐评T1零封KC](http://www.share.minike.top/Article/details/2307417.shtml)
+- 2026-06-29 23:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/58519.shtml)
+- 2026-06-29 23:05 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/0417156.shtml)
+- 2026-06-29 23:23 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/9905933.shtml)
+- 2026-06-29 23:10 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/6856315.shtml)
+- 2026-06-29 23:05 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/0228023.shtml)
+- 2026-06-29 23:05 - [《贺子珍》](http://www.share.minike.top/Article/details/255844652950.shtml)
+- 2026-06-29 23:00 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/4160040742.shtml)
+- 2026-06-29 23:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/92505695583.shtml)
+- 2026-06-29 23:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/858676021694.shtml)
+- 2026-06-29 23:13 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/4664362255.shtml)
+- 2026-06-29 23:07 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/4927315.shtml)

@@ -1,57 +1,48 @@
-# 美伊协议为伊朗石油出口松绑 或迅速增加全球供应
+# 中美元首将讨论伊朗局势？ 外交部回应
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-随着美伊本周达成旨在结束战争并解除美国海上封锁的协议，伊朗认为这是迅速恢复石油出口的机会。在伊朗获得及时喘息之机的同时，德黑兰的增产可能加剧油价下行压力。 两名伊朗石油官员表示，与其他受战争影响的产油国相比，伊朗减产幅度要小得多，从而有望迅速恢复原油生产和出口。伊朗与美国总统唐纳德·特朗普周三签署的谅解备忘录将立即终止美国实施的海上封锁。该封锁是美国针对伊朗关闭霍尔木兹海峡采取
+中新网北京5月11日电 (记者 谢雁冰 张素)中国外交部发言人郭嘉昆11日主持例行记者会。 有记者提问：美国总统特朗普表示，中美元首将讨论伊朗局势，中方对此有何评论？ 郭嘉昆：关于伊朗局势，中方的立场是一贯的，将继续为停火止战、劝和促谈发挥积极作用。(完)
 
 ## 正文
 
-随着美伊本周达成旨在结束战争并解除美国海上封锁的协议，伊朗认为这是迅速恢复石油出口的机会。
+中新网北京5月11日电 (记者 谢雁冰 张素)中国外交部发言人郭嘉昆11日主持例行记者会。
 
-在伊朗获得及时喘息之机的同时，德黑兰的增产可能加剧油价下行压力。
+有记者提问：美国总统特朗普表示，中美元首将讨论伊朗局势，中方对此有何评论？
 
-两名伊朗石油官员表示，与其他受战争影响的产油国相比，伊朗减产幅度要小得多，从而有望迅速恢复原油生产和出口。
+郭嘉昆：关于伊朗局势，中方的立场是一贯的，将继续为停火止战、劝和促谈发挥积极作用。
 
-伊朗与美国总统唐纳德·特朗普周三签署的谅解备忘录将立即终止美国实施的海上封锁。
-
-该封锁是美国针对伊朗关闭霍尔木兹海峡采取的报复措施。
-
-伊朗可以迅速为全球市场增加逾1%的原油供应。
-
-在和平协议有望达成的预期推动下，油价近几周已大幅下跌。
-
-对伊朗而言，增加石油销售将为长期受制裁和货币贬值冲击的经济带来缓解。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 23:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 23:17 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 23:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 23:11 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 22:54 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 23:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 23:23 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 23:11 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 22:58 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 23:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 23:13 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 23:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 23:08 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 23:13 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 23:06 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 23:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 23:24 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 23:24 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 23:28 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 23:12 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:09 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/765008956060.shtml)
-- 2026-06-29 23:00 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/351134767126.shtml)
-- 2026-06-29 22:57 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/39639929.shtml)
-- 2026-06-29 22:55 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/0416675485.shtml)
-- 2026-06-29 23:07 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/2665711.shtml)
-- 2026-06-29 23:11 - [乔家的儿女](http://www.blog.minike.top/Article/details/66667.shtml)
-- 2026-06-29 23:10 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/3116964228.shtml)
-- 2026-06-29 23:19 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/5625625.shtml)
-- 2026-06-29 23:22 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/56407100.shtml)
-- 2026-06-29 23:11 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/84491481466.shtml)
-- 2026-06-29 23:10 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/26906087.shtml)
-- 2026-06-29 22:59 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/91543469.shtml)
-- 2026-06-29 23:03 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/35380458.shtml)
-- 2026-06-29 23:00 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/54619822.shtml)
-- 2026-06-29 23:12 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/35571664746.shtml)
+- 2026-06-29 23:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/741904.shtml)
+- 2026-06-29 23:07 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/15789.shtml)
+- 2026-06-29 23:28 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/03148315289.shtml)
+- 2026-06-29 23:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/893024.shtml)
+- 2026-06-29 23:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/78420293.shtml)
+- 2026-06-29 23:09 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/31195.shtml)
+- 2026-06-29 23:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/55775704202.shtml)
+- 2026-06-29 23:26 - [斛珠夫人](https://www.blog.minike.top/Article/details/8743860074.shtml)
+- 2026-06-29 23:26 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/53428.shtml)
+- 2026-06-29 23:20 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/694651.shtml)
+- 2026-06-29 23:20 - [明星大侦探第一季](http://www.share.minike.top/Article/details/50587425453.shtml)
+- 2026-06-29 23:23 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/06938483.shtml)
+- 2026-06-29 23:13 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/53949305185.shtml)
+- 2026-06-29 23:05 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/460953397.shtml)
+- 2026-06-29 23:27 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/908408008.shtml)

@@ -1,57 +1,61 @@
-# 创意与传统交融 多元粽子为端午节添彩
+# 内塔尼亚胡：希望10年内摆脱对美国军事援助的依赖
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社嘉兴6月19日电 (傅飞扬)端午假期，浙江各地粽叶飘香，粽子作坊、特色街区、民宿等提供DIY粽子活动，游客在师傅的指导下学做粽子。市场上，肉粽、豆沙粽等传统粽子热销，层出不穷的创意粽子也受到年轻人青睐。 在“粽子之乡”浙江嘉兴，随处可见粽子铺、粽子厂。中国粽子产业每年产量达数十亿只，当地大概占一半。秀洲是嘉兴粽子核心产区，有粽子产业从业人员约5000人，2025年该区粽子
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【文/观察者网 陈思佳】 当地时间5月10日，美国哥伦比亚广播公司（CBS）播出对以色列总理内塔尼亚胡的采访，谈论了美以关系、中东局势等问题。内塔尼亚胡称，现在是重塑以色列和美国之间财政关系的合适时机，以色列希望在十年内完全摆脱对美国军事援助的依赖。 过去几十年里，美国民主、共和两党一直支持向以色列提供军事
 
 ## 正文
 
-中新社嘉兴6月19日电 (傅飞扬)端午假期，浙江各地粽叶飘香，粽子作坊、特色街区、民宿等提供DIY粽子活动，游客在师傅的指导下学做粽子。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-市场上，肉粽、豆沙粽等传统粽子热销，层出不穷的创意粽子也受到年轻人青睐。
+【文/观察者网 陈思佳】 当地时间5月10日，美国哥伦比亚广播公司（CBS）播出对以色列总理内塔尼亚胡的采访，谈论了美以关系、中东局势等问题。
 
-在“粽子之乡”浙江嘉兴，随处可见粽子铺、粽子厂。
+内塔尼亚胡称，现在是重塑以色列和美国之间财政关系的合适时机，以色列希望在十年内完全摆脱对美国军事援助的依赖。
 
-中国粽子产业每年产量达数十亿只，当地大概占一半。
+过去几十年里，美国民主、共和两党一直支持向以色列提供军事支持。
 
-秀洲是嘉兴粽子核心产区，有粽子产业从业人员约5000人，2025年该区粽子产业营业收入达26.2亿元人民币。
+2016年，美国和以色列签署了为期10年的谅解备忘录，美国承诺在2018年至2028年间向以色列提供总计380亿美元的军事援助，其中330亿美元用于购买军事装备，50亿美元用于导弹防御系统。
 
-其中，大肉粽、豆沙粽、蛋黄粽等传统口味一直颇受食客喜爱。
+但2023年10月新一轮巴以冲突爆发后，以色列对加沙地带的军事打击不断引发国际社会谴责，美国民众和部分政客对援助以色列的支持有所下降。
 
-走进嘉兴一家粽子企业，切肉、裹粽、烧煮、包装等车间一片繁忙景象。
+当被问到以色列是否应该重新审视与美国的财政关系时，内塔尼亚胡对CBS表示：“当然，我对特朗普总统说过这话，也对以色列人说过。
 
-“除了裹粽，我们的前道和后道都已实现机械化。
+我想将美国提供的资金支持，也就是我们目前军事合作中的资金部分，削减至零。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 23:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 23:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 23:13 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 23:11 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 23:23 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 22:56 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 23:05 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 23:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 22:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 22:55 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 23:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 23:24 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 23:22 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 23:21 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 23:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 23:07 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 23:18 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 23:23 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 23:09 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 23:27 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 23:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 23:29 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 23:23 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 23:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 23:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/86806666373.shtml)
-- 2026-06-29 23:04 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/839939.shtml)
-- 2026-06-29 23:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/71092.shtml)
-- 2026-06-29 23:00 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/203007168.shtml)
-- 2026-06-29 22:59 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/125267.shtml)
-- 2026-06-29 23:20 - [恋与深空 巧合](http://www.share.minike.top/Article/details/08028252421.shtml)
-- 2026-06-29 23:10 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/1858637861.shtml)
-- 2026-06-29 23:16 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/0717508.shtml)
-- 2026-06-29 23:11 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/4932088655.shtml)
-- 2026-06-29 23:23 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/66754505.shtml)
-- 2026-06-29 22:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/332399.shtml)
-- 2026-06-29 23:03 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/713035136838.shtml)
-- 2026-06-29 23:11 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/568514394416.shtml)
-- 2026-06-29 23:04 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/941251725.shtml)
-- 2026-06-29 22:59 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/299165287971.shtml)
+- 2026-06-29 23:23 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/631019.shtml)
+- 2026-06-29 23:26 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/59994432.shtml)
+- 2026-06-29 23:22 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/89167639.shtml)
+- 2026-06-29 23:23 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/819096811833.shtml)
+- 2026-06-29 23:13 - [急先锋](http://www.share.minike.top/Article/details/6834968.shtml)
+- 2026-06-29 23:25 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/44648489362.shtml)
+- 2026-06-29 23:19 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/576162368141.shtml)
+- 2026-06-29 23:02 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/4129785.shtml)
+- 2026-06-29 23:05 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/9903019611.shtml)
+- 2026-06-29 23:19 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/6256044.shtml)
+- 2026-06-29 23:26 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/758646789.shtml)
+- 2026-06-29 23:19 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/00971329.shtml)
+- 2026-06-29 23:29 - [周生如故](http://www.blog.kurohicncr.top/Article/details/31290.shtml)
+- 2026-06-29 23:29 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/32614597.shtml)
+- 2026-06-29 23:00 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/7548079247.shtml)

@@ -1,57 +1,57 @@
-# 北京启动第三次全国古树名木资源普查 新增自然保护区内调查
+# “文化中国·水立方杯”中文歌曲大赛印尼总决赛举行
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电 (记者 徐婧)北京市园林绿化局18日介绍，北京市全面启动第三次全国古树名木资源普查。本次普查以2017年北京市第二次古树名木普查和2021年古树名木体检工作为基础，对全市行政区域内所有古树、名木及古树群开展全方位、全覆盖排查。北京古树名木资源丰富，现存古树名木4万余株。近年来，北京制定实施了《北京市古树名木保护规划(2021年—2035年)》。在全市古树
+中新社雅加达5月9日电 (记者 李志全)第十六届“文化中国·水立方杯”中文歌曲大赛印度尼西亚赛区总决赛9日在雅加达举行。经层层选拔，从100多名参赛者中脱颖而出的34位选手齐聚决赛舞台，以歌会友、以声传情，为现场观众献上一场精彩演出。本次活动由北京海外联谊会主办、印尼雅加达华文教育协调机构(简称“雅协”)承办。中国驻印尼使馆公参兼总领事郑杰、雅协辅导委员会主席胡素丹、印尼福建社
 
 ## 正文
 
-中新网北京6月18日电 (记者 徐婧)北京市园林绿化局18日介绍，北京市全面启动第三次全国古树名木资源普查。
+中新社雅加达5月9日电 (记者 李志全)第十六届“文化中国·水立方杯”中文歌曲大赛印度尼西亚赛区总决赛9日在雅加达举行。
 
-本次普查以2017年北京市第二次古树名木普查和2021年古树名木体检工作为基础，对全市行政区域内所有古树、名木及古树群开展全方位、全覆盖排查。
+经层层选拔，从100多名参赛者中脱颖而出的34位选手齐聚决赛舞台，以歌会友、以声传情，为现场观众献上一场精彩演出。
 
-北京古树名木资源丰富，现存古树名木4万余株。
+本次活动由北京海外联谊会主办、印尼雅加达华文教育协调机构(简称“雅协”)承办。
 
-近年来，北京制定实施了《北京市古树名木保护规划(2021年—2035年)》。
+中国驻印尼使馆公参兼总领事郑杰、雅协辅导委员会主席胡素丹、印尼福建社团联谊总会总主席俞雨龄、雅协执行主席蔡昌杰等出席活动，并为获奖选手颁奖。
 
-在全市古树名木体检全覆盖的基础上持续加大濒危衰弱古树名木抢救复壮力度，实行“一树一策”。
+郑杰表示，希望选手们通过这一平台充分展示音乐与演唱才华，并以中文歌曲大赛为桥梁，更好传承中华文化，促进两国文明交流互鉴。
 
-做好知名古树名木基因的收集、保存和扩繁。
+蔡昌杰表示，“水立方杯”早已超越一场普通歌唱比赛的意义。
 
-本次普查工作将全面摸清当前北京古树名木资源数量、位置分布、生长状况和保护管理等情况，深度挖掘其历史文化内涵，搭建标准化、精细化的古树名木资源管理数据库。
+它以音乐为纽带，连接不同族群与文化背景的心灵；同时也是一个窗口，让更多印尼民众特别是年轻一代，通过学唱中文歌曲这一生动有趣的方式，深入感知中华文化的博大精深。
 
-普查分为五个时间段开展。
+胡素丹表示，这项赛事不仅为青年搭建展示自我、交流切磋的平台，也在润物无声中传承中华文脉，让中华文化魅力跨越山海。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 22:57 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 22:54 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 22:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 23:21 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 23:17 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 23:04 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 23:08 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 23:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 23:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 23:13 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:09 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 23:12 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 23:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 23:11 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 23:24 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 23:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 23:17 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 23:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 23:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 23:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 23:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/40999973071.shtml)
-- 2026-06-29 22:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/67065.shtml)
-- 2026-06-29 23:16 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/068698547784.shtml)
-- 2026-06-29 22:54 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/7330873.shtml)
-- 2026-06-29 23:00 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/303575657.shtml)
-- 2026-06-29 23:01 - [极限挑战第一季](https://www.blog.minike.top/Article/details/06784327.shtml)
-- 2026-06-29 22:58 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/83862790731.shtml)
-- 2026-06-29 23:02 - [《贺子珍》](http://www.share.minike.top/Article/details/695593.shtml)
-- 2026-06-29 23:19 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/504568891.shtml)
-- 2026-06-29 23:00 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/071693308718.shtml)
-- 2026-06-29 22:55 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/942655967.shtml)
-- 2026-06-29 23:01 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/0768250.shtml)
-- 2026-06-29 22:58 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/6185179.shtml)
-- 2026-06-29 22:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/892604.shtml)
-- 2026-06-29 22:59 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/86207.shtml)
+- 2026-06-29 23:28 - [金牌调解](http://www.share.minike.top/Article/details/753900742.shtml)
+- 2026-06-29 23:25 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/579257668.shtml)
+- 2026-06-29 23:17 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/60049378439.shtml)
+- 2026-06-29 23:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/370892832433.shtml)
+- 2026-06-29 23:09 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/1986835.shtml)
+- 2026-06-29 23:03 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/291658.shtml)
+- 2026-06-29 23:08 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/767283798798.shtml)
+- 2026-06-29 23:12 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/6716589.shtml)
+- 2026-06-29 23:01 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/3046012.shtml)
+- 2026-06-29 23:11 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/5386099851.shtml)
+- 2026-06-29 23:05 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/084602210.shtml)
+- 2026-06-29 23:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/71107.shtml)
+- 2026-06-29 23:18 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/67972636.shtml)
+- 2026-06-29 23:26 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/79981429.shtml)
+- 2026-06-29 23:27 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/0928707.shtml)

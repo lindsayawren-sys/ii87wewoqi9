@@ -1,59 +1,59 @@
-# 人民论坛网评 | 让田埂上的“村播”持续火下去
+# 美股芯片股再爆发，高通盘中大涨13%，英伟达、英特尔、美光科技、AMD齐创新高
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。《规划》提出，实施农村电商高质量
+记者丨刘雪莹 王应贵 编辑丨曾静娇 5月11日，美股开盘涨跌不一，截至22：00，纳指下跌0.1%，标普500指数、道指小幅上涨。 大型科技股多数下跌，META、谷歌、微软、特斯拉均跌超1%，台积电、阿斯麦跌3%。英伟达涨超1%，盘中创下新高。 芯片股再度爆发，费城半导体指数目前涨幅收窄至1.35%。高通一度涨超13%，目前涨超7%，近5个交易日已累计涨超38%。美光科技一度大
 
 ## 正文
 
-在浙江瑞安，庄文雅扎根乡村一线，创办草根工社，把农田变成直播间，为农村电商注入可持续生命力；在湖北武汉江夏，高亚文返乡养鸡创业，通过直播实现自家鸡场扭亏为盈，帮村民解决农货滞销难题。
+记者丨刘雪莹 王应贵 编辑丨曾静娇 5月11日，美股开盘涨跌不一，截至22：00，纳指下跌0.1%，标普500指数、道指小幅上涨。
 
-随着乡村全面振兴深入推进，一部手机、一个支架、一方直播间，越来越多的“村播”活跃在互联网上。
+大型科技股多数下跌，META、谷歌、微软、特斯拉均跌超1%，台积电、阿斯麦跌3%。
 
-近日，国务院印发《加快农业农村现代化“十五五”规划》(以下简称《规划》)。
+英伟达涨超1%，盘中创下新高。
 
-《规划》提出，实施农村电商高质量发展工程，加快农村电商迭代升级，规范发展农产品直播带货，开展“数商兴农”。
+芯片股再度爆发，费城半导体指数目前涨幅收窄至1.35%。
 
-商务部数据显示，截至2025年底，全国农村网商数为2007.4万家，同比增长4.6%；全国农村“直播+社交”网商数为747.7万家，同比增长5.1%。
+高通一度涨超13%，目前涨超7%，近5个交易日已累计涨超38%。
 
-数字的背后，是一批爱农村、懂电商的“新农人”扎根田野，用镜头把优质农产品带出大山、推向全国。
+美光科技一度大涨约7%，总市值突破9000亿美元，创下历史新高。
 
-“村播”入门不难，难在长足发展。
+此外，英特尔、AMD涨超1%，均再创历史新高。
 
-如何把手机“新农具”用好，把直播“新农活”干好？
+存储概念股走势分化，西部数据涨近7%，希捷科技涨超5%，闪迪则回调跌近1%。
 
 ## 相关推荐
 
-- 2026-06-29 23:19 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 23:12 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 22:59 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 23:02 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 22:56 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 22:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 22:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 23:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 23:17 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 23:04 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 23:20 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 23:13 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 22:55 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 23:00 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 23:18 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 23:26 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 23:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 23:20 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 23:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 23:00 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 23:17 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 23:11 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 23:20 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 23:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 23:22 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/37058.shtml)
-- 2026-06-29 22:55 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/22307363.shtml)
-- 2026-06-29 23:05 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/702547.shtml)
-- 2026-06-29 23:11 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/68522372517.shtml)
-- 2026-06-29 23:23 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/7162408779.shtml)
-- 2026-06-29 23:11 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/65382.shtml)
-- 2026-06-29 23:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/388598145764.shtml)
-- 2026-06-29 23:22 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/19152235562.shtml)
-- 2026-06-29 23:01 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/64633159.shtml)
-- 2026-06-29 23:14 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/0423201039.shtml)
-- 2026-06-29 23:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/279633191.shtml)
-- 2026-06-29 23:02 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/2016819876.shtml)
-- 2026-06-29 23:21 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/25510175309.shtml)
-- 2026-06-29 23:06 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/9260947.shtml)
-- 2026-06-29 23:18 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/72917521.shtml)
+- 2026-06-29 23:17 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/20229.shtml)
+- 2026-06-29 23:20 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/44655348420.shtml)
+- 2026-06-29 23:00 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/93274498.shtml)
+- 2026-06-29 23:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/451454263.shtml)
+- 2026-06-29 23:13 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/7421062607.shtml)
+- 2026-06-29 23:14 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/5065779.shtml)
+- 2026-06-29 23:22 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/1632333.shtml)
+- 2026-06-29 23:11 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/0963507068.shtml)
+- 2026-06-29 23:10 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/9253898.shtml)
+- 2026-06-29 23:14 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/071952.shtml)
+- 2026-06-29 23:28 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/503267585.shtml)
+- 2026-06-29 23:13 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/742519988468.shtml)
+- 2026-06-29 23:05 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/24174256.shtml)
+- 2026-06-29 23:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/56195876489.shtml)
+- 2026-06-29 23:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/28120916817.shtml)

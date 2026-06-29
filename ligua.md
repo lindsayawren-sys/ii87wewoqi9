@@ -1,60 +1,61 @@
-# “AI 教父”痛批马斯克旗下xAI堪称失败，警示AI将迎巨大泡沫破裂
+# 恒润股份（603985）、双良节能（600481）投资者索赔均再提交法院立案
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-核心要点 AMI 实验室创始人扬・勒丘恩在接受美国消费者新闻与商业频道采访时表示，埃隆・马斯克旗下的 xAI 注定难以在人工智能前沿赛道立足，本质上已是一次失败布局。他同时阐述了自己对行业即将出现巨大泡沫破裂风险的看法。 勒丘恩此番表态，让他与马斯克之间由来已久的口水战再度升级，也让市场开始质疑全球头部人工智能企业的估值合理性。 曾任 Meta 首席人工智能科学家的勒丘恩，过去
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月29日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。 许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资
 
 ## 正文
 
-核心要点 AMI 实验室创始人扬・勒丘恩在接受美国消费者新闻与商业频道采访时表示，埃隆・马斯克旗下的 xAI 注定难以在人工智能前沿赛道立足，本质上已是一次失败布局。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-他同时阐述了自己对行业即将出现巨大泡沫破裂风险的看法。
+2026年4月29日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。
 
-勒丘恩此番表态，让他与马斯克之间由来已久的口水战再度升级，也让市场开始质疑全球头部人工智能企业的估值合理性。
+许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-曾任 Meta 首席人工智能科学家的勒丘恩，过去数年多次和马斯克产生观点交锋，争论话题既有人工智能技术路线，也包括他口中这位特斯拉 CEO 在社交媒体上宣扬的各类 “阴谋论”。
+（许峰律师专栏） 2024年12月6日，证监会对江阴市恒润重工股份有限公司第二大股东、法定代表人、董事长承立新等作出行政处罚。
 
-而马斯克则反击称，勒丘恩早已脱离人工智能行业一线，对行业现状缺乏认知。
+许峰律师认为，在2023年7月10日到12月27日期间交易恒润股份股票而受损的投资者，目前还可发起索赔，最终索赔条件法院依法认定。
 
-凭借在人工智能早期发展阶段做出的开创性贡献，勒丘恩被业界冠以 “AI 教父” 的称号。
+许峰律师此前已代理匹凸匹投资者索赔鲜言操纵民事赔偿案、已代理文峰股份投资者索赔徐翔、文峰股份等操纵民事赔偿获得过胜诉判决。
 
-“坦白来说，xAI 算是一次失败，核心原因就是创始团队成员相继离职。
+（恒润股份维权入口） 除了恒润股份操纵索赔案再次提交法院立案，2026年5月8日，许峰律师代理的双良节能（维权）（600481）投资者索赔案也再提交南京市中级人民法院立案，此前已提交过立案，目前正在等待法院的下一步安排，律师团队同步也还在继续接受其他投资者的索赔委托。
 
-” 勒丘恩表示。
+2026年4月3日晚，双良节能公告公司及双良集团于2026年3月22日收到证监会江苏监管局下发的《行政处罚决定书》，经查明，双良节能涉嫌存在以下违法事实： 2026年2月12日13时02分，“双良集团”微信公众号发布题为《双良节能再获海外订单，助力商业航天太空探索》的文章；13时25分，“双良节能”微信公众号发布相同标题及内容的文章。
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 22:57 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 23:21 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 23:01 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 23:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 23:09 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 23:11 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 23:10 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 23:01 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 23:09 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-29 23:20 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 23:07 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 23:00 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 23:14 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 23:11 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 23:24 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 23:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 23:09 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 23:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 23:11 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 23:18 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 23:21 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 23:06 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 23:06 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 23:00 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 23:16 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 23:25 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 23:10 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 23:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:54 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/89038.shtml)
-- 2026-06-29 22:56 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/16041998.shtml)
-- 2026-06-29 23:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/010190.shtml)
-- 2026-06-29 22:57 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/13497600.shtml)
-- 2026-06-29 22:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/29778.shtml)
-- 2026-06-29 23:06 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/1392634554.shtml)
-- 2026-06-29 23:03 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/42291205320.shtml)
-- 2026-06-29 23:14 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/251199613300.shtml)
-- 2026-06-29 23:23 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/39947119834.shtml)
-- 2026-06-29 22:56 - [国际清算银行警告AI投资热潮](http://www.blog.kurohicncr.top/Article/details/603087163.shtml)
-- 2026-06-29 23:19 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/939928.shtml)
-- 2026-06-29 23:01 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/9975280.shtml)
-- 2026-06-29 23:16 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/15719619271.shtml)
-- 2026-06-29 23:11 - [世界杯](http://www.share.kurohicncr.top/Article/details/392634635672.shtml)
-- 2026-06-29 22:57 - [一生一世](http://www.share.minike.top/Article/details/8352109667.shtml)
+- 2026-06-29 23:30 - [世界杯](http://www.share.kurohicncr.top/Article/details/38762532438.shtml)
+- 2026-06-29 23:29 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/44389.shtml)
+- 2026-06-29 23:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/808470098754.shtml)
+- 2026-06-29 23:10 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/79677.shtml)
+- 2026-06-29 23:00 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/376061.shtml)
+- 2026-06-29 23:03 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/64727408.shtml)
+- 2026-06-29 23:10 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/391866491748.shtml)
+- 2026-06-29 23:16 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/55676259612.shtml)
+- 2026-06-29 23:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/09731391.shtml)
+- 2026-06-29 23:19 - [《贺子珍》](http://www.share.minike.top/Article/details/794741597.shtml)
+- 2026-06-29 23:16 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/31842.shtml)
+- 2026-06-29 23:11 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/35460.shtml)
+- 2026-06-29 23:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/871111777.shtml)
+- 2026-06-29 23:28 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/28157600279.shtml)
+- 2026-06-29 23:12 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/029752.shtml)

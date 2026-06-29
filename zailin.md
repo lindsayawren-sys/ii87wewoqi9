@@ -1,59 +1,58 @@
-# 哈铁开行首趟音乐主题旅游专列 赴漠河追极光
+# 知名房企巨头华夏幸福被*ST，巨亏226亿元，股价大跌94%
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月20日电 (孙涛 叶文纯)20日，搭载500余名旅客的Y783次列车从哈尔滨站发车，驶向漠河，开启为期4天的音乐与极光之旅。这是中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)今年开行的首趟“悠享龙江·歌声里的黑龙江”音乐主题旅游专列，也是创新“铁路+音乐+极地文旅”融合场景的全新实践。 近日，中国商务部、文化和旅游部、国铁集团等8家单位联合印发《关
+来源：21财经网 “五一”假期过后的首个交易日，上市15年的华夏幸福，股票简称变成了*ST华幸，退市风险凸显。 假期前的4月30日，华夏幸福在2025年年报中披露了详情。根据年报，去年华夏幸福的归母净资产为-177.43亿元，即资不抵债。 同时，去年华夏幸福的扣非净利润为-226.04亿元，较2024年的-115.80亿元扩大近一倍，且已连续三年亏损。 按照规定，华夏幸福的股票
 
 ## 正文
 
-中新网哈尔滨6月20日电 (孙涛 叶文纯)20日，搭载500余名旅客的Y783次列车从哈尔滨站发车，驶向漠河，开启为期4天的音乐与极光之旅。
+来源：21财经网 “五一”假期过后的首个交易日，上市15年的华夏幸福，股票简称变成了*ST华幸，退市风险凸显。
 
-这是中国铁路哈尔滨局集团有限公司(以下简称“哈尔滨局集团公司”)今年开行的首趟“悠享龙江·歌声里的黑龙江”音乐主题旅游专列，也是创新“铁路+音乐+极地文旅”融合场景的全新实践。
+假期前的4月30日，华夏幸福在2025年年报中披露了详情。
 
-近日，中国商务部、文化和旅游部、国铁集团等8家单位联合印发《关于促进铁路与旅游融合发展扩大服务消费的若干措施》，旨在扩大铁路旅游新供给，创新多元化消费场景。
+根据年报，去年华夏幸福的归母净资产为-177.43亿元，即资不抵债。
 
-哈尔滨局集团公司迅速响应，哈铁文旅集团联合哈尔滨音乐学院等单位策划推出此趟主题列车，以“流动的音乐厅”为定位，将艺术体验、地域文化与特色旅游深度绑定，深化“铁路+文旅”融合发展。
+同时，去年华夏幸福的扣非净利润为-226.04亿元，较2024年的-115.80亿元扩大近一倍，且已连续三年亏损。
 
-本趟专列以银发游客为主，平均年龄60岁以上，占比约70%。
+按照规定，华夏幸福的股票被实施退市风险警示，公司股票将在风险警示板交易，股票价格日涨跌幅限制为5%。
 
-专列采取“昼游夜行、车随人走、一铺到底”的模式，游客无需中转换乘，即可轻松出行。
+同时，若2026年度公司净资产仍为负值，股票将被终止上市。
 
-列车采用9节编组，包括7节硬卧车厢和1节音乐主题餐车。
+截至5月8日收盘，华夏幸福股价报1.1元/股，市值43亿元，股东总户数18.2万，昔日环京地产巨头，最新股价距离上市高峰期跌去94%。
 
-其中，音乐主题餐车以“五线谱上的龙江”为设计理念，营造出浓郁的艺术氛围。
+责任编辑：张恒星
 
 ## 相关推荐
 
-- 2026-06-29 23:04 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 22:57 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 22:55 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 23:14 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 22:57 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 23:04 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 23:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 23:14 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 23:13 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 23:02 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 23:07 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 23:18 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 23:06 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 23:08 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 23:15 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 23:12 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 23:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 23:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 23:18 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 23:07 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 23:27 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 23:29 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 23:19 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 23:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 23:29 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/72534067475.shtml)
-- 2026-06-29 23:14 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/9617886885.shtml)
-- 2026-06-29 23:08 - [扬名立万](http://www.share.kurohicncr.top/Article/details/7638584.shtml)
-- 2026-06-29 23:15 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/33144757535.shtml)
-- 2026-06-29 23:02 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/770997.shtml)
-- 2026-06-29 23:18 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/93425815764.shtml)
-- 2026-06-29 23:15 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/640866.shtml)
-- 2026-06-29 23:15 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/29261257.shtml)
-- 2026-06-29 23:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/7576024413.shtml)
-- 2026-06-29 23:22 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/185087480.shtml)
-- 2026-06-29 23:06 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/969401034.shtml)
-- 2026-06-29 23:09 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/49003317261.shtml)
-- 2026-06-29 23:14 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/23820422371.shtml)
-- 2026-06-29 23:21 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/29215204.shtml)
-- 2026-06-29 23:17 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/53793328.shtml)
+- 2026-06-29 23:02 - [急先锋](http://www.blog.minike.top/Article/details/47474.shtml)
+- 2026-06-29 23:16 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/95969.shtml)
+- 2026-06-29 23:11 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/4282699.shtml)
+- 2026-06-29 23:15 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/616551.shtml)
+- 2026-06-29 23:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/48274960.shtml)
+- 2026-06-29 23:02 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/638648319.shtml)
+- 2026-06-29 23:08 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/7961514.shtml)
+- 2026-06-29 23:10 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/5890454458.shtml)
+- 2026-06-29 23:20 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/456803655.shtml)
+- 2026-06-29 23:23 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/722216.shtml)
+- 2026-06-29 23:26 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/878687397734.shtml)
+- 2026-06-29 23:21 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/64306.shtml)
+- 2026-06-29 23:09 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/44791.shtml)
+- 2026-06-29 23:27 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/28038920199.shtml)
+- 2026-06-29 23:24 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/401800.shtml)

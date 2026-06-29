@@ -1,55 +1,60 @@
-# 卧安机器人早盘涨逾9% 预期斥资不超过5亿港元回购股份
+# 伊朗已回应美国所提结束战争方案
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-卧安机器人（06600）早盘高开逾9%，截至发稿，股价上涨8.88%，现报63.15港元，成交额2628.48万港元。 卧安机器人公布，董事会对集团的经营表现、长期发展前景及H股的投资价值充满信心，认为公司H股估值偏低，目前市价未能充分反映公司的基本面及长期增长潜力，现时乃根据该计划进一步储备奖励股份的适当时机。公司目前预期以不超过五亿港元的总代价进行进一步股份购买。公司表示，
+中新社北京5月10日电 综合消息：伊朗伊斯兰共和国通讯社当地时间10日报道称，一名知情人士当日证实，伊朗已向巴基斯坦调解方正式提交对美国旨在结束战争最新方案的回应。 该知情人士称，当前阶段的谈判将完全集中于停止地区内敌对行动。 据报道，伊朗外交部发言人此前曾表示，伊方一旦完成内部评估并得出最终结论，就会转达其对美国方案的考虑和立场。 报道并未透露伊方回应的细节。路透社援引美国和
 
 ## 正文
 
-卧安机器人（06600）早盘高开逾9%，截至发稿，股价上涨8.88%，现报63.15港元，成交额2628.48万港元。
+中新社北京5月10日电 综合消息：伊朗伊斯兰共和国通讯社当地时间10日报道称，一名知情人士当日证实，伊朗已向巴基斯坦调解方正式提交对美国旨在结束战争最新方案的回应。
 
-卧安机器人公布，董事会对集团的经营表现、长期发展前景及H股的投资价值充满信心，认为公司H股估值偏低，目前市价未能充分反映公司的基本面及长期增长潜力，现时乃根据该计划进一步储备奖励股份的适当时机。
+该知情人士称，当前阶段的谈判将完全集中于停止地区内敌对行动。
 
-公司目前预期以不超过五亿港元的总代价进行进一步股份购买。
+据报道，伊朗外交部发言人此前曾表示，伊方一旦完成内部评估并得出最终结论，就会转达其对美国方案的考虑和立场。
 
-公司表示，如未来股价依然被低估，公司可在考虑所有有关情况后，进一步拨付额外资金进行股份购买以支持未来计划的实施。
+报道并未透露伊方回应的细节。
 
-责任编辑：卢昱君
+路透社援引美国和伊朗的消息人士的话报道称，最新的和平努力旨在达成一项临时谅解备忘录，以停止战争并允许霍尔木兹海峡通航。
+
+同时，美伊双方还在讨论一项更全面的协议，该协议必须解决伊朗核计划等问题。
+
+卡塔尔半岛电视台表示，巴基斯坦已确认收到伊朗方面的回应。
+
+值得关注的是，伊方的回应将于何时转达给美国，以及美方将作何反应。
 
 ## 相关推荐
 
-- 2026-06-29 23:09 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 23:00 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 23:10 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:00 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 23:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 23:14 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 23:10 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 23:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 23:21 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 23:21 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 23:18 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 23:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 23:09 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 23:03 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 22:59 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 23:28 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 23:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 23:14 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 23:22 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 23:22 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 23:15 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 23:17 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 23:13 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 23:29 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 23:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 23:15 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 23:14 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 23:11 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 23:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/1704914.shtml)
-- 2026-06-29 23:03 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/93949254.shtml)
-- 2026-06-29 23:16 - [急先锋](http://www.share.kurohicncr.top/Article/details/39758985.shtml)
-- 2026-06-29 23:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/772780.shtml)
-- 2026-06-29 22:57 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/7688483327.shtml)
-- 2026-06-29 23:17 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/229520.shtml)
-- 2026-06-29 22:59 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/295277835.shtml)
-- 2026-06-29 22:56 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/5308723272.shtml)
-- 2026-06-29 23:16 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/294914253.shtml)
-- 2026-06-29 23:19 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/817303.shtml)
-- 2026-06-29 23:16 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/904207.shtml)
-- 2026-06-29 23:08 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/15131418.shtml)
-- 2026-06-29 22:59 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/134101.shtml)
-- 2026-06-29 23:01 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/82525636.shtml)
-- 2026-06-29 22:59 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/374718040517.shtml)
+- 2026-06-29 23:24 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/41226.shtml)
+- 2026-06-29 23:09 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/66221.shtml)
+- 2026-06-29 23:25 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/740986395.shtml)
+- 2026-06-29 23:09 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/18600054903.shtml)
+- 2026-06-29 23:24 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/45709.shtml)
+- 2026-06-29 23:05 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/383406435573.shtml)
+- 2026-06-29 23:04 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/71900283.shtml)
+- 2026-06-29 23:14 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/065948397537.shtml)
+- 2026-06-29 23:06 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/30627793281.shtml)
+- 2026-06-29 23:19 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/11969256094.shtml)
+- 2026-06-29 23:05 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/8808803.shtml)
+- 2026-06-29 23:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/051731627.shtml)
+- 2026-06-29 23:03 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/200873789626.shtml)
+- 2026-06-29 23:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/254587.shtml)
+- 2026-06-29 23:06 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/016301173636.shtml)

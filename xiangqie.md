@@ -1,59 +1,61 @@
-# 泰国计划到2030年将经济增长潜力提升至3%
+# 天山时评丨“三路并进”推动产业加速跑——踔厉奋发“十五五”系列谈㊺
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-泰国财政部长埃克尼提·尼提坦帕帕斯周一表示，泰国计划到2030年将经济增长潜力从2.7%提升至3.0%。 泰国财政部的一份报告显示，政府将通过“四大支柱”推动经济增长，包括吸引新投资、对外贸易，以及旅游、农业等服务业。 报告还指出，政府还将通过战略研发来发展人力资本，并简化营商环境。 上周，泰国商会将2026年经济增长预期上调至1.6%-2.0%，理由是政府的刺激措施起到了支撑
+代立 在“开局起步‘十五五’”新疆专场新闻发布会上，自治区明确了新疆现代化产业体系坚持“三路并进”，一是优化提升传统产业，二是大力发展特色产业，三是布局培育新兴产业和未来产业。可以看出，新疆产业思路更加科学清晰，发展路径更加系统有力，为我们合力推进经济高质量发展增添了信心决心、鼓足了创新干劲。 新疆产业“三路并进”是系统思维的充分体现。它是新发展理念在产业建设中的落地落实，是对
 
 ## 正文
 
-泰国财政部长埃克尼提·尼提坦帕帕斯周一表示，泰国计划到2030年将经济增长潜力从2.7%提升至3.0%。
+代立 在“开局起步‘十五五’”新疆专场新闻发布会上，自治区明确了新疆现代化产业体系坚持“三路并进”，一是优化提升传统产业，二是大力发展特色产业，三是布局培育新兴产业和未来产业。
 
-泰国财政部的一份报告显示，政府将通过“四大支柱”推动经济增长，包括吸引新投资、对外贸易，以及旅游、农业等服务业。
+可以看出，新疆产业思路更加科学清晰，发展路径更加系统有力，为我们合力推进经济高质量发展增添了信心决心、鼓足了创新干劲。
 
-报告还指出，政府还将通过战略研发来发展人力资本，并简化营商环境。
+新疆产业“三路并进”是系统思维的充分体现。
 
-上周，泰国商会将2026年经济增长预期上调至1.6%-2.0%，理由是政府的刺激措施起到了支撑作用。
+它是新发展理念在产业建设中的落地落实，是对标国家“十五五”规划进行的探索实践，也是锚定“五大战略定位”、立足新疆发展实际进行的布局安排、产业塑造。
 
-泰国去年的经济增长率为2.4%。
+传统产业、特色产业、新兴产业和未来产业，各就各位，各具优势，相互支撑，协同发力，构建了新疆现代化产业体系的完整图景，加速推进新疆发展朝着更加美好的明天接力长跑。
 
-泰国政府已启动一项1760亿泰铢（约合54亿美元）的消费补贴计划，以缓解生活成本压力。
+“三路并进”不是各自为政，而是同题共答，为探索符合新疆特点的高质量发展路子持续发力，这就需要产业共性和个性互融互促，产业延续和创新时空呼应。
 
-泰国财长埃克尼提上个月表示，在新的投资支持下，他预计未来一到两年经济增长率将超过3%。
+我们也要看到，新疆不同产业，面临的挑战压力不同，各自短板弱项不同，不能搞“一刀切”，开一副药，而要在具体问题具体分析中探索解决产业发展难题的有效方法。
 
-尽管第一季度经济增长强于预期，但鉴于中东冲突的影响，泰国国家规划机构仍维持其2026年1.5%至2.5%的增长预期。
+拿新疆的传统产业来说，就要用“回春术”。
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 22:57 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 23:11 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 22:58 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 23:14 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 23:02 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 23:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 23:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 22:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 23:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 23:03 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 23:23 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 23:20 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 23:26 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 23:18 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 23:15 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 23:28 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 23:18 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 23:08 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 23:03 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 23:05 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 23:02 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 23:10 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 23:17 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 23:22 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 23:02 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 23:23 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:58 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/632409379.shtml)
-- 2026-06-29 22:58 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/0087154.shtml)
-- 2026-06-29 22:57 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/96087056.shtml)
-- 2026-06-29 23:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/206319.shtml)
-- 2026-06-29 23:15 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/64574065.shtml)
-- 2026-06-29 23:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/14499431581.shtml)
-- 2026-06-29 23:08 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/709498984886.shtml)
-- 2026-06-29 23:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/96792522398.shtml)
-- 2026-06-29 22:54 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.kurohicncr.top/Article/details/8273348802.shtml)
-- 2026-06-29 23:18 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/37012343.shtml)
-- 2026-06-29 23:11 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/63371958250.shtml)
-- 2026-06-29 23:18 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/8219976461.shtml)
-- 2026-06-29 23:22 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/121109139.shtml)
-- 2026-06-29 22:56 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/04857913979.shtml)
-- 2026-06-29 23:12 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/7238972429.shtml)
+- 2026-06-29 23:00 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/4850757505.shtml)
+- 2026-06-29 23:09 - [我们的少年时代2](http://www.blog.minike.top/Article/details/997319.shtml)
+- 2026-06-29 23:26 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/29373.shtml)
+- 2026-06-29 23:19 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/282374.shtml)
+- 2026-06-29 23:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/880318546.shtml)
+- 2026-06-29 23:26 - [刘念回应](https://www.share.minike.top/Article/details/060553.shtml)
+- 2026-06-29 23:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/92470757.shtml)
+- 2026-06-29 23:15 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/41074486.shtml)
+- 2026-06-29 23:16 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/243695.shtml)
+- 2026-06-29 23:14 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/0111308.shtml)
+- 2026-06-29 23:02 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/434815.shtml)
+- 2026-06-29 23:13 - [《贺子珍》](http://www.blog.minike.top/Article/details/69067783191.shtml)
+- 2026-06-29 23:01 - [请回答王牌2019](https://www.blog.minike.top/Article/details/914257790.shtml)
+- 2026-06-29 23:29 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/793181386.shtml)
+- 2026-06-29 23:05 - [绘画区你赢了](https://www.blog.minike.top/Article/details/79808347.shtml)

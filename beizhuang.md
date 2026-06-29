@@ -1,47 +1,58 @@
-# 伊朗代表团开始与卡塔尔代表团会谈
+# AI玩具降低海外成本 汕头探索“Token出海”新模式
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月21日电据伊朗媒体21日报道，伊美谈判第一轮结束后，伊朗代表团与卡塔尔代表团的双边会谈开始。（完）责任编辑：宋雅芳
+AI智能体、AI玩具等应用的快速发展，让大模型调用成本和数据合规问题受到更多关注。记者在广东汕头采访了解到，当地正依托国际海缆登陆站、算力基础设施、绿色能源和跨境数据合规通道，探索“Token出海”模式，推动本地算力服务面向海外市场应用。此前，记者在体验AI智能体OpenClaw时发现，这类智能体能看懂屏幕、处理文档、执行操作，但在每一次理解、推理和操作过程中，都需要持续调用大
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+AI智能体、AI玩具等应用的快速发展，让大模型调用成本和数据合规问题受到更多关注。
 
-新华社德黑兰6月21日电据伊朗媒体21日报道，伊美谈判第一轮结束后，伊朗代表团与卡塔尔代表团的双边会谈开始。
+记者在广东汕头采访了解到，当地正依托国际海缆登陆站、算力基础设施、绿色能源和跨境数据合规通道，探索“Token出海”模式，推动本地算力服务面向海外市场应用。
 
-（完）责任编辑：宋雅芳
+此前，记者在体验AI智能体OpenClaw时发现，这类智能体能看懂屏幕、处理文档、执行操作，但在每一次理解、推理和操作过程中，都需要持续调用大模型，并消耗Token。
+
+Token(词元)是大模型处理信息时的基本计算单元。
+
+对于AI玩具等应用而言，Token成本是否可控、供给是否稳定、调用过程是否合规，直接关系到AI应用能否规模化落地。
+
+记者在广东汕头发现，当地正在探索的“Token出海”模式，简单来说，就是海外数据通过合规链路进入汕头，在本地调用部署的大模型和算力完成推理，再将结果返回海外市场。
+
+Token消耗发生在本地，服务对象则面向海外用户。
+
+汕头华侨试验区数字产业发展局局长吴长林在接受采访时表示，海外数据回传后，会进行物理隔离，不与国内数据进行交互，相当于建立一个“数字保税区”。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 22:54 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 23:07 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 23:06 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 23:08 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 23:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 23:21 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 22:56 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 23:17 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 23:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 23:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 23:26 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 23:29 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 23:28 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 23:05 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 23:17 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 23:02 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 23:01 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 23:07 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 23:20 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 23:21 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 23:07 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 23:29 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/1756225690.shtml)
-- 2026-06-29 23:17 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/6935981.shtml)
-- 2026-06-29 22:56 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/4757791.shtml)
-- 2026-06-29 22:58 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/778718069496.shtml)
-- 2026-06-29 23:10 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/74491415.shtml)
-- 2026-06-29 23:01 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/94252505.shtml)
-- 2026-06-29 23:08 - [扫黑风暴](https://www.blog.minike.top/Article/details/707309923406.shtml)
-- 2026-06-29 23:15 - [爱很美味](https://www.share.minike.top/Article/details/680338331.shtml)
-- 2026-06-29 23:12 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/768046.shtml)
-- 2026-06-29 22:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/968063679.shtml)
-- 2026-06-29 23:02 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/108886131261.shtml)
-- 2026-06-29 23:00 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/086362679504.shtml)
-- 2026-06-29 23:03 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/135370.shtml)
-- 2026-06-29 22:57 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/2981063.shtml)
-- 2026-06-29 22:59 - [爱很美味](https://www.share.minike.top/Article/details/44455708.shtml)
+- 2026-06-29 23:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/028428960173.shtml)
+- 2026-06-29 23:09 - [起风了](https://www.blog.kurohicncr.top/Article/details/2600229122.shtml)
+- 2026-06-29 23:07 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/5269525734.shtml)
+- 2026-06-29 23:01 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/076109.shtml)
+- 2026-06-29 23:00 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/99263587290.shtml)
+- 2026-06-29 23:17 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/02863546028.shtml)
+- 2026-06-29 23:14 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/0495649.shtml)
+- 2026-06-29 23:05 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/27916.shtml)
+- 2026-06-29 23:12 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/12593.shtml)
+- 2026-06-29 23:22 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/72528600.shtml)
+- 2026-06-29 23:09 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/0505598291.shtml)
+- 2026-06-29 23:04 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/132738142600.shtml)
+- 2026-06-29 23:25 - [张凌赫 客串](http://www.blog.minike.top/Article/details/20613808619.shtml)
+- 2026-06-29 23:04 - [一生一世](http://www.share.minike.top/Article/details/620016168497.shtml)
+- 2026-06-29 23:26 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/71400482.shtml)

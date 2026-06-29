@@ -1,57 +1,57 @@
-# 香港发布精准扶贫成果报告 所有关键绩效指标均已达成
+# 面向全球征集 空天信息领域十大前沿问题正式发布
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网香港6月18日电 香港特区政府扶贫委员会18日发布《香港精准扶贫成果报告》(下称“报告”)指出，特区政府投放大量资源提供教育、医疗、房屋和社会福利，保障香港市民的基本生活；在政、商、民三方合力推动和实践下，精准扶贫项目的所有关键绩效指标均已达成。 报告全文超过220页，分为5章，图文并茂。报告提到，2026/2027财政年度，特区政府投放于教育、医疗卫生和社会福利方面的预
+中新网北京5月9日电 (记者 孙自法)记者5月9日从中国科学院空天信息创新研究院(空天院)获悉，该院联合美国科学促进会《科学》(Science)杂志共同发起的空天信息领域十大前沿问题征集活动，当天在浙江桐乡开幕的第二届空天信息技术大会上揭晓并正式发布，“让机器像人一样感知与导航”等问题入选。 空天信息技术是航空航天、电子信息、空间科学、计算机技术等多领域深度交叉融合的前沿技术领
 
 ## 正文
 
-中新网香港6月18日电 香港特区政府扶贫委员会18日发布《香港精准扶贫成果报告》(下称“报告”)指出，特区政府投放大量资源提供教育、医疗、房屋和社会福利，保障香港市民的基本生活；在政、商、民三方合力推动和实践下，精准扶贫项目的所有关键绩效指标均已达成。
+中新网北京5月9日电 (记者 孙自法)记者5月9日从中国科学院空天信息创新研究院(空天院)获悉，该院联合美国科学促进会《科学》(Science)杂志共同发起的空天信息领域十大前沿问题征集活动，当天在浙江桐乡开幕的第二届空天信息技术大会上揭晓并正式发布，“让机器像人一样感知与导航”等问题入选。
 
-报告全文超过220页，分为5章，图文并茂。
+空天信息技术是航空航天、电子信息、空间科学、计算机技术等多领域深度交叉融合的前沿技术领域，对科技进步和产业升级意义重大。
 
-报告提到，2026/2027财政年度，特区政府投放于教育、医疗卫生和社会福利方面的预算经常开支逾3500亿元(港元，下同)，约占特区政府整体经常开支的六成；房屋方面的公共开支预算则为645亿元。
+这次遴选发布的空天信息领域十大前沿问题具体包括： ——高性能太空原生芯片设计。
 
-报告详细介绍了“共创明‘Teen’计划”“社区客厅试行计划”“在校课后托管服务计划”及“地区服务及关爱队伍——支援长者及照顾者计划”四个精准扶贫项目，数据显示上述项目均令大量服务对象感到满意。
+——极端环境下的柔性传感。
 
-“我们要知道哪些人、哪些群组最需要帮助，他们具体需要什么、应如何协助他们。
+——空天地融合网络无线通信安全认证。
 
-”香港特区政府政务司司长陈国基当天在《香港精准扶贫成果报告》记者会上表示，未来将以社区为主场、以家庭为载体，加强跨界别、跨专业、跨世代的协作，推出更多项目，扩大服务覆盖面，适时考虑辨别多元目标群组、推出针对性服务，让精准的帮助延伸到每一个有需要的角落。
+——低/零发射功率下的雷达探测。
 
-(完)
+——让机器像人一样感知与导航。
+
+——卫星导航失效下的多源融合可信导航。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 23:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 23:02 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 23:05 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 23:05 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 23:21 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 23:09 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 22:57 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 22:54 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-29 23:00 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 23:20 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 23:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 23:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 23:16 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 23:24 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 23:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 23:04 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 23:24 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 23:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 23:10 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 23:07 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 23:03 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 23:10 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 23:05 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/0615486.shtml)
-- 2026-06-29 23:09 - [田曦薇没招了](https://www.share.minike.top/Article/details/7567873.shtml)
-- 2026-06-29 23:22 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/966673901.shtml)
-- 2026-06-29 23:21 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/631839307666.shtml)
-- 2026-06-29 23:02 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/777556.shtml)
-- 2026-06-29 23:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/505542.shtml)
-- 2026-06-29 22:54 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/121056753248.shtml)
-- 2026-06-29 23:08 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/15673790203.shtml)
-- 2026-06-29 23:21 - [美股](https://www.blog.minike.top/Article/details/369113742742.shtml)
-- 2026-06-29 22:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/9982069883.shtml)
-- 2026-06-29 23:02 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/04767807498.shtml)
-- 2026-06-29 23:04 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/5898494642.shtml)
-- 2026-06-29 23:00 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/637782374696.shtml)
-- 2026-06-29 23:10 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/261931.shtml)
-- 2026-06-29 23:17 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/951376.shtml)
+- 2026-06-29 23:13 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/8313549.shtml)
+- 2026-06-29 23:20 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/11092811009.shtml)
+- 2026-06-29 23:14 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/567821.shtml)
+- 2026-06-29 23:08 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/24753.shtml)
+- 2026-06-29 23:23 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/8745750283.shtml)
+- 2026-06-29 23:28 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/5549368298.shtml)
+- 2026-06-29 23:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/35449.shtml)
+- 2026-06-29 23:04 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/90358.shtml)
+- 2026-06-29 23:24 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/4154632550.shtml)
+- 2026-06-29 23:05 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/0117711305.shtml)
+- 2026-06-29 23:00 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/7540469500.shtml)
+- 2026-06-29 23:29 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/0630213.shtml)
+- 2026-06-29 23:19 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/164643700.shtml)
+- 2026-06-29 23:16 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/39811233229.shtml)
+- 2026-06-29 23:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/985568.shtml)

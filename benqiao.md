@@ -1,60 +1,52 @@
-# 6月19日美股成交额前20：英特尔大涨10% 将与苹果合作在美设计和生产芯片
+# 韩国产业部长与美方官员洽谈投资协议
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-周四美股成交额第1名迈威尔科技，收涨7.27%，成交786.31亿美元。第2名美光科技，涨8.70%，成交716.42亿美元。第4名英伟达，涨2.95%，成交499.47亿美元。第7名英特尔涨10.64%，成交306.15亿美元。第8名闪迪，收涨11.54%，成交259.09亿美元。第9名苹果，涨0.70%，成交254.44亿美元。第10名AMD，涨4.86%，成交232.97
+据报道，韩国产业部周日发布声明称，韩国产业部长于5月6日至9日访美期间，与美方官员就多项议题展开磋商，其中包括韩国计划在美投资的具体细节。 期间产业部长会见了美国商务部长，双方讨论了后续立法举措，以及韩美投资协议的具体细则。 他还与美国行政管理和预算局局长、田纳西州联邦参议员举行了会谈。责任编辑：何云
 
 ## 正文
 
-周四美股成交额第1名迈威尔科技，收涨7.27%，成交786.31亿美元。
+据报道，韩国产业部周日发布声明称，韩国产业部长于5月6日至9日访美期间，与美方官员就多项议题展开磋商，其中包括韩国计划在美投资的具体细节。
 
-第2名美光科技，涨8.70%，成交716.42亿美元。
+期间产业部长会见了美国商务部长，双方讨论了后续立法举措，以及韩美投资协议的具体细则。
 
-第4名英伟达，涨2.95%，成交499.47亿美元。
+他还与美国行政管理和预算局局长、田纳西州联邦参议员举行了会谈。
 
-第7名英特尔涨10.64%，成交306.15亿美元。
-
-第8名闪迪，收涨11.54%，成交259.09亿美元。
-
-第9名苹果，涨0.70%，成交254.44亿美元。
-
-第10名AMD，涨4.86%，成交232.97亿美元。
-
-此前美国总统唐纳德·特朗普表示，英特尔将与苹果公司合作，在美国本土设计和生产芯片。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 22:57 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 23:07 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 23:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 23:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 23:06 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 23:14 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 23:07 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 23:11 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-29 22:59 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 23:02 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 22:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 23:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 23:18 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 23:14 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 23:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 23:10 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 23:19 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 23:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 23:08 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 23:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 23:21 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 23:25 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 23:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 23:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 23:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 23:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 23:01 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 23:12 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/214260.shtml)
-- 2026-06-29 22:56 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/25239.shtml)
-- 2026-06-29 23:01 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/96386892.shtml)
-- 2026-06-29 23:12 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/54886094.shtml)
-- 2026-06-29 23:15 - [英法德葡存在什么隐患](https://www.blog.kurohicncr.top/Article/details/746043.shtml)
-- 2026-06-29 23:13 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/823899971029.shtml)
-- 2026-06-29 23:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/47264831412.shtml)
-- 2026-06-29 23:11 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/734629.shtml)
-- 2026-06-29 23:14 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/72818206.shtml)
-- 2026-06-29 23:09 - [时光音乐会](https://www.share.minike.top/Article/details/48010802037.shtml)
-- 2026-06-29 23:18 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/660753277067.shtml)
-- 2026-06-29 23:12 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/80240.shtml)
-- 2026-06-29 22:56 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/2532681.shtml)
-- 2026-06-29 23:05 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/801803.shtml)
-- 2026-06-29 23:19 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/13843.shtml)
+- 2026-06-29 23:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/16296682735.shtml)
+- 2026-06-29 23:17 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/01180.shtml)
+- 2026-06-29 23:10 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/36578475.shtml)
+- 2026-06-29 23:02 - [新官上任三把火](https://www.blog.minike.top/Article/details/9176287.shtml)
+- 2026-06-29 23:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/9615205865.shtml)
+- 2026-06-29 23:18 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/1309743.shtml)
+- 2026-06-29 23:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/24851443.shtml)
+- 2026-06-29 23:00 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/162971288556.shtml)
+- 2026-06-29 23:08 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/413571.shtml)
+- 2026-06-29 23:23 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/4085450963.shtml)
+- 2026-06-29 23:18 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/27213134538.shtml)
+- 2026-06-29 23:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/63762149.shtml)
+- 2026-06-29 23:09 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/41094539784.shtml)
+- 2026-06-29 23:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/29854378.shtml)
+- 2026-06-29 23:15 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/532912.shtml)

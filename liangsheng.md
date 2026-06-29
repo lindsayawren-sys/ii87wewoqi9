@@ -1,56 +1,56 @@
-# 苏州两岸家庭端午包粽子话融合
+# 全球最高端的飞机 “收债人”，正在批量回收精神航空客机
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社苏州6月19日电 (记者 徐珊珊)6月19日，农历五月初五端午节。苏州近150位两岸婚姻家庭成员聚在一起，包粽子、做香囊、赛旱地龙舟，在艾草的芬芳与粽子的甜香中庆祝中华民族的传统佳节。 祖籍苏州的台北女生陈晓文还记得：“小时候，每到端午节家里常去台北的南门市场买湖州粽。” 成年后，陈晓文回到祖辈生活的苏州才知道，原来湖州就在苏州旁边。重新吃到湖州粽，令她感慨万千，“和在台
+航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。 彼时精神航空仍在正常运营、航班还在天上飞行。但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。 艾伦说：“我只有 6 个小时，紧急凑齐 20
 
 ## 正文
 
-中新社苏州6月19日电 (记者 徐珊珊)6月19日，农历五月初五端午节。
+航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？
 
-苏州近150位两岸婚姻家庭成员聚在一起，包粽子、做香囊、赛旱地龙舟，在艾草的芬芳与粽子的甜香中庆祝中华民族的传统佳节。
+” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。
 
-祖籍苏州的台北女生陈晓文还记得：“小时候，每到端午节家里常去台北的南门市场买湖州粽。
+彼时精神航空仍在正常运营、航班还在天上飞行。
 
-” 成年后，陈晓文回到祖辈生活的苏州才知道，原来湖州就在苏州旁边。
+但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。
 
-重新吃到湖州粽，令她感慨万千，“和在台湾吃的味道一样。
+艾伦说：“我只有 6 个小时，紧急凑齐 20 名飞行员。
 
-祖辈们在台湾吃湖州粽是思念家乡，我在苏州吃湖州粽也是思念家乡”。
+” 他创立的游牧航空集团，数月来一直在待命，密切关注精神航空的破产动向。
 
-如今，陈晓文和一位苏州男生组成了幸福的家庭。
+艾伦与联合创始人史蒂夫・乔尔达诺迅速组建飞行员队伍，其中大多是曾在精神航空任职的老员工。
 
-父母也从台湾到苏州定居，还学会了包苏式粽子。
+他们建了一个 WhatsApp 群组，很快扩充到 40 人。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 23:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 23:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 23:23 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 23:14 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 23:23 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 22:55 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 23:13 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 22:59 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 23:23 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 23:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 23:13 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 23:20 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 23:03 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 23:01 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 23:18 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 23:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 23:03 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 23:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 23:19 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:06 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/203708496529.shtml)
-- 2026-06-29 23:01 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/30800.shtml)
-- 2026-06-29 23:02 - [斗破苍穹](https://www.blog.minike.top/Article/details/640624.shtml)
-- 2026-06-29 23:11 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/30025754.shtml)
-- 2026-06-29 22:58 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/27264173.shtml)
-- 2026-06-29 22:56 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/09756.shtml)
-- 2026-06-29 23:17 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/61769.shtml)
-- 2026-06-29 23:05 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/506603.shtml)
-- 2026-06-29 22:59 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/15661641.shtml)
-- 2026-06-29 22:56 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/95434406282.shtml)
-- 2026-06-29 23:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/28125055.shtml)
-- 2026-06-29 23:07 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/004886256828.shtml)
-- 2026-06-29 22:56 - [金牌调解](https://www.share.kurohicncr.top/Article/details/1905540.shtml)
-- 2026-06-29 23:12 - [送你一朵小红花](https://www.share.minike.top/Article/details/79040.shtml)
-- 2026-06-29 23:10 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/85929.shtml)
+- 2026-06-29 23:11 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/181466585411.shtml)
+- 2026-06-29 23:29 - [一见倾心](https://www.share.kurohicncr.top/Article/details/8219627.shtml)
+- 2026-06-29 23:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/9391563081.shtml)
+- 2026-06-29 23:13 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/790367.shtml)
+- 2026-06-29 23:00 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/724288.shtml)
+- 2026-06-29 23:09 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/879437914909.shtml)
+- 2026-06-29 23:25 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/017636967736.shtml)
+- 2026-06-29 23:15 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/1455040.shtml)
+- 2026-06-29 23:21 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/8328643733.shtml)
+- 2026-06-29 23:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/11373.shtml)
+- 2026-06-29 23:05 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/82597359379.shtml)
+- 2026-06-29 23:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/05066690804.shtml)
+- 2026-06-29 23:11 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/96977524962.shtml)
+- 2026-06-29 23:27 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/6860484640.shtml)
+- 2026-06-29 23:18 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/190990729608.shtml)

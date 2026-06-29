@@ -1,57 +1,59 @@
-# 海南封关半年 离岛免税购物金额突破203亿元
+# 4月中国物流业景气指数小幅波动 市场预期向好
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？十届南博会，一叶清茶何以架起文明对话之桥？中国沙漠治理经验，如何与世界共享？人工智能如何向善而行？为什么不能总挖鼻孔？专家提醒淘
+中新社北京5月9日电 (记者 阮煜琳)中国物流与采购联合会9日发布数据显示，4月份，中国物流业景气指数为49.7%，较上月回落0.5个百分点。中国物流信息中心主任刘宇航认为，4月景气指数有所回落，有一定的节假日因素和前期开工进度的影响，从历史数据看属于正常波动。分项指数中，资金周转率指数、物流服务价格指数、固定资产投资完成额指数、从业人员指数、业务活动预期指数等指标均处于景气区
 
 ## 正文
 
-孔子为什么说“温故而知新”？
+中新社北京5月9日电 (记者 阮煜琳)中国物流与采购联合会9日发布数据显示，4月份，中国物流业景气指数为49.7%，较上月回落0.5个百分点。
 
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
+中国物流信息中心主任刘宇航认为，4月景气指数有所回落，有一定的节假日因素和前期开工进度的影响，从历史数据看属于正常波动。
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+分项指数中，资金周转率指数、物流服务价格指数、固定资产投资完成额指数、从业人员指数、业务活动预期指数等指标均处于景气区间。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+新订单指数、资金周转率指数、物流服务价格指数、主营业务利润指数、固定资产投资完成额指数、从业人员指数和业务活动预期指数环比回升，反映出近两个月上下游需求联动效率提升，物流供应链各环节有效畅通，企业在韧性经营的基础上保持较为乐观预期。
 
-中国沙漠治理经验，如何与世界共享？
+据中国物流信息中心副总经济师胡焓介绍，4月，从业人员指数为50.1%，连续两个月回升。
 
-人工智能如何向善而行？
+物流固定资产投资加速增长，固定资产投资完成额指数为53.7%，环比回升2.3个百分点。
 
-为什么不能总挖鼻孔？
+业务活动预期指数为56.3%，连续四个月保持在景气区间，反映出企业对后期市场保持稳定预期。
 
-专家提醒淘宝闪购、美团、京东外卖回应国家规范补贴行为：坚决拥护深化金融改革强监管 为全球注入更多确定性冲刺百万亿，服务业高质量发展提速用AI做旅游攻略：“被忽悠白花了1000块钱”“特种兵式”参赛的伊朗队，美加墨世界杯之旅有多难？
+刘宇航认为，尽管面临一系列内外部压力和冲击，企业仍保持韧性经营，人员岗位数量和投资稳定增长，特别是数智供应链、智能化、低碳绿色物流等新质生产力投资意向较强。
 
 ## 相关推荐
 
-- 2026-06-29 23:02 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 23:06 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 23:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 22:56 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 23:13 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 23:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 22:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 23:05 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 23:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 23:17 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 23:10 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 23:04 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 23:17 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 23:16 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 23:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 23:24 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 23:27 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 23:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 23:10 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 23:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 23:11 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 23:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 23:21 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 23:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:13 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/73783365490.shtml)
-- 2026-06-29 22:56 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/48267949586.shtml)
-- 2026-06-29 23:22 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/22283900066.shtml)
-- 2026-06-29 23:17 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/83360392.shtml)
-- 2026-06-29 23:23 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/057791.shtml)
-- 2026-06-29 23:14 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/96006130426.shtml)
-- 2026-06-29 23:21 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/99378652629.shtml)
-- 2026-06-29 23:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/2241250.shtml)
-- 2026-06-29 23:12 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/9367717246.shtml)
-- 2026-06-29 23:12 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/974569510.shtml)
-- 2026-06-29 23:04 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/070514.shtml)
-- 2026-06-29 23:16 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/17918682541.shtml)
-- 2026-06-29 23:18 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/1349152.shtml)
-- 2026-06-29 23:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/515439662.shtml)
-- 2026-06-29 23:05 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/588562685.shtml)
+- 2026-06-29 23:18 - [啊啊啊](https://www.blog.minike.top/Article/details/78116023.shtml)
+- 2026-06-29 23:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/7838090867.shtml)
+- 2026-06-29 23:15 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/082394.shtml)
+- 2026-06-29 23:24 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/601898.shtml)
+- 2026-06-29 23:08 - [炽夏](https://www.blog.minike.top/Article/details/14446.shtml)
+- 2026-06-29 23:02 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/8732911056.shtml)
+- 2026-06-29 23:09 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/12219.shtml)
+- 2026-06-29 23:27 - [恋与深空 日服](https://www.share.minike.top/Article/details/4685351734.shtml)
+- 2026-06-29 23:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/1781889485.shtml)
+- 2026-06-29 23:15 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/398981503.shtml)
+- 2026-06-29 23:07 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/70162791539.shtml)
+- 2026-06-29 23:19 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/761751.shtml)
+- 2026-06-29 23:26 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/16150218.shtml)
+- 2026-06-29 23:00 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/519339112.shtml)
+- 2026-06-29 23:27 - [爱很美味](http://www.blog.minike.top/Article/details/08057440.shtml)

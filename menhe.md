@@ -1,56 +1,60 @@
-# 高考招生季 警惕志愿填报骗局
+# 高盛下调CNH Industrial评级：股价大涨后估值已趋合理
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-@家长考生 高考招生季 警惕志愿填报骗局 高考不久前落下帷幕，志愿填报又成为许多家庭的头等大事。但每到此时，随之出现的一些志愿填报相关的市场乱象，也可能给考生及家长造成困扰、财产损失，甚至对志愿填报产生误导。 以往常见的“内部名额”“低分补录”等骗局虽然已经被广泛揭露并依法打击，但类似的现象并没有消失。高考志愿填报市场的相关问题，更是近期消费投诉热点，相关话术如何精准“拿捏”考
+高盛周一发布研报，将凯斯纽荷兰工业（CNH Industrial）股票评级从“买入”下调至“中性”，并将目标价从12美元下调至10.50美元。该股上周五收于10.96美元，已高于新目标价。 高盛分析师Daniela Costa指出，此次降级主要基于两大原因：其一，自高盛2026年1月上调该股评级以来，CNH累计回报率已达17.2%，跑赢行业平均；其二，当前北美农业需求持续低迷，
 
 ## 正文
 
-@家长考生 高考招生季 警惕志愿填报骗局 高考不久前落下帷幕，志愿填报又成为许多家庭的头等大事。
+高盛周一发布研报，将凯斯纽荷兰工业（CNH Industrial）股票评级从“买入”下调至“中性”，并将目标价从12美元下调至10.50美元。
 
-但每到此时，随之出现的一些志愿填报相关的市场乱象，也可能给考生及家长造成困扰、财产损失，甚至对志愿填报产生误导。
+该股上周五收于10.96美元，已高于新目标价。
 
-以往常见的“内部名额”“低分补录”等骗局虽然已经被广泛揭露并依法打击，但类似的现象并没有消失。
+高盛分析师Daniela Costa指出，此次降级主要基于两大原因：其一，自高盛2026年1月上调该股评级以来，CNH累计回报率已达17.2%，跑赢行业平均；其二，当前北美农业需求持续低迷，叠加关税压力增大、欧洲建筑业复苏停滞等多重利空，该股估值已趋合理。
 
-高考志愿填报市场的相关问题，更是近期消费投诉热点，相关话术如何精准“拿捏”考生与家长的焦虑心理？
+财报显示，CNH 2026年第一季度净利润同比暴跌92%至1000万美元，每股收益仅0.01美元，但股价却在业绩发布后逆势上涨8%。
 
-还有哪些骗局需要警惕？
+分析人士认为，这与市场对库存正常化、政府补贴等利好因素的乐观预期有关。
 
-根据网络搜索，记者联系到一家提供高考志愿咨询服务的培训机构。
+尽管一季度表现疲软，CNH管理层重申全年每股收益指引为0.35至0.45美元，并将一季度定位为当前农业周期的低谷。
 
-相关工作人员介绍，高考志愿咨询服务共分为三个档次，分别为一万多到两万多不等。
+然而，高盛已将公司2026年EBIT预测下调7%，较市场一致预期低24%，显示其对公司复苏前景持更为谨慎的态度。
 
-而问到这些老师的资质，工作人员表示：线下给家长展示。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 23:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 23:13 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 23:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 23:09 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 22:56 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 23:08 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 22:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 23:18 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 23:17 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 22:58 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 23:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 23:00 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 23:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 23:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 23:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 23:12 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 23:02 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 23:15 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 23:19 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 23:13 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 23:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 23:23 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 23:02 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 23:22 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/54539691.shtml)
-- 2026-06-29 23:07 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/83412074.shtml)
-- 2026-06-29 23:18 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/51101.shtml)
-- 2026-06-29 23:15 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/6816100.shtml)
-- 2026-06-29 23:20 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/32031.shtml)
-- 2026-06-29 23:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/49587.shtml)
-- 2026-06-29 23:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/904243194951.shtml)
-- 2026-06-29 23:15 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/3062890.shtml)
-- 2026-06-29 23:01 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/642805272663.shtml)
-- 2026-06-29 22:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/967626077.shtml)
-- 2026-06-29 23:19 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/694782.shtml)
-- 2026-06-29 23:06 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/871119917.shtml)
-- 2026-06-29 22:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/9596395.shtml)
-- 2026-06-29 23:20 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/9705969730.shtml)
-- 2026-06-29 23:13 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/390510.shtml)
+- 2026-06-29 23:08 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/574992186.shtml)
+- 2026-06-29 23:06 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/7012732.shtml)
+- 2026-06-29 23:06 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/7269807430.shtml)
+- 2026-06-29 23:05 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/2393838641.shtml)
+- 2026-06-29 23:06 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/59017705801.shtml)
+- 2026-06-29 23:29 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/715715.shtml)
+- 2026-06-29 23:10 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/6911994260.shtml)
+- 2026-06-29 23:11 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/39733.shtml)
+- 2026-06-29 23:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/96392924095.shtml)
+- 2026-06-29 23:21 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/723234.shtml)
+- 2026-06-29 23:16 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/508992469788.shtml)
+- 2026-06-29 23:13 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/951075364166.shtml)
+- 2026-06-29 23:05 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/69972774644.shtml)
+- 2026-06-29 23:07 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/05095258869.shtml)
+- 2026-06-29 23:20 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/44409260.shtml)

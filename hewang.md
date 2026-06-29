@@ -1,56 +1,48 @@
-# 韩国圆光大学举办2026联合学术会议
+# 全国注册护士总量达606.2万人
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网首尔6月19日电 (记者 金旭)当地时间6月18日，以“新时代大转型背景下的韩中合作”为主题的“2026联合学术会议”在韩国圆光大学举行。韩国各界专家、学者齐聚一堂，共同就两国合作与交流展开深入研讨。 本次会议由韩国圆光大学韩中关系研究院、中国驻光州总领事馆、韩国现代中国学会及圆光大学孔子学院联合主办，旨在探讨两国关系发展的新方向与未来愿景。 中国驻光州总领事顾景奇在会上
+国际护士节即将到来。国家卫生健康委5月11日公布，截至2025年底，全国注册护士总量达到606.2万人，较2020年增加约135万人，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人，具有大专以上学历护士占比超过80%。 记者：李恒 海报制作：李恒 新华社国内部出品
 
 ## 正文
 
-中新网首尔6月19日电 (记者 金旭)当地时间6月18日，以“新时代大转型背景下的韩中合作”为主题的“2026联合学术会议”在韩国圆光大学举行。
+国际护士节即将到来。
 
-韩国各界专家、学者齐聚一堂，共同就两国合作与交流展开深入研讨。
+国家卫生健康委5月11日公布，截至2025年底，全国注册护士总量达到606.2万人，较2020年增加约135万人，增幅约29%，每千人口注册护士数从2020年的3.34人提升至2025年的4.32人，具有大专以上学历护士占比超过80%。
 
-本次会议由韩国圆光大学韩中关系研究院、中国驻光州总领事馆、韩国现代中国学会及圆光大学孔子学院联合主办，旨在探讨两国关系发展的新方向与未来愿景。
-
-中国驻光州总领事顾景奇在会上发表主旨演讲。
-
-他强调，在国际局势深刻变化的背景下，中韩两国应进一步增进互信、扩展合作领域，共同推进双边关系持续健康发展。
-
-本次会议设置政治外交、青年、经济贸易与科技、人文交流四个专题分论坛，围绕两国关系面临的诸多重要议题展开深入讨论。
-
-韩国圆光大学韩中关系研究院院长柳智元表示，本次学术会议从多维度审视韩中关系未来发展，是探索务实合作路径的一次重要学术活动。
-
-今后研究院将继续通过学术交流与政策研究为两国关系的发展贡献智慧和力量。
+记者：李恒 海报制作：李恒 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 23:17 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 22:54 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 23:17 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 23:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 23:03 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 22:58 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 23:01 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 23:15 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 23:04 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 23:00 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 23:17 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 23:06 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 23:14 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 23:13 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 23:10 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 23:05 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 23:20 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 23:04 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 23:13 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 23:02 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 23:26 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/72889575.shtml)
-- 2026-06-29 23:17 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/7675619.shtml)
-- 2026-06-29 23:09 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/4670231.shtml)
-- 2026-06-29 23:01 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/372969658941.shtml)
-- 2026-06-29 23:05 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/54861.shtml)
-- 2026-06-29 23:02 - [周生如故](https://www.blog.kurohicncr.top/Article/details/956153776314.shtml)
-- 2026-06-29 23:03 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/8027010.shtml)
-- 2026-06-29 23:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/60641647.shtml)
-- 2026-06-29 22:54 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/08473845.shtml)
-- 2026-06-29 23:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/0020818211.shtml)
-- 2026-06-29 22:56 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/1722062.shtml)
-- 2026-06-29 22:54 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/59895.shtml)
-- 2026-06-29 23:02 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/0121273.shtml)
-- 2026-06-29 22:58 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/8200885740.shtml)
-- 2026-06-29 23:01 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/618739.shtml)
+- 2026-06-29 23:28 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/1829564925.shtml)
+- 2026-06-29 23:16 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/46533325.shtml)
+- 2026-06-29 23:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/639824875549.shtml)
+- 2026-06-29 23:25 - [恋与深空致歉](http://www.share.kurohicncr.top/Article/details/0010597440.shtml)
+- 2026-06-29 23:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/7314068.shtml)
+- 2026-06-29 23:16 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/99028.shtml)
+- 2026-06-29 23:13 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/8545501287.shtml)
+- 2026-06-29 23:25 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/9010963.shtml)
+- 2026-06-29 23:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/24141.shtml)
+- 2026-06-29 23:24 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/145758.shtml)
+- 2026-06-29 23:17 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/9710270.shtml)
+- 2026-06-29 23:10 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/889457209.shtml)
+- 2026-06-29 23:10 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/741521567.shtml)
+- 2026-06-29 23:23 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/469897724336.shtml)
+- 2026-06-29 23:11 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/53817680.shtml)

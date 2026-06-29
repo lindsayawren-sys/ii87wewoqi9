@@ -1,60 +1,59 @@
-# RYOEX:欧洲油储安排仍留余地
+# AI投资的下半场机会在哪？创业板人工智能ETF华宝（159363）基金经理干货分享
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-6月19日，尽管国际油价已经自高位回落，欧洲方面对能源安全的警惕并未完全消退。RYOEX表示，德国正在评估是否延长临时性的石油储备豁免安排，这说明价格回落并没有立刻消除对供应恢复节奏的担忧。 从政策信号看，RYOEX认为更关键的不是是否存在现实短缺，而是官方仍在为潜在波动保留缓冲空间。航运恢复、保险重启与部分停产产能回归都需要时间，因此欧洲能源系统仍希望维持更高的安全边际。 这
+（来源：ETF万亿指数） 近日，在朝阳永续向日葵聚会上，华宝基金指数研发投资部基金经理曹旭辰分享了一个很有意思的判断： AI产业已经从“算力有没有”阶段，逐渐进入“应用怎么落地”的深度博弈阶段。 过去两年，市场对AI最大的共识，是GPU、光模块、服务器、电力等“卖铲人”环节的高景气；而未来真正拉开差距的，可能不再是谁拥有更多算力，而是谁能把AI真正变成产品、用户和现金流。 从这
 
 ## 正文
 
-6月19日，尽管国际油价已经自高位回落，欧洲方面对能源安全的警惕并未完全消退。
+（来源：ETF万亿指数） 近日，在朝阳永续向日葵聚会上，华宝基金指数研发投资部基金经理曹旭辰分享了一个很有意思的判断： AI产业已经从“算力有没有”阶段，逐渐进入“应用怎么落地”的深度博弈阶段。
 
-RYOEX表示，德国正在评估是否延长临时性的石油储备豁免安排，这说明价格回落并没有立刻消除对供应恢复节奏的担忧。
+过去两年，市场对AI最大的共识，是GPU、光模块、服务器、电力等“卖铲人”环节的高景气；而未来真正拉开差距的，可能不再是谁拥有更多算力，而是谁能把AI真正变成产品、用户和现金流。
 
-从政策信号看，RYOEX认为更关键的不是是否存在现实短缺，而是官方仍在为潜在波动保留缓冲空间。
+从这个角度看，AI产业正在经历一次典型的科技周期迁移。
 
-航运恢复、保险重启与部分停产产能回归都需要时间，因此欧洲能源系统仍希望维持更高的安全边际。
+前半程，硬件定义产业；后半程，应用决定赢家。
 
-这类安排也反映出，原油市场当前的价格修正更多是预期先行，而实物流动改善还在验证过程中。
+而这，也是本轮AI行情最值得重视的变化。
 
-若后续运输与库存恢复不及预期，市场对宽松供应的定价可能再度被修正。
+01 算力：仍然是AI时代最确定的主线 曹旭辰在分享中提到，过去三年，GPU是整个半导体产业“最锋利的剑”。
 
-整体而言，RYOEX预计油市短线虽受情绪缓和影响而偏弱，但欧洲储备政策仍会成为观察供给恢复是否扎实的重要窗口，后续波动率可能继续保持在偏高水平。
+从A100、H100，到GB200、未来的Rubin架构，英伟达几乎以一年一次的大迭代节奏推动AI基础设施升级。
 
-责任编辑：陈平
+本轮AI与过去互联网最大的不同，在于大模型能力提升，本质上仍然依赖“堆算力”。
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 23:23 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 22:58 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 23:23 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 23:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 23:19 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 22:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 23:22 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 23:05 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 23:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 23:04 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 22:59 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 23:04 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 23:16 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 23:05 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 23:04 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 23:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 23:16 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 23:18 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 23:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 23:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 23:08 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 23:04 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 23:03 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 23:27 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 23:11 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:18 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/3819847145.shtml)
-- 2026-06-29 22:56 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/9610637435.shtml)
-- 2026-06-29 23:13 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/944075971.shtml)
-- 2026-06-29 22:59 - [起风了](http://www.share.minike.top/Article/details/53247.shtml)
-- 2026-06-29 23:15 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/68392171.shtml)
-- 2026-06-29 23:20 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/496319697.shtml)
-- 2026-06-29 23:05 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/54988313494.shtml)
-- 2026-06-29 22:55 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/68964839.shtml)
-- 2026-06-29 22:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/8024444.shtml)
-- 2026-06-29 22:54 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/8215191228.shtml)
-- 2026-06-29 23:22 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/63577251303.shtml)
-- 2026-06-29 22:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/9762109.shtml)
-- 2026-06-29 23:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/67080.shtml)
-- 2026-06-29 23:13 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/47767.shtml)
-- 2026-06-29 23:01 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/6368763.shtml)
+- 2026-06-29 23:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/784312074846.shtml)
+- 2026-06-29 23:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/40667.shtml)
+- 2026-06-29 23:21 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/17047548390.shtml)
+- 2026-06-29 23:00 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/67903.shtml)
+- 2026-06-29 23:03 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/0027960087.shtml)
+- 2026-06-29 23:02 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/319976.shtml)
+- 2026-06-29 23:03 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/045837519.shtml)
+- 2026-06-29 23:21 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/9465881.shtml)
+- 2026-06-29 23:21 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/06900404.shtml)
+- 2026-06-29 23:20 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/76819.shtml)
+- 2026-06-29 23:09 - [周生如故](http://www.blog.minike.top/Article/details/961662538288.shtml)
+- 2026-06-29 23:02 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/88938112.shtml)
+- 2026-06-29 23:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/795833.shtml)
+- 2026-06-29 23:05 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/94133384028.shtml)
+- 2026-06-29 23:05 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/375142860514.shtml)

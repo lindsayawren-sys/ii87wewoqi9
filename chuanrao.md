@@ -1,61 +1,60 @@
-# 深夜，全线拉升！利好突袭，芯片巨头暴涨！
+# 长三角初夏“热情”高涨 多地最高温冲刺35℃
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！芯片股继续大涨。 当地时间6月18日，美股三大指数集体高开，截至发稿，道指涨0.62%，纳指涨0.88%，标普500指数涨0.83%。 芯片股集体大涨，费城半导体指数涨超5%。 英特尔一度涨近12%。消息面上，美国总统特朗普宣布，苹果将与英特尔合作进行芯片设计和生产。特朗普在社交平台上发文称，苹果已同意与英
+中新社南京5月9日电 (记者 徐珊珊)随着冷空气影响消退，9日起，沪苏浙皖多地开启升温通道，预计12日至13日迎来本轮升温顶峰，多地最高气温将向35℃高温线发起冲刺。 9日白天，阳光已在长三角多地“上岗”。上海上午升温启动，徐家汇站最高气温达24.8℃；江苏气温稳步上扬，晴好天气为持续升温“预热”；浙江早晚凉意犹存，但白天的热度已明显升级。 10日起，多地升温将进入快车道。浙江
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社南京5月9日电 (记者 徐珊珊)随着冷空气影响消退，9日起，沪苏浙皖多地开启升温通道，预计12日至13日迎来本轮升温顶峰，多地最高气温将向35℃高温线发起冲刺。
 
-芯片股继续大涨。
+9日白天，阳光已在长三角多地“上岗”。
 
-当地时间6月18日，美股三大指数集体高开，截至发稿，道指涨0.62%，纳指涨0.88%，标普500指数涨0.83%。
+上海上午升温启动，徐家汇站最高气温达24.8℃；江苏气温稳步上扬，晴好天气为持续升温“预热”；浙江早晚凉意犹存，但白天的热度已明显升级。
 
-芯片股集体大涨，费城半导体指数涨超5%。
+10日起，多地升温将进入快车道。
 
-英特尔一度涨近12%。
+浙江大部分地区预计12日至13日最高气温可达30℃至34℃；江苏多个城市最高气温将触及35℃高温线；安徽部分地区11日至13日最高气温将达33℃至36℃。
 
-消息面上，美国总统特朗普宣布，苹果将与英特尔合作进行芯片设计和生产。
+不过，这份“热情”并不持久，受雨水影响，升温过程将暂缓。
 
-特朗普在社交平台上发文称，苹果已同意与英特尔合作，在美国境内设计并生产芯片。
+13日至16日安徽南部多降水，上海预计14日夜间有小雨。
 
-特朗普还表示：“我们引入了英伟达，他们同意与英特尔合作制造他们的第一层级芯片。
+气象预报显示，未来10天，江南东部降水量较常年偏多，昼夜温差较大。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 23:18 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 22:56 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 22:54 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 23:20 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 23:10 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 22:55 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 23:17 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-29 23:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 23:13 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 23:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 23:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 23:15 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 23:10 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 23:18 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 23:20 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 23:16 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 23:13 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 23:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 23:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 23:27 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 23:28 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 23:11 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 23:07 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 23:28 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 23:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 23:21 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 23:30 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 23:23 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/18762484061.shtml)
-- 2026-06-29 23:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/070526601971.shtml)
-- 2026-06-29 23:08 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/44414738022.shtml)
-- 2026-06-29 22:55 - [恋与深空回应争议](https://www.share.minike.top/Article/details/644831.shtml)
-- 2026-06-29 22:59 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/345309531.shtml)
-- 2026-06-29 22:58 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/939870.shtml)
-- 2026-06-29 23:01 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/00416.shtml)
-- 2026-06-29 23:19 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/340076607558.shtml)
-- 2026-06-29 23:00 - [恋与深空 巧合](https://www.share.minike.top/Article/details/308319116862.shtml)
-- 2026-06-29 23:08 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/9476594.shtml)
-- 2026-06-29 23:02 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/30743.shtml)
-- 2026-06-29 23:04 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/80156124.shtml)
-- 2026-06-29 23:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/75090.shtml)
-- 2026-06-29 23:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/329067192547.shtml)
-- 2026-06-29 23:19 - [一见倾心](http://www.share.minike.top/Article/details/619997923087.shtml)
+- 2026-06-29 23:02 - [我和我的家乡](http://www.share.minike.top/Article/details/955516.shtml)
+- 2026-06-29 23:17 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/094478.shtml)
+- 2026-06-29 23:28 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/3105865.shtml)
+- 2026-06-29 23:27 - [一生一世](http://www.share.minike.top/Article/details/20737986485.shtml)
+- 2026-06-29 23:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/82249349.shtml)
+- 2026-06-29 23:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/71428268.shtml)
+- 2026-06-29 23:21 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/136408359365.shtml)
+- 2026-06-29 23:20 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/573703465.shtml)
+- 2026-06-29 23:18 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/205714159.shtml)
+- 2026-06-29 23:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/762190.shtml)
+- 2026-06-29 23:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/6652579.shtml)
+- 2026-06-29 23:14 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/3938433804.shtml)
+- 2026-06-29 23:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/993945398.shtml)
+- 2026-06-29 23:16 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/16587999.shtml)
+- 2026-06-29 23:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/459791169.shtml)

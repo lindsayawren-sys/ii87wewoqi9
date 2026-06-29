@@ -1,55 +1,55 @@
-# 海外女主持参加伏羲大典感叹：天水麻辣烫可太火了！
+# 商务部新闻发言人就中美经贸磋商有关问题答记者问
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 07:30 来源：中国新闻网 6月21日，2026年(丙午)公祭中华人文始祖伏羲大典在甘肃天水市一场连绵雨水中举行。天水是伏羲的诞生地、伏羲文化的发祥地，当地自古以来就有祭祀伏羲的传统。2006年，“太昊伏羲祭典”入选首批中国国家级非物质文化遗产名录。 新西兰华人电视台主持人谢芳殊说，天水麻辣烫在新西兰很有知名度，当地人不仅关注中国发展速度，近
+央视网消息：据商务部网站消息，5月10日，商务部新闻发言人就中美经贸磋商有关问题答记者问。 有记者问：近期有消息称，中美双方将很快举行下一轮经贸磋商，请问商务部是否有最新消息？ 答：经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。责任编辑：李
 
 ## 正文
 
-发布时间：2026年06月22日 07:30 来源：中国新闻网 6月21日，2026年(丙午)公祭中华人文始祖伏羲大典在甘肃天水市一场连绵雨水中举行。
+央视网消息：据商务部网站消息，5月10日，商务部新闻发言人就中美经贸磋商有关问题答记者问。
 
-天水是伏羲的诞生地、伏羲文化的发祥地，当地自古以来就有祭祀伏羲的传统。
+有记者问：近期有消息称，中美双方将很快举行下一轮经贸磋商，请问商务部是否有最新消息？
 
-2006年，“太昊伏羲祭典”入选首批中国国家级非物质文化遗产名录。
+答：经中美双方商定，中共中央政治局委员、国务院副总理何立峰将于5月12日—13日率团赴韩国与美方举行经贸磋商。
 
-新西兰华人电视台主持人谢芳殊说，天水麻辣烫在新西兰很有知名度，当地人不仅关注中国发展速度，近年更开始热衷于使用枸杞、拔火罐、做针灸等中式养生。
+双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。
 
-他们体验到中医养生舒适感，但不知其源头在于阴阳八卦及伏羲文化，未来将从美食、养生为切入口，在海外深入推广其文化内涵。
-
-(田鹏鹤 李亚龙 部分视频来源 天水市融媒体中心） 责任编辑：【陈海峰】
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 23:19 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 23:18 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 23:20 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 23:08 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 23:18 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 23:14 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 23:00 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 22:58 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 23:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 23:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 23:07 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 22:56 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 23:08 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 23:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 23:01 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 23:27 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 23:03 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 23:15 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 23:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 23:01 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 23:04 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 23:16 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 23:19 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 23:05 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 23:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 23:08 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 23:19 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [第一炉香](http://www.share.minike.top/Article/details/01596.shtml)
-- 2026-06-29 23:15 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/7343673883.shtml)
-- 2026-06-29 23:21 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/85090476874.shtml)
-- 2026-06-29 23:12 - [爱很美味](https://www.share.minike.top/Article/details/872305852830.shtml)
-- 2026-06-29 23:00 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/518693.shtml)
-- 2026-06-29 23:19 - [逃狱兄弟](http://www.share.minike.top/Article/details/1643147367.shtml)
-- 2026-06-29 23:06 - [炽夏](http://www.share.kurohicncr.top/Article/details/51048800.shtml)
-- 2026-06-29 23:02 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/26590443.shtml)
-- 2026-06-29 22:55 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/2890782069.shtml)
-- 2026-06-29 23:22 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/719350148.shtml)
-- 2026-06-29 22:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/2589803899.shtml)
-- 2026-06-29 23:13 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/89365.shtml)
-- 2026-06-29 23:15 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/225035610772.shtml)
-- 2026-06-29 22:59 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/34684625189.shtml)
-- 2026-06-29 23:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/97495809551.shtml)
+- 2026-06-29 23:05 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/467178.shtml)
+- 2026-06-29 23:11 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/2912426.shtml)
+- 2026-06-29 23:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/060057540537.shtml)
+- 2026-06-29 23:27 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/15283805.shtml)
+- 2026-06-29 23:08 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.minike.top/Article/details/404125.shtml)
+- 2026-06-29 23:23 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/857120.shtml)
+- 2026-06-29 23:23 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/773119288.shtml)
+- 2026-06-29 23:19 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/18053.shtml)
+- 2026-06-29 23:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/26341871.shtml)
+- 2026-06-29 23:02 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/57828475.shtml)
+- 2026-06-29 23:20 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/87190046.shtml)
+- 2026-06-29 23:16 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/1483227.shtml)
+- 2026-06-29 23:17 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/676563342.shtml)
+- 2026-06-29 23:19 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/628776342214.shtml)
+- 2026-06-29 23:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/460731891315.shtml)

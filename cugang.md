@@ -1,55 +1,58 @@
-# 成都警方通报男子虐猫：已依法给予行政处罚
+# 母亲节催热“带妈游”，两代人怎么玩更融洽？
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网6月21日电 据“成都武侯公安”微信公众号消息，成都市公安局武侯区分局21日发布警情通报称，6月19日22时37分，成都市公安局武侯区分局接群众报警称，其饲养的一只猫被他人伤害。接警后，成都市公安局武侯区分局经工作，于6月20日上午将涉事男子雷某某(25岁)依法传唤至公安机关接受调查。 经查，雷某某于6月19日晚对猫实施了伤害行为，致使猫尾部受伤，目前已得到妥善救治。调查
+中新网哈尔滨5月10日电 题：母亲节催热“带妈游”，两代人怎么玩更融洽？ 中新网记者 王琳 5月10日是母亲节，多家在线旅游平台的“带妈游”订单量增长。“妈妈，你愿意跟孩子一起旅游吗？”记者在哈尔滨松花江畔采访，许多妈妈表示“两代人出游有代沟”，社交网络平台热议“怎么玩更融洽”。 在康乃馨盛放的母亲节，一场由“妈妈团”主导的“后五一”错峰游悄然升温。某在线旅游平台数据显示，“银
 
 ## 正文
 
-中新网6月21日电 据“成都武侯公安”微信公众号消息，成都市公安局武侯区分局21日发布警情通报称，6月19日22时37分，成都市公安局武侯区分局接群众报警称，其饲养的一只猫被他人伤害。
+中新网哈尔滨5月10日电 题：母亲节催热“带妈游”，两代人怎么玩更融洽？
 
-接警后，成都市公安局武侯区分局经工作，于6月20日上午将涉事男子雷某某(25岁)依法传唤至公安机关接受调查。
+中新网记者 王琳 5月10日是母亲节，多家在线旅游平台的“带妈游”订单量增长。
 
-经查，雷某某于6月19日晚对猫实施了伤害行为，致使猫尾部受伤，目前已得到妥善救治。
+“妈妈，你愿意跟孩子一起旅游吗？
 
-调查期间，雷某某表示悔过并表达歉意，取得谅解。
+”记者在哈尔滨松花江畔采访，许多妈妈表示“两代人出游有代沟”，社交网络平台热议“怎么玩更融洽”。
 
-根据《中华人民共和国治安管理处罚法》相关规定，成都市公安局武侯区分局已依法给予雷某某行政处罚。
+在康乃馨盛放的母亲节，一场由“妈妈团”主导的“后五一”错峰游悄然升温。
+
+某在线旅游平台数据显示，“银发族”跟团游产品预订热度增长显著，以上海、贵阳、昆明等为目的地的线路预订热度较上月同期增幅均超过100%。
+
+妈妈们偏爱“组团出游”，两人结伴的机票订单环比上月增长超过20%；园林式度假酒店、温泉康养酒店等成为“妈妈团”的热门首选；自然山水与人文古迹更受“妈妈团”偏爱，长江三峡邮轮等产品相关预订热度环比上月显著攀升。
+
+在“妈妈团”中，有子女代为预订的，也有两代人一同出行的，年轻网友吐槽“玩儿不到一块去”，也有妈妈们表达心声……67岁的哈尔滨市民王庆丽说：“我们当然愿意跟孩子出去玩了，但是两代人的消费观念、生活习惯都不一样，有时候难免吵架。
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 22:56 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 22:55 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 23:01 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 22:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 23:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 23:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 23:20 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 23:22 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 23:15 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 23:15 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 22:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 22:57 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 23:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 23:01 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 23:00 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 23:20 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 23:10 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 23:13 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 23:28 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 23:07 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 23:02 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 23:21 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 23:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 23:11 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 23:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-29 23:09 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:17 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/178533.shtml)
-- 2026-06-29 23:07 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/88598.shtml)
-- 2026-06-29 22:55 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/725097312.shtml)
-- 2026-06-29 23:01 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/580625205806.shtml)
-- 2026-06-29 22:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/9881915.shtml)
-- 2026-06-29 23:07 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/54887818.shtml)
-- 2026-06-29 22:57 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/00576750869.shtml)
-- 2026-06-29 23:11 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/9725391.shtml)
-- 2026-06-29 23:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/70411833.shtml)
-- 2026-06-29 23:17 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/55150.shtml)
-- 2026-06-29 23:09 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/8647093464.shtml)
-- 2026-06-29 23:17 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/584792640.shtml)
-- 2026-06-29 23:08 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/0103093.shtml)
-- 2026-06-29 23:22 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/67119058848.shtml)
-- 2026-06-29 23:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/3146439.shtml)
+- 2026-06-29 23:15 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/82119535540.shtml)
+- 2026-06-29 23:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/83726917665.shtml)
+- 2026-06-29 23:26 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/44988816.shtml)
+- 2026-06-29 23:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/9802866719.shtml)
+- 2026-06-29 23:22 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/9785613.shtml)
+- 2026-06-29 23:06 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/28667.shtml)
+- 2026-06-29 23:08 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/90205459587.shtml)
+- 2026-06-29 23:05 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/6666437187.shtml)
+- 2026-06-29 23:22 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/120427277.shtml)
+- 2026-06-29 23:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/8355297.shtml)
+- 2026-06-29 23:25 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/356979.shtml)
+- 2026-06-29 23:11 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/1370321437.shtml)
+- 2026-06-29 23:02 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/29747398.shtml)
+- 2026-06-29 23:29 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/785301401427.shtml)
+- 2026-06-29 23:29 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/09690281423.shtml)

@@ -1,54 +1,56 @@
-# 警方通报：黄子韬违停、非法改装车辆被罚
+# 大跌37%，金饰卖不动了
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-据@新华社，北京警方通报黄子韬违停，查处其交通违法和非法改装车行为。 近日，@北京交警接到群众举报，在朝阳区将台西路，一辆悬挂外埠号牌的小客车涉嫌违法停车。接到举报后，北京交警迅速开展工作，将该车及驾驶人查获。经查，驾驶人黄某某（男，33岁）因违反停车规定、违反禁令标志指示及改变车身颜色未按照规定时限办理变更登记的违法行为，已被交管部门依法给予行政处罚。针对现场附近其他车辆交通
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者丨曾静娇 吴金铎 编辑丨陆跃玲 金条金币热卖，金饰不香了？ 5月9日，据中国黄金协会最新发文，受国际金价高位运行且大幅波动的影响，一季度国内黄金首饰消费持续承压，黄金首饰消费量继续下滑。与此同时，黄金投资需求强劲，金条、金币成为市场热门投资品类，银行销售渠道金条销量大幅增长。 具体来看，2026年一季度
 
 ## 正文
 
-据@新华社，北京警方通报黄子韬违停，查处其交通违法和非法改装车行为。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近日，@北京交警接到群众举报，在朝阳区将台西路，一辆悬挂外埠号牌的小客车涉嫌违法停车。
+作者丨曾静娇 吴金铎 编辑丨陆跃玲 金条金币热卖，金饰不香了？
 
-接到举报后，北京交警迅速开展工作，将该车及驾驶人查获。
+5月9日，据中国黄金协会最新发文，受国际金价高位运行且大幅波动的影响，一季度国内黄金首饰消费持续承压，黄金首饰消费量继续下滑。
 
-经查，驾驶人黄某某（男，33岁）因违反停车规定、违反禁令标志指示及改变车身颜色未按照规定时限办理变更登记的违法行为，已被交管部门依法给予行政处罚。
+与此同时，黄金投资需求强劲，金条、金币成为市场热门投资品类，银行销售渠道金条销量大幅增长。
 
-针对现场附近其他车辆交通违法情况，交管部门正在调查，将依法予以处理。
+具体来看，2026年一季度，我国黄金消费量303.292吨，同比增长4.41%。
 
-请广大交通参与者自觉遵规守法、文明驾车、规范停车，共同创造安全、有序、畅通的交通环境。
+其中：黄金首饰84.62吨，同比下降37.1%；金条及金币202.062吨，同比增长46.4%；工业及其他用金16.61吨，同比下降7.43%。
 
-来源：@北京交警 @新华社责任编辑：石秀珍 SF183
+国际金价方面，Wind数据显示，2026年一季度，现货黄金走势震荡，最高一度逼近5600美元/盎司，最低下探至4098美元/盎司，区间振幅高达34.75%，仍累计涨约8%。
+
+国内金饰方面，多家品牌金饰克价最新报价约1432元—1438元，其中周生生、老凤祥为1438元/克，周六福报1432元/克。
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 22:59 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 23:24 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 22:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 22:57 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 23:09 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 22:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 23:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 23:07 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 23:19 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 23:14 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 23:04 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 23:13 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 23:17 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 23:17 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 23:24 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 23:14 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 23:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 23:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 23:06 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:05 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/127894764.shtml)
-- 2026-06-29 22:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/62777.shtml)
-- 2026-06-29 23:18 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/312299.shtml)
-- 2026-06-29 23:23 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0263605884.shtml)
-- 2026-06-29 23:16 - [女心理师](http://www.blog.minike.top/Article/details/251546600163.shtml)
-- 2026-06-29 23:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/2468666013.shtml)
-- 2026-06-29 23:13 - [女心理师](https://www.blog.minike.top/Article/details/3735352.shtml)
-- 2026-06-29 23:14 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/5976956789.shtml)
-- 2026-06-29 23:21 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/59225.shtml)
-- 2026-06-29 22:58 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/5828319.shtml)
-- 2026-06-29 23:11 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/61919.shtml)
-- 2026-06-29 23:01 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/01203498158.shtml)
-- 2026-06-29 23:00 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/814665459.shtml)
-- 2026-06-29 23:16 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/0656518899.shtml)
-- 2026-06-29 23:22 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/52508.shtml)
+- 2026-06-29 23:03 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/392394586931.shtml)
+- 2026-06-29 23:04 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/17948178.shtml)
+- 2026-06-29 23:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/891405014.shtml)
+- 2026-06-29 23:12 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/55458.shtml)
+- 2026-06-29 23:29 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/91312622551.shtml)
+- 2026-06-29 23:08 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/2304824.shtml)
+- 2026-06-29 23:11 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/05988.shtml)
+- 2026-06-29 23:19 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/3825904557.shtml)
+- 2026-06-29 23:01 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/4978756.shtml)
+- 2026-06-29 23:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/0416401.shtml)
+- 2026-06-29 23:10 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/033029315163.shtml)
+- 2026-06-29 23:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/528172170378.shtml)
+- 2026-06-29 23:10 - [斗破苍穹](http://www.share.minike.top/Article/details/889700942938.shtml)
+- 2026-06-29 23:09 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/33748239.shtml)
+- 2026-06-29 23:21 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/240583547.shtml)

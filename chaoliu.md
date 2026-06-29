@@ -1,57 +1,58 @@
-# 粤港澳逾400名霹雳舞选手在深圳以“舞”会友
+# 元道通信（301139）收到处罚事先告知书，股民索赔已获法院立案
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网深圳6月21日电 (记者 张璐)“香港赛马会杯”2026年粤港澳大湾区霹雳舞比赛(简称“比赛”)20日至21日在深圳举行，来自粤港澳大湾区(简称“大湾区”)的400多名霹雳舞选手同台竞技，以“舞”会友。 主办方介绍，本次比赛设置七大竞赛组别，涵盖霹雳舞、自由舞蹈、双人对战、团体battle、齐舞等项目，细分U14青少年组与公开组。比赛不设地域、舞种、性别限制，适合不同年龄
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年5月8日晚，元道通信（维权）（301139）公告收到证监会出具的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，元道通信涉嫌的虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。 此前许峰律师代理的元道通信投资者索赔案
 
 ## 正文
 
-中新网深圳6月21日电 (记者 张璐)“香港赛马会杯”2026年粤港澳大湾区霹雳舞比赛(简称“比赛”)20日至21日在深圳举行，来自粤港澳大湾区(简称“大湾区”)的400多名霹雳舞选手同台竞技，以“舞”会友。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-主办方介绍，本次比赛设置七大竞赛组别，涵盖霹雳舞、自由舞蹈、双人对战、团体battle、齐舞等项目，细分U14青少年组与公开组。
+2026年5月8日晚，元道通信（维权）（301139）公告收到证监会出具的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，元道通信涉嫌的虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。
 
-比赛不设地域、舞种、性别限制，适合不同年龄段、不同水平的街舞爱好者参赛。
+此前许峰律师代理的元道通信投资者索赔案获得法院立案，目前正在等待法院的下一步安排。
 
-比赛采用专业百分制评分体系，从技巧、乐感、创意、完成度等多维度公正执裁，结合海选、一对一battle、团队对决、齐舞展演等规范赛制，根据参赛规模灵活调整赛程。
+律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-比赛现场，霹雳舞选手们风格多元、技艺娴熟，用流畅利落的动作、松弛自信的舞台状态，展现街舞自由热血、积极向上的运动魅力。
+（许峰律师专栏） 上述《行政处罚事先告知书》公告信息显示，经查明，元道通信及相关人员违法事实如下： （一）元道通信公告的证券发行文件编造重大虚假内容 2020年10月12日至2021年6月28日，元道通信多次披露《首次公开发行股票并在创业板上市招股说明书》（以下简称《招股说明书》）申报稿。
 
-澳门12岁霹雳舞选手游乐天首次踏足内地参加霹雳舞比赛。
+2021年7月28日，元道通信披露《招股说明书》上会稿。
 
-尽管初次站上大型舞台难免忐忑紧张，游乐天依然全心投入、享受舞台。
+2021年11月12日至2022年6月8日，元道通信多次披露《招股说明书》注册稿，所涉报告期最终为2019年至2021年。
 
-面对高手云集的激烈角逐，他敢拼敢闯，奋力突围，跻身比赛八强。
+2022年6月13日，元道通信披露《关于同意元道通信股份有限公司首次公开发行股票注册的批复》；2022年7月7日，元道通信披露《首次公开发行并在创业板上市公告书》，自2022年7月8日起在深圳证券交易所创业板上市交易，发行募集资金总额为116，918.40万元。
 
 ## 相关推荐
 
-- 2026-06-29 22:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 23:04 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:05 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 23:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 23:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 22:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 23:15 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 23:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 22:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 22:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 23:12 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 23:01 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 23:10 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 23:26 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 23:23 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 23:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 23:01 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 23:23 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 23:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 23:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 23:13 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 23:28 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 23:00 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/08902708453.shtml)
-- 2026-06-29 23:11 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/57882586.shtml)
-- 2026-06-29 23:04 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/892137.shtml)
-- 2026-06-29 23:17 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/83875301254.shtml)
-- 2026-06-29 23:14 - [女心理师](https://www.share.kurohicncr.top/Article/details/1168165135.shtml)
-- 2026-06-29 23:02 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/0220916282.shtml)
-- 2026-06-29 22:59 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/005449.shtml)
-- 2026-06-29 23:23 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/6227287768.shtml)
-- 2026-06-29 23:12 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/93147828.shtml)
-- 2026-06-29 23:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/784189213.shtml)
-- 2026-06-29 22:56 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/957113.shtml)
-- 2026-06-29 22:59 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/45580301.shtml)
-- 2026-06-29 23:00 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/397629840934.shtml)
-- 2026-06-29 23:09 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/0323857086.shtml)
-- 2026-06-29 23:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/5370445298.shtml)
+- 2026-06-29 23:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/825731981711.shtml)
+- 2026-06-29 23:16 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/262325.shtml)
+- 2026-06-29 23:12 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/68344801.shtml)
+- 2026-06-29 23:11 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/2627873621.shtml)
+- 2026-06-29 23:11 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/69251658.shtml)
+- 2026-06-29 23:06 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/935103.shtml)
+- 2026-06-29 23:01 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/221044.shtml)
+- 2026-06-29 23:14 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/891247769557.shtml)
+- 2026-06-29 23:02 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/4615027649.shtml)
+- 2026-06-29 23:06 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/44428504.shtml)
+- 2026-06-29 23:09 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/4735035620.shtml)
+- 2026-06-29 23:16 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/01101878193.shtml)
+- 2026-06-29 23:21 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/835650741.shtml)
+- 2026-06-29 23:04 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/11853.shtml)
+- 2026-06-29 23:02 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/96256.shtml)

@@ -1,57 +1,56 @@
-# 李飞飞，投出了一个独角兽
+# 工商银行全新推出“工盈研选”品牌 博时多只优质产品入选
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！学术界的女神，押注物理智能 作者 | 吕敬之 来源 | #融中财经 李飞飞，出手了。 美国具身智能公司Generalist AI宣布完成新一轮4亿美元（约合人民币27亿元）融资，目前融资总额超过5亿美元。 本轮本轮新增主要投资方：Radical Ventures（领投）、8VC、Union Square V
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。 “工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。首期推出“安盈”“智盈”两个产品系列，精准
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
 
-学术界的女神，押注物理智能 作者 | 吕敬之 来源 | #融中财经 李飞飞，出手了。
+“工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。
 
-美国具身智能公司Generalist AI宣布完成新一轮4亿美元（约合人民币27亿元）融资，目前融资总额超过5亿美元。
+首期推出“安盈”“智盈”两个产品系列，精准匹配不同客户投资需求。
 
-本轮本轮新增主要投资方：Radical Ventures（领投）、8VC、Union Square Ventures、Hanabi Capital、Norwest；原有头部投资方均大额跟投，包含英伟达旗下NVentures、Boldstart Ventures、Spark Capital、Bezos Expeditions、NFDG。
+其中“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，力争助力客户资产稳健增长。
 
-新增天使投资人包括Eric Yuan、Bin Lin、Fei-Fei Li（李飞飞）、Naval Ravikant。
+智盈系列则精选权益指数及指数增强产品，力争为追求收益弹性的客户提供进攻性工具。
 
-成立两年的机器人公司Generalist拿到4亿美元，投后估值20亿，跻身新晋独角兽。
+经过层层精选，博时基金旗下博时恒泰债券基金成功入选“安盈”系列，博时恒生高股息ETF联接基金、博时恒生科技ETF联接基金双双入选“智盈”系列。
 
-这次，被称为“AI教母”的斯坦福人工智能实验室的负责人、ImageNet的创建者，李飞飞，这次不是站在讲台前，而是以投资人的身份出现在了一个明星项目当中。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒泰债券基金A类、C类收益率分别为6.09%、5.72%，同期业绩比较基准收益率为0.95%。
 
-她不是追逐风口的资本玩家，在人工智能领域已经奋斗了近30年的时间，经历了各种各样的兴衰成败。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒生高股息ETF联接A类、C类收益率均为23.14%，同期业绩比较基准收益率为20.00%。
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 23:04 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 23:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 23:13 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 23:03 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 23:20 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-29 23:22 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 23:00 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 23:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 22:58 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 23:22 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 23:00 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 23:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 23:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 23:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 23:17 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 23:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 23:29 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 23:19 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 23:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 23:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/874510.shtml)
-- 2026-06-29 23:06 - [天气热脾气都变差了](https://www.blog.minike.top/Article/details/1794724.shtml)
-- 2026-06-29 23:00 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/7731258.shtml)
-- 2026-06-29 22:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/59173.shtml)
-- 2026-06-29 23:16 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/399804.shtml)
-- 2026-06-29 23:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/522930740413.shtml)
-- 2026-06-29 23:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/638896962.shtml)
-- 2026-06-29 23:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/894201420831.shtml)
-- 2026-06-29 23:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/604286215.shtml)
-- 2026-06-29 23:00 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/78775797364.shtml)
-- 2026-06-29 23:06 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/903420152150.shtml)
-- 2026-06-29 22:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/145228831578.shtml)
-- 2026-06-29 22:58 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/0895129125.shtml)
-- 2026-06-29 22:54 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/940694676299.shtml)
-- 2026-06-29 22:54 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/202891.shtml)
+- 2026-06-29 23:07 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/1062138180.shtml)
+- 2026-06-29 23:27 - [女心理师](http://www.share.kurohicncr.top/Article/details/65351920.shtml)
+- 2026-06-29 23:01 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/5447168605.shtml)
+- 2026-06-29 23:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/195496.shtml)
+- 2026-06-29 23:23 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/2588693640.shtml)
+- 2026-06-29 23:21 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/2949928.shtml)
+- 2026-06-29 23:25 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/6731630402.shtml)
+- 2026-06-29 23:07 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/209036437194.shtml)
+- 2026-06-29 23:25 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/96805463646.shtml)
+- 2026-06-29 23:25 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/08071.shtml)
+- 2026-06-29 23:03 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/55722779835.shtml)
+- 2026-06-29 23:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/96029853825.shtml)
+- 2026-06-29 23:03 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/14686871.shtml)
+- 2026-06-29 23:18 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/263120.shtml)
+- 2026-06-29 23:14 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/567240864.shtml)

@@ -1,61 +1,56 @@
-# 俄罗斯摄影师重庆跨界：从“陪读者”到“策展人”
+# 受伊朗冲突担忧再度升温影响，日经指数从历史高位回落
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网重庆6月18日电 题：俄罗斯摄影师重庆跨界：从“陪读者”到“策展人” 作者 张旭 三年前第一次来中国时，俄罗斯人叶巴沙(Pavel Smirnov)只是陪老婆到重庆读研。三年后，他“跨界”多个角色：平面设计师、摄影师、摄影作品展策展人…… “跨界只是因为兴趣，在这里收获了平静、和谐，以及发自内心的开心。”近日，叶巴沙在重庆接受中新网采访时表示，从“陪读者”到“策展人”，他
+周一早盘，日本日经平均股指一度触及历史高位，但随后收低。中东危机的影响超过了企业盈利与科技投资乐观情绪的支撑。 美国总统唐纳德・特朗普拒绝了伊朗对和平谈判提议的回应，令结束冲突的希望变得渺茫；这场冲突已推高了全球能源成本。 基准日经 225 指数下跌 0.5%，收于 62，417.88 点，回吐了盘中早些时候创下 63，385.04 点的涨幅。覆盖面更广的东证指数受地缘政治因素
 
 ## 正文
 
-中新网重庆6月18日电 题：俄罗斯摄影师重庆跨界：从“陪读者”到“策展人” 作者 张旭 三年前第一次来中国时，俄罗斯人叶巴沙(Pavel Smirnov)只是陪老婆到重庆读研。
+周一早盘，日本日经平均股指一度触及历史高位，但随后收低。
 
-三年后，他“跨界”多个角色：平面设计师、摄影师、摄影作品展策展人…… “跨界只是因为兴趣，在这里收获了平静、和谐，以及发自内心的开心。
+中东危机的影响超过了企业盈利与科技投资乐观情绪的支撑。
 
-”近日，叶巴沙在重庆接受中新网采访时表示，从“陪读者”到“策展人”，他早已爱上中国，并不断深入了解中国。
+美国总统唐纳德・特朗普拒绝了伊朗对和平谈判提议的回应，令结束冲突的希望变得渺茫；这场冲突已推高了全球能源成本。
 
-叶巴沙来自俄罗斯的下诺夫哥罗德，此前曾从事文化、体育相关的活动策划工作，也是一名平面设计师。
+基准日经 225 指数下跌 0.5%，收于 62，417.88 点，回吐了盘中早些时候创下 63，385.04 点的涨幅。
 
-他的妻子是一位有中文情缘的俄罗斯人，14年间三次赴华求学、一次在俄罗斯教授汉语。
+覆盖面更广的东证指数受地缘政治因素影响较小，上涨 0.3%，报 3，840.93 点。
 
-2023年，妻子到位于重庆的四川外国语大学读研，他随之“陪读”。
+上周五，华尔街股市在英伟达、闪迪等人工智能相关个股带动下攀升至历史高位。
 
-来渝之前，叶巴沙对重庆知之甚少，甚至做好了深居简出的准备。
+这股乐观情绪延续至日本市场：芯片制造商铠侠在上周大涨 22% 后，周一再涨 3.26%。
 
-“但这座城市的精彩程度，远超我的想象。
+游戏制造商科乐美集团与日本烟草位列日经指数涨幅前列，分别大涨 10.25% 与 6.85%。
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 23:10 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 23:08 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 23:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 23:10 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 23:22 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-29 23:03 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 23:00 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 23:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 23:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 23:10 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 23:21 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 23:06 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 23:10 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 23:00 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 23:10 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 23:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 23:10 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 23:26 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 23:24 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 23:20 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 23:12 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 23:21 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 23:20 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 23:03 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [金刚川](http://www.share.kurohicncr.top/Article/details/962942.shtml)
-- 2026-06-29 22:54 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/756599252.shtml)
-- 2026-06-29 23:19 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/8451772.shtml)
-- 2026-06-29 23:23 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/43306.shtml)
-- 2026-06-29 22:55 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/729984294.shtml)
-- 2026-06-29 22:58 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/58966321610.shtml)
-- 2026-06-29 23:00 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/597259.shtml)
-- 2026-06-29 23:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/433029037.shtml)
-- 2026-06-29 23:13 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/15761.shtml)
-- 2026-06-29 22:59 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/48321718.shtml)
-- 2026-06-29 23:13 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/86375.shtml)
-- 2026-06-29 23:08 - [起风了](https://www.share.kurohicncr.top/Article/details/65560.shtml)
-- 2026-06-29 23:11 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/61195.shtml)
-- 2026-06-29 23:08 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.minike.top/Article/details/030994147187.shtml)
-- 2026-06-29 23:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/113907303602.shtml)
+- 2026-06-29 23:22 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/577399.shtml)
+- 2026-06-29 23:27 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/7577821.shtml)
+- 2026-06-29 23:28 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/6322063.shtml)
+- 2026-06-29 23:15 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/592637.shtml)
+- 2026-06-29 23:24 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/8504632617.shtml)
+- 2026-06-29 23:23 - [起风了](http://www.share.kurohicncr.top/Article/details/993125955031.shtml)
+- 2026-06-29 23:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/513223798420.shtml)
+- 2026-06-29 23:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/203316.shtml)
+- 2026-06-29 23:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/660822859154.shtml)
+- 2026-06-29 23:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/8493468.shtml)
+- 2026-06-29 23:22 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/88319.shtml)
+- 2026-06-29 23:14 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/6436558.shtml)
+- 2026-06-29 23:21 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/523607.shtml)
+- 2026-06-29 23:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/98286142.shtml)
+- 2026-06-29 23:27 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/6535570960.shtml)

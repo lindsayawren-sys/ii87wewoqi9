@@ -1,55 +1,59 @@
-# 巧手匠心融两岸 “闽台疆”三地青年木垒制作新疆小羊寄深情
+# 时政微视频丨家国情 寸草心
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 16:30 来源：中国新闻网 6月18日，“石榴花开·三山青年同心行” 文化交流活动中，两岸青年在新疆木垒县体验手工制作新疆小羊，以创意巧手传递心意，尽显两岸温情与文化乐趣。 活动现场，台湾青年们兴致勃勃地装饰小羊，尽情发挥创意。有人将亮钻点缀羊角，戏称给小羊戴上同款耳环；有人偏爱紫色，搭配同色系服饰精心装扮；还有人独创 “台湾杰克版小羊”，赋
+视频：时政微视频丨家国情 寸草心来源：央视新闻客户端 “慈母手中线，游子身上衣。临行密密缝，意恐迟迟归。谁言寸草心，报得三春晖。”习近平总书记这段深情吟诵，道出了他与母亲的深厚感情。 习近平的母亲齐心是经历战火考验的共产党员，她重言传、重身教，以优良家风培养教育子女。在革命家庭中成长的习近平始终重视家庭、珍视亲情，严于律己、不忘初心。 从陕北小村庄的村支书到党和国家的最高领导人
 
 ## 正文
 
-发布时间：2026年06月20日 16:30 来源：中国新闻网 6月18日，“石榴花开·三山青年同心行” 文化交流活动中，两岸青年在新疆木垒县体验手工制作新疆小羊，以创意巧手传递心意，尽显两岸温情与文化乐趣。
+视频：时政微视频丨家国情 寸草心来源：央视新闻客户端 “慈母手中线，游子身上衣。
 
-活动现场，台湾青年们兴致勃勃地装饰小羊，尽情发挥创意。
+临行密密缝，意恐迟迟归。
 
-有人将亮钻点缀羊角，戏称给小羊戴上同款耳环；有人偏爱紫色，搭配同色系服饰精心装扮；还有人独创 “台湾杰克版小羊”，赋予其 “突飞猛进” 的美好寓意，更借大红大紫的配色送上祝福，趣味十足。
+谁言寸草心，报得三春晖。
 
-大家随心创作、欢声笑语不断，亲手打造的小羊各具特色、可爱灵动。
+”习近平总书记这段深情吟诵，道出了他与母亲的深厚感情。
 
-不少青年表示，要将这份专属手工礼物带回台湾，送给母亲和好友，把在新疆的美好体验与真挚心意一同传递。
+习近平的母亲齐心是经历战火考验的共产党员，她重言传、重身教，以优良家风培养教育子女。
 
-此次手工体验，让两岸青年在动手创作中拉近距离，以小小萌羊为媒，架起温情交流的桥梁，尽显同心相融的美好情谊。
+在革命家庭中成长的习近平始终重视家庭、珍视亲情，严于律己、不忘初心。
 
-(储旭 左丹丹 制作 侯诗蕊) 责任编辑：【罗攀】
+从陕北小村庄的村支书到党和国家的最高领导人，从人民中走来的习近平始终心怀家国、躬身为民，把自己当作人民的勤务员。
+
+“党中央制定的政策好不好，要看乡亲们是哭还是笑”“共产党就是为人民服务的，就是给老百姓办事的”……为人民做实事，已深深烙在习近平总书记治国理政的思想和实践中。
 
 ## 相关推荐
 
-- 2026-06-29 23:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 23:00 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 23:00 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 23:17 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 23:11 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 23:12 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 23:14 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 23:21 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 23:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 23:21 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 23:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 23:01 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 23:03 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 23:12 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 23:19 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 23:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 23:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 23:17 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 23:01 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 23:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 23:20 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 23:28 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 23:23 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 23:10 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/3865315728.shtml)
-- 2026-06-29 23:01 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/4006274352.shtml)
-- 2026-06-29 23:12 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/73577048821.shtml)
-- 2026-06-29 23:22 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/06483167929.shtml)
-- 2026-06-29 23:06 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/1486545141.shtml)
-- 2026-06-29 22:54 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/8271271.shtml)
-- 2026-06-29 23:07 - [蔚来车主罚站](https://www.share.minike.top/Article/details/2245130163.shtml)
-- 2026-06-29 23:18 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/0168756092.shtml)
-- 2026-06-29 22:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/097731220285.shtml)
-- 2026-06-29 23:11 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/20922590118.shtml)
-- 2026-06-29 23:02 - [世界杯](http://www.blog.minike.top/Article/details/21505890.shtml)
-- 2026-06-29 23:12 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/6125116.shtml)
-- 2026-06-29 22:59 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/244934102798.shtml)
-- 2026-06-29 23:10 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/2354717971.shtml)
-- 2026-06-29 23:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/578893450.shtml)
+- 2026-06-29 23:23 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/74230136198.shtml)
+- 2026-06-29 23:08 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/9716298823.shtml)
+- 2026-06-29 23:12 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/1489914.shtml)
+- 2026-06-29 23:28 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/51285524.shtml)
+- 2026-06-29 23:02 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/442841106118.shtml)
+- 2026-06-29 23:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1758541680.shtml)
+- 2026-06-29 23:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/55580.shtml)
+- 2026-06-29 23:14 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/4881772530.shtml)
+- 2026-06-29 23:08 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/7953749.shtml)
+- 2026-06-29 23:00 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/595569293755.shtml)
+- 2026-06-29 23:05 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/364803606002.shtml)
+- 2026-06-29 23:09 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/20023741.shtml)
+- 2026-06-29 23:06 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/33207699049.shtml)
+- 2026-06-29 23:13 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/58452260891.shtml)
+- 2026-06-29 23:27 - [这一刀 会很帅](http://www.share.minike.top/Article/details/53833.shtml)

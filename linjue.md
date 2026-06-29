@@ -1,56 +1,56 @@
-# （机遇澳门）琴澳和鸣谱新篇 澳门多元发展再“扩容”
+# 强降雨持续影响云南 多地连发暴雨预警
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社横琴6月19日电 题：琴澳和鸣谱新篇 澳门多元发展再“扩容” 中新社记者 郑嘉伟 从“一国两制”实践新篇章到澳门多元发展新引擎，横琴粤澳深度合作区(下称“合作区”)挂牌已近五年，琴澳深度融合、双向赋能的画卷正加速铺展。记者连日走访了解到，琴澳融合发展正从“蓝图”变为触手可及的“实景”，为澳门经济适度多元发展和年轻一代成长开拓出更广阔的舞台。 规则衔接：“四共”让“制度差异
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。 截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势
 
 ## 正文
 
-中新社横琴6月19日电 题：琴澳和鸣谱新篇 澳门多元发展再“扩容” 中新社记者 郑嘉伟 从“一国两制”实践新篇章到澳门多元发展新引擎，横琴粤澳深度合作区(下称“合作区”)挂牌已近五年，琴澳深度融合、双向赋能的画卷正加速铺展。
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。
 
-记者连日走访了解到，琴澳融合发展正从“蓝图”变为触手可及的“实景”，为澳门经济适度多元发展和年轻一代成长开拓出更广阔的舞台。
+截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。
 
-规则衔接：“四共”让“制度差异”走向“优势叠加”合作区执委会副主任曹晋锋在接受采访时表示，合作区共商、共建、共管、共享的“四共”体制并非要消除两地差异，而是要实现“优势叠加”——澳门从“参与者”变为“共同治理者”。
+本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势持续，辖区内多个乡镇暴雨灾害风险较高。
 
-截至目前，合作区已累计推出350余项规则衔接相关措施。
+同时，部分区域发布雷电黄色预警，预计将出现持续雷电天气，存在一定雷击安全隐患，大范围强对流天气风险突出。
 
-在科创方面，提出“澳门研发+横琴转化+湾区市场”；在中医药等澳门品牌工业方面，有“澳门监造+横琴生产+全球销售”；在服务领域，还有“澳门平台+横琴载体+内地资源”，这些都是基于两地差异而产生的分工协作、优势叠加。
+结合最新气象监测，云南省发布地质灾害气象风险预警，5月11日20时至12日20时，红河州元阳、绿春、金平三县滑坡、泥石流灾害风险高；红河州南部、文山州西南部、普洱市东西部、丽江市中部、临沧市西南部地质灾害风险较高，需重点防范。
 
-“当下规则衔接、机制对接工作已经进入‘深水区’，很多时候会更复杂、涉及的影响面更广、牵涉的部门更多，我们会一步一步继续推进这方面的工作。
+云南省最新天气预报显示，11日白天云南多个州市被降雨覆盖，丽江、昆明、红河、文山、普洱、临沧等地多区域出现小到中雨，局部大雨、暴雨。
 
-”曹晋锋说。
+11日夜间至12日，全省降水逐步减弱，12日夜间起，降雨范围大幅收缩，仅省内西部、南部边缘有零星阵雨，大部地区天气逐步转好。
 
-民生往来：便利措施夯实“双城生活”底色 走进濠江中学附属横琴学校，朗朗书声传递着琴澳教育融合的温度。
+气象部门特别提醒，本轮降雨暖区对流特征明显，突发性强、变化快、局地性显著，强降水极易诱发城市内涝、山洪、滑坡、泥石流等地质灾害。
 
 ## 相关推荐
 
-- 2026-06-29 23:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 22:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 23:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 23:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 23:01 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 23:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 23:12 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 22:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 22:58 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 23:15 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 23:16 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 23:01 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 23:29 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 23:16 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 23:15 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 23:20 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 23:27 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 23:25 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 23:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 23:21 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/085811871.shtml)
-- 2026-06-29 23:13 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/46927.shtml)
-- 2026-06-29 23:18 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/95967373.shtml)
-- 2026-06-29 23:03 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/29040401733.shtml)
-- 2026-06-29 23:23 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/1934078.shtml)
-- 2026-06-29 22:58 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/0259688.shtml)
-- 2026-06-29 23:12 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/161953.shtml)
-- 2026-06-29 23:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/67561822.shtml)
-- 2026-06-29 23:14 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/867553402.shtml)
-- 2026-06-29 23:08 - [小娘惹](https://www.blog.minike.top/Article/details/28518232936.shtml)
-- 2026-06-29 22:57 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/32940.shtml)
-- 2026-06-29 22:58 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/303703117.shtml)
-- 2026-06-29 23:11 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/7082839.shtml)
-- 2026-06-29 23:19 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/42014387.shtml)
-- 2026-06-29 23:21 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/906770027.shtml)
+- 2026-06-29 23:04 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/596087994351.shtml)
+- 2026-06-29 23:18 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/902667.shtml)
+- 2026-06-29 23:19 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/2424836739.shtml)
+- 2026-06-29 23:25 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/76349658.shtml)
+- 2026-06-29 23:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/06477.shtml)
+- 2026-06-29 23:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/62229873052.shtml)
+- 2026-06-29 23:24 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/122003.shtml)
+- 2026-06-29 23:09 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/047526010347.shtml)
+- 2026-06-29 23:15 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/805464495635.shtml)
+- 2026-06-29 23:23 - [85花告别古偶](https://www.blog.minike.top/Article/details/65570.shtml)
+- 2026-06-29 23:11 - [女心理师](https://www.blog.kurohicncr.top/Article/details/78590073570.shtml)
+- 2026-06-29 23:02 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/205647084.shtml)
+- 2026-06-29 23:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/38220824561.shtml)
+- 2026-06-29 23:13 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/97729.shtml)
+- 2026-06-29 23:17 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/70856011.shtml)

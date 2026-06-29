@@ -1,61 +1,53 @@
-# 供应链公司：已向苹果首款折叠屏iPhone小批量供货
+# 天舟升空引游客“追箭”：从“看完即走”转向“深度体验”
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。按照公司收到的目标指引，该款产品将于9月发布。 近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指
+发布时间：2026年05月11日 18:56 来源：中国新闻网 5月11日，搭载天舟十号货运飞船的长征七号遥十一运载火箭，在中国文昌航天发射场发射成功，吸引了许多游客前来文昌市龙楼镇观礼。 业内人士表示，随着文昌火箭发射进入常态化阶段，航天游迈入2.0新阶段，游客不再满足于观箭打卡、看完就走，而是更青睐深度游与航天科普沉浸式体验。来“追箭”的外国游客也不断增多。 陈英清 符宇群
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月11日 18:56 来源：中国新闻网 5月11日，搭载天舟十号货运飞船的长征七号遥十一运载火箭，在中国文昌航天发射场发射成功，吸引了许多游客前来文昌市龙楼镇观礼。
 
-日前，中国证券报记者从一家苹果供应链公司独家获悉，该公司已于近期开始向首款折叠屏iPhone小批量供货。
+业内人士表示，随着文昌火箭发射进入常态化阶段，航天游迈入2.0新阶段，游客不再满足于观箭打卡、看完就走，而是更青睐深度游与航天科普沉浸式体验。
 
-按照公司收到的目标指引，该款产品将于9月发布。
+来“追箭”的外国游客也不断增多。
 
-近日，有消息称苹果首款折叠屏iPhone已从原定的2026年秋季推迟至2027年初上市发售。
-
-对此，一位苹果供应链公司人士对记者表示，截至目前，其得到的目标指引是，首款折叠屏iPhone将于2026年秋季发布。
-
-对于首款折叠屏iPhone具体发布时间，截至记者发稿，苹果方面暂无公开回应。
-
-今年4月初，本报曾独家报道，富士康正试产折叠屏iPhone手机。
-
-详见文章：独家！
+陈英清 符宇群 海南文昌报道 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 23:03 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 23:19 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 23:01 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 23:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 23:10 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-29 23:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 23:12 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 23:13 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 23:18 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 23:20 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 22:57 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 22:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 22:56 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 23:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 23:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 23:00 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 23:01 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 23:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 23:08 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 23:00 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 23:21 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 23:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 23:23 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 23:16 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 23:16 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 23:13 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 23:24 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 23:04 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 23:27 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 23:15 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/2786267376.shtml)
-- 2026-06-29 23:08 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/6811884.shtml)
-- 2026-06-29 23:03 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/022630.shtml)
-- 2026-06-29 23:16 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/53401.shtml)
-- 2026-06-29 22:59 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/70787209899.shtml)
-- 2026-06-29 23:07 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/146438364.shtml)
-- 2026-06-29 23:04 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/758663156.shtml)
-- 2026-06-29 23:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/4194729486.shtml)
-- 2026-06-29 23:09 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/061222.shtml)
-- 2026-06-29 23:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/064977.shtml)
-- 2026-06-29 23:22 - [送你一朵小红花](http://www.blog.minike.top/Article/details/62831.shtml)
-- 2026-06-29 23:21 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/06038502.shtml)
-- 2026-06-29 23:16 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/04384446.shtml)
-- 2026-06-29 23:21 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/82897309863.shtml)
-- 2026-06-29 23:05 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/579060.shtml)
+- 2026-06-29 23:25 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/1044483.shtml)
+- 2026-06-29 23:06 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/46706.shtml)
+- 2026-06-29 23:25 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/409641572615.shtml)
+- 2026-06-29 23:20 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/32130236.shtml)
+- 2026-06-29 23:16 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/924273526663.shtml)
+- 2026-06-29 23:01 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/148935053975.shtml)
+- 2026-06-29 23:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/217873614.shtml)
+- 2026-06-29 23:08 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/78205455.shtml)
+- 2026-06-29 23:05 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/58648.shtml)
+- 2026-06-29 23:21 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/20644804.shtml)
+- 2026-06-29 23:05 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/780226137.shtml)
+- 2026-06-29 23:19 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/20288.shtml)
+- 2026-06-29 23:12 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/76070327.shtml)
+- 2026-06-29 23:18 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/470636706828.shtml)
+- 2026-06-29 23:10 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/6493807.shtml)

@@ -1,43 +1,59 @@
-# 伊美谈判第一轮已结束
+# 韩国综合股价指数连续五个交易日上涨 芯片板块强势拉升
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-新华社瑞士比尔根山6月21日电 据外媒21日报道，伊美谈判第一轮已结束。
+专题：4200点关口何去何从？市场短期或现分化，基本面支撑仍强 受存储芯片短缺担忧提振，资金持续涌入芯片龙头股，韩国综合股价指数盘中一度大涨4.3%，创下历史新高。SK海力士在韩国交易所盘中最大涨幅达10%，成为拉动韩综指上涨的最大个股。三星电子暴涨6.7%，股价同样刷新历史纪录。以科技股为主导的韩国综合股价指数今年以来累计涨幅已达85%。韩国小型股Kosdaq指数下跌0.5%
 
 ## 正文
 
-新华社瑞士比尔根山6月21日电 据外媒21日报道，伊美谈判第一轮已结束。
+专题：4200点关口何去何从？
+
+市场短期或现分化，基本面支撑仍强 受存储芯片短缺担忧提振，资金持续涌入芯片龙头股，韩国综合股价指数盘中一度大涨4.3%，创下历史新高。
+
+SK海力士在韩国交易所盘中最大涨幅达10%，成为拉动韩综指上涨的最大个股。
+
+三星电子暴涨6.7%，股价同样刷新历史纪录。
+
+以科技股为主导的韩国综合股价指数今年以来累计涨幅已达85%。
+
+韩国小型股Kosdaq指数下跌0.5%。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 23:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 23:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 23:05 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 23:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 23:05 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 22:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 23:15 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 23:09 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 23:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 23:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 23:22 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 23:09 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 23:09 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 23:29 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 23:23 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 23:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 23:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 23:06 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 23:18 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 23:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 23:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 23:15 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 23:06 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 23:20 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 23:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/06056621.shtml)
-- 2026-06-29 23:02 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/1250081434.shtml)
-- 2026-06-29 22:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/357266.shtml)
-- 2026-06-29 23:16 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/15926.shtml)
-- 2026-06-29 23:17 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/27543364.shtml)
-- 2026-06-29 23:04 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/109836.shtml)
-- 2026-06-29 23:00 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/80248.shtml)
-- 2026-06-29 23:01 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/970152257.shtml)
-- 2026-06-29 22:57 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/218680360409.shtml)
-- 2026-06-29 23:19 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/72985.shtml)
-- 2026-06-29 23:14 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/769419944333.shtml)
-- 2026-06-29 23:18 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/936148049.shtml)
-- 2026-06-29 23:23 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/1608189.shtml)
-- 2026-06-29 23:03 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/474438378224.shtml)
-- 2026-06-29 23:05 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/28752152.shtml)
+- 2026-06-29 23:29 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/2827161.shtml)
+- 2026-06-29 23:18 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/040282215.shtml)
+- 2026-06-29 23:29 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/941632.shtml)
+- 2026-06-29 23:16 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/4335370.shtml)
+- 2026-06-29 23:21 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/83329.shtml)
+- 2026-06-29 23:22 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/1776374.shtml)
+- 2026-06-29 23:26 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/394199649.shtml)
+- 2026-06-29 23:00 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/29749.shtml)
+- 2026-06-29 23:01 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/22102.shtml)
+- 2026-06-29 23:23 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/52271.shtml)
+- 2026-06-29 23:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/707482066.shtml)
+- 2026-06-29 23:00 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/4284051657.shtml)
+- 2026-06-29 23:04 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/6266211.shtml)
+- 2026-06-29 23:28 - [沙丘](https://www.share.minike.top/Article/details/088150378708.shtml)
+- 2026-06-29 23:10 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/40863.shtml)

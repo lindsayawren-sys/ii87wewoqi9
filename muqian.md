@@ -1,61 +1,60 @@
-# 中国拟修改商标法 加力打击以误导公众方式使用注册商标行为
+# “互联网＋”上门护士 打通居家照护的“最后一公里”
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社北京6月22日电 (记者 谢雁冰)商标法修订草案二次审议稿将提请十四届全国人大常委会第二十三次会议审议。全国人大常委会法工委发言人黄海华22日在记者会上表示，修订草案二次审议稿拟对以误导公众的方式使用注册商标的行为，加大打击力度。2025年12月，常委会第十九次会议对商标法修订草案进行了初次审议。黄海华在记者会上表示，根据各方面意见，修订草案二次审议稿拟作以下主要修改：一
+如何让高龄、失能、半失能等行动不便的人群足不出户就能享受到专业、便捷、安全的护理服务，一直都是社会关注的焦点。而“互联网+护理服务”作为一种便民的创新模式，正悄然改变着传统医疗服务的格局。在5月12日国际护士节前夕，记者走进江苏省多家医院，跟随“上门护士”的脚步，记录下她们从“云端”到“床头”的温情守护。扬子晚报/紫牛新闻记者 许倩倩 一键让专科护士上门服务 “叮，您有新订单。
 
 ## 正文
 
-中新社北京6月22日电 (记者 谢雁冰)商标法修订草案二次审议稿将提请十四届全国人大常委会第二十三次会议审议。
+如何让高龄、失能、半失能等行动不便的人群足不出户就能享受到专业、便捷、安全的护理服务，一直都是社会关注的焦点。
 
-全国人大常委会法工委发言人黄海华22日在记者会上表示，修订草案二次审议稿拟对以误导公众的方式使用注册商标的行为，加大打击力度。
+而“互联网+护理服务”作为一种便民的创新模式，正悄然改变着传统医疗服务的格局。
 
-2025年12月，常委会第十九次会议对商标法修订草案进行了初次审议。
+在5月12日国际护士节前夕，记者走进江苏省多家医院，跟随“上门护士”的脚步，记录下她们从“云端”到“床头”的温情守护。
 
-黄海华在记者会上表示，根据各方面意见，修订草案二次审议稿拟作以下主要修改：一是强化“规范商标的注册与使用”这一修法目的；二是加强互联网环境下的商标使用管理；三是规定国务院商标管理部门建立健全统一的商标注册申请服务平台，方便查询、注册和使用商标；四是对国家公园标志、奥林匹克标志等作为商标注册和使用作出衔接性规定；五是对以误导公众的方式使用注册商标的行为，加大打击力度；六是强化对商标代理机构和从业人员的监督管理；七是完善处理境外商标侵权案件相关规定，加强中国企业境外权益保障；八是进一步推动解决商标重注册轻使用问题。
+扬子晚报/紫牛新闻记者 许倩倩 一键让专科护士上门服务 “叮，您有新订单。
 
-近年来，“心机商标”问题引起社会关注。
+”在东南大学附属中大医院护理服务的手机端口，一则来自南京栖霞区李先生的“腹膜透析护理”订单被迅速接收并分配，肾脏内科余卫卫护士长和血液净化专科护士丁世云主管护师带着工具和材料如约上门。
 
-黄海华表示，为加大打击力度，这次商标法修改拟作以下规定：一是要求严把审查注册关。
+李先生的父亲今年92岁，居家腹膜透析已超过8年，每3~6个月就需要更换腹膜透析外接短管。
 
-商标注册申请人明知标志带有欺骗性，容易使公众对商品的质量等特点或者产地产生误认的，仍作为商标申请注册，造成不良影响的，由负责商标执法的部门给予警告，可以并处十万元(人民币，下同)以下的罚款。
+“以前我们带他去医院都要开车，再推轮椅，很麻烦，老人年纪大了，经不起折腾。
 
-对不符合商标注册条件准予商标注册，造成不良影响的公职人员，依法给予处分。
+现在只要在手机上通过医院小程序一键下单，专科护士就会上门服务，真的解决了我们的大难题。
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 23:15 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 22:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 23:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 23:11 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 23:18 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 23:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 23:16 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 23:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 22:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 22:55 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 23:05 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 23:19 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 23:03 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 23:08 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 23:26 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 23:26 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 23:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 23:25 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 23:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 23:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 23:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 23:24 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 23:10 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 23:00 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 23:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 23:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 23:25 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 23:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/952422873047.shtml)
-- 2026-06-29 23:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/44804598.shtml)
-- 2026-06-29 23:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/22864.shtml)
-- 2026-06-29 23:23 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/28213.shtml)
-- 2026-06-29 23:00 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/1430303590.shtml)
-- 2026-06-29 23:02 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/5907151.shtml)
-- 2026-06-29 23:21 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/6108733369.shtml)
-- 2026-06-29 23:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/34423.shtml)
-- 2026-06-29 23:12 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/64643436882.shtml)
-- 2026-06-29 23:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/7338513.shtml)
-- 2026-06-29 23:04 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/370830.shtml)
-- 2026-06-29 23:14 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/18316960941.shtml)
-- 2026-06-29 23:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/288724.shtml)
-- 2026-06-29 23:20 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/995588599.shtml)
-- 2026-06-29 23:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/072649.shtml)
+- 2026-06-29 23:14 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/5634317.shtml)
+- 2026-06-29 23:13 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/3114356.shtml)
+- 2026-06-29 23:00 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/10518268075.shtml)
+- 2026-06-29 23:01 - [毒液2](https://www.share.minike.top/Article/details/0196353.shtml)
+- 2026-06-29 23:12 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/100743902.shtml)
+- 2026-06-29 23:07 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/604792670.shtml)
+- 2026-06-29 23:18 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/360099307618.shtml)
+- 2026-06-29 23:01 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/365992.shtml)
+- 2026-06-29 23:15 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/3110727525.shtml)
+- 2026-06-29 23:13 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/6634478.shtml)
+- 2026-06-29 23:23 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/46394.shtml)
+- 2026-06-29 23:26 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/9413355784.shtml)
+- 2026-06-29 23:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/48569940824.shtml)
+- 2026-06-29 23:01 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/147188366118.shtml)
+- 2026-06-29 23:13 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/86590319.shtml)

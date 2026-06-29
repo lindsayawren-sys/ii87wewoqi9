@@ -1,61 +1,50 @@
-# 中信证券：今年AI驱动的行情不是互联网泡沫行情，加息很难影响“AI类周期股”的估值
+# 新疆：女子酒后从地库挪车被丈夫举报 交警取证后判其酒驾
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！策略聚焦|“加息”涨科技？ 来源：中信证券研究文|裘翔 张铭楷 陈峰 高玉森 陈泽平 今年以来AI驱动的行情是由庞大的基础设施投资驱动的“瓶颈交易”，更像是2006~07年由投资和重资产公司推动的牛市，而非互联网泡沫行情，加息很难影响“AI类周期股”的估值，除非加息真的影响到AI的终端需求、商业化假设和资本
+发布时间：2026年05月09日 17:45 来源：中国新闻网 近日，新疆，一女子酒后欲将车辆从地库门口挪至停车位，不料被丈夫当场举报酒驾。面对十二师公安局交警，女子辩解只是短距离挪车，并未上路行驶，殊不知小区地库、公共停车场均属于法律界定的道路范畴，只要酒后启动车辆并行驶，就属于酒驾违法行为。十二师公安交警现场检测取证后，依法对其作出相应处罚。(作者：姜瑞） 责任编辑：【魏聪
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年05月09日 17:45 来源：中国新闻网 近日，新疆，一女子酒后欲将车辆从地库门口挪至停车位，不料被丈夫当场举报酒驾。
 
-策略聚焦|“加息”涨科技？
+面对十二师公安局交警，女子辩解只是短距离挪车，并未上路行驶，殊不知小区地库、公共停车场均属于法律界定的道路范畴，只要酒后启动车辆并行驶，就属于酒驾违法行为。
 
-来源：中信证券研究文|裘翔 张铭楷 陈峰 高玉森 陈泽平 今年以来AI驱动的行情是由庞大的基础设施投资驱动的“瓶颈交易”，更像是2006~07年由投资和重资产公司推动的牛市，而非互联网泡沫行情，加息很难影响“AI类周期股”的估值，除非加息真的影响到AI的终端需求、商业化假设和资本开支增速。
+十二师公安交警现场检测取证后，依法对其作出相应处罚。
 
-全球范围内的加息进程率先影响到的是需求增长相对偏弱的板块，AI与非AI的K型分化在全球都成立；不过，由于强势美元叙事同时开始回归，以及市场整体呈现存量资金调结构的格局，A股的非AI周期板块相比海外的对标公司明显更弱；同样是K型分化，A股行情的宽度相对海外有所不足。
-
-改变非AI板块的弱势还需要自身叙事在未来出现一些积极变化，或者资金面发生改变，而非等AI调整。
-
-如果把此轮AI驱动的行情 类比中国2006~07牛市行情， 那“加息”不会是行情结束的转折 1）此轮行情是庞大的投资驱动的“瓶颈交易”，更像是2006~07年的牛市，而非互联网泡沫行情。
-
-全球AI行情在今年已极其清晰地演绎为“瓶颈交易”。
-
-美股硬件端存储、光通信、半导体设备龙头表现优异，而传统平台公司和AI应用旗手普遍表现不佳。
+(作者：姜瑞） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 23:00 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 23:14 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 23:18 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 22:56 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 23:21 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 23:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 23:20 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 23:10 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 23:06 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 22:56 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 23:10 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 23:00 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 22:59 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 23:11 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 23:12 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 23:24 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 23:24 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 23:28 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 23:14 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 23:14 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 23:10 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 23:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 23:24 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 23:28 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 23:23 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/5005019345.shtml)
-- 2026-06-29 23:06 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/402647.shtml)
-- 2026-06-29 22:56 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/1708508.shtml)
-- 2026-06-29 23:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/924136139.shtml)
-- 2026-06-29 22:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/63209.shtml)
-- 2026-06-29 23:18 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/664942.shtml)
-- 2026-06-29 23:16 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/70606136.shtml)
-- 2026-06-29 23:02 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/96318.shtml)
-- 2026-06-29 23:04 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/22546.shtml)
-- 2026-06-29 23:18 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/96948.shtml)
-- 2026-06-29 23:01 - [电影后室值得看吗](https://www.share.minike.top/Article/details/07797653758.shtml)
-- 2026-06-29 23:19 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/698430448.shtml)
-- 2026-06-29 23:14 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/59319552518.shtml)
-- 2026-06-29 23:19 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/98183.shtml)
-- 2026-06-29 23:13 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/4956280.shtml)
+- 2026-06-29 23:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/603445832.shtml)
+- 2026-06-29 23:29 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/39552.shtml)
+- 2026-06-29 23:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/150093815830.shtml)
+- 2026-06-29 23:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/85050602071.shtml)
+- 2026-06-29 23:17 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/391649.shtml)
+- 2026-06-29 23:01 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/37587.shtml)
+- 2026-06-29 23:14 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/50230.shtml)
+- 2026-06-29 23:16 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/8677911333.shtml)
+- 2026-06-29 23:09 - [一生一世](https://www.blog.kurohicncr.top/Article/details/07288.shtml)
+- 2026-06-29 23:23 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/692460.shtml)
+- 2026-06-29 23:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/17164791.shtml)
+- 2026-06-29 23:24 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/29631602.shtml)
+- 2026-06-29 23:07 - [小娘惹](https://www.blog.minike.top/Article/details/1371621.shtml)
+- 2026-06-29 23:00 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/455008658.shtml)
+- 2026-06-29 23:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/1816833399.shtml)

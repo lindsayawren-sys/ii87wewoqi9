@@ -1,50 +1,59 @@
-# 西班牙队迎战沙特队，若再被爆冷将失去晋级主动权
+# FS KKR Capital股息降至0.42美元，KKR注资3亿美元驰援
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网6月21日电 北京时间22日，美加墨世界杯将迎来四场小组赛争夺，分别为H组西班牙队对阵沙特队、乌拉圭队迎战佛得角队，G组比利时队对阵伊朗队、新西兰队迎战埃及队。 作为夺冠热门，首战“捧红”了佛得角门将沃津尼亚的西班牙队已不容有失，若再被爆冷将失去晋级主动权。(完)
+非多元化封闭式管理投资公司FS KKR Capital Corp．周一宣布将第二季度股息下调6.7%至每股0.42美元，此前的季度股息为0.48美元及0.45美元。新股息将于7月2日支付给6月17日登记在册的股东。 此次股息下调与公司第一季度业绩表现密切相关。财报显示，FS KKR当季净投资收入为0.42美元每股，低于市场预期的0.43美元。更令人担忧的是，公司报告了每股2.0
 
 ## 正文
 
-中新网6月21日电 北京时间22日，美加墨世界杯将迎来四场小组赛争夺，分别为H组西班牙队对阵沙特队、乌拉圭队迎战佛得角队，G组比利时队对阵伊朗队、新西兰队迎战埃及队。
+非多元化封闭式管理投资公司FS KKR Capital Corp．周一宣布将第二季度股息下调6.7%至每股0.42美元，此前的季度股息为0.48美元及0.45美元。
 
-作为夺冠热门，首战“捧红”了佛得角门将沃津尼亚的西班牙队已不容有失，若再被爆冷将失去晋级主动权。
+新股息将于7月2日支付给6月17日登记在册的股东。
 
-(完)
+此次股息下调与公司第一季度业绩表现密切相关。
+
+财报显示，FS KKR当季净投资收入为0.42美元每股，低于市场预期的0.43美元。
+
+更令人担忧的是，公司报告了每股2.00美元的已实现及未实现亏损，导致净资产价值从20.89美元骤降至18.83美元，单季跌幅达9.9%。
+
+与此同时，不再计息的贷款占比从3.4%升至4.2%。
+
+面对业绩压力和股价持续折价交易，公司大股东KKR宣布了两项重大驰援措施。
+
+一是KKR将投资1.5亿美元购买可转换优先股，初始转换价格为18.83美元，股息率为5%现金或7%实物支付。
 
 ## 相关推荐
 
-- 2026-06-29 23:12 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 23:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 22:56 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 23:13 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 23:10 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 23:23 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 23:14 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 23:06 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 23:22 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 23:09 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 23:07 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 23:22 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 23:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 23:13 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 23:24 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 23:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 23:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 23:02 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 23:19 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 23:24 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 23:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 23:17 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 23:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 23:02 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 23:17 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 23:09 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 23:12 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/19228128.shtml)
-- 2026-06-29 23:18 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/33483523947.shtml)
-- 2026-06-29 23:11 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/64206827774.shtml)
-- 2026-06-29 23:13 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/487319.shtml)
-- 2026-06-29 23:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/395306.shtml)
-- 2026-06-29 23:10 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/21639917098.shtml)
-- 2026-06-29 23:12 - [田曦薇 女装牛仔裤](http://www.blog.kurohicncr.top/Article/details/765112377805.shtml)
-- 2026-06-29 23:03 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/798924902327.shtml)
-- 2026-06-29 23:20 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/03675214.shtml)
-- 2026-06-29 23:16 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/66866.shtml)
-- 2026-06-29 23:15 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/30968941.shtml)
-- 2026-06-29 23:21 - [把邻居裸体发群算维权还是侵权](https://www.share.kurohicncr.top/Article/details/88272900879.shtml)
-- 2026-06-29 22:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/14211601.shtml)
-- 2026-06-29 23:14 - [国际清算银行警告AI投资热潮](http://www.share.minike.top/Article/details/456919.shtml)
-- 2026-06-29 23:04 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/17980690.shtml)
+- 2026-06-29 23:27 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/87692396910.shtml)
+- 2026-06-29 23:22 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/00127.shtml)
+- 2026-06-29 23:01 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/9603966.shtml)
+- 2026-06-29 23:20 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/5006050163.shtml)
+- 2026-06-29 23:09 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/737790025820.shtml)
+- 2026-06-29 23:09 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/855621962154.shtml)
+- 2026-06-29 23:25 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/6788599.shtml)
+- 2026-06-29 23:19 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/32451313.shtml)
+- 2026-06-29 23:14 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/169994.shtml)
+- 2026-06-29 23:00 - [一生一世](https://www.share.minike.top/Article/details/314427635.shtml)
+- 2026-06-29 23:08 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/186849760454.shtml)
+- 2026-06-29 23:01 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/7944140412.shtml)
+- 2026-06-29 23:07 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/07506399522.shtml)
+- 2026-06-29 23:29 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/1094261559.shtml)
+- 2026-06-29 23:18 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/5511505291.shtml)

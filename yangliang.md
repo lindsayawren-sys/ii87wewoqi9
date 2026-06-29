@@ -1,56 +1,54 @@
-# 端午假期 北京市属公园共接待游客122.78万人次
+# 世界航运巨头高管：美伊战争带来的“额外成本”将被迫转嫁给客户
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-记者从北京市公园管理中心获悉，端午假期三天，北京市属公园共接待游客122.78万人次，游客量排名前三位的是天坛公园、颐和园、北海公园。各公园以安全有序的游园保障、丰富的文化体验与特色夏季景观，让市民游客在山水园林间观美景、赏民俗、品文化，度过了一个充实而难忘的端午小长假。北海公园《印·静心》晚间沉浸式文化活动于6月20日正式启幕，并在灯光氛围、演艺节目两大维度全面升级。活动巧妙
+当地时间5月7日，全球航运物流巨头马士基集团首席执行官柯文胜(Vincent Clerc)在接受采访时表示，受美伊战争导致的石油和能源价格上涨影响，马士基每月额外增加的“额外成本”高达5亿美元。企业无法独自承担如此巨额的成本增加，将被迫把压力向客户转嫁。柯文胜还警告说，中东冲突对全球供应链的冲击在未来几个月可能进一步恶化。即便霍尔木兹海峡在短期内重新开放，对整体货运物流恢复的推
 
 ## 正文
 
-记者从北京市公园管理中心获悉，端午假期三天，北京市属公园共接待游客122.78万人次，游客量排名前三位的是天坛公园、颐和园、北海公园。
+当地时间5月7日，全球航运物流巨头马士基集团首席执行官柯文胜(Vincent Clerc)在接受采访时表示，受美伊战争导致的石油和能源价格上涨影响，马士基每月额外增加的“额外成本”高达5亿美元。
 
-各公园以安全有序的游园保障、丰富的文化体验与特色夏季景观，让市民游客在山水园林间观美景、赏民俗、品文化，度过了一个充实而难忘的端午小长假。
+企业无法独自承担如此巨额的成本增加，将被迫把压力向客户转嫁。
 
-北海公园《印·静心》晚间沉浸式文化活动于6月20日正式启幕，并在灯光氛围、演艺节目两大维度全面升级。
+柯文胜还警告说，中东冲突对全球供应链的冲击在未来几个月可能进一步恶化。
 
-活动巧妙融合古典园林移步换景的造园理念，精心规划游览动线。
+即便霍尔木兹海峡在短期内重新开放，对整体货运物流恢复的推动作用也较为有限，因为能源价格并不会立刻回落，安全疑虑也不会立即消除。
 
-游客循着游览路线，沿途邂逅亭台、水榭、回廊等不同园林景致点位，轮番欣赏民乐演奏、古典舞蹈、传统曲艺等特色演艺节目，实现游园赏景与观演品艺深度融合，让传统文化可感、可赏、可体验。
-
-据了解，该活动在端午假期结束后将常态化运营，运营时段为每周六、周日，每日开设两场演出，市民游客可择时前往，赴一场园林夜色与传统文化相融之约。
-
-中国园林博物馆满目葱茏，成为市民游客静享仲夏诗意的好去处。
-
-“花神映夏”活动持续升温，游客寻访“花神”、完成趣味任务，沉浸式体悟仲夏园林的造园意趣与诗意美学。
+来源|总台环球资讯 编译|龚晨 签审|陈濛 监制|蔡耀远
 
 ## 相关推荐
 
-- 2026-06-29 23:20 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 23:01 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 23:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 23:01 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 23:09 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 23:02 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 23:21 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 23:19 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 22:59 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 23:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 23:14 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 23:29 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 23:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:14 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 23:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 23:14 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 23:29 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 23:29 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 23:00 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 23:25 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 23:13 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 23:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 23:00 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 23:11 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [千与千寻](http://www.share.kurohicncr.top/Article/details/08165.shtml)
-- 2026-06-29 23:15 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/09107176.shtml)
-- 2026-06-29 22:56 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/53602457.shtml)
-- 2026-06-29 23:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/26789663.shtml)
-- 2026-06-29 23:10 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/93389.shtml)
-- 2026-06-29 23:16 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/706893488585.shtml)
-- 2026-06-29 23:06 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/38261610439.shtml)
-- 2026-06-29 23:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/43365.shtml)
-- 2026-06-29 23:23 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/680489282.shtml)
-- 2026-06-29 23:22 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/12829.shtml)
-- 2026-06-29 23:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/918687738970.shtml)
-- 2026-06-29 23:02 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/4630418.shtml)
-- 2026-06-29 23:07 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/836871766673.shtml)
-- 2026-06-29 22:58 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/1479459.shtml)
-- 2026-06-29 23:11 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/434021904.shtml)
+- 2026-06-29 23:07 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/2949241.shtml)
+- 2026-06-29 23:18 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/740867188022.shtml)
+- 2026-06-29 23:06 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/6254601583.shtml)
+- 2026-06-29 23:16 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/1453005149.shtml)
+- 2026-06-29 23:15 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/704321.shtml)
+- 2026-06-29 23:03 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/09035143.shtml)
+- 2026-06-29 23:02 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/3811369593.shtml)
+- 2026-06-29 23:26 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/2036304284.shtml)
+- 2026-06-29 23:19 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/56725.shtml)
+- 2026-06-29 23:07 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/03119.shtml)
+- 2026-06-29 23:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/442704.shtml)
+- 2026-06-29 23:06 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/797375.shtml)
+- 2026-06-29 23:27 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/166082433.shtml)
+- 2026-06-29 23:27 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/007726.shtml)
+- 2026-06-29 23:06 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/1112636863.shtml)

@@ -1,56 +1,57 @@
-# 韩国去年对美经常账户顺差六年来首次下滑
+# 第十四届柏林 “中国杯” 围棋大赛落幕
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-韩国央行周五公布的数据显示，由于服务账户赤字扩大，韩国去年对美国的经常账户顺差六年来首次出现下降；与此同时，韩国对中国和日本的经常账户逆差也有所扩大。 根据韩国央行的数据，韩国去年对美经常账户顺差总额为1114.2亿美元，低于2024年创下的历史最高纪录1169.7亿美元。 受半导体和智能手机出口增长的推动，韩国去年对美货物贸易顺差同比增长2.53%，达到1119.8亿美元。但
+中新社柏林5月10日电 (记者 马秀秀)第十四届柏林“中国杯”围棋大赛10日在柏林中国文化中心落幕。 本届赛事为期两天，参赛人数创新高，共汇聚德国、英国、法国、比利时、瑞士、荷兰、乌克兰、中国、韩国等多国68名棋手同台对弈。 参赛阵容既有资深好手，也有青年新锐，业余初段及以上高水平棋手占比近半。赛事同步启用电子棋盘全程实况直播，吸引全球众多围棋爱好者在线观赛。 比赛采用积分赛制
 
 ## 正文
 
-韩国央行周五公布的数据显示，由于服务账户赤字扩大，韩国去年对美国的经常账户顺差六年来首次出现下降；与此同时，韩国对中国和日本的经常账户逆差也有所扩大。
+中新社柏林5月10日电 (记者 马秀秀)第十四届柏林“中国杯”围棋大赛10日在柏林中国文化中心落幕。
 
-根据韩国央行的数据，韩国去年对美经常账户顺差总额为1114.2亿美元，低于2024年创下的历史最高纪录1169.7亿美元。
+本届赛事为期两天，参赛人数创新高，共汇聚德国、英国、法国、比利时、瑞士、荷兰、乌克兰、中国、韩国等多国68名棋手同台对弈。
 
-受半导体和智能手机出口增长的推动，韩国去年对美货物贸易顺差同比增长2.53%，达到1119.8亿美元。
+参赛阵容既有资深好手，也有青年新锐，业余初段及以上高水平棋手占比近半。
 
-但服务贸易逆差从前一年的88.8亿美元扩大至146.2亿美元。
+赛事同步启用电子棋盘全程实况直播，吸引全球众多围棋爱好者在线观赛。
 
-韩国央行数据显示，去年韩国对华经常账户逆差为253.2亿美元，较上年扩大7.97%。
+比赛采用积分赛制，经过多轮激烈角逐，留英中国学生李元贞勇夺桂冠。
 
-去年韩国对日本经常账户逆差也扩大13%，达到203亿美元。
+乌克兰棋手瓦列里·克鲁舍尔尼茨基、中国选手鲍一凡分列亚、季军。
 
-韩国央行数据显示，受强劲出口推动，去年韩国对欧盟经常账户顺差同比增长9.9%，达到244.2亿美元。
+德国棋手亚当·多丹、中国棋手黄尧艺分别获18岁以下青少年组、60岁以上长者组最佳成绩奖。
 
-去年，韩国对东南亚国家的经常账户顺差为718.4亿美元，较上年增长13.24%；而对中东地区的经常账户则出现497.5亿美元的逆差，同比下降26.8%。
+中国驻德国使馆文化处参赞李琦与柏林中国文化中心副主何文波、柏林围棋协会主席安德里亚斯·乌尔班一同为获奖选手颁奖。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 23:05 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 23:05 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 22:59 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 23:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 23:17 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 23:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 23:18 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 23:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 23:21 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 23:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 23:20 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 23:28 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 23:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 23:08 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 23:00 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 23:00 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 23:10 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 23:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 23:17 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 23:20 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/751224097147.shtml)
-- 2026-06-29 23:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/46406018.shtml)
-- 2026-06-29 23:23 - [韩国股市绑架日本？高盛警告](http://www.blog.minike.top/Article/details/161539089.shtml)
-- 2026-06-29 23:22 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/4039223.shtml)
-- 2026-06-29 22:55 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/23540013466.shtml)
-- 2026-06-29 23:10 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/542698492.shtml)
-- 2026-06-29 23:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/30581733.shtml)
-- 2026-06-29 23:05 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/511055547.shtml)
-- 2026-06-29 23:06 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/3392854.shtml)
-- 2026-06-29 23:08 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/15883104.shtml)
-- 2026-06-29 23:12 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/58012625.shtml)
-- 2026-06-29 22:59 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/7529681362.shtml)
-- 2026-06-29 23:08 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/070196156441.shtml)
-- 2026-06-29 23:19 - [美股](https://www.blog.kurohicncr.top/Article/details/8179778.shtml)
-- 2026-06-29 23:18 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/77762.shtml)
+- 2026-06-29 23:08 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/85616.shtml)
+- 2026-06-29 23:06 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/94856.shtml)
+- 2026-06-29 23:10 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/843677856.shtml)
+- 2026-06-29 23:17 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/35866271.shtml)
+- 2026-06-29 23:12 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/59427780.shtml)
+- 2026-06-29 23:25 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/868622866.shtml)
+- 2026-06-29 23:07 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/3665240610.shtml)
+- 2026-06-29 23:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/4754046.shtml)
+- 2026-06-29 23:25 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/6781669.shtml)
+- 2026-06-29 23:11 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/305133399.shtml)
+- 2026-06-29 23:03 - [第一炉香](https://www.share.kurohicncr.top/Article/details/993599.shtml)
+- 2026-06-29 23:11 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/044576122.shtml)
+- 2026-06-29 23:05 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/0624969.shtml)
+- 2026-06-29 23:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/635736684.shtml)
+- 2026-06-29 23:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/97872213.shtml)

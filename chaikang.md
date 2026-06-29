@@ -1,56 +1,49 @@
-# 酒价内参6月22日价格发布：水晶剑南春下跌3元
+# 4月我国新能源汽车新车销量占有率达53.2%
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
+中新网5月11日电 据“中汽协会数据”微信公众号消息，中国汽车工业协会5月11日发布数据显示，4月份我国新能源汽车产销量及出口量均实现稳定增长。 数据显示，4月份我国新能源汽车产销量分别为132万辆和134.4万辆，同比分别增长5.5%和9.7%，新能源汽车新车销量达到汽车新车总销量的53.2%。 整体来看，前4个月，汽车产销分别完成961.4万辆和957.4万辆，其中新能源汽
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月22日整体小幅走弱。
+中新网5月11日电 据“中汽协会数据”微信公众号消息，中国汽车工业协会5月11日发布数据显示，4月份我国新能源汽车产销量及出口量均实现稳定增长。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9897元，较昨日下跌2元，自昨日创下的三日新高小幅回落。
+数据显示，4月份我国新能源汽车产销量分别为132万辆和134.4万辆，同比分别增长5.5%和9.7%，新能源汽车新车销量达到汽车新车总销量的53.2%。
 
-今日总价仍处于9900元关口下方，低位震荡态势仍在延续，终端交投情绪整体偏谨慎，核心单品的涨跌分化依然显著。
-
-今日11大白酒单品四涨七跌，输家占据明显优势。
-
-上涨方面，青花汾20涨幅居前，上涨6元/瓶，低位四连涨，平进入六月以来最高价纪录；习酒君品上涨5元/瓶，重新逼近630元关口；五粮液1618与古井贡古20均上涨2元/瓶，其中自昨日创下的近一月最低价小幅反弹，仍处于近一月次低位。
-
-下跌方面，精品茅台与国窖1573跌幅居前，均下跌4元/瓶，其中前者回落至近一月次低位，后者结束此前两日反弹，但仍守住880元关口；水晶剑南春下跌3元/瓶；飞天茅台与青花郎均下跌2元/瓶；五粮液普五八代与洋河梦之蓝M6+均小幅下跌1元/瓶，其中前者已五连阴，失守800元关口后继续下探，创今年2月2日以来最低价，后者结束此前连续三日上扬走势，但价格回落后仍处于近一月次高位。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
-
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+整体来看，前4个月，汽车产销分别完成961.4万辆和957.4万辆，其中新能源汽车产销分别完成428.5万辆和430.4万辆；汽车出口312.7万辆，同比增长61.5%，其中新能源汽车出口138.4万辆，同比增长1.2倍。
 
 ## 相关推荐
 
-- 2026-06-29 23:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 23:13 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 23:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 23:05 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 23:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 23:17 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 22:55 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-29 23:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 22:54 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 23:09 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 23:14 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 23:08 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 23:04 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 23:06 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 23:22 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 23:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 23:10 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 23:07 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 23:04 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 23:05 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 23:29 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 23:10 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 23:18 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:15 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/095111.shtml)
-- 2026-06-29 23:21 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/000354.shtml)
-- 2026-06-29 23:07 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/38439165.shtml)
-- 2026-06-29 23:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/209008102850.shtml)
-- 2026-06-29 23:14 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/15319608.shtml)
-- 2026-06-29 23:10 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/58077528.shtml)
-- 2026-06-29 23:17 - [明星大侦探第一季](https://www.share.minike.top/Article/details/577946669133.shtml)
-- 2026-06-29 22:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/026841576.shtml)
-- 2026-06-29 23:12 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/4952219010.shtml)
-- 2026-06-29 23:21 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/6754321102.shtml)
-- 2026-06-29 23:11 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/16789088227.shtml)
-- 2026-06-29 23:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/22227625189.shtml)
-- 2026-06-29 23:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/12595216.shtml)
-- 2026-06-29 23:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/495304996.shtml)
-- 2026-06-29 23:20 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/03420059868.shtml)
+- 2026-06-29 23:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/6544677646.shtml)
+- 2026-06-29 23:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/702778683936.shtml)
+- 2026-06-29 23:05 - [本科毕业生为何涌入专科学校](http://www.share.minike.top/Article/details/84371927.shtml)
+- 2026-06-29 23:00 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/089567394.shtml)
+- 2026-06-29 23:20 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/70961589.shtml)
+- 2026-06-29 23:07 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/471203871353.shtml)
+- 2026-06-29 23:09 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/3228236205.shtml)
+- 2026-06-29 23:14 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/661943.shtml)
+- 2026-06-29 23:24 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/54402045338.shtml)
+- 2026-06-29 23:17 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/818883309.shtml)
+- 2026-06-29 23:15 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/963322981413.shtml)
+- 2026-06-29 23:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/1024531097.shtml)
+- 2026-06-29 23:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/60101038962.shtml)
+- 2026-06-29 23:27 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/3665429553.shtml)
+- 2026-06-29 23:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/11538.shtml)

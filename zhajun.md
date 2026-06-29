@@ -1,59 +1,56 @@
-# 闽台青年近距离感受新疆民众生活
+# 乘网约车救下脑梗司机 两名大学生捐出奖金传递善意
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头
+原标题：乘网约车遇突发意外 代为驾驶救下脑梗司机 两名大学生捐出奖金传递善意 被司机要求下车，他却主动坐上驾驶座，为突发脑梗的网约车司机抢下宝贵的救治时间。近日，中国人民大学研究生许铭与对外经济贸易大学研究生邓伟杰救助患病网约车司机一事，受到社会广泛关注。5月9日，阿里公益天天正能量联合北京青年报，为两位同学颁发正能量特别奖，二人每人获得5000元奖金。对此，两人均告诉北青报记
 
 ## 正文
 
-杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+原标题：乘网约车遇突发意外 代为驾驶救下脑梗司机 两名大学生捐出奖金传递善意 被司机要求下车，他却主动坐上驾驶座，为突发脑梗的网约车司机抢下宝贵的救治时间。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+近日，中国人民大学研究生许铭与对外经济贸易大学研究生邓伟杰救助患病网约车司机一事，受到社会广泛关注。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+5月9日，阿里公益天天正能量联合北京青年报，为两位同学颁发正能量特别奖，二人每人获得5000元奖金。
 
-孔子为什么说“温故而知新”？
+对此，两人均告诉北青报记者，他们决定捐出全部奖金，让善意接续传递。
 
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
+4月5日傍晚，许铭和邓伟杰从北京国贸附近打了一辆网约车。
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+刚开出没多久，司机张树春因突发脑梗无法开车。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+危急时刻，许铭接过方向盘，直奔医院，为后续抢救赢得了时间。
 
-中国沙漠治理经验，如何与世界共享？
+出院休养几天后，张树春和家人专门带着锦旗和感谢信又找到了许铭。
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 23:18 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 23:14 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 23:18 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 22:58 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 23:14 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 22:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 22:58 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 23:04 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 23:15 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 23:23 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 22:58 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 23:01 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 23:23 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 23:07 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 23:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 23:25 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 23:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 23:15 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 23:14 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 23:21 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 23:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 23:06 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/09343924.shtml)
-- 2026-06-29 23:07 - [青春环游记第三季](https://www.blog.minike.top/Article/details/9819094564.shtml)
-- 2026-06-29 22:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/631125.shtml)
-- 2026-06-29 23:01 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/77882425.shtml)
-- 2026-06-29 23:14 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/46337.shtml)
-- 2026-06-29 23:05 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/36125.shtml)
-- 2026-06-29 23:18 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/029162.shtml)
-- 2026-06-29 23:14 - [货车司机恶意闯卡逃费被行拘](https://www.share.minike.top/Article/details/54393617184.shtml)
-- 2026-06-29 23:04 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/26253.shtml)
-- 2026-06-29 23:10 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/18772345.shtml)
-- 2026-06-29 23:20 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/089976.shtml)
-- 2026-06-29 23:20 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/3609533791.shtml)
-- 2026-06-29 23:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/743786336.shtml)
-- 2026-06-29 23:17 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/93492.shtml)
-- 2026-06-29 23:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/735599.shtml)
+- 2026-06-29 23:24 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/28020.shtml)
+- 2026-06-29 23:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/851280323.shtml)
+- 2026-06-29 23:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/4188749.shtml)
+- 2026-06-29 23:03 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/9704109.shtml)
+- 2026-06-29 23:03 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/72711660.shtml)
+- 2026-06-29 23:07 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/207520.shtml)
+- 2026-06-29 23:24 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/8772595234.shtml)
+- 2026-06-29 23:10 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/0442084.shtml)
+- 2026-06-29 23:21 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/392289362.shtml)
+- 2026-06-29 23:25 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/322257025.shtml)
+- 2026-06-29 23:10 - [刘宇宁 好听](https://www.share.minike.top/Article/details/09324.shtml)
+- 2026-06-29 23:28 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/1200903.shtml)
+- 2026-06-29 23:08 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/416273398500.shtml)
+- 2026-06-29 23:06 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/36190.shtml)
+- 2026-06-29 23:03 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/67808.shtml)

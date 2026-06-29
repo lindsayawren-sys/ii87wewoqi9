@@ -1,55 +1,61 @@
-# 美国和墨西哥结束了第二轮美墨加协定审查下的贸易谈判
+# 长江有色：沪锌库存累积叠加发票限制接货谨慎 11日锌价或下跌
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-美国贸易代表办公室和墨西哥经济部在一份联合声明中表示，作为美墨加协定审查的一部分，美墨两国完成了第二轮贸易谈判，双方就农业、劳工、环境以及原产地规则等问题进行了深入讨论。 声明称，双方还讨论了与钢铁、铝和汽车相关的贸易问题。 美国和墨西哥同意成立一个委员会，审查《美墨加协定》第十二章的执行情况，以加强监管兼容性。 第三轮谈判将于下个月在墨西哥城举行。责任编辑：王永生
+【ccmn.cn摘要】伦锌库存大增及降息预期降温施压，隔周伦锌微跌0.17%；节后锌价涨至高位抑制下游采买，沪锌库存累积叠加发票限制接货谨慎，今现锌或下跌。 【ccmn.cn锌期货市场】隔周伦锌偏弱走低，开盘报3439美元/吨，高点报3457美元，低点报3418美元，尾盘收于3441美元，跌6美元，跌幅0.17%；成交量10480手增加65手，持仓量239949手增加3121手
 
 ## 正文
 
-美国贸易代表办公室和墨西哥经济部在一份联合声明中表示，作为美墨加协定审查的一部分，美墨两国完成了第二轮贸易谈判，双方就农业、劳工、环境以及原产地规则等问题进行了深入讨论。
+【ccmn.cn摘要】伦锌库存大增及降息预期降温施压，隔周伦锌微跌0.17%；节后锌价涨至高位抑制下游采买，沪锌库存累积叠加发票限制接货谨慎，今现锌或下跌。
 
-声明称，双方还讨论了与钢铁、铝和汽车相关的贸易问题。
+【ccmn.cn锌期货市场】隔周伦锌偏弱走低，开盘报3439美元/吨，高点报3457美元，低点报3418美元，尾盘收于3441美元，跌6美元，跌幅0.17%；成交量10480手增加65手，持仓量239949手增加3121手。
 
-美国和墨西哥同意成立一个委员会，审查《美墨加协定》第十二章的执行情况，以加强监管兼容性。
+周五晚间沪锌低开低走，主力2606合约最新收盘价报24030元/吨，跌290元，跌幅1.19%。
 
-第三轮谈判将于下个月在墨西哥城举行。
+长江锌业网（pb.ccmn.cn）今日现货锌价行情预估： 宏观层面，尽管美国官员期待伊朗尽快回应最新提议，但波斯湾冲突再起仍令市场不安。
 
-责任编辑：王永生
+焦点集中于自2月底战争爆发以来持续瘫痪的霍尔木兹海峡航运。
+
+伊朗批评美国违反停火协议，并计划制定海峡“法律制度”，此举被视为其核心谈判筹码。
+
+分析师指出，近期船只遭扣押事件表明，尽管外交仍是基准情景，但冲突重燃风险显著。
+
+美国4月非农就业新增11.5万个，远超预期的6.2万个，3月数据亦上修至18.5万个，失业率稳定在4.3%，劳动力市场展现韧性，强化了美联储维持利率不变的预期。
 
 ## 相关推荐
 
-- 2026-06-29 23:07 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 22:59 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 22:56 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 23:17 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 23:06 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 23:12 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 23:10 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 23:15 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 23:08 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 23:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 22:55 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 23:19 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 23:08 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 23:04 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 22:56 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 23:24 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 23:15 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 23:12 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 23:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 23:21 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 23:29 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 23:15 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 23:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 23:01 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 23:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 23:19 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 23:01 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 23:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 23:10 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 23:23 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/495531097870.shtml)
-- 2026-06-29 23:08 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/174692761.shtml)
-- 2026-06-29 23:16 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/803675884202.shtml)
-- 2026-06-29 22:57 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/7560468012.shtml)
-- 2026-06-29 23:02 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/6409588.shtml)
-- 2026-06-29 23:10 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/7605749.shtml)
-- 2026-06-29 23:07 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/657943512621.shtml)
-- 2026-06-29 22:55 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/0698772.shtml)
-- 2026-06-29 23:22 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/69901.shtml)
-- 2026-06-29 22:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/716949.shtml)
-- 2026-06-29 23:00 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/61003452907.shtml)
-- 2026-06-29 23:12 - [时光音乐会](https://www.share.minike.top/Article/details/9122050883.shtml)
-- 2026-06-29 23:15 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/579741.shtml)
-- 2026-06-29 23:02 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/6853679748.shtml)
-- 2026-06-29 23:10 - [周生如故](https://www.share.minike.top/Article/details/92068105.shtml)
+- 2026-06-29 23:24 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/0947799641.shtml)
+- 2026-06-29 23:22 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/170875353.shtml)
+- 2026-06-29 23:03 - [一生一世](https://www.share.kurohicncr.top/Article/details/676550.shtml)
+- 2026-06-29 23:24 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/3048368742.shtml)
+- 2026-06-29 23:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/966799510436.shtml)
+- 2026-06-29 23:26 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/08513472648.shtml)
+- 2026-06-29 23:24 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/725441.shtml)
+- 2026-06-29 23:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/47836.shtml)
+- 2026-06-29 23:02 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/67307.shtml)
+- 2026-06-29 23:07 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/0167003.shtml)
+- 2026-06-29 23:17 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/285991141143.shtml)
+- 2026-06-29 23:28 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/22379.shtml)
+- 2026-06-29 23:05 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/846705582603.shtml)
+- 2026-06-29 23:08 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/34956.shtml)
+- 2026-06-29 23:03 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/5310422200.shtml)

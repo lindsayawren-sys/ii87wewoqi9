@@ -1,57 +1,60 @@
-# 任鸿斌：培育壮大新兴产业、未来产业，推动全球产供链提质升级
+# 4月全国新能源汽车渗透率历史首次突破60%，燃油车零售同比暴跌37%
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 2026年APEC工商领导人峰会主席、中国国际贸易促进委员会会长、中国国际商会会长任鸿斌在致辞中指出，亚太地区是全球经济增长的核心引擎，经济总量占世界超六成、贸易总量接近全球半数，在全球供应链体系中占据举足轻重的地位。当前国际
+5月11日，乘联分会公布的最终数据显示，2026年4月全国新能源乘用车零售84.9万辆，同比下降6.8%，环比微降0.3%；1-4月累计零售275.8万辆，同比下降17.2%。同期燃油车零售仅53万辆，同比暴跌37%，环比下降33%。 值得关注的是，新能源车渗透率历史首次突破60%。乘联分会的统计数据显示，4月新能源车在国内总体乘用车的零售渗透率61.4%（即每卖出10辆乘用车
 
 ## 正文
 
-专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
+5月11日，乘联分会公布的最终数据显示，2026年4月全国新能源乘用车零售84.9万辆，同比下降6.8%，环比微降0.3%；1-4月累计零售275.8万辆，同比下降17.2%。
 
-2026年APEC工商领导人峰会主席、中国国际贸易促进委员会会长、中国国际商会会长任鸿斌在致辞中指出，亚太地区是全球经济增长的核心引擎，经济总量占世界超六成、贸易总量接近全球半数，在全球供应链体系中占据举足轻重的地位。
+同期燃油车零售仅53万辆，同比暴跌37%，环比下降33%。
 
-当前国际形势复杂多变、变局交织，亚太工商界作为区域发展的先行者、变革的开拓者，更应坚守合作初心、携手破局前行，以深度协同合作应对全球经济不确定性，共拓亚太发展新前景。
+值得关注的是，新能源车渗透率历史首次突破60%。
 
-围绕深化亚太工商合作、赋能区域共同繁荣，任鸿斌提出三点核心倡议。
+乘联分会的统计数据显示，4月新能源车在国内总体乘用车的零售渗透率61.4%（即每卖出10辆乘用车，超6辆为新能源），较去年同期增长9.7%，环比增长9.6%。
 
-一是坚守开放合作，拓宽亚太发展新空间。
+分品牌看，在4月的国内零售中，自主品牌中的新能源车渗透率达80.1%；豪华车中的新能源车渗透率26.1%；而主流合资品牌中的新能源车渗透率上升到14.1%。
 
-依托APEC天然的开放合作基因，坚定维护以世贸组织为核心的多边贸易体系，坚决抵制单边主义与保护主义，持续推进贸易和投资自由化便利化。
+从月度新能源车国内零售份额看，4月自主品牌新能源车零售份额65.2%，同比下降7.2%；主流合资品牌新能源车份额4.9%，同比增长1.7%；新势力份额25.6%，零跑、理想、蔚来汽车等品牌拉动新势力份额同比增长5.6%；特斯拉份额3.1%，同比下降0.1%。
 
-依托链博会等优质平台深化产业链供应链对接，挖掘利益契合点、拉紧合作纽带，做大区域经贸合作蛋糕，实现互利共赢、共同繁荣。
+其中，国内新能源乘用车零售突破2万辆的企业品牌有16家，位列前十的是：比亚迪汽车（182，025辆）、吉利汽车（95，585辆）、长安汽车（64，471辆）、零跑汽车（57，162辆）、小米汽车（36，702辆）、奇瑞汽车（34，768辆）、上汽通用五菱（34，497辆）、理想汽车（34，085辆）、鸿蒙智行（32，759辆）、蔚来汽车（29，312辆）。
 
-二是强化互联互通，构建亚太合作新格局。
+包括新能源车在内，4月全国乘用车市场零售138.4万辆，同比下降21.5%，环比下降16.0%；今年1-4月累计零售560.4万辆，同比下降18.5%。
 
 ## 相关推荐
 
-- 2026-06-29 23:05 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 23:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 23:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 23:22 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 23:22 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 22:54 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 23:17 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 23:10 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 22:55 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 23:24 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 23:16 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 23:24 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 23:25 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 23:16 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 23:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 23:20 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 23:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 23:16 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 23:06 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 23:19 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 23:11 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 23:09 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 23:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 23:20 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 23:17 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/289723419593.shtml)
-- 2026-06-29 22:54 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/887145.shtml)
-- 2026-06-29 23:23 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/281468.shtml)
-- 2026-06-29 23:11 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/25061178178.shtml)
-- 2026-06-29 23:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/1589523.shtml)
-- 2026-06-29 23:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/94098549213.shtml)
-- 2026-06-29 23:18 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/265885937121.shtml)
-- 2026-06-29 23:05 - [女心理师](https://www.share.minike.top/Article/details/00306.shtml)
-- 2026-06-29 23:23 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/02153894.shtml)
-- 2026-06-29 23:21 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/761309925308.shtml)
-- 2026-06-29 23:21 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/402076.shtml)
-- 2026-06-29 23:09 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/130999895.shtml)
-- 2026-06-29 23:15 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/17168.shtml)
-- 2026-06-29 23:20 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/684212.shtml)
-- 2026-06-29 23:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/595396109571.shtml)
+- 2026-06-29 23:13 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/45991409.shtml)
+- 2026-06-29 23:13 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/672623366124.shtml)
+- 2026-06-29 23:22 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/67219.shtml)
+- 2026-06-29 23:15 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/3465061.shtml)
+- 2026-06-29 23:21 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/144743806.shtml)
+- 2026-06-29 23:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/33890.shtml)
+- 2026-06-29 23:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/4512538.shtml)
+- 2026-06-29 23:00 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/089082.shtml)
+- 2026-06-29 23:04 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/9753909156.shtml)
+- 2026-06-29 23:04 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/27926729.shtml)
+- 2026-06-29 23:04 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/919097.shtml)
+- 2026-06-29 23:21 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/95866323577.shtml)
+- 2026-06-29 23:13 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/49395461.shtml)
+- 2026-06-29 23:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/6454393.shtml)
+- 2026-06-29 23:12 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/57416.shtml)

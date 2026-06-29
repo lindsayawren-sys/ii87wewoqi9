@@ -1,46 +1,48 @@
-# 周六福于6月18日斥资799.57万港元回购49.61万股
+# 蒙商银行股份有限公司党委副书记、工会主席、董事廉斌接受纪律审查和监察调查
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-周六福（06168）发布公告，于2026年6月18日斥资799.57万港元回购49.61万股。责任编辑：卢昱君
+中央纪委国家监委网站讯 据内蒙古自治区纪委监委消息：蒙商银行股份有限公司党委副书记、工会主席、董事廉斌涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。 （内蒙古自治区纪委监委）责任编辑：李琳琳
 
 ## 正文
 
-周六福（06168）发布公告，于2026年6月18日斥资799.57万港元回购49.61万股。
+中央纪委国家监委网站讯 据内蒙古自治区纪委监委消息：蒙商银行股份有限公司党委副书记、工会主席、董事廉斌涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
 
-责任编辑：卢昱君
+（内蒙古自治区纪委监委）责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 22:54 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 23:10 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 23:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 23:04 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 23:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 23:00 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 22:54 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 22:54 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 23:02 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 23:14 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 23:18 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 23:16 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 23:15 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 23:04 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 23:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 23:22 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 23:14 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 23:23 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 23:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 23:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 23:23 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 23:14 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 23:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 23:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 23:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 23:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:19 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/842462285923.shtml)
-- 2026-06-29 23:19 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/5965099042.shtml)
-- 2026-06-29 23:00 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/0115147852.shtml)
-- 2026-06-29 22:56 - [美股](http://www.blog.minike.top/Article/details/456056.shtml)
-- 2026-06-29 23:10 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/31151.shtml)
-- 2026-06-29 23:19 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/76615475.shtml)
-- 2026-06-29 23:16 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/767979.shtml)
-- 2026-06-29 23:20 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/11259987.shtml)
-- 2026-06-29 23:09 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/3090535438.shtml)
-- 2026-06-29 23:11 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/3820385074.shtml)
-- 2026-06-29 23:15 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/519626601054.shtml)
-- 2026-06-29 23:23 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/69774.shtml)
-- 2026-06-29 23:03 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/8228407637.shtml)
-- 2026-06-29 23:20 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/877186.shtml)
-- 2026-06-29 23:19 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/09782120866.shtml)
+- 2026-06-29 23:14 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/361786.shtml)
+- 2026-06-29 23:26 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/76665.shtml)
+- 2026-06-29 23:21 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/28372.shtml)
+- 2026-06-29 23:06 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/995850756345.shtml)
+- 2026-06-29 23:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/97252193100.shtml)
+- 2026-06-29 23:10 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/30345258964.shtml)
+- 2026-06-29 23:05 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/60061.shtml)
+- 2026-06-29 23:08 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/026770741108.shtml)
+- 2026-06-29 23:07 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/5386626.shtml)
+- 2026-06-29 23:09 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/107853051.shtml)
+- 2026-06-29 23:14 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/65426213.shtml)
+- 2026-06-29 23:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/48518576279.shtml)
+- 2026-06-29 23:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/5277058.shtml)
+- 2026-06-29 23:06 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/81361711489.shtml)
+- 2026-06-29 23:04 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/040452712323.shtml)

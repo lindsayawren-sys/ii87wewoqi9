@@ -1,60 +1,61 @@
-# 中马蜡染（巴迪）非遗文化交流活动在吉隆坡举办
+# 安徽到2028年将建30家省级制造业中试平台
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网吉隆坡6月21日电 (记者 刘育英)6月20日，恰逢联合国“文明对话国际日”，“同源异韵·匠心对话”中马蜡染(巴迪)非遗文化交流活动在吉隆坡中国文化中心举办。 马来西亚旅游、艺术和文化部副秘书长莫哈末尤斯里提出，巴迪是马来西亚重要文化符号之一，不仅是传统工艺的代表，更是推动文化产业发展的重要载体。期待以本次活动为契机，深化两国非遗保护、文创产业与民间往来合作。 吉隆坡中国
+中新网合肥5月9日电 (记者 张俊)记者9日从安徽省工业和信息化厅获悉，到2028年，安徽计划培育建设30家省级制造业中试平台，以打通科技成果转化的“最后一公里”。 中试是产品正式投产前的中间阶段试验，是科技成果从实验室走向生产线的关键环节。据安徽省工业和信息化厅副厅长蒋晨捷介绍，《安徽省制造业中试平台建设实施方案》(以下简称《方案》)近日印发，旨在破解“实验室成果走不出、生产
 
 ## 正文
 
-中新网吉隆坡6月21日电 (记者 刘育英)6月20日，恰逢联合国“文明对话国际日”，“同源异韵·匠心对话”中马蜡染(巴迪)非遗文化交流活动在吉隆坡中国文化中心举办。
+中新网合肥5月9日电 (记者 张俊)记者9日从安徽省工业和信息化厅获悉，到2028年，安徽计划培育建设30家省级制造业中试平台，以打通科技成果转化的“最后一公里”。
 
-马来西亚旅游、艺术和文化部副秘书长莫哈末尤斯里提出，巴迪是马来西亚重要文化符号之一，不仅是传统工艺的代表，更是推动文化产业发展的重要载体。
+中试是产品正式投产前的中间阶段试验，是科技成果从实验室走向生产线的关键环节。
 
-期待以本次活动为契机，深化两国非遗保护、文创产业与民间往来合作。
+据安徽省工业和信息化厅副厅长蒋晨捷介绍，《安徽省制造业中试平台建设实施方案》(以下简称《方案》)近日印发，旨在破解“实验室成果走不出、生产线需求接不上”的难题，通过体系化布局中试平台，弥合研发与生产之间的鸿沟。
 
-吉隆坡中国文化中心主任韩宁表示，中马蜡染虽孕育于不同文化土壤，但都凝聚着人们对自然、生活与美的独特理解，此次活动助力两国非物质文化遗产代表性传承人和文化工作者共同探索传统工艺创新转化之路，让非遗焕发时代活力。
+《方案》显示，安徽将围绕智能网联新能源汽车、新一代信息技术、人工智能等优势产业，以及量子科技、生物制造、氢能等未来产业，分类推进中试平台建设。
 
-本次活动设置大师论坛、主题展览、技艺展演与公众体验四大板块。
+同时，为充分调动各方积极性，《方案》提出了四种建设模式，包括支持企业自主建设运营、鼓励高校院所聚焦成果转化、政府投资建设公共服务平台，以及推动政产学研用联合共建。
 
-在“蜡绘山川”对话论坛上，贵州蜡染非物质文化遗产代表性传承人蔡群与马来西亚国家工艺大师易卜拉欣，围绕纹样设计、技艺传承、工艺创新、国际传播等话题展开深度分享。
+针对中小企业的具体举措是该《方案》的一大亮点。
 
-展厅内，中国贵州靛蓝蜡染作品尽显少数民族文化底蕴和审美传统，马来西亚巴迪展品融合热带风情与现代时尚，双线展品同台展现文明互鉴之美。
+《方案》明确将培育中试优质企业列为重点任务，支持中小企业聚焦中试环节的专用设备、工具、软件和服务等细分市场，通过精耕细作增强创新能力，培育更多省级“专精特新”中小企业。
 
-除论坛与展览外，两国工艺大师现场还开展技艺展演，向观众展示蜡绘、印花、染色等传统工艺流程。
+同时，中试平台将加大对专精特新中小企业的服务支持力度，为其提供工程开发、技术熟化、工艺创新等专业化公共服务，助力其成长为创新链上的关键节点。
 
 ## 相关推荐
 
-- 2026-06-29 23:23 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 23:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 23:16 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 22:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 23:20 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 23:21 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 23:07 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 23:15 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 22:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 23:03 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 22:57 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 23:16 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-29 23:19 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 23:04 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 23:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 23:01 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 23:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 23:14 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 23:02 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 23:24 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 23:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 23:13 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 23:23 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 23:07 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 23:08 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 23:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 23:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 23:14 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 23:23 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/95434851.shtml)
-- 2026-06-29 22:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/5612997.shtml)
-- 2026-06-29 23:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/649741.shtml)
-- 2026-06-29 23:01 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/78091151.shtml)
-- 2026-06-29 22:55 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/053742036.shtml)
-- 2026-06-29 23:02 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/06534.shtml)
-- 2026-06-29 23:04 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/08388614147.shtml)
-- 2026-06-29 23:00 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/93013.shtml)
-- 2026-06-29 23:14 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/4554740.shtml)
-- 2026-06-29 23:12 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/970128951.shtml)
-- 2026-06-29 23:13 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/18171.shtml)
-- 2026-06-29 22:57 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/57391748.shtml)
-- 2026-06-29 22:57 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/71001932631.shtml)
-- 2026-06-29 23:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/31464.shtml)
-- 2026-06-29 23:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/592771.shtml)
+- 2026-06-29 23:19 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/4973943968.shtml)
+- 2026-06-29 23:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/639941838895.shtml)
+- 2026-06-29 23:11 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/81685677.shtml)
+- 2026-06-29 23:20 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/0240311.shtml)
+- 2026-06-29 23:12 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/99845325134.shtml)
+- 2026-06-29 23:15 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/86607675.shtml)
+- 2026-06-29 23:02 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/43089.shtml)
+- 2026-06-29 23:17 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/536001817.shtml)
+- 2026-06-29 23:05 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/847492904669.shtml)
+- 2026-06-29 23:03 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/502084826476.shtml)
+- 2026-06-29 23:29 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/1838937008.shtml)
+- 2026-06-29 23:04 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/3566920.shtml)
+- 2026-06-29 23:09 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/37652.shtml)
+- 2026-06-29 23:02 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/040533735017.shtml)
+- 2026-06-29 23:25 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/8066110474.shtml)

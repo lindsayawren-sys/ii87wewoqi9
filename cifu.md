@@ -1,53 +1,61 @@
-# 没看错 真是粽子！广州海关查获1.6吨走私粽子 包装印有“碱水粽”“肉粽”
+# 柬埔寨民调：近八成受访者认为中国是为柬发展提供最大帮助的国家
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 20:03 来源：中国新闻网 近日，广州海关在跨境电商渠道查获一批夹藏出口的粽子，重1.6吨。 广州海关所属清远海关关员在对一票申报为“气泡袋、防雨布”的跨境电商出口包裹进行查验时，发现集装箱内部有部分纸箱外包装印有“碱水粽”“肉粽”等字样。经开箱查验，现场关员发现纸箱内为大量未向海关申报的粽子，共计4800个、重1.6吨。 海关提醒：根据《中
+中新社金边5月9日电 柬埔寨知名智库亚洲愿景研究院(AVI)8日发布的《2025年柬中关系民意调查报告》显示，77.11%的受访者认为中国是为柬埔寨发展提供最大帮助的国家。 该民调覆盖柬全部25个省市，受访者2612人，涵盖政府、企业、学界、媒体、基层等各界。 数据显示，96.1%的受访者对中国印象积极，中国经济实力和机遇、发展模式和经验以及科技产品最受关注。97.4%的受访者
 
 ## 正文
 
-发布时间：2026年06月21日 20:03 来源：中国新闻网 近日，广州海关在跨境电商渠道查获一批夹藏出口的粽子，重1.6吨。
+中新社金边5月9日电 柬埔寨知名智库亚洲愿景研究院(AVI)8日发布的《2025年柬中关系民意调查报告》显示，77.11%的受访者认为中国是为柬埔寨发展提供最大帮助的国家。
 
-广州海关所属清远海关关员在对一票申报为“气泡袋、防雨布”的跨境电商出口包裹进行查验时，发现集装箱内部有部分纸箱外包装印有“碱水粽”“肉粽”等字样。
+该民调覆盖柬全部25个省市，受访者2612人，涵盖政府、企业、学界、媒体、基层等各界。
 
-经开箱查验，现场关员发现纸箱内为大量未向海关申报的粽子，共计4800个、重1.6吨。
+数据显示，96.1%的受访者对中国印象积极，中国经济实力和机遇、发展模式和经验以及科技产品最受关注。
 
-海关提醒：根据《中华人民共和国海关法》及相关法律法规规定，食品为出口法定检验商品，企业在出口法定检验商品时应如实报检，严格履行申报义务。
+97.4%的受访者看好两国关系前景，99.7%的受访者认为柬中关系对柬重要。
 
-出口法定检验商品未申报或申报不实的，海关将依法追究其相应的法律责任。
+受访者普遍称赞共建“一带一路”为柬埔寨带来更完善的基础设施、更多就业与教育机会及更高收入。
 
-(制作 王佳琪 视频来源 海关发布） 责任编辑：【李季】
+金港高速公路、西港经济特区、暹粒吴哥国际机场、考斯玛中柬友谊医院等双边合作项目广受认可。
+
+这份报告还显示，部分受访者认为网络诈骗等跨境犯罪问题影响柬中合作，需双方进一步协同应对。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:55 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 23:15 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 23:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 23:13 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 23:04 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 22:59 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 23:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 23:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 22:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 23:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 22:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 23:01 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 23:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 23:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 23:23 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 23:16 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 23:12 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 23:12 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 23:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 23:01 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 23:05 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 23:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 23:25 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 23:21 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 23:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 23:09 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:21 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/57672.shtml)
-- 2026-06-29 23:00 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/08988686.shtml)
-- 2026-06-29 23:21 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/8333956329.shtml)
-- 2026-06-29 23:08 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/018491039383.shtml)
-- 2026-06-29 22:57 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/452159643.shtml)
-- 2026-06-29 23:15 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/05837609352.shtml)
-- 2026-06-29 22:58 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/21710448.shtml)
-- 2026-06-29 23:17 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/67374.shtml)
-- 2026-06-29 23:04 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/417935336720.shtml)
-- 2026-06-29 23:01 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/65247532477.shtml)
-- 2026-06-29 23:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/36982852839.shtml)
-- 2026-06-29 23:00 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/810500.shtml)
-- 2026-06-29 23:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/8269382.shtml)
-- 2026-06-29 23:01 - [TOP Prada](https://www.share.minike.top/Article/details/467690.shtml)
-- 2026-06-29 22:59 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/7389414930.shtml)
+- 2026-06-29 23:06 - [流金岁月](http://www.share.kurohicncr.top/Article/details/49173118.shtml)
+- 2026-06-29 23:04 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/7180479957.shtml)
+- 2026-06-29 23:17 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/44495830870.shtml)
+- 2026-06-29 23:27 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/97743758645.shtml)
+- 2026-06-29 23:10 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/436982.shtml)
+- 2026-06-29 23:00 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/822055.shtml)
+- 2026-06-29 23:11 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/268874341398.shtml)
+- 2026-06-29 23:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/726453312.shtml)
+- 2026-06-29 23:02 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/90082.shtml)
+- 2026-06-29 23:26 - [巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/22918788926.shtml)
+- 2026-06-29 23:27 - [啊啊啊](http://www.share.minike.top/Article/details/253903.shtml)
+- 2026-06-29 23:26 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/72774393.shtml)
+- 2026-06-29 23:04 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/91637155.shtml)
+- 2026-06-29 23:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/32437189279.shtml)
+- 2026-06-29 23:29 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/90571312711.shtml)

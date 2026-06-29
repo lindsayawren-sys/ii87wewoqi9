@@ -1,47 +1,58 @@
-# 商务部：将对澳大利亚进口牛肉加征55%关税
+# 宁夏固原首所高职院校获批 填补区域高职教育空白
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网6月19日电 商务部19日在官网发布《关于2026年度牛肉保障措施执行提示信息(五)》，全文如下： 牛肉保障措施项下自澳大利亚进口的牛肉于2026年6月18日已达到商务部公告2025年第87号明确的该国家规定数量的100%。根据商务部公告2025年第87号，在澳大利亚牛肉进口数量达到规定数量100%的第3日起(6月20日零点起)，自该国进口牛肉将在现行适用关税税率基础上加
+中新网银川5月11日电 (记者 李佩珊)记者11日从宁夏固原市了解到，固原农林职业技术学院已正式通过教育部备案，列入全国专科层次高等职业学校序列。这是固原市第一所公办全日制高等职业院校，结束了当地无本土高职院校的历史，推动宁夏南部地区职业教育发展迈出新步伐。据悉，该学院经宁夏回族自治区人民政府审批设立，由固原市人民政府管理，属公办全日制普通高职院校，主要开展专科层次职业教育，初
 
 ## 正文
 
-中新网6月19日电 商务部19日在官网发布《关于2026年度牛肉保障措施执行提示信息(五)》，全文如下： 牛肉保障措施项下自澳大利亚进口的牛肉于2026年6月18日已达到商务部公告2025年第87号明确的该国家规定数量的100%。
+中新网银川5月11日电 (记者 李佩珊)记者11日从宁夏固原市了解到，固原农林职业技术学院已正式通过教育部备案，列入全国专科层次高等职业学校序列。
 
-根据商务部公告2025年第87号，在澳大利亚牛肉进口数量达到规定数量100%的第3日起(6月20日零点起)，自该国进口牛肉将在现行适用关税税率基础上加征55%关税。
+这是固原市第一所公办全日制高等职业院校，结束了当地无本土高职院校的历史，推动宁夏南部地区职业教育发展迈出新步伐。
+
+据悉，该学院经宁夏回族自治区人民政府审批设立，由固原市人民政府管理，属公办全日制普通高职院校，主要开展专科层次职业教育，初步确定办学规模为3000人。
+
+学院办学紧扣固原及宁夏区域发展实际需求，聚焦乡村振兴重点领域，首批设置畜牧兽医、动物医学、园林技术、园艺技术、水利水电工程技术等专业。
+
+办学期间，学院将深化产教融合、校企合作，全力培养扎根当地、实用性强、专业技能扎实的高素质技术技能人才，助力地方经济社会高质量发展。
+
+据了解，固原农林职业技术学院申建工作2021年正式启动，随后纳入宁夏“十四五”高校设置规划，历经专家实地考察、社会公示、政府批复等全流程规范审核，各项办学条件均达标国家高等职业院校设置标准。
+
+该校获批设立，有效填补了固原高等职业教育空白，进一步优化了宁夏高等教育区域布局，完善了区域现代职业教育体系。
+
+固原市相关部门负责人表示，下一步将加大院校建设经费投入，强化师资队伍建设与实训设施保障，支持学院深耕农林特色办学，深化校地合作，推动职业教育与现代农业、生态保护、乡村产业发展深度融合，为宁夏南部地区乡村全面振兴、区域协调发展提供坚实人才支撑。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 23:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 23:23 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 23:13 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 23:00 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 23:23 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 23:21 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 23:08 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 22:54 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 22:58 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 23:13 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 23:10 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 22:56 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 23:18 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 23:24 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 23:02 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 23:00 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 23:15 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 23:23 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 23:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 23:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 23:24 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 23:27 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 23:09 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 23:17 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [美人鱼](http://www.share.kurohicncr.top/Article/details/898150.shtml)
-- 2026-06-29 23:00 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/771170312.shtml)
-- 2026-06-29 23:00 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/70627913889.shtml)
-- 2026-06-29 23:02 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/32700967.shtml)
-- 2026-06-29 23:18 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/305345441.shtml)
-- 2026-06-29 23:05 - [一生一世](http://www.share.minike.top/Article/details/71477.shtml)
-- 2026-06-29 23:15 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/102436.shtml)
-- 2026-06-29 23:15 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/814108854.shtml)
-- 2026-06-29 23:12 - [毒液2](https://www.share.kurohicncr.top/Article/details/05999991065.shtml)
-- 2026-06-29 23:01 - [山东发布山洪灾害气象预警](http://www.blog.minike.top/Article/details/94598172485.shtml)
-- 2026-06-29 23:13 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/808370.shtml)
-- 2026-06-29 23:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/908473.shtml)
-- 2026-06-29 22:58 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/774785072.shtml)
-- 2026-06-29 23:00 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/2688969.shtml)
-- 2026-06-29 23:13 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/140160.shtml)
+- 2026-06-29 23:25 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/2908310407.shtml)
+- 2026-06-29 23:20 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/73452230412.shtml)
+- 2026-06-29 23:03 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/55349919697.shtml)
+- 2026-06-29 23:23 - [美人鱼](https://www.share.minike.top/Article/details/116136188.shtml)
+- 2026-06-29 23:17 - [美人鱼](http://www.share.minike.top/Article/details/61666860.shtml)
+- 2026-06-29 23:27 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/75193318941.shtml)
+- 2026-06-29 23:27 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/403088.shtml)
+- 2026-06-29 23:15 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/54168.shtml)
+- 2026-06-29 23:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/723681059065.shtml)
+- 2026-06-29 23:08 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/17840712705.shtml)
+- 2026-06-29 23:12 - [葫芦岛居民楼闪爆事故致3死](https://www.share.minike.top/Article/details/63855084916.shtml)
+- 2026-06-29 23:22 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/911941151669.shtml)
+- 2026-06-29 23:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/192071.shtml)
+- 2026-06-29 23:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/528284107528.shtml)
+- 2026-06-29 23:28 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/051270143224.shtml)

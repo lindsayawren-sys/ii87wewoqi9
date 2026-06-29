@@ -1,56 +1,58 @@
-# 长三角铁路今迎返程客流最高峰：预计发送354万人次，同比增长1.1%
+# 郑州银行再一次不分红
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-长三角铁路今迎返程最高峰。 6月21日，澎湃新闻记者从中国铁路上海局集团有限公司（以下简称“上铁集团”）获悉，今日是2026年端午假期最后一天，长三角铁路迎来返程客流最高峰，今日预计发送旅客354万人次，较去年同期增加1.1%。铁路部门统筹运力、优化服务，全力应对集中到达与出发客流，保障旅客出行平稳有序。 截至6月21日8时，当天，长三角多地去往武汉、长沙、福州、厦门、青岛等直
+来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。 最近两个区域银行的案例，放在一起看，很有对照意义。 前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。 另一边，郑州银行给出了完全不同的答案。 根据郑州银行2025年年报，该行不进
 
 ## 正文
 
-长三角铁路今迎返程最高峰。
+来源：看懂经济 银行分红，看起来是利润分配，背后其实是一家银行在经营压力、资本补充和股东回报之间做出的选择。
 
-6月21日，澎湃新闻记者从中国铁路上海局集团有限公司（以下简称“上铁集团”）获悉，今日是2026年端午假期最后一天，长三角铁路迎来返程客流最高峰，今日预计发送旅客354万人次，较去年同期增加1.1%。
+最近两个区域银行的案例，放在一起看，很有对照意义。
 
-铁路部门统筹运力、优化服务，全力应对集中到达与出发客流，保障旅客出行平稳有序。
+前不久，甘肃银行2025年分红方案引发关注：全年归母净利润不足6亿元，却拟派发现金股息约17.78亿元，分红金额约为当年归母净利润的3倍多。
 
-截至6月21日8时，当天，长三角多地去往武汉、长沙、福州、厦门、青岛等直通方向车票有少量余票；徐州、蚌埠、阜阳、合肥、安庆等地去往上海、南京，盐城、淮安、扬州去往南京，宁波、台州、温州去往上海、杭州等管内方向车票趋紧。
+另一边，郑州银行给出了完全不同的答案。
 
-上海、南京、杭州去往徐州、阜阳、盐城、淮安、扬州等多地还有余票。
+根据郑州银行2025年年报，该行不进行现金分红，不送红股，不进行资本公积转增股份。
 
-当天，长三角地区上海、杭州、南京、合肥、徐州、宁波、温州等火车站午后起将迎来返程客流高峰。
+这也意味着，在2024年恢复一笔象征性分红之后，郑州银行的现金分红再次停摆。
 
-上铁集团在启用高峰运行图的基础上，计划增开旅客列车238列，组织279列动车组列车重联运行，加挂普速车辆60辆。
+两家银行的案例放在一起看，很有意思。
 
-值得一提的是，21日夜间至22日凌晨，上铁集团计划增开夜间高铁128列，全力保障旅客返程出行需求。
+甘肃银行和郑州银行都不是处在高增长、高盈利的舒适区。
 
 ## 相关推荐
 
-- 2026-06-29 23:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 23:18 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 23:15 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 22:57 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 23:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 23:09 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 22:56 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 22:58 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 23:18 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 23:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 23:14 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 23:03 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-29 23:15 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 23:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 23:25 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 23:14 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 23:05 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 23:26 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 23:26 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 23:20 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 23:12 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 23:10 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:01 - [马航MH370传来最新消息](http://www.blog.minike.top/Article/details/54456881.shtml)
-- 2026-06-29 23:08 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/806304617159.shtml)
-- 2026-06-29 22:55 - [金刚川](https://www.blog.kurohicncr.top/Article/details/36108616.shtml)
-- 2026-06-29 23:01 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/04710.shtml)
-- 2026-06-29 23:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/686352965420.shtml)
-- 2026-06-29 23:13 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/409752077.shtml)
-- 2026-06-29 23:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/621031360859.shtml)
-- 2026-06-29 23:01 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/52493768018.shtml)
-- 2026-06-29 23:00 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/3196273387.shtml)
-- 2026-06-29 22:58 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/12389987666.shtml)
-- 2026-06-29 23:23 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/742197906.shtml)
-- 2026-06-29 23:16 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/90145441.shtml)
-- 2026-06-29 23:04 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/7223935683.shtml)
-- 2026-06-29 23:02 - [绘画区你赢了](https://www.share.minike.top/Article/details/933803169792.shtml)
-- 2026-06-29 23:12 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/291738992.shtml)
+- 2026-06-29 23:08 - [恋与深空致歉](https://www.share.minike.top/Article/details/62411035739.shtml)
+- 2026-06-29 23:26 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/555271074931.shtml)
+- 2026-06-29 23:05 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/83094.shtml)
+- 2026-06-29 23:27 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/33553.shtml)
+- 2026-06-29 23:06 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/178152731.shtml)
+- 2026-06-29 23:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/0660320.shtml)
+- 2026-06-29 23:23 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/255988991.shtml)
+- 2026-06-29 23:16 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/33268.shtml)
+- 2026-06-29 23:10 - [金刚川](https://www.share.minike.top/Article/details/113240930401.shtml)
+- 2026-06-29 23:00 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/7944261.shtml)
+- 2026-06-29 23:09 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/863407535085.shtml)
+- 2026-06-29 23:10 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/652962278.shtml)
+- 2026-06-29 23:02 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/45864.shtml)
+- 2026-06-29 23:04 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/038654770.shtml)
+- 2026-06-29 23:24 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/041196640956.shtml)

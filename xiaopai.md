@@ -1,58 +1,57 @@
-# 日本或通过出售了美债 为创纪录规模的日元汇市干预筹资
+# 第11届法国中国电影节在巴黎拉开帷幕
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-日本可能动用了其持有的外国证券，其中包括美国国债，为过去一个月创纪录的汇市干预提供资金，这一举动可能引起美国方面的关注。 根据日本财务省周五公布的储备数据，截至5月底，日本持有的外国证券较4月减少756亿美元。这一下降规模与日本近期为支撑日元而入市干预的金额大致相当。日本财务省上周确认，截至5月27日，当月用于汇市干预的资金达到创纪录的11.73万亿日元（734亿美元）。 一位
+发布时间：2026年05月11日 15:27 来源：中国新闻网 当地时间5月10日晚，第11届法国中国电影节在巴黎拉开帷幕。 中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当
 
 ## 正文
 
-日本可能动用了其持有的外国证券，其中包括美国国债，为过去一个月创纪录的汇市干预提供资金，这一举动可能引起美国方面的关注。
+发布时间：2026年05月11日 15:27 来源：中国新闻网 当地时间5月10日晚，第11届法国中国电影节在巴黎拉开帷幕。
 
-根据日本财务省周五公布的储备数据，截至5月底，日本持有的外国证券较4月减少756亿美元。
+中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当晚的开幕式。
 
-这一下降规模与日本近期为支撑日元而入市干预的金额大致相当。
+本届电影节推广大使张艺谋在视频致辞说，法国是电影艺术的诞生地，也是各国电影作品和电影人才的荟萃之地。
 
-日本财务省上周确认，截至5月27日，当月用于汇市干预的资金达到创纪录的11.73万亿日元（734亿美元）。
+法国中国电影节的持续举办对于推动中国电影与法国乃至欧洲同行的交流与合作发挥着无法替代的作用。
 
-一位在报告说明会上发言的财务省官员承认，汇市干预是外汇储备持仓大幅下降的原因之一，并表示此次降幅为纪录最大。
+贾樟柯在致辞中说，多元性是中国电影当前的特点之一，中国年轻导演的作品值得大家关注。
 
-通过出售美国国债来筹集汇市干预资金，可能不会受到华盛顿方面欢迎。
+开幕式后观影环节首先播放了中国电影先驱费穆执导的短片《春闺断梦》，随后播放张艺谋执导的新片《惊蛰无声》。
 
-美国官员愈发关注美国国债市场的稳定性。
+本届电影节由中国国家电影局、巴黎中国文化中心、法国百代电影集团联合主办，中国电影资料馆、中国电影博物馆及百代基金会等机构协办，并得到中国驻法国大使馆、法国文化部、法国国家电影中心、法国电影联盟、法国电影资料馆等机构的大力支持。
 
-今年早些时候，美国财政部长斯科特·贝森特曾警告日本官员，日本债券市场的波动可能蔓延至美国国债市场，这表明他对外国投资者大规模抛售美债保持高度警惕。
+(记者 李洋 制作 乐小敏） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 23:10 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 22:54 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 23:01 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 23:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 23:10 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 22:54 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 23:03 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 23:04 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 22:57 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 23:02 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 23:21 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 23:17 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 23:20 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 23:07 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 23:13 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 23:21 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 23:12 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 23:27 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 23:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 23:24 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 23:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 23:24 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/514748953759.shtml)
-- 2026-06-29 22:56 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/69454.shtml)
-- 2026-06-29 23:09 - [金刚川](http://www.blog.minike.top/Article/details/1987388.shtml)
-- 2026-06-29 23:10 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/04685314028.shtml)
-- 2026-06-29 23:23 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/4995213.shtml)
-- 2026-06-29 23:08 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/033446851465.shtml)
-- 2026-06-29 23:23 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/250754.shtml)
-- 2026-06-29 23:16 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/178495.shtml)
-- 2026-06-29 22:56 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/1223419.shtml)
-- 2026-06-29 23:00 - [乌克兰发广告全球征兵](https://www.share.kurohicncr.top/Article/details/3836661.shtml)
-- 2026-06-29 23:22 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/92642.shtml)
-- 2026-06-29 23:18 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/230040388854.shtml)
-- 2026-06-29 23:03 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/22352412.shtml)
-- 2026-06-29 23:08 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/133569613.shtml)
-- 2026-06-29 23:02 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/700125940646.shtml)
+- 2026-06-29 23:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/6745050.shtml)
+- 2026-06-29 23:03 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/86172.shtml)
+- 2026-06-29 23:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/9438271262.shtml)
+- 2026-06-29 23:26 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/16810236.shtml)
+- 2026-06-29 23:25 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/08641490.shtml)
+- 2026-06-29 23:23 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/49943217427.shtml)
+- 2026-06-29 23:00 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/75972919338.shtml)
+- 2026-06-29 23:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/76796907.shtml)
+- 2026-06-29 23:08 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/12639528834.shtml)
+- 2026-06-29 23:12 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/1689483.shtml)
+- 2026-06-29 23:03 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/53491810414.shtml)
+- 2026-06-29 23:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/2455897130.shtml)
+- 2026-06-29 23:10 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/4150544.shtml)
+- 2026-06-29 23:26 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/219403135583.shtml)
+- 2026-06-29 23:26 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/12409.shtml)

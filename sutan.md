@@ -1,44 +1,60 @@
-# 伊媒：伊朗代表团拒绝继续在瑞士进行伊美谈判
+# 第11届法国中国电影节在巴黎拉开帷幕
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-据伊朗媒体22日报道，伊朗代表团拒绝继续在瑞士与美国进行谈判。责任编辑：赵思远
+中新社巴黎5月10日电 (记者 李洋)第11届法国中国电影节当地时间10日晚在巴黎拉开帷幕。 中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当晚的开幕式。 邓励在致辞中表示，
 
 ## 正文
 
-据伊朗媒体22日报道，伊朗代表团拒绝继续在瑞士与美国进行谈判。
+中新社巴黎5月10日电 (记者 李洋)第11届法国中国电影节当地时间10日晚在巴黎拉开帷幕。
 
-责任编辑：赵思远
+中国驻法国大使邓励和夫人张华，中国国家电影局副局长、中国电影资料馆馆长秦振贵，法国国家电影中心主任昂拉尔，法国百代电影公司总裁、法国中国电影节法方主席萨法伊，巴黎中国文化中心副主任、法国中国电影节中方执行主席朱晓云和中国导演贾樟柯、法国演员于佩尔等出席当晚的开幕式。
+
+邓励在致辞中表示，本届电影节既有《风云儿女》这样的里程碑式作品，也有体现当代思考的《浪浪山小妖怪》等创意新作，还有纪录片、虚拟现实影片等多种类型，体现了中国电影产业的多样性与创造力。
+
+希望选映影片能为法国观众们带来美好的观影体验，同时加深对中国和中国人的理解。
+
+秦振贵在致辞中说，本届电影节展映的10部新片，代表了中国电影最新成就；4部经典修复影片，彰显出技术赋能电影艺术传承。
+
+这些影片有助于加深法国观众对中国文化的了解，促进民心相通。
+
+每年互办电影节，已成为两国人文交流的一大亮点。
+
+迄今为止，法国中国电影节累计放映中国影片逾百部，覆盖法国观众超过25万人次。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 23:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 23:12 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 23:02 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 23:12 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 23:20 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 22:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 23:13 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 23:22 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 23:05 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 23:00 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 23:05 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 23:18 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 23:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 23:01 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 23:28 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 23:26 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 23:00 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 23:06 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 23:04 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 23:14 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 23:26 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 23:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 23:12 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/593250897.shtml)
-- 2026-06-29 22:54 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/22424.shtml)
-- 2026-06-29 23:04 - [运20对中国空军的意义是什么](http://www.share.minike.top/Article/details/817652676680.shtml)
-- 2026-06-29 23:00 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/78610.shtml)
-- 2026-06-29 23:18 - [巴黎区长紧急采购50台中国空调](http://www.share.kurohicncr.top/Article/details/86845859.shtml)
-- 2026-06-29 23:00 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/6389084280.shtml)
-- 2026-06-29 23:10 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/627305202.shtml)
-- 2026-06-29 23:06 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/14369495.shtml)
-- 2026-06-29 23:15 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/482211551581.shtml)
-- 2026-06-29 23:18 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/41599.shtml)
-- 2026-06-29 23:17 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/783626037.shtml)
-- 2026-06-29 23:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/883420055.shtml)
-- 2026-06-29 22:56 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/3527195.shtml)
-- 2026-06-29 22:59 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/4081895864.shtml)
-- 2026-06-29 23:03 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/178184700.shtml)
+- 2026-06-29 23:06 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/75395319535.shtml)
+- 2026-06-29 23:14 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/9640604.shtml)
+- 2026-06-29 23:02 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0287698980.shtml)
+- 2026-06-29 23:19 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/52996.shtml)
+- 2026-06-29 23:19 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/80578568835.shtml)
+- 2026-06-29 23:27 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/590626559405.shtml)
+- 2026-06-29 23:11 - [汪苏泷年度歌手](https://www.share.minike.top/Article/details/685371886.shtml)
+- 2026-06-29 23:20 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/04406.shtml)
+- 2026-06-29 23:13 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/072489.shtml)
+- 2026-06-29 23:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/822456.shtml)
+- 2026-06-29 23:27 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/1702005.shtml)
+- 2026-06-29 23:02 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/71765.shtml)
+- 2026-06-29 23:17 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/9820758.shtml)
+- 2026-06-29 23:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/9055826042.shtml)
+- 2026-06-29 23:29 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/86274393783.shtml)

@@ -1,55 +1,60 @@
-# 新疆塔城：端午节戍边民警巡逻路上吃粽子
+# 无人机事件应对不力 拉脱维亚防长遭解职
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 17:19 来源：中国新闻网 粽香飘北疆，戍边护佳节。6月19日，新疆托里沙孜边境派出所民警对边境重点区域开展巡逻踏查，确保节日期间边境地区安全稳定。巡逻间隙，民警围坐吃上自己包的粽子。粽叶包裹家国初心，藏蓝坚守守护万家团圆，全体民警以戈壁戍守诠释担当，遥祝全国人民端午安康。(作者：毛显文） 责任编辑：【魏聪聪】
+中新社北京5月11日电综合消息：拉脱维亚总理埃维卡·希莉娜当地时间10日解除国防部长安德里斯·斯普鲁兹的职务，理由是应对无人机事件不力。 综合路透社、乌克兰国家通讯社等媒体消息，希莉娜10日在社交媒体上发文说，日前发生的无人机事件表明，国防部门的政治领导层未能兑现其保障国家领空安全的承诺，“安德里斯·斯普鲁兹已失去我和公众的信任，因此决定要求其辞职”。 希莉娜还说，邀请赖维斯·
 
 ## 正文
 
-发布时间：2026年06月19日 17:19 来源：中国新闻网 粽香飘北疆，戍边护佳节。
+中新社北京5月11日电综合消息：拉脱维亚总理埃维卡·希莉娜当地时间10日解除国防部长安德里斯·斯普鲁兹的职务，理由是应对无人机事件不力。
 
-6月19日，新疆托里沙孜边境派出所民警对边境重点区域开展巡逻踏查，确保节日期间边境地区安全稳定。
+综合路透社、乌克兰国家通讯社等媒体消息，希莉娜10日在社交媒体上发文说，日前发生的无人机事件表明，国防部门的政治领导层未能兑现其保障国家领空安全的承诺，“安德里斯·斯普鲁兹已失去我和公众的信任，因此决定要求其辞职”。
 
-巡逻间隙，民警围坐吃上自己包的粽子。
+希莉娜还说，邀请赖维斯·梅尔尼斯上校出任国防部长，对方已同意。
 
-粽叶包裹家国初心，藏蓝坚守守护万家团圆，全体民警以戈壁戍守诠释担当，遥祝全国人民端午安康。
+斯普鲁兹此后宣布辞职。
 
-(作者：毛显文） 责任编辑：【魏聪聪】
+他表示，辞职是为了防止军队卷入政治纷争，国防部门将继续致力于保护国家领空和公共安全。
+
+本月7日凌晨，两架来自俄罗斯领空的无人机在拉脱维亚境内坠毁，造成东部城市雷泽克内的一处石油储存设施受损。
+
+乌克兰外长瑟比加10日通报称，涉事无人机属于乌克兰。
+
+他解释说，俄罗斯电子战蓄意干扰乌克兰无人机，使其偏离在俄境内的目标，引发了这起事件。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 23:21 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 23:16 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 23:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 22:58 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 22:57 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 23:11 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 23:07 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-29 23:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 23:14 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 23:04 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 23:06 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 23:02 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 22:57 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 22:54 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 23:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 23:14 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 23:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 23:14 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 23:08 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 23:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 23:12 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 23:29 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 23:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 23:22 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 23:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 23:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 23:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 23:13 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/59591.shtml)
-- 2026-06-29 23:11 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/203806.shtml)
-- 2026-06-29 23:10 - [刘念回应](https://www.share.minike.top/Article/details/497026.shtml)
-- 2026-06-29 22:54 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/805628392686.shtml)
-- 2026-06-29 23:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/82845161625.shtml)
-- 2026-06-29 23:14 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/03355.shtml)
-- 2026-06-29 23:07 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/371626084.shtml)
-- 2026-06-29 23:22 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/15748.shtml)
-- 2026-06-29 23:22 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/734177527909.shtml)
-- 2026-06-29 23:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/5292891.shtml)
-- 2026-06-29 23:07 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/435350452040.shtml)
-- 2026-06-29 23:19 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/35836801.shtml)
-- 2026-06-29 23:10 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/06213805.shtml)
-- 2026-06-29 23:19 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/6614810.shtml)
-- 2026-06-29 22:58 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/7385343.shtml)
+- 2026-06-29 23:06 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/48889454.shtml)
+- 2026-06-29 23:18 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/7951342.shtml)
+- 2026-06-29 23:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/8286132.shtml)
+- 2026-06-29 23:23 - [月亮](https://www.share.minike.top/Article/details/970330.shtml)
+- 2026-06-29 23:25 - [返利科技盘中上演“天地板”](http://www.share.minike.top/Article/details/355284.shtml)
+- 2026-06-29 23:22 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/34909.shtml)
+- 2026-06-29 23:27 - [巴西队主帅称日本队是世界最佳之一](https://www.share.minike.top/Article/details/467820252.shtml)
+- 2026-06-29 23:24 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/794403549.shtml)
+- 2026-06-29 23:17 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/3398641340.shtml)
+- 2026-06-29 23:06 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/715838.shtml)
+- 2026-06-29 23:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/957904.shtml)
+- 2026-06-29 23:22 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/4293072.shtml)
+- 2026-06-29 23:08 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/930086112.shtml)
+- 2026-06-29 23:15 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/077574402025.shtml)
+- 2026-06-29 23:04 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/60191.shtml)

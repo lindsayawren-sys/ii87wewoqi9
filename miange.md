@@ -1,56 +1,58 @@
-# 英媒称英外交大臣要求首相斯塔默辞职
+# 2026国际青春诗会（中阿专场）嘉宾探访广州 中外诗人邂逅岭南文脉
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。 英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。 此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离
+拓年画、品荔枝、赴诗约……国际青春诗会(中阿专场)嘉宾深度探访广州 中外诗人邂逅岭南文脉 2026国际青春诗会(中国—阿拉伯国家专场)开幕，中外诗人及特邀嘉宾开启广州深度探访之旅。 5月9日至10日，一行人先后走进广东文学馆、广东非遗馆、小鹏科技园与广州市文化馆，以岭南沃土为媒介，沉浸式品读广州千年文脉、非遗匠心底蕴与前沿科创活力，在一步一景的深度体验中，真切感受花城的包容温情
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+拓年画、品荔枝、赴诗约……国际青春诗会(中阿专场)嘉宾深度探访广州 中外诗人邂逅岭南文脉 2026国际青春诗会(中国—阿拉伯国家专场)开幕，中外诗人及特邀嘉宾开启广州深度探访之旅。
 
-新华社伦敦6月21日电（记者于艾岑）据英国天空新闻频道21日报道，英国外交大臣库珀已于本周末私下要求首相斯塔默辞职。
+5月9日至10日，一行人先后走进广东文学馆、广东非遗馆、小鹏科技园与广州市文化馆，以岭南沃土为媒介，沉浸式品读广州千年文脉、非遗匠心底蕴与前沿科创活力，在一步一景的深度体验中，真切感受花城的包容温情与多元魅力，深深爱上这座诗意盎然的岭南之城。
 
-英国商业贸易大臣彼得·凯尔21日早间接受英国天空新闻频道采访时说，他认为斯塔默正在“反思他所面临的政治现实、挑战和机遇”。
+文、图/广州日报全媒体记者吴波体悟书法之美 写下“诗意永存” 在广东文学馆，诗人们循着百年文学脉络，逐一探访“海上明月：广东古代文学展厅”“鲁迅家”特展、红色经典展等核心展区，系统梳理岭南文学的发展轨迹，体悟中国文学蕴藏的山海襟怀与人文风骨。
 
-此前有英媒报道称，英国交通大臣海迪·亚历山大19日敦促斯塔默制定离任时间表，内政大臣谢巴娜·马哈茂德也曾呼吁斯塔默确定离任日期。
+伊拉克诗人穆罕默德·贾米勒驻足古籍手抄本前久久凝望，细细比对中阿书法的艺术异同，赞叹两种文字各有风致。
 
-19日凌晨，英国大曼彻斯特市长安迪·伯纳姆赢得马克菲尔德选区下院议员补选，将重返议会下院，从而具备参与工党党首竞争、进而角逐首相职位的条件。
+他表示，诗歌与语言是跨越山海的文化纽带，让异域友人读懂中国、亲近广州，这场双向奔赴的文学相遇珍贵而深刻，期待未来中阿诗人能够深耕交流、常来常往，碰撞出更多诗意火花。
 
-伯纳姆被广泛视作斯塔默工党党首地位的有力竞争者，他曾在该选区一场补选候选人辩论中表示，如果他获胜，将寻求加入任何挑战斯塔默党首之位的活动。
+参观尾声，中外诗人齐聚留言墙，提笔抒怀、以墨寄情，用不同文字书写对广州的喜爱与对文学的赤诚。
 
-斯塔默19日对英国媒体表示，如果发生党首竞选，他将会参选，并重申自己不会“一走了之”。
+埃及诗人、小说家穆尼尔·阿提巴深情留言，坦言沉醉于厚重隽永的中国文化，并为此落笔成诗，愿这份跨越国界的文化热爱纯粹如初、岁岁绵长。
 
-（完）责任编辑：宋雅芳
+中国诗人希贤挥笔写下“诗意永存”四字，字句简约却意蕴悠远，寄托着文脉永续、友谊长青的美好期许。
 
 ## 相关推荐
 
-- 2026-06-29 23:10 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 23:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 23:17 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 23:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 23:12 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 23:09 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 23:16 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 23:23 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 23:09 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 22:57 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 23:24 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 23:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 23:02 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 23:02 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 23:18 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 23:27 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 23:26 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 23:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 23:06 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 23:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 23:12 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 23:25 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/461957.shtml)
-- 2026-06-29 22:56 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/480282.shtml)
-- 2026-06-29 23:00 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/570077.shtml)
-- 2026-06-29 23:02 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/137103934.shtml)
-- 2026-06-29 23:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/88270044016.shtml)
-- 2026-06-29 22:54 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/88824.shtml)
-- 2026-06-29 23:03 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/234730.shtml)
-- 2026-06-29 23:13 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/57015412684.shtml)
-- 2026-06-29 22:59 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/6754203564.shtml)
-- 2026-06-29 23:16 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/024903253.shtml)
-- 2026-06-29 23:05 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/4926206375.shtml)
-- 2026-06-29 23:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/4414246175.shtml)
-- 2026-06-29 23:09 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/906102.shtml)
-- 2026-06-29 23:18 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/40801099479.shtml)
-- 2026-06-29 23:03 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/524793194.shtml)
+- 2026-06-29 23:07 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/67481.shtml)
+- 2026-06-29 23:22 - [欧洲缘何成为变暖最快的大洲](https://www.blog.minike.top/Article/details/74711238685.shtml)
+- 2026-06-29 23:04 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/60745239053.shtml)
+- 2026-06-29 23:19 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/34728863.shtml)
+- 2026-06-29 23:27 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/59331.shtml)
+- 2026-06-29 23:29 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/564185011488.shtml)
+- 2026-06-29 23:23 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/03066131466.shtml)
+- 2026-06-29 23:00 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/356846699362.shtml)
+- 2026-06-29 23:05 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/96164859.shtml)
+- 2026-06-29 23:29 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/985854901114.shtml)
+- 2026-06-29 23:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/2891655.shtml)
+- 2026-06-29 23:24 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/091810.shtml)
+- 2026-06-29 23:04 - [周生如故](http://www.blog.minike.top/Article/details/2724070584.shtml)
+- 2026-06-29 23:20 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/885090107146.shtml)
+- 2026-06-29 23:13 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/121411193.shtml)

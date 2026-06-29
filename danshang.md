@@ -1,57 +1,58 @@
-# 端午假期来临 上海虹桥边检站全力做好口岸安全保畅工作
+# 406亿！科创板史上最大规模并购重组案过会！
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网上海6月19日电 (殷立勤 施慧)随着端午假期的来临，上海虹桥国际机场口岸出入境客流量持续高位运行。记者从虹桥边检站了解到，今年端午假期(6月19日至6月21日)，上海虹桥国际机场口岸出入境客流量预计达到3.1万人次，日均1万人次。面对出入境客流高峰，虹桥边检站持续优化边检查验流程，强化口岸通关保障，为广大出入境旅客积极营造安全、优质的通关环境，提供高效、顺畅的假期出行体
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 5月11日晚间，上交所官网显示，中芯国际（688981）筹划的并购重组事项获并购重组审核委员会审议通过。按照约406亿元的交易价格，该交易系科创板史上最大规模并购重组案。 据上交所官网，中芯国际并购重组事项于2026年2月25日获得受理，3月9日进入问询阶段。 重大资产重组报告书显示，中芯国
 
 ## 正文
 
-中新网上海6月19日电 (殷立勤 施慧)随着端午假期的来临，上海虹桥国际机场口岸出入境客流量持续高位运行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-记者从虹桥边检站了解到，今年端午假期(6月19日至6月21日)，上海虹桥国际机场口岸出入境客流量预计达到3.1万人次，日均1万人次。
+来源：资本秘闻 5月11日晚间，上交所官网显示，中芯国际（688981）筹划的并购重组事项获并购重组审核委员会审议通过。
 
-面对出入境客流高峰，虹桥边检站持续优化边检查验流程，强化口岸通关保障，为广大出入境旅客积极营造安全、优质的通关环境，提供高效、顺畅的假期出行体验。
+按照约406亿元的交易价格，该交易系科创板史上最大规模并购重组案。
 
-走进虹桥边检站查验大厅，现场往来旅客络绎不绝，通关秩序井然。
+据上交所官网，中芯国际并购重组事项于2026年2月25日获得受理，3月9日进入问询阶段。
 
-在边检民警的专业引导下，旅客有序分流、快速候检、顺畅通关，整体通关过程高效便捷。
+重大资产重组报告书显示，中芯国际拟向国家集成电路基金、集成电路投资中心、亦庄国投、中关村发展、北京工投发行股份购买其所持有的中芯北方49%股权，交易价格约为406亿元。
 
-不少海外华侨、港澳台居民趁着端午小长假返乡团聚，口岸迎来浓厚的返乡探亲出行热潮。
+中芯国际表示，中芯北方主要为客户提供不同工艺平台的12英寸集成电路晶圆代工及配套服务。
 
-“趁着端午假期回来和家人团聚，好久没回来了，这次通关特别顺利，速度很快、体验很好。
+本次交易完成后，公司将持有中芯北方100%的股权，中芯北方将成为公司的全资子公司。
 
-”返乡旅客冯女士向记者说道。
+文/资本秘闻责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 23:02 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 22:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 23:09 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 22:54 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 23:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-29 23:20 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 22:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 23:00 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 23:06 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 22:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 23:15 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 23:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 23:21 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 23:18 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 23:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 23:00 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 23:19 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 23:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 23:13 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 23:03 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 23:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 23:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:23 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/17997350223.shtml)
-- 2026-06-29 23:06 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/9289034.shtml)
-- 2026-06-29 23:02 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/4900899.shtml)
-- 2026-06-29 23:06 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/917398.shtml)
-- 2026-06-29 23:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/5798562628.shtml)
-- 2026-06-29 23:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/713560926.shtml)
-- 2026-06-29 23:03 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/82675098841.shtml)
-- 2026-06-29 23:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/119965259502.shtml)
-- 2026-06-29 23:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/808213038.shtml)
-- 2026-06-29 22:59 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.kurohicncr.top/Article/details/312648176.shtml)
-- 2026-06-29 22:58 - [绘画区你赢了](https://www.blog.minike.top/Article/details/69402056.shtml)
-- 2026-06-29 23:04 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/84322331.shtml)
-- 2026-06-29 23:02 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/272737947.shtml)
-- 2026-06-29 23:02 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/22005980.shtml)
-- 2026-06-29 23:00 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/332082.shtml)
+- 2026-06-29 23:14 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/11420826720.shtml)
+- 2026-06-29 23:18 - [欧洲缘何成为变暖最快的大洲](http://www.share.kurohicncr.top/Article/details/2214473405.shtml)
+- 2026-06-29 23:26 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/34743694.shtml)
+- 2026-06-29 23:03 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/82593203.shtml)
+- 2026-06-29 23:16 - [绘画区你赢了](https://www.share.minike.top/Article/details/0188967.shtml)
+- 2026-06-29 23:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/2274590.shtml)
+- 2026-06-29 23:10 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/09621376322.shtml)
+- 2026-06-29 23:20 - [急先锋](http://www.share.kurohicncr.top/Article/details/2596054178.shtml)
+- 2026-06-29 23:01 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/03072821.shtml)
+- 2026-06-29 23:02 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/98594.shtml)
+- 2026-06-29 23:25 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/773078.shtml)
+- 2026-06-29 23:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/16475762.shtml)
+- 2026-06-29 23:08 - [女心理师](http://www.share.kurohicncr.top/Article/details/421537.shtml)
+- 2026-06-29 23:00 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/3149644191.shtml)
+- 2026-06-29 23:20 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/60763.shtml)

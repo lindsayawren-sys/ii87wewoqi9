@@ -1,60 +1,57 @@
-# 广西端午特色民俗“圈粉”海外游客
+# 欧洲多国将接回涉疫邮轮人员 世卫组织评估传播风险仍“较低”
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社南宁6月20日电 (记者 黄艳梅)观龙舟竞渡、赏非遗民俗、品特色美食……2026年端午假期，广西各地上演民俗盛宴，海内外游客深度参与，领略广西多彩风情的独特魅力。 来自柬埔寨的青年学生李力龙把参加南宁龙舟赛当成探索中国文化的特殊方式。“划龙舟很有趣，需要团队紧密协作。我还在赛事配套活动中体验了画龙点睛、制作粽子香囊等传统习俗，对端午文化有了深入了解。” 南宁民歌湖国际音乐
+新华社马德里5月9日电 西班牙内政大臣费尔南多·格兰德-马拉斯卡·戈麦斯9日说，德国、法国、比利时、爱尔兰和荷兰将派飞机从暴发汉坦病毒疫情的“洪迪厄斯”号邮轮上接回本国公民。 西班牙卫生大臣莫妮卡·加西亚同一天表示，预计“洪迪厄斯”号邮轮将于当地时间10日凌晨抵达西班牙特内里费岛。按照西班牙官员说法，除上述5国之外，欧盟将另派两架飞机接走船上其余欧盟国家人员。美国和英国正在为那
 
 ## 正文
 
-中新社南宁6月20日电 (记者 黄艳梅)观龙舟竞渡、赏非遗民俗、品特色美食……2026年端午假期，广西各地上演民俗盛宴，海内外游客深度参与，领略广西多彩风情的独特魅力。
+新华社马德里5月9日电 西班牙内政大臣费尔南多·格兰德-马拉斯卡·戈麦斯9日说，德国、法国、比利时、爱尔兰和荷兰将派飞机从暴发汉坦病毒疫情的“洪迪厄斯”号邮轮上接回本国公民。
 
-来自柬埔寨的青年学生李力龙把参加南宁龙舟赛当成探索中国文化的特殊方式。
+西班牙卫生大臣莫妮卡·加西亚同一天表示，预计“洪迪厄斯”号邮轮将于当地时间10日凌晨抵达西班牙特内里费岛。
 
-“划龙舟很有趣，需要团队紧密协作。
+按照西班牙官员说法，除上述5国之外，欧盟将另派两架飞机接走船上其余欧盟国家人员。
 
-我还在赛事配套活动中体验了画龙点睛、制作粽子香囊等传统习俗，对端午文化有了深入了解。
+美国和英国正在为那些无法获得航空服务的非欧盟国家人员安排应急方案。
 
-” 南宁民歌湖国际音乐小镇端午嘉年华活动人气十足。
+当地有关部门警告，撤离邮轮人员的工作须在10日至11日进行，因为近期附近海域可能出现强风暴天气。
 
-汉服NPC、鱼灯巡游、长桌宴、美学市集……传统民俗与国潮创新交相辉映，吸引大批游客驻足体验。
+世界卫生组织总干事谭德塞9日发表公开信表示，目前船上暂无新增疑似病例。
 
-在北海侨港镇，归侨侨眷的端午海上龙舟赛同样热火朝天。
-
-侨港风情街、华侨历史展览馆等串联起侨乡文旅产业链，“龙游侨港”“百福宴”等体验项目吸引游客参与，昔日渔港变身热门“打卡”地。
+世卫组织评估认为，汉坦病毒带来的公共卫生风险仍然“较低”。
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 23:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 23:09 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 23:02 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 23:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 23:13 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 22:54 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 23:03 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 23:13 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 22:56 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 23:23 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 23:12 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 22:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 23:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 23:20 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 23:04 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 23:29 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 23:22 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 23:20 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 23:16 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 23:02 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 23:20 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 23:19 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 23:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 23:00 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 23:23 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 23:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:00 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/44622929438.shtml)
-- 2026-06-29 23:04 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/08593.shtml)
-- 2026-06-29 23:16 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/4948569562.shtml)
-- 2026-06-29 23:09 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/77360391.shtml)
-- 2026-06-29 23:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/56415537.shtml)
-- 2026-06-29 23:17 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/6762117.shtml)
-- 2026-06-29 23:15 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/883446.shtml)
-- 2026-06-29 23:04 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/11854225.shtml)
-- 2026-06-29 23:09 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/035434525391.shtml)
-- 2026-06-29 23:16 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/073433.shtml)
-- 2026-06-29 23:10 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/71684423.shtml)
-- 2026-06-29 23:09 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/03890043813.shtml)
-- 2026-06-29 23:22 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/629936065.shtml)
-- 2026-06-29 23:20 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/753956.shtml)
-- 2026-06-29 23:07 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/4728897.shtml)
+- 2026-06-29 23:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/1726418.shtml)
+- 2026-06-29 23:20 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/225102.shtml)
+- 2026-06-29 23:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/620940085857.shtml)
+- 2026-06-29 23:24 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/2848849.shtml)
+- 2026-06-29 23:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/888971.shtml)
+- 2026-06-29 23:04 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/792745579.shtml)
+- 2026-06-29 23:07 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/4738099446.shtml)
+- 2026-06-29 23:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/420103.shtml)
+- 2026-06-29 23:24 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/2892633.shtml)
+- 2026-06-29 23:08 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/999169621241.shtml)
+- 2026-06-29 23:19 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/26306.shtml)
+- 2026-06-29 23:04 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/13339.shtml)
+- 2026-06-29 23:26 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/48002979.shtml)
+- 2026-06-29 23:15 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/027814183745.shtml)
+- 2026-06-29 23:16 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/297355284.shtml)

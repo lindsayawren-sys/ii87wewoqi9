@@ -1,57 +1,52 @@
-# *ST集友：拟收购慧聚药业控制权 预计构成重大资产重组
+# 在轨一年、载荷数量创新高 天舟十号“带货”再添新看点
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-人民财讯6月18日电，*ST集友（603429）6月18日公告，公司拟以现金方式购买江苏慧聚药业股份有限公司（简称“慧聚药业”）超过50%的股份并取得慧聚药业的控制权。交易完成后，慧聚药业将成为公司的控股子公司。 公司控股股东、实控人徐善水与慧聚药业股东黄华、毕伟国18日签订《股份转让协议》，徐善水拟将持有的公司股份5300万股（占公司总股本的10.1051%）通过协议方式分别
+发布时间：2026年05月11日 15:21 来源：中国新闻网 5月11日，在长征七号运载火箭托举下，天舟十号货运飞船在文昌航天发射场发射升空，这是中国空间站迎来的第20艘飞船。作为中国空间站的物资补给“后勤官”，此次任务装载了哪些货物？有何新看点？ 记者 李佳悦 马帅莎 陈英清 责任编辑：【刘湃】
 
 ## 正文
 
-人民财讯6月18日电，*ST集友（603429）6月18日公告，公司拟以现金方式购买江苏慧聚药业股份有限公司（简称“慧聚药业”）超过50%的股份并取得慧聚药业的控制权。
+发布时间：2026年05月11日 15:21 来源：中国新闻网 5月11日，在长征七号运载火箭托举下，天舟十号货运飞船在文昌航天发射场发射升空，这是中国空间站迎来的第20艘飞船。
 
-交易完成后，慧聚药业将成为公司的控股子公司。
+作为中国空间站的物资补给“后勤官”，此次任务装载了哪些货物？
 
-公司控股股东、实控人徐善水与慧聚药业股东黄华、毕伟国18日签订《股份转让协议》，徐善水拟将持有的公司股份5300万股（占公司总股本的10.1051%）通过协议方式分别转让给黄华和毕伟国。
+有何新看点？
 
-此次交易预计构成重大资产重组但不构成重组上市，亦不会导致公司控股股东和实控人发生变更。
-
-慧聚药业主营业务为复杂小分子化学药物的原料药、中间体及制剂的研发、生产和销售，以及为客户提供CDMO服务等业务。
-
-责任编辑：刘万里 SF014
+记者 李佳悦 马帅莎 陈英清 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 23:06 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 22:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 23:21 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 22:56 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 22:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 23:11 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 22:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 22:57 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 22:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 23:18 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 23:21 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 23:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 23:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 23:16 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 23:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 23:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 23:26 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 23:06 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 23:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 23:20 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 23:23 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 23:00 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 23:27 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 23:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 23:02 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 23:17 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 23:02 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 23:15 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 23:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:08 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/622354.shtml)
-- 2026-06-29 23:04 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/4038806536.shtml)
-- 2026-06-29 22:59 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/326594337700.shtml)
-- 2026-06-29 22:56 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/97108442015.shtml)
-- 2026-06-29 23:12 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/1858690132.shtml)
-- 2026-06-29 22:54 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/28199156.shtml)
-- 2026-06-29 23:07 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/59224.shtml)
-- 2026-06-29 23:20 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/89048.shtml)
-- 2026-06-29 23:17 - [东方风云榜直播](https://www.blog.minike.top/Article/details/725285.shtml)
-- 2026-06-29 23:13 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/9739352142.shtml)
-- 2026-06-29 23:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/67343.shtml)
-- 2026-06-29 23:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/829248.shtml)
-- 2026-06-29 23:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/817319.shtml)
-- 2026-06-29 23:10 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/250624.shtml)
-- 2026-06-29 22:59 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/206096.shtml)
+- 2026-06-29 23:21 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/7152240.shtml)
+- 2026-06-29 23:12 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/550598.shtml)
+- 2026-06-29 23:16 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/0384129.shtml)
+- 2026-06-29 23:07 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/456566.shtml)
+- 2026-06-29 23:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/67755125.shtml)
+- 2026-06-29 23:04 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/998230789184.shtml)
+- 2026-06-29 23:05 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/2091961819.shtml)
+- 2026-06-29 23:10 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/5565650.shtml)
+- 2026-06-29 23:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/8201924.shtml)
+- 2026-06-29 23:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/083746706212.shtml)
+- 2026-06-29 23:08 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/292147014.shtml)
+- 2026-06-29 23:16 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/823913609822.shtml)
+- 2026-06-29 23:07 - [千与千寻](http://www.share.minike.top/Article/details/2182601.shtml)
+- 2026-06-29 23:27 - [金刚川](http://www.blog.minike.top/Article/details/1847959039.shtml)
+- 2026-06-29 23:21 - [恋与深空7天掉粉超50万](http://www.blog.kurohicncr.top/Article/details/7535974.shtml)

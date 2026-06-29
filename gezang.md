@@ -1,54 +1,56 @@
-# 【香港故事】划龙舟几十年 79岁“老外”：赛龙舟太妙了！
+# 意大利罗马国际风筝节架起中意文化交流之桥
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 10:26 来源：中国新闻网 来自英国的安东尼于1975年来到香港，1976年开始接触龙舟运动。如今近79岁的他，前前后后已经划了几十年的龙舟了。他告诉记者，划龙舟的感觉非常美妙，当一个团队一起努力划桨，龙舟就仿佛从水里升起。而战胜强大的本土龙舟队的经历，更让他难以忘怀。(记者 温孟馨） 责任编辑：【孙静波】
+中新网5月11日电 据欧联通讯社报道，8日至10日，罗马渡槽公园举办了第4届“国际风筝节”，这是罗马春季最具魅力和象征意义的文化活动之一。 三天时间里，这片宏大的考古背景成为国际盛会的舞台，融合艺术、表演、音乐、电影、工作坊、传统技艺与民间文化：风筝这一和平、自由与梦想的象征，再次优雅而壮观地飞翔于空中。这不仅仅是一场展示活动，更是一座文化桥梁，是中华千年传统与罗马历史人文遗产
 
 ## 正文
 
-发布时间：2026年06月19日 10:26 来源：中国新闻网 来自英国的安东尼于1975年来到香港，1976年开始接触龙舟运动。
+中新网5月11日电 据欧联通讯社报道，8日至10日，罗马渡槽公园举办了第4届“国际风筝节”，这是罗马春季最具魅力和象征意义的文化活动之一。
 
-如今近79岁的他，前前后后已经划了几十年的龙舟了。
+三天时间里，这片宏大的考古背景成为国际盛会的舞台，融合艺术、表演、音乐、电影、工作坊、传统技艺与民间文化：风筝这一和平、自由与梦想的象征，再次优雅而壮观地飞翔于空中。
 
-他告诉记者，划龙舟的感觉非常美妙，当一个团队一起努力划桨，龙舟就仿佛从水里升起。
+这不仅仅是一场展示活动，更是一座文化桥梁，是中华千年传统与罗马历史人文遗产相遇的时刻。
 
-而战胜强大的本土龙舟队的经历，更让他难以忘怀。
+本次活动由“风华国际艺术中心主办”，得到了罗马市第七区政府和中国驻意大利使馆的支持。
 
-(记者 温孟馨） 责任编辑：【孙静波】
+节日迎来来自中国的代表团、工艺大师及文化代表，尤其是被誉为“世界风筝之都”的潍坊市代表团。
+
+观众们欣赏到中国丝竹风筝的精彩创作，这些作品介于艺术与象征之间，与罗马的历史景观形成独特的视觉对话。
+
+中国驻意大利大使馆公参过琳等到场支持，过琳发言表示，尽管各国风筝在起源与艺术形式上各具特色，但它们能够在同一片天空中共同飞翔，正体现了世界多元文明相互交流、彼此借鉴、和谐共存的美好图景。
+
+如今，每年举办的罗马国际风筝节已成为罗马渡槽公园春季的一道独特景观，也为当地民众了解中国文化和华人社区提供了新的窗口。
 
 ## 相关推荐
 
-- 2026-06-29 22:59 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-29 23:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 23:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 23:14 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 23:08 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 23:06 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-29 23:01 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 23:15 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 23:04 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 22:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-29 23:02 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 23:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 23:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 23:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 23:24 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 23:17 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 23:24 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 23:07 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 23:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 23:21 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 23:09 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 23:15 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 23:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 23:01 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/367102811799.shtml)
-- 2026-06-29 23:19 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/94516.shtml)
-- 2026-06-29 23:08 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/979489388.shtml)
-- 2026-06-29 23:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/43073.shtml)
-- 2026-06-29 23:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/347130006.shtml)
-- 2026-06-29 23:19 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/65924.shtml)
-- 2026-06-29 23:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/26386.shtml)
-- 2026-06-29 23:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/15028071.shtml)
-- 2026-06-29 22:57 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/377164214978.shtml)
-- 2026-06-29 23:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/99730.shtml)
-- 2026-06-29 23:09 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/5087166.shtml)
-- 2026-06-29 23:06 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/60507.shtml)
-- 2026-06-29 23:12 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/924637901.shtml)
-- 2026-06-29 23:12 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/733755537297.shtml)
-- 2026-06-29 23:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/14952098.shtml)
+- 2026-06-29 23:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/18292984695.shtml)
+- 2026-06-29 23:05 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/536999.shtml)
+- 2026-06-29 23:19 - [小娘惹](https://www.blog.minike.top/Article/details/4590664.shtml)
+- 2026-06-29 23:03 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/965207.shtml)
+- 2026-06-29 23:12 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/658636520330.shtml)
+- 2026-06-29 23:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/7404804.shtml)
+- 2026-06-29 23:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/52716319409.shtml)
+- 2026-06-29 23:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/83687023668.shtml)
+- 2026-06-29 23:22 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/209589560.shtml)
+- 2026-06-29 23:15 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/640616097065.shtml)
+- 2026-06-29 23:09 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/160911.shtml)
+- 2026-06-29 23:25 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/87265358.shtml)
+- 2026-06-29 23:13 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/558335079.shtml)
+- 2026-06-29 23:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/82575.shtml)
+- 2026-06-29 23:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/81869377653.shtml)

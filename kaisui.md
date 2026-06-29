@@ -1,56 +1,57 @@
-# 5月中国全社会用电量同比增长6.9%
+# 普京：伊朗战事让俄罗斯“处境复杂”
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社北京6月18日电 中国国家能源局18日发布的数据显示，5月，中国全社会用电量8671亿千瓦时，同比增长6.9%。 从分产业用电看，第一产业用电量124亿千瓦时，同比增长5%。第二产业用电量5753亿千瓦时，同比增长6%；其中，工业用电量同比增长6.2%，高技术装备制造业用电量同比增长12.2%。第三产业用电量1704亿千瓦时，同比增长9.7%；其中，充换电服务业、互联网数
+新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日在一场记者会上表示，由于俄罗斯与伊朗和海湾阿拉伯国家都保持着良好关系，伊朗战事让俄罗斯“处境复杂”。 普京说，如果局势升级，“所有人都会受到损害”，解决当前冲突的协议应该符合地区各国利益。 美国和以色列2月28日对伊朗发起大规模军事行动，伊朗对以色列以及美国在中东地区的军事基地等目标发起导弹和无人机打击，海湾国家受到波及。 普
 
 ## 正文
 
-中新社北京6月18日电 中国国家能源局18日发布的数据显示，5月，中国全社会用电量8671亿千瓦时，同比增长6.9%。
+新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日在一场记者会上表示，由于俄罗斯与伊朗和海湾阿拉伯国家都保持着良好关系，伊朗战事让俄罗斯“处境复杂”。
 
-从分产业用电看，第一产业用电量124亿千瓦时，同比增长5%。
+普京说，如果局势升级，“所有人都会受到损害”，解决当前冲突的协议应该符合地区各国利益。
 
-第二产业用电量5753亿千瓦时，同比增长6%；其中，工业用电量同比增长6.2%，高技术装备制造业用电量同比增长12.2%。
+美国和以色列2月28日对伊朗发起大规模军事行动，伊朗对以色列以及美国在中东地区的军事基地等目标发起导弹和无人机打击，海湾国家受到波及。
 
-第三产业用电量1704亿千瓦时，同比增长9.7%；其中，充换电服务业、互联网数据服务用电量增速分别达到59.9%、45.4%。
+普京还说，俄方清楚伊朗没有发展核武器的计划，国际原子能机构从未表示有证据表明伊朗正在研发核武器。
 
-城乡居民生活用电量1090亿千瓦时，同比增长7.5%。
+另外，俄方有关接收伊朗浓缩铀的提议并非是为“攫取政治资本”，而是希望尽己所能为缓和局势作贡献。
 
-1至5月，中国全社会用电量累计42018亿千瓦时，同比增长5.7%。
+据美国媒体3月13日报道，普京曾在与美国总统特朗普通话时，提议将伊朗浓缩铀转移到俄罗斯，以利于尽快结束战事，但特朗普予以拒绝。
 
-从分产业用电看，第一产业用电量574亿千瓦时，同比增长5.6%。
-
-第二产业用电量27324亿千瓦时，同比增长5.1%；其中，工业用电量同比增长5.3%，高技术及装备制造业用电量同比增长9.7%。
+俄总统新闻秘书佩斯科夫4月15日接受印度媒体采访时表示，普京准备重新考虑将伊朗浓缩铀运往俄罗斯的提议。
 
 ## 相关推荐
 
-- 2026-06-29 23:09 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 23:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-29 23:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 23:03 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 23:18 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 23:14 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 23:07 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 23:11 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 23:13 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 23:02 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 23:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 23:14 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 23:03 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 23:02 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 23:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 23:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 23:26 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 23:29 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 23:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 23:04 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 23:28 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 23:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 23:18 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:59 - [绘画区你赢了](https://www.blog.minike.top/Article/details/89695003464.shtml)
-- 2026-06-29 23:05 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/93310179.shtml)
-- 2026-06-29 23:07 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/830911518770.shtml)
-- 2026-06-29 22:58 - [东方风云榜直播](http://www.share.minike.top/Article/details/6082575.shtml)
-- 2026-06-29 23:08 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/2964265.shtml)
-- 2026-06-29 22:57 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/972904.shtml)
-- 2026-06-29 23:16 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/02747811.shtml)
-- 2026-06-29 23:16 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/492015.shtml)
-- 2026-06-29 23:11 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/277527292643.shtml)
-- 2026-06-29 23:08 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/38270520.shtml)
-- 2026-06-29 23:03 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/8799737060.shtml)
-- 2026-06-29 23:16 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/090812996821.shtml)
-- 2026-06-29 23:19 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/889306.shtml)
-- 2026-06-29 23:18 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/9481310.shtml)
-- 2026-06-29 22:59 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/2038496.shtml)
+- 2026-06-29 23:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/978024102228.shtml)
+- 2026-06-29 23:09 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/6784830353.shtml)
+- 2026-06-29 23:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/484124.shtml)
+- 2026-06-29 23:26 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/47554745.shtml)
+- 2026-06-29 23:01 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/85849465.shtml)
+- 2026-06-29 23:05 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/404995445.shtml)
+- 2026-06-29 23:01 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/97733897678.shtml)
+- 2026-06-29 23:03 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/72090160.shtml)
+- 2026-06-29 23:14 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/07795951903.shtml)
+- 2026-06-29 23:22 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/2660659.shtml)
+- 2026-06-29 23:19 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/1887874061.shtml)
+- 2026-06-29 23:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/471130497.shtml)
+- 2026-06-29 23:03 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/9719845.shtml)
+- 2026-06-29 23:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/398353914.shtml)
+- 2026-06-29 23:27 - [一生一世](http://www.blog.minike.top/Article/details/6640190.shtml)

@@ -1,50 +1,46 @@
-# 交通运输部：7省份地区连续降雨，公路交通存在高风险
+# 中美将在韩国举行经贸磋商
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。 交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控
+中新社北京5月10日电 中国商务部新闻发言人10日宣布：经中美双方商定，中共中央政治局委员、中国国务院副总理何立峰将于5月12日-13日率团赴韩国与美方举行经贸磋商。双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。(完)
 
 ## 正文
 
-中新网6月19日电 据交通运输部官方微信消息，根据交通运输部与中国气象局会商研判，结合气象部门降雨数据，截至6月19日，安徽、江西、广东、广西、重庆、贵州、云南等7个省份的10个县区出现了降水天数15天以上、累计降雨量300毫米且超过常年同期水平2倍以上的情况，公路交通存在高风险。
+中新社北京5月10日电 中国商务部新闻发言人10日宣布：经中美双方商定，中共中央政治局委员、中国国务院副总理何立峰将于5月12日-13日率团赴韩国与美方举行经贸磋商。
 
-交通运输部要求相关省份交通运输部门在地方人民政府领导下，做好连续降雨高风险区域的公路安全风险管控工作，严格落实灾害风险隐患排查和公路巡查要求，提高力量预置的精准性和针对性，细化主动防御管控措施，切实保障连续降雨期间人民群众公路出行安全。
+双方将以两国元首釜山会晤及历次通话重要共识为引领，就彼此关心的经贸问题开展磋商。
 
-交通运输部提醒，近期，上述地区出现连续降雨，公路沿线灾害风险较高，如您有上述地区出行计划，请提前关注天气及路况信息，合理规划路线，尽量避让灾害易发路段。
-
-驾车出行时，请谨慎驾驶、观察路况，注意公路沿线情报板、告警阻拦设施等提示信息。
-
-如遇灾害突发事件，第一时间及时停靠安全区域并拨打救援电话，等待专业处置。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 23:11 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 23:07 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 23:04 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 23:03 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 23:02 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 23:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 23:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 23:09 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 22:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 23:19 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 23:24 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 23:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 23:20 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 23:06 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 23:09 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 23:06 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 23:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 23:16 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 23:05 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 23:07 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/916974838487.shtml)
-- 2026-06-29 23:17 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/35965440284.shtml)
-- 2026-06-29 22:56 - [月亮](https://www.share.minike.top/Article/details/6879969.shtml)
-- 2026-06-29 23:11 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/895932.shtml)
-- 2026-06-29 23:23 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/0250080.shtml)
-- 2026-06-29 23:06 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/02993377241.shtml)
-- 2026-06-29 22:59 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/38279562956.shtml)
-- 2026-06-29 23:09 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/2736663.shtml)
-- 2026-06-29 23:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/8611931.shtml)
-- 2026-06-29 23:13 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/5326205.shtml)
-- 2026-06-29 22:54 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/71395.shtml)
-- 2026-06-29 23:01 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/19487682687.shtml)
-- 2026-06-29 22:56 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/9098427.shtml)
-- 2026-06-29 22:58 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/0347380.shtml)
-- 2026-06-29 22:57 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/5465111365.shtml)
+- 2026-06-29 23:14 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/066556564105.shtml)
+- 2026-06-29 23:21 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/4876640.shtml)
+- 2026-06-29 23:11 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/553435.shtml)
+- 2026-06-29 23:29 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/2762227593.shtml)
+- 2026-06-29 23:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/0146362995.shtml)
+- 2026-06-29 23:08 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/88700.shtml)
+- 2026-06-29 23:20 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/50406100728.shtml)
+- 2026-06-29 23:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/44162.shtml)
+- 2026-06-29 23:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/81023.shtml)
+- 2026-06-29 23:29 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/851111.shtml)
+- 2026-06-29 23:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/0532968241.shtml)
+- 2026-06-29 23:21 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/3392406946.shtml)
+- 2026-06-29 23:25 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/400226148712.shtml)
+- 2026-06-29 23:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/4128733.shtml)
+- 2026-06-29 23:00 - [新官上任三把火](http://www.share.minike.top/Article/details/984098.shtml)

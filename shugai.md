@@ -1,47 +1,48 @@
-# 瑞士外交部证实美伊会谈取消
+# 晨讯科技前4个月的收入为1.16亿港元 同比减少17.5%
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-美白宫：万斯取消当晚赴瑞士与伊朗谈判行程 新华社日内瓦6月19日电 瑞士外交部19日证实美国和伊朗原定当日在瑞士举行的会谈取消。（完）责任编辑：石秀珍 SF183
+晨讯科技（02000）公布，该集团于2026年4月的收入为2270万港元，环比减少12.2%。前4个月的收入为1.16亿港元，同比减少17.5%。责任编辑：卢昱君
 
 ## 正文
 
-美白宫：万斯取消当晚赴瑞士与伊朗谈判行程 新华社日内瓦6月19日电 瑞士外交部19日证实美国和伊朗原定当日在瑞士举行的会谈取消。
+晨讯科技（02000）公布，该集团于2026年4月的收入为2270万港元，环比减少12.2%。
 
-（完）责任编辑：石秀珍 SF183
+前4个月的收入为1.16亿港元，同比减少17.5%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 23:01 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 23:08 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 23:03 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 22:57 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-29 23:04 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 23:14 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 22:55 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 23:00 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 23:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 23:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 23:00 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 23:18 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 23:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 23:17 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 23:21 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 23:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 23:12 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 23:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 23:17 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 23:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 23:12 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 23:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 23:12 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 23:22 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 23:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/10089.shtml)
-- 2026-06-29 23:10 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/597116.shtml)
-- 2026-06-29 23:05 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/216251149636.shtml)
-- 2026-06-29 22:56 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/70383827273.shtml)
-- 2026-06-29 23:18 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/475993207.shtml)
-- 2026-06-29 23:10 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/8285157954.shtml)
-- 2026-06-29 23:20 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/1457654.shtml)
-- 2026-06-29 23:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/01980.shtml)
-- 2026-06-29 23:08 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/3073068273.shtml)
-- 2026-06-29 23:09 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/154598235096.shtml)
-- 2026-06-29 23:00 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/070209665626.shtml)
-- 2026-06-29 23:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/83424613432.shtml)
-- 2026-06-29 23:16 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/68905.shtml)
-- 2026-06-29 23:02 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/28291727.shtml)
-- 2026-06-29 23:19 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/27027.shtml)
+- 2026-06-29 23:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/71042743532.shtml)
+- 2026-06-29 23:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/57694068.shtml)
+- 2026-06-29 23:05 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/278737644.shtml)
+- 2026-06-29 23:25 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/39012445.shtml)
+- 2026-06-29 23:24 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/269274.shtml)
+- 2026-06-29 23:06 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/175711.shtml)
+- 2026-06-29 23:01 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/743073.shtml)
+- 2026-06-29 23:07 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/196512879.shtml)
+- 2026-06-29 23:01 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/9156991.shtml)
+- 2026-06-29 23:29 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/720822672.shtml)
+- 2026-06-29 23:16 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/06155059633.shtml)
+- 2026-06-29 23:23 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/644297744879.shtml)
+- 2026-06-29 23:21 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/132772533289.shtml)
+- 2026-06-29 23:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/789366271.shtml)
+- 2026-06-29 23:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/1380812168.shtml)

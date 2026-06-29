@@ -1,56 +1,59 @@
-# 2026年“桂BA”揭幕
+# 品浩：伊朗局势或迫使美联储加息
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新网来宾6月21日电 (黄令妍)6月20日晚，2026年广西城市篮球联赛(简称“桂BA”)开幕式暨揭幕战在来宾市体育馆举办。东道主来宾市队迎战百色市队，最终后者以87:63客场取胜，斩获赛事开门红。 据介绍，“桂BA”是广西首个实现14个设区市全覆盖、政府主导、多部门协同、社会全民参与的自治区级城市篮球自主品牌赛事。赛事设置男子篮球竞赛组别，参赛选手以本地务工、就学、常住人口
+品浩（Pimco）警示，美联储若降息将适得其反；受特朗普对伊朗战事后续影响，美国央行甚至可能需要上调借贷成本。 这家管理资产规模达2.3万亿美元的债券巨头首席投资官表示，伊朗封锁霍尔木兹海峡引发能源价格暴涨，给美国政策制定者带来新挑战。多年来，美联储一直难以将通胀降至2%的政策目标。 首席投资官在加州比弗利山庄举办的米尔肯研究所年度峰会间隙接受采访时称：“我们希望看到各国央行采
 
 ## 正文
 
-中新网来宾6月21日电 (黄令妍)6月20日晚，2026年广西城市篮球联赛(简称“桂BA”)开幕式暨揭幕战在来宾市体育馆举办。
+品浩（Pimco）警示，美联储若降息将适得其反；受特朗普对伊朗战事后续影响，美国央行甚至可能需要上调借贷成本。
 
-东道主来宾市队迎战百色市队，最终后者以87:63客场取胜，斩获赛事开门红。
+这家管理资产规模达2.3万亿美元的债券巨头首席投资官表示，伊朗封锁霍尔木兹海峡引发能源价格暴涨，给美国政策制定者带来新挑战。
 
-据介绍，“桂BA”是广西首个实现14个设区市全覆盖、政府主导、多部门协同、社会全民参与的自治区级城市篮球自主品牌赛事。
+多年来，美联储一直难以将通胀降至2%的政策目标。
 
-赛事设置男子篮球竞赛组别，参赛选手以本地务工、就学、常住人口为主，开放高中及高校学子参赛通道，拓宽青训选材路径。
+首席投资官在加州比弗利山庄举办的米尔肯研究所年度峰会间隙接受采访时称：“我们希望看到各国央行采取审慎应对，必要时甚至可能收紧货币政策。
 
-比赛采用主客场制，设分区赛、半决赛、总决赛三个阶段。
+” “美国目前离收紧政策还有距离，但就当前形势来看，欧洲、英国乃至日本将迎来更多紧缩举措，美国也不能完全排除这一可能性。
 
-竞赛时间为6月至9月。
+” 他补充道，鉴于当前通胀走势、通胀本身及通胀预期的不确定性，美国任何降息举措都将事与愿违，且很可能推高中长期利率。
 
-2026年“桂BA”首场赛事特邀知名广西籍球员许钟豪担任现场解说。
+管理资产规模达1.7万亿美元的美国资管巨头富兰克林邓普顿首席执行官，在峰会另一场采访中表示：“通胀管控难度将进一步加大，美联储很难开启降息周期。
 
-他表示，特别期待有球员从“桂BA”起步，走出广西，走向更高平台。
+” 她指出，投资者对抗通胀资产的配置需求持续上升，房地产尤其受到青睐，原因是租金通常会随整体物价上涨同步走高。
 
 ## 相关推荐
 
-- 2026-06-29 23:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 23:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 23:03 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 23:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 23:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 23:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 23:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 23:16 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 23:07 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 23:13 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 23:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 23:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 23:05 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 23:22 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 23:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 23:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 23:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 23:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 23:28 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 23:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 23:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 23:25 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 23:18 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:56 - [金牌调解](http://www.blog.minike.top/Article/details/30214.shtml)
-- 2026-06-29 23:08 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/0530598700.shtml)
-- 2026-06-29 23:21 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/9514549.shtml)
-- 2026-06-29 23:12 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/1067419.shtml)
-- 2026-06-29 23:08 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/724970578091.shtml)
-- 2026-06-29 22:58 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/67344475508.shtml)
-- 2026-06-29 23:06 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/3270123.shtml)
-- 2026-06-29 22:57 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/503276.shtml)
-- 2026-06-29 23:06 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/94881977.shtml)
-- 2026-06-29 23:06 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/71210.shtml)
-- 2026-06-29 23:07 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/949970.shtml)
-- 2026-06-29 23:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/63985308.shtml)
-- 2026-06-29 23:19 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/219653284040.shtml)
-- 2026-06-29 22:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/3271814.shtml)
-- 2026-06-29 23:00 - [斛珠夫人](https://www.blog.minike.top/Article/details/565306.shtml)
+- 2026-06-29 23:16 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/0060890.shtml)
+- 2026-06-29 23:10 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/35104296.shtml)
+- 2026-06-29 23:25 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/15802.shtml)
+- 2026-06-29 23:04 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/91515682674.shtml)
+- 2026-06-29 23:08 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/702203421.shtml)
+- 2026-06-29 23:25 - [一见倾心](http://www.blog.minike.top/Article/details/477705250388.shtml)
+- 2026-06-29 23:29 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/457593657371.shtml)
+- 2026-06-29 23:08 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/398751396.shtml)
+- 2026-06-29 23:18 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/86404811.shtml)
+- 2026-06-29 23:10 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/7125961929.shtml)
+- 2026-06-29 23:08 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/45463.shtml)
+- 2026-06-29 23:18 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/1193063.shtml)
+- 2026-06-29 23:12 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/2638582179.shtml)
+- 2026-06-29 23:14 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/6632393.shtml)
+- 2026-06-29 23:22 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/6767917.shtml)

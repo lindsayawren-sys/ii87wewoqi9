@@ -1,59 +1,57 @@
-# 南向资金爆买这只股
+# 尊界两款新车亮相工信部：S800 Grand Design和V800
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本周，16股获得南向资金持股量环比增长超20%。 南向资金净买入建滔积层板超80亿港元 本周（6月15日至6月18日）港股市场主要股指集体回调，恒生指数跌3.21%，恒生科技指数跌2.14%，恒生中国企业指数跌4.76%。 据证券时报·数据宝统计，本周南向资金合计成交净卖出44.41亿港元。 从本周上榜成交
+来源：CNMO科技 【CNMO科技消息】5月9日，工信部公布了第407批《道路机动车辆生产企业及产品公告》新产品公示，鸿蒙智行尊界S800 Grand Design和尊界V800正式申报。 据CNMO科技了解，尊界S800 Grand Design长宽高分别为5480/2000/1536（1542）mm，轴距3370mm。其驱动电机峰值功率（前/后左/后右）分别为160kW/2
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：CNMO科技 【CNMO科技消息】5月9日，工信部公布了第407批《道路机动车辆生产企业及产品公告》新产品公示，鸿蒙智行尊界S800 Grand Design和尊界V800正式申报。
 
-本周，16股获得南向资金持股量环比增长超20%。
+据CNMO科技了解，尊界S800 Grand Design长宽高分别为5480/2000/1536（1542）mm，轴距3370mm。
 
-南向资金净买入建滔积层板超80亿港元 本周（6月15日至6月18日）港股市场主要股指集体回调，恒生指数跌3.21%，恒生科技指数跌2.14%，恒生中国企业指数跌4.76%。
+其驱动电机峰值功率（前/后左/后右）分别为160kW/237.5kW/237.5kW。
 
-据证券时报·数据宝统计，本周南向资金合计成交净卖出44.41亿港元。
+外观设计上，该车与尊界S800的核心差异集中在前脸部分。
 
-从本周上榜成交活跃股名单来看，本周共有12只个股上榜，中芯国际本周港股通合计买卖总额最高，达到320.74亿港元，建滔积层板紧随其后，为234.07亿港元，其他还有腾讯控股、阿里巴巴-W、长飞光纤光缆等7股本周港股通买卖总额超过100亿港元。
+值得一提的是，截至2026年3月底，尊界S800累计交付量已成功突破16000台，凭借过硬产品品质、顶尖智能配置和极致驾乘体验，连续7个月稳居中国百万级超豪华轿车销量冠军。
 
-中芯国际获南向资金连续4个交易日净买入，近期先进封装概念走强，A股先进封装概念指数本周累计上涨16.29%，公司在接受投资者调研活动中表示，中芯国际从2015年就开始布局封装和先进封装，此前投资了国内的封测龙头，专门建立了合资公司做12寸的Bumping（凸块加工）和2.5D封装等。
+尊界V800采用双拼车身设计，搭配长车头造型，前脸灯组延续尊界S800的设计语言。
 
-过去十年里公司一直在进行3D领域的CIS键合封装，同时也为先进封装厂提供Interposer（中介层）。
+其中，前脸正中央的大尺寸Logo最为吸睛，同时新车还提供多款轮毂及不同样式的前后灯组。
 
-从成交净买入金额来看，建滔积层板获南向资金净买入82.32亿港元。
+尊界V800长宽高分别为5495/2006/1850mm，轴距3430mm。
 
 ## 相关推荐
 
-- 2026-06-29 23:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 23:00 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 22:56 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 23:03 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 23:23 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 22:56 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 22:59 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 23:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 23:09 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 23:07 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 23:18 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 23:15 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 23:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 23:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 23:24 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 23:10 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 23:07 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 23:12 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 23:28 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 23:03 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 23:02 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 23:26 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 23:10 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 23:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/73552807.shtml)
-- 2026-06-29 22:58 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/321164.shtml)
-- 2026-06-29 23:02 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/92091894.shtml)
-- 2026-06-29 23:12 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/44115434506.shtml)
-- 2026-06-29 23:17 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/830537.shtml)
-- 2026-06-29 23:00 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/687535.shtml)
-- 2026-06-29 23:19 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/089560449510.shtml)
-- 2026-06-29 23:12 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/008823.shtml)
-- 2026-06-29 23:13 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/464716.shtml)
-- 2026-06-29 23:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/622753804788.shtml)
-- 2026-06-29 23:05 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/8282870833.shtml)
-- 2026-06-29 22:54 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/401813.shtml)
-- 2026-06-29 23:05 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/64873642471.shtml)
-- 2026-06-29 23:11 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/5533245.shtml)
-- 2026-06-29 23:03 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/658294538943.shtml)
+- 2026-06-29 23:23 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/683533166714.shtml)
+- 2026-06-29 23:10 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/94668194.shtml)
+- 2026-06-29 23:14 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/143481842285.shtml)
+- 2026-06-29 23:22 - [中国妇女评网游娱乐化女性安全](https://www.blog.minike.top/Article/details/39483.shtml)
+- 2026-06-29 23:07 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/97505.shtml)
+- 2026-06-29 23:09 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/98503.shtml)
+- 2026-06-29 23:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/27710.shtml)
+- 2026-06-29 23:26 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/085123601.shtml)
+- 2026-06-29 23:11 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/0289129979.shtml)
+- 2026-06-29 23:23 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/358152784083.shtml)
+- 2026-06-29 23:10 - [恋与深空 巧合](https://www.share.minike.top/Article/details/80312492.shtml)
+- 2026-06-29 23:27 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/869639.shtml)
+- 2026-06-29 23:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/340779.shtml)
+- 2026-06-29 23:00 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/94518887.shtml)
+- 2026-06-29 23:24 - [扫黑风暴](https://www.share.minike.top/Article/details/969555848.shtml)

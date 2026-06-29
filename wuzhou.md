@@ -1,53 +1,57 @@
-# 加快下达“两新”项目资金 持续释放政策效能
+# “中国最后的使鹿部落”迎驯鹿产仔高峰
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：记者6月18日从国家发展改革委了解到，6月底前，国家将下达今年全部2000亿元设备更新项目清单和第三批625亿元消费品以旧换新资金。 今年以来，“两新”政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。目前，我国已分两批下达设备更新资金1851亿元，共支持老旧小区加装电梯、养老机构设备更新等11000多个项目，带动总投资超过8400亿元。此外，今
+中新社内蒙古呼伦贝尔5月11日电 (记者 张玮)初夏之际，在大兴安岭的幽深密林中，清脆婉转的鹿鸣悠悠回荡，一年一度的驯鹿产仔季如期而至。 生活在内蒙古自治区呼伦贝尔根河市敖鲁古雅鄂温克民族乡的使鹿鄂温克人，是中国唯一世代驯养驯鹿的民族。千百年来，他们逐林而居、伴鹿相守，默默守护着中国最后的驯鹿种群。 目前，正值驯鹿产仔高峰期，“90后”使鹿鄂温克人阿尤莎在延续传统管护经验的同时
 
 ## 正文
 
-央视网消息(新闻联播)：记者6月18日从国家发展改革委了解到，6月底前，国家将下达今年全部2000亿元设备更新项目清单和第三批625亿元消费品以旧换新资金。
+中新社内蒙古呼伦贝尔5月11日电 (记者 张玮)初夏之际，在大兴安岭的幽深密林中，清脆婉转的鹿鸣悠悠回荡，一年一度的驯鹿产仔季如期而至。
 
-今年以来，“两新”政策在支持范围、补贴标准、实施机制等方面都进行了深入优化。
+生活在内蒙古自治区呼伦贝尔根河市敖鲁古雅鄂温克民族乡的使鹿鄂温克人，是中国唯一世代驯养驯鹿的民族。
 
-目前，我国已分两批下达设备更新资金1851亿元，共支持老旧小区加装电梯、养老机构设备更新等11000多个项目，带动总投资超过8400亿元。
+千百年来，他们逐林而居、伴鹿相守，默默守护着中国最后的驯鹿种群。
 
-此外，今年1—5月，国家已下达今年前两批消费品以旧换新资金1250亿元，已累计带动相关商品销售额超过8200亿元，惠及超过1.1亿人次。
+目前，正值驯鹿产仔高峰期，“90后”使鹿鄂温克人阿尤莎在延续传统管护经验的同时，融入科学防疫方法，全力保障驯鹿种群稳定繁育。
+
+“我将疫苗防疫贯穿繁育全过程，有效规避了驯鹿传染病的发生，提升幼鹿成活率。
+
+” 截至目前，阿尤莎驯鹿放养点已顺利降生7头新生幼鹿，新生驯鹿的存活率达100%。
+
+“现在我们在山里的生活条件比以前好很多，可以住在帐篷里，也可以住在房车里，政府还给我们配备太阳能板用来取电。
+
+”使鹿鄂温克人觉乐从小和驯鹿生活在一起，他也见证了山里的变化。
 
 ## 相关推荐
 
-- 2026-06-29 22:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 23:12 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 23:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 23:06 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 23:09 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 23:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 23:06 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 23:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 23:00 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 22:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 23:19 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 23:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 23:17 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 23:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 23:13 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 23:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 23:05 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 23:04 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 23:03 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 23:22 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 23:28 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 23:22 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 23:00 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 23:19 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 23:01 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:02 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/98892794.shtml)
-- 2026-06-29 23:05 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/050033474.shtml)
-- 2026-06-29 23:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/696450300.shtml)
-- 2026-06-29 23:06 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/437584774044.shtml)
-- 2026-06-29 23:05 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/317821601.shtml)
-- 2026-06-29 23:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/94319646240.shtml)
-- 2026-06-29 22:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/04654696.shtml)
-- 2026-06-29 22:58 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/22979788764.shtml)
-- 2026-06-29 23:03 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/10649648481.shtml)
-- 2026-06-29 22:57 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/87854657.shtml)
-- 2026-06-29 23:23 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/94163413.shtml)
-- 2026-06-29 23:00 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/2727423.shtml)
-- 2026-06-29 23:07 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/73591374915.shtml)
-- 2026-06-29 23:00 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/073511867098.shtml)
-- 2026-06-29 23:07 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/745162191791.shtml)
+- 2026-06-29 23:20 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/6627846944.shtml)
+- 2026-06-29 23:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/90492548807.shtml)
+- 2026-06-29 23:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/4940378073.shtml)
+- 2026-06-29 23:29 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/433477766000.shtml)
+- 2026-06-29 23:19 - [锐评T1零封KC](https://www.share.minike.top/Article/details/7560401.shtml)
+- 2026-06-29 23:05 - [一生一世](http://www.blog.minike.top/Article/details/1559650525.shtml)
+- 2026-06-29 23:14 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/14857.shtml)
+- 2026-06-29 23:00 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/020124555938.shtml)
+- 2026-06-29 23:25 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/338053432105.shtml)
+- 2026-06-29 23:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/75259664.shtml)
+- 2026-06-29 23:09 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/30430333.shtml)
+- 2026-06-29 23:19 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/28321365915.shtml)
+- 2026-06-29 23:12 - [第一炉香](https://www.blog.minike.top/Article/details/143128541670.shtml)
+- 2026-06-29 23:18 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/5363957.shtml)
+- 2026-06-29 23:15 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/2202495736.shtml)

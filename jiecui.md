@@ -1,56 +1,57 @@
-# 电影《给阿嬷的情书》香港上映 潮汕乡情引发香江共鸣
+# 北京-东盟科技产业推介洽谈会举办 共享合作新机遇
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社香港6月18日电 (记者 赵静怡)电影《给阿嬷的情书》18日登陆香港院线。这部以潮汕方言讲述华侨华人“过番”往事、内地票房突破17亿元人民币的影片，吸引了众多香港市民走进影院，在大银幕前感受跨越山海的浓浓温情。 《给阿嬷的情书》此前便已在香港掀起热潮，不少香港市民专程“北上”深圳、广州等地观影，并在社交媒体平台晒出票根，称“数次落泪，完全走不出来”。在日前结束的香港潮州节
+中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。 东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具
 
 ## 正文
 
-中新社香港6月18日电 (记者 赵静怡)电影《给阿嬷的情书》18日登陆香港院线。
+中新网北京5月9日电 (记者 吕少威)由北京市贸促会主办的第二十八届北京科博会北京-东盟科技产业推介洽谈会8日在国家会议中心二期举办。
 
-这部以潮汕方言讲述华侨华人“过番”往事、内地票房突破17亿元人民币的影片，吸引了众多香港市民走进影院，在大银幕前感受跨越山海的浓浓温情。
+来自马来西亚、老挝、缅甸、印尼、越南驻华大使馆官员，东盟经济贸易促进会、中国-东盟产业合作发展促进会、中国东盟中心等中外商协会及企业代表，共150余人参加活动。
 
-《给阿嬷的情书》此前便已在香港掀起热潮，不少香港市民专程“北上”深圳、广州等地观影，并在社交媒体平台晒出票根，称“数次落泪，完全走不出来”。
+东盟经济贸易促进会会长波尚琅在致辞中指出，科技是驱动发展的硬实力，也是北京与东盟最具活力的增长极，务实合作、开放共赢是双方面向未来的共同选择。
 
-在日前结束的香港潮州节活动现场，主办方专设了电影打卡位、同款小吃、侨批展览，让市民提前沉浸式感受电影《给阿嬷的情书》。
+参会各方要共同发挥桥梁纽带作用，助力更多企业跨越山海，共享区域一体化带来的巨大机遇。
 
-据香港购票平台18日数据显示，全港近50家影院已排片超240场。
+中国-东盟产业合作发展促进会常务会长廖斌在致辞中表示，希望与会嘉宾积极参与打造“北京技术+东盟应用”“北京方案+东盟场景”的协同发展模式，共同打造北京硬核科技与东盟广阔市场的互利共赢生态，深化交流，共建生态，共享商机。
 
-多家电影院傍晚时段的黄金场次早在预售阶段就已显示座位全部售出。
+在实务分享环节，中国-东盟中心贸易投资部副主任伍开河深入讲述了东盟历史沿革和区域发展现况，对未来东盟以数字经济与绿色经济转型为中心，迈向韧性、创新、活力、以人为本的东盟共同体作了展望。
 
-尽管香港首映日未选在周末时段，但观影市民热情不减。
+中关村发展集团以“使命、生态、网络、未来”为主线，系统阐述了中关村作为中国科技创新出发地、原始创新策源地和自主创新主阵地，在科技创新领域的核心功能和开放合作意向，以及与全球伙伴共创未来的愿景。
 
-位于尖沙咀的一家影院当日人头攒动。
+在推介环节，来自越南大使馆、香港投资推广署、北京数字经济企业出海创新服务基地等机构以及泰国万浦投资(中国)、东升智联、优刻得科技、合康新能源等重点企业作了推介，与现场嘉宾从宏观层面的地区发展，到中观层面的园区孵化再到微观层面的重点企业推介，形成不同层面的交流与对话，在对地区环境和产业发展推介的基础上，为企业在出海服务和务实合作方面提供了有力支撑。
 
 ## 相关推荐
 
-- 2026-06-29 23:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 23:09 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 23:19 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 23:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 23:21 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 22:59 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 22:56 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 23:15 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 23:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 22:55 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 23:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 23:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 23:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 23:27 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 23:22 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 23:08 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 23:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 23:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 23:28 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 23:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 23:16 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:22 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/62552901.shtml)
-- 2026-06-29 22:54 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/1399745736.shtml)
-- 2026-06-29 23:19 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/0455336.shtml)
-- 2026-06-29 23:04 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.minike.top/Article/details/46609.shtml)
-- 2026-06-29 23:21 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/574221956437.shtml)
-- 2026-06-29 22:54 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/10652665.shtml)
-- 2026-06-29 23:22 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/4841737.shtml)
-- 2026-06-29 23:02 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/59485806368.shtml)
-- 2026-06-29 23:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/67812344151.shtml)
-- 2026-06-29 23:04 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/78764591732.shtml)
-- 2026-06-29 23:09 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/940682663068.shtml)
-- 2026-06-29 23:00 - [美股](https://www.blog.kurohicncr.top/Article/details/916884.shtml)
-- 2026-06-29 23:19 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/464278.shtml)
-- 2026-06-29 22:56 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/306259124.shtml)
-- 2026-06-29 23:09 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/5090621904.shtml)
+- 2026-06-29 23:21 - [扬名立万](https://www.share.minike.top/Article/details/659028205542.shtml)
+- 2026-06-29 23:13 - [速度与激情9](http://www.share.minike.top/Article/details/096014599574.shtml)
+- 2026-06-29 23:27 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/54486074.shtml)
+- 2026-06-29 23:14 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/34787141.shtml)
+- 2026-06-29 23:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/13538660373.shtml)
+- 2026-06-29 23:23 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/266749813830.shtml)
+- 2026-06-29 23:05 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/36878774.shtml)
+- 2026-06-29 23:27 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/907706415372.shtml)
+- 2026-06-29 23:10 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/313151768.shtml)
+- 2026-06-29 23:27 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/4873473.shtml)
+- 2026-06-29 23:04 - [一生一世](https://www.share.minike.top/Article/details/315704888249.shtml)
+- 2026-06-29 23:09 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/1978037015.shtml)
+- 2026-06-29 23:00 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/65211.shtml)
+- 2026-06-29 23:14 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/903330545068.shtml)
+- 2026-06-29 23:20 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/36952832995.shtml)

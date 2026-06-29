@@ -1,56 +1,47 @@
-# 华文作家戴小华携力作北京分享两岸故事
+# 爱上西藏 | 深夜食堂：夜色、炊烟与包容
 
-> 更新时间：2026-06-29 23:24:03 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。 2017年，《忽如归》即已在中国大陆文学界引起关注。 戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。她说，因三地都有亲人，对“家”的理解更为深刻。“家不是地域的概念，它属于精神范畴。”她认为，中华文化
+发布时间：2026年05月09日 16:41 来源：西藏国际传播中心 责任编辑：【杨彦宇】
 
 ## 正文
 
-中新社北京6月19日电 (张杨彬 姜姿屹)马来西亚华文作家戴小华19日在北京举办分享会，就其纪实作品《忽如归》与散文新作《情随心旅踏歌行》，与读者分享作品创作经历和两岸故事。
-
-2017年，《忽如归》即已在中国大陆文学界引起关注。
-
-戴小华祖籍河北沧州，生于台湾，定居马来西亚吉隆坡。
-
-她说，因三地都有亲人，对“家”的理解更为深刻。
-
-“家不是地域的概念，它属于精神范畴。
-
-”她认为，中华文化是可以连结全球华人的精神纽带。
-
-戴小华回忆，童年时期，母亲常与同样从大陆迁台的邻里相聚，众人凭借手中发黄的旧照片遥寄对大陆亲人的思念。
-
-1999年母亲在台去世后，戴小华经多方努力，将她安葬于河北沧州。
+发布时间：2026年05月09日 16:41 来源：西藏国际传播中心 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 23:17 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 23:13 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 23:05 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 23:02 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 23:19 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 23:22 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 22:56 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 23:23 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 23:03 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 23:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 23:16 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 23:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 23:01 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 23:00 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 23:06 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 23:10 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 23:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 23:28 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 23:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 23:27 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 23:03 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 23:18 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 23:16 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 23:08 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 23:20 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:03 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/8084779.shtml)
-- 2026-06-29 23:19 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/94146.shtml)
-- 2026-06-29 22:55 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/132965.shtml)
-- 2026-06-29 22:58 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/9810726.shtml)
-- 2026-06-29 23:23 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/542710133388.shtml)
-- 2026-06-29 22:59 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/799668896878.shtml)
-- 2026-06-29 23:06 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/9676093.shtml)
-- 2026-06-29 22:54 - [第一炉香](https://www.blog.minike.top/Article/details/7173104.shtml)
-- 2026-06-29 22:55 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/2160189581.shtml)
-- 2026-06-29 22:54 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/91981057.shtml)
-- 2026-06-29 23:06 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/791056081.shtml)
-- 2026-06-29 23:01 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/667286.shtml)
-- 2026-06-29 23:21 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.minike.top/Article/details/6744878.shtml)
-- 2026-06-29 23:01 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/36339462644.shtml)
-- 2026-06-29 23:12 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/87297060.shtml)
+- 2026-06-29 23:15 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/2557986329.shtml)
+- 2026-06-29 23:12 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/2749299.shtml)
+- 2026-06-29 23:17 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/5266120.shtml)
+- 2026-06-29 23:05 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/0550112.shtml)
+- 2026-06-29 23:10 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/89965929721.shtml)
+- 2026-06-29 23:07 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/7705299315.shtml)
+- 2026-06-29 23:02 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/4483272838.shtml)
+- 2026-06-29 23:26 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/776916301931.shtml)
+- 2026-06-29 23:25 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/040667488487.shtml)
+- 2026-06-29 23:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3463932.shtml)
+- 2026-06-29 23:29 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/57626.shtml)
+- 2026-06-29 23:06 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/813273.shtml)
+- 2026-06-29 23:27 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/854054.shtml)
+- 2026-06-29 23:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/83054.shtml)
+- 2026-06-29 23:03 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/6164954.shtml)

@@ -1,61 +1,60 @@
-# 美国首次申请失业救济人数下降 表明劳动力市场具有韧性
+# 捷克央行发布最新经济预测，称将视能源价格走势灵活调整货币政策
 
-> 更新时间：2026-06-29 23:24:02 UTC+8
+> 更新时间：2026-06-29 23:30:02 UTC+8
 
 ## 摘要
 
-美国上周首次申领失业救济申请人数下降，表明劳动力市场仍处于“低解雇”状态。 根据美国劳工部周四公布的数据，在截至6月13日当周，首次申请失业救济人数减少4000人，降至22.6万人。机构对经济学家进行调查得到的预测中值为22.5万人。然而，持续申领失业救济人数（可作为领取救济金人数的参考指标）在前一周上升至181万人。 上述数据显示，尽管伊朗战争引发了能源价格冲击，但劳动力市场
+捷克国家银行（CNB）当地时间11日在与分析师举行的会议上发布最新经济预测报告，提出基于能源价格波动的多种政策预案。捷克央行官员强调，尽管中东冲突导致国际油价走高并带来通胀风险，但央行目前仍处于“舒适区间”，暂无急于收紧货币政策的压力。 捷克央行上周四投票决定维持基准利率在3.50%不变。尽管其基准预测显示本季度市场利率或有约50个基点的上行空间，但决策层在此次会议上重申了审慎
 
 ## 正文
 
-美国上周首次申领失业救济申请人数下降，表明劳动力市场仍处于“低解雇”状态。
+捷克国家银行（CNB）当地时间11日在与分析师举行的会议上发布最新经济预测报告，提出基于能源价格波动的多种政策预案。
 
-根据美国劳工部周四公布的数据，在截至6月13日当周，首次申请失业救济人数减少4000人，降至22.6万人。
+捷克央行官员强调，尽管中东冲突导致国际油价走高并带来通胀风险，但央行目前仍处于“舒适区间”，暂无急于收紧货币政策的压力。
 
-机构对经济学家进行调查得到的预测中值为22.5万人。
+捷克央行上周四投票决定维持基准利率在3.50%不变。
 
-然而，持续申领失业救济人数（可作为领取救济金人数的参考指标）在前一周上升至181万人。
+尽管其基准预测显示本季度市场利率或有约50个基点的上行空间，但决策层在此次会议上重申了审慎观望的立场。
 
-上述数据显示，尽管伊朗战争引发了能源价格冲击，但劳动力市场依然保持韧性。
+捷克央行副行长埃娃·扎姆拉齐洛娃在会上指出，与2022年乌克兰危机爆发后的能源价格冲击相比，捷克当前的货币政策环境更为稳健。
 
-5月份强于预期的就业报告也印证了这一观点，该报告显示当月雇主新增加了17.2万个工作岗位。
+她表示，捷克通胀率已连续两年多接近2%的政策目标，且实际利率维持在正值区间。
 
-这一数据缓解了人们对招聘速度急剧放缓的担忧，并促使投资者增加对美联储加息的押注。
+扎姆拉齐洛娃强调，央行已做好充分准备，将根据实际需要随时做出政策反应，但目前“不急于加息”。
 
-责任编辑：何云
+针对中东地缘政治局势及关键航道安全对全球能源市场的潜在威胁，捷克央行在此次预测中构建了不同的替代情境：若能源价格受冲突影响持续攀升，央行或将不得不转入加息路径；若价格回落，市场利率则存在小幅下调的可能。
 
 ## 相关推荐
 
-- 2026-06-29 23:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 23:05 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 23:21 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 23:21 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 23:14 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 23:17 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-29 23:03 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 23:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 23:06 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 23:05 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 23:09 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 23:15 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 23:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 22:54 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 23:18 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 23:20 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 23:20 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 23:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 23:16 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 23:19 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 23:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-29 23:29 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 23:05 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 23:19 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 23:01 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 23:06 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 23:15 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 23:25 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 23:19 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 23:11 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/800550566.shtml)
-- 2026-06-29 23:12 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/3957273.shtml)
-- 2026-06-29 23:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/8514528.shtml)
-- 2026-06-29 22:57 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/3344856335.shtml)
-- 2026-06-29 22:58 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/2433158548.shtml)
-- 2026-06-29 23:20 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/2810204.shtml)
-- 2026-06-29 23:21 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/57041301.shtml)
-- 2026-06-29 23:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/9391358.shtml)
-- 2026-06-29 23:14 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/10956393652.shtml)
-- 2026-06-29 23:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/971398.shtml)
-- 2026-06-29 23:21 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/5382206.shtml)
-- 2026-06-29 23:00 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/262800731436.shtml)
-- 2026-06-29 23:15 - [急先锋](https://www.blog.kurohicncr.top/Article/details/402633.shtml)
-- 2026-06-29 22:54 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/21438046382.shtml)
-- 2026-06-29 23:21 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/2457873.shtml)
+- 2026-06-29 23:23 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/7835961132.shtml)
+- 2026-06-29 23:25 - [张凌赫 客串](http://www.share.minike.top/Article/details/5446959432.shtml)
+- 2026-06-29 23:03 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/396680.shtml)
+- 2026-06-29 23:21 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/46442430.shtml)
+- 2026-06-29 23:24 - [起风了](https://www.share.minike.top/Article/details/02234.shtml)
+- 2026-06-29 23:12 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/870829.shtml)
+- 2026-06-29 23:25 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/143518419850.shtml)
+- 2026-06-29 23:05 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/73389.shtml)
+- 2026-06-29 23:10 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/31366955690.shtml)
+- 2026-06-29 23:21 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/0700089.shtml)
+- 2026-06-29 23:00 - [格莱美唱作人锐评歌手第6期](https://www.blog.minike.top/Article/details/600983132.shtml)
+- 2026-06-29 23:20 - [扫黑风暴](http://www.share.minike.top/Article/details/5933640.shtml)
+- 2026-06-29 23:11 - [《贺子珍》](http://www.blog.minike.top/Article/details/43350441151.shtml)
+- 2026-06-29 23:00 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/091523.shtml)
+- 2026-06-29 23:00 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/244208.shtml)
