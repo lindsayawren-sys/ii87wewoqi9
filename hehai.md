@@ -1,59 +1,57 @@
-# 重磅，2026自然科学基金预算增加 24 亿元！
+# 高盛维持金价年底将达5,400美元的预测
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：材料PLUS 国家自然科学基金委员会网站公布《2026年度部门预算》，今年自然科学基金项目预算数有较大增长。自然科学基金（项）2026年预算数为4185981.01万元，比2025年执行数增加240179.29万元，增长6.09%，主要原因是中央财政对自然科学基金的投入增加。 按照支出功能分类，基础研
+高盛维持对黄金的看涨前景，预计金价到年底将达到每盎司5，400美元。央行多元化仍是一个关键支柱，尽管出现数轮波动，但官方部门的需求依然坚挺。 高盛还预计投机性仓位将正常化，并预期美联储将降息约50个基点，从而降低持有黄金的机会成本。 高盛表示，短期内风险偏向下行，尤其是在地缘政治紧张局势引发进一步平仓的情况下。但从中期来看，地缘政治不确定性以及对财政可持续性的担忧可能会加速全球
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+高盛维持对黄金的看涨前景，预计金价到年底将达到每盎司5，400美元。
 
-来源：材料PLUS 国家自然科学基金委员会网站公布《2026年度部门预算》，今年自然科学基金项目预算数有较大增长。
+央行多元化仍是一个关键支柱，尽管出现数轮波动，但官方部门的需求依然坚挺。
 
-自然科学基金（项）2026年预算数为4185981.01万元，比2025年执行数增加240179.29万元，增长6.09%，主要原因是中央财政对自然科学基金的投入增加。
+高盛还预计投机性仓位将正常化，并预期美联储将降息约50个基点，从而降低持有黄金的机会成本。
 
-按照支出功能分类，基础研究方面的支出占部门支出总额的比重较高，主要是：2060203自然科学基金，2026年预算数为4185981.01万元，占部门一般公共预算支出总额的81.71%，主要用于面上项目、青年科学基金项目（A/B/C类）、地区科学基金项目、创新研究群体项目等18类项目资助经费支出和各类项目资助有关的评审活动、信息系统运行维护等方面的支出。
+高盛表示，短期内风险偏向下行，尤其是在地缘政治紧张局势引发进一步平仓的情况下。
 
-具体为： 科学技术支出（类）基础研究（款）自然科学基金（项）2026年预算数为4185981.01万元，比2025年执行数增加240179.29万元，增长6.09%，主要原因是中央财政对自然科学基金的投入增加。
+但从中期来看，地缘政治不确定性以及对财政可持续性的担忧可能会加速全球向黄金的多元化配置，从而强化其长期上涨趋势。
 
-科学技术支出（类）基础研究（款）科技人才队伍建设（项）2026年预算数为459843.41万元，比2025年执行数增加149843.41万元，增长48.34%，主要原因是人才专项支出增加。
-
-科学技术支出（类）基础研究（款）其他基础研究支出（项）2026年预算数为111525.2万元，比2025年执行数减少230474.8万元，下降67.39%，主要原因是其他基础研究资助项目支出减少。
-
-…… 来源：国自然科学基金委网站 责任编辑：宋雅芳
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 19:33 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 19:32 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 19:27 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 19:44 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 19:48 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 19:26 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 19:30 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 19:34 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 19:36 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 19:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 19:34 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 19:53 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 19:51 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-29 19:54 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 19:54 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 19:37 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 19:51 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 19:44 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 19:42 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 19:32 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 19:58 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 19:53 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 19:31 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 19:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 19:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 19:43 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 19:31 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:40 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/0159859.shtml)
-- 2026-06-29 19:37 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/30297680.shtml)
-- 2026-06-29 19:30 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/56574.shtml)
-- 2026-06-29 19:47 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/841538334.shtml)
-- 2026-06-29 19:53 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/75098953.shtml)
-- 2026-06-29 19:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/088872090645.shtml)
-- 2026-06-29 19:44 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/550842029202.shtml)
-- 2026-06-29 19:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/865698.shtml)
-- 2026-06-29 19:46 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/807936047145.shtml)
-- 2026-06-29 19:48 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/02744832692.shtml)
-- 2026-06-29 19:35 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/901343872.shtml)
-- 2026-06-29 19:39 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/1173012.shtml)
-- 2026-06-29 19:53 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/9290840.shtml)
-- 2026-06-29 19:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/25665.shtml)
-- 2026-06-29 19:52 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/6401858.shtml)
+- 2026-06-29 19:38 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/49951687.shtml)
+- 2026-06-29 19:44 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/89643665.shtml)
+- 2026-06-29 19:53 - [杨紫有3部作品入围金鹰奖](http://www.blog.kurohicncr.top/Article/details/8835248886.shtml)
+- 2026-06-29 19:52 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/809797.shtml)
+- 2026-06-29 19:48 - [伊朗足球队将启程回国](https://www.share.minike.top/Article/details/493513566.shtml)
+- 2026-06-29 19:38 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/73212039687.shtml)
+- 2026-06-29 19:55 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/54384611675.shtml)
+- 2026-06-29 19:53 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/77388049.shtml)
+- 2026-06-29 19:38 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/212490.shtml)
+- 2026-06-29 19:40 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/197037875546.shtml)
+- 2026-06-29 19:40 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/5894525275.shtml)
+- 2026-06-29 19:42 - [一生一世](https://www.blog.minike.top/Article/details/91318998.shtml)
+- 2026-06-29 19:58 - [海清4次陪跑白玉兰](https://www.share.minike.top/Article/details/40180975906.shtml)
+- 2026-06-29 19:40 - [世界杯在中国观看最多的比赛](https://www.share.kurohicncr.top/Article/details/5394728.shtml)
+- 2026-06-29 19:46 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/55956186084.shtml)

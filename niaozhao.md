@@ -1,60 +1,61 @@
-# 习近平会见文莱王储比拉
+# 特朗普称乌克兰在军事上已被击败 外媒指其疑似将乌克兰与伊朗混淆
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 5月12日下午，中国国家主席习近平在北京人民大会堂会见来华进行正式访问的文莱王储比拉。 习近平指出，中国和文莱是亲密邻邦，海上丝绸之路将两国紧紧联系在一起。中文合作不仅给两国人民带来实实在在利益，也树立了大小国家平等相待、合作共赢的典范。去年我同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，开启双边关系崭新篇章。今年是中文建交35周年。面对变乱交织的国际
+中新网4月30日电 据俄罗斯卫星通讯社报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败，但其疑似将乌克兰与伊朗混淆。 据报道，记者在白宫向特朗普提问“俄乌冲突和伊朗战事哪一个会更快结束”。特朗普说：“我不知道。也许它们结束的时间会大致相同。我认为，从军事角度来看，乌克兰已经被击败。” 然而，在说完这番话后，特朗普立即给出了一组数据。他表示：“从军事角度看，他们
 
 ## 正文
 
-中新社北京5月12日电 5月12日下午，中国国家主席习近平在北京人民大会堂会见来华进行正式访问的文莱王储比拉。
+中新网4月30日电 据俄罗斯卫星通讯社报道，美国总统特朗普4月29日表示，从军事角度来看乌克兰已经被击败，但其疑似将乌克兰与伊朗混淆。
 
-习近平指出，中国和文莱是亲密邻邦，海上丝绸之路将两国紧紧联系在一起。
+据报道，记者在白宫向特朗普提问“俄乌冲突和伊朗战事哪一个会更快结束”。
 
-中文合作不仅给两国人民带来实实在在利益，也树立了大小国家平等相待、合作共赢的典范。
+特朗普说：“我不知道。
 
-去年我同哈桑纳尔苏丹就构建中文命运共同体达成重要共识，开启双边关系崭新篇章。
+也许它们结束的时间会大致相同。
 
-今年是中文建交35周年。
+我认为，从军事角度来看，乌克兰已经被击败。
 
-面对变乱交织的国际形势，双方要以构建中文命运共同体为引领，加强战略沟通，深化务实合作，为地区和平稳定注入更多正能量。
+” 然而，在说完这番话后，特朗普立即给出了一组数据。
 
-习近平强调，今年是中国“十五五”开局之年，文莱正朝着“2035宏愿”奋进，双方要以此为契合点，推动中文合作迈上新台阶。
+他表示：“从军事角度看，他们的舰队共159艘舰艇，目前它们全部都沉在水下。
 
-一是要做高度互信的战略伙伴，继续坚定相互支持，统筹推进各领域交流合作。
+”报道指出，数据表明他这里所描述的可能是伊朗。
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 19:51 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 19:35 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 19:43 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 19:35 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 19:53 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-29 19:38 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 19:28 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 19:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 19:44 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 19:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 19:51 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 19:28 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 19:35 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 19:47 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 19:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 19:59 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 19:33 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 19:36 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 19:59 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 19:47 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 19:48 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 19:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 19:46 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 19:36 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 19:45 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 19:45 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 19:40 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 19:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/51702898531.shtml)
-- 2026-06-29 19:40 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/1519515.shtml)
-- 2026-06-29 19:32 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/3368205236.shtml)
-- 2026-06-29 19:43 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/03278773.shtml)
-- 2026-06-29 19:29 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/5846059.shtml)
-- 2026-06-29 19:29 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/179317841024.shtml)
-- 2026-06-29 19:53 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/589999701.shtml)
-- 2026-06-29 19:26 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/38954.shtml)
-- 2026-06-29 19:45 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.kurohicncr.top/Article/details/44609054.shtml)
-- 2026-06-29 19:42 - [逆天祖国人](http://www.share.minike.top/Article/details/5176209718.shtml)
-- 2026-06-29 19:38 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/52757.shtml)
-- 2026-06-29 19:37 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/320163895.shtml)
-- 2026-06-29 19:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/69324.shtml)
-- 2026-06-29 19:43 - [乔家的儿女](https://www.blog.minike.top/Article/details/2366387188.shtml)
-- 2026-06-29 19:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/183591169.shtml)
+- 2026-06-29 19:56 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/022837517814.shtml)
+- 2026-06-29 19:44 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/09565101.shtml)
+- 2026-06-29 19:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/470245.shtml)
+- 2026-06-29 19:31 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/571180.shtml)
+- 2026-06-29 19:36 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.kurohicncr.top/Article/details/88719428.shtml)
+- 2026-06-29 19:48 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/1353648094.shtml)
+- 2026-06-29 19:31 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/8905496616.shtml)
+- 2026-06-29 19:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/00817.shtml)
+- 2026-06-29 19:36 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/962848624896.shtml)
+- 2026-06-29 19:52 - [毒液2](http://www.share.kurohicncr.top/Article/details/41572570917.shtml)
+- 2026-06-29 19:52 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/734596.shtml)
+- 2026-06-29 19:58 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/53198.shtml)
+- 2026-06-29 19:53 - [扫黑风暴](https://www.blog.minike.top/Article/details/651243428.shtml)
+- 2026-06-29 19:52 - [V8](http://www.share.minike.top/Article/details/558457059.shtml)
+- 2026-06-29 19:48 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/4813075.shtml)

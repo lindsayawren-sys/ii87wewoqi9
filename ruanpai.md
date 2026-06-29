@@ -1,59 +1,57 @@
-# 第二十二届文博会将开幕 聚焦文化产业数智化赋能
+# “十四五”时期重庆行政审判、行政复议工作成效显著
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月12日电 (记者 索有为)记者12日从深圳市政府新闻办举行的新闻发布会上获悉，第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)将于5月21日至25日在深圳国际会展中心举行，本届文博会展览面积16万平方米，超12万件文化产品亮相。 本届文博会聚焦文化产业数智化赋能与新质生产力培育，汇聚国内外高端文化产业资源与创新要素，以“创新场景落地、前沿技术赋能、全
+中新网重庆4月29日电 (梁钦卿)重庆市高级人民法院、重庆市司法局29日联合召开重庆市行政审判与行政复议新闻发布会。会上透露，“十四五”时期，重庆法院共新收各类行政诉讼案件67452件，重庆各级行政复议机构办理复议案件56101件。重庆市高级人民法院党组成员、副院长孙海龙回顾了“十四五”时期全市行政诉讼总体情况。“十四五”时期，重庆法院共新收各类行政诉讼案件67452件。其中，
 
 ## 正文
 
-中新网深圳5月12日电 (记者 索有为)记者12日从深圳市政府新闻办举行的新闻发布会上获悉，第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)将于5月21日至25日在深圳国际会展中心举行，本届文博会展览面积16万平方米，超12万件文化产品亮相。
+中新网重庆4月29日电 (梁钦卿)重庆市高级人民法院、重庆市司法局29日联合召开重庆市行政审判与行政复议新闻发布会。
 
-本届文博会聚焦文化产业数智化赋能与新质生产力培育，汇聚国内外高端文化产业资源与创新要素，以“创新场景落地、前沿技术赋能、全球资源聚合、消费体验升级”为核心，实现从“产业展示”到“价值共创”的能级跃升，致力于打造一届更具前沿时尚、数智赋能、交易实效的文化产业盛会。
+会上透露，“十四五”时期，重庆法院共新收各类行政诉讼案件67452件，重庆各级行政复议机构办理复议案件56101件。
 
-据深圳市委宣传部常务副部长曾相莱介绍，本届展会共组织6312家政府组团、文化机构和企业线上线下参展。
+重庆市高级人民法院党组成员、副院长孙海龙回顾了“十四五”时期全市行政诉讼总体情况。
 
-全球65个国家和地区、310家海外展商线上线下参展，其中42个国家和地区的148家企业线下参展。
+“十四五”时期，重庆法院共新收各类行政诉讼案件67452件。
 
-深圳市文化广电旅游体育局局长刘蕾表示，本届文博会整体呈现“参会阵容更强、国际朋友圈更广、科技含量更浓、文化交易更实”的鲜明特质。
+其中，一审43084件、二审18534件、申请再审5834件，分别占比63.87%、27.48%、8.65%。
 
-据介绍，本届展会市场化组展质量和数量取得新突破，预计397家国内外头部及品牌企业同台亮相，同比增长31%；预计将有来自110个国家和地区、3.5万名海外专业观众参会；首次设立APEC经济体展区，并在展期内举办“鲲鹏会·春华”国际经贸交流活动，呈现多元文化交融的精彩成果。
+2025年，一审收案9200件，同比上升10.03%，但与2021年峰值相比，下降9.32%。
 
-本届文博会重点设置人工智能展区、AI未来科技展区等。
+为推进行政争议实质化解，重庆市高级人民法院联合重庆市检察院、重庆市司法局出台工作意见，率先在省级层面构建起司法、行政、检察“三位一体”行政争议实质化解机制，加强执法、复议、诉讼衔接，防止程序空转。
 
-在北京亦庄马拉松超越人类半马世界纪录而火爆出圈的荣耀“闪电”机器人，以及众擎、乐聚、元气仔、数字华夏等机器人将亮相，全方位增强展会科技感、沉浸感与体验感。
+2025年，协调化解一审行政案件2314件，协调化解率27.24%。
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 19:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 19:24 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 19:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 19:36 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 19:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 19:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 19:51 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 19:44 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 19:34 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 19:30 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 19:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 19:32 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 19:33 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 19:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 19:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 19:56 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 19:48 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 19:30 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 19:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 19:44 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 19:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 19:40 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 19:44 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [T1零封KC MSI](http://www.share.minike.top/Article/details/381189905178.shtml)
-- 2026-06-29 19:49 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/60044.shtml)
-- 2026-06-29 19:30 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/443372310.shtml)
-- 2026-06-29 19:48 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/988270.shtml)
-- 2026-06-29 19:29 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/4738791.shtml)
-- 2026-06-29 19:47 - [特朗普两大核心赌注将迎高院裁决](https://www.share.minike.top/Article/details/081160016268.shtml)
-- 2026-06-29 19:52 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/565014.shtml)
-- 2026-06-29 19:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/57410360.shtml)
-- 2026-06-29 19:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/1195371217.shtml)
-- 2026-06-29 19:37 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/27160654580.shtml)
-- 2026-06-29 19:33 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/054189248194.shtml)
-- 2026-06-29 19:36 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/7396036.shtml)
-- 2026-06-29 19:28 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/83400203.shtml)
-- 2026-06-29 19:49 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/839369326.shtml)
-- 2026-06-29 19:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/138532188.shtml)
+- 2026-06-29 19:30 - [《新闻联播》正在直播](https://www.blog.minike.top/Article/details/76729.shtml)
+- 2026-06-29 19:34 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/70860802267.shtml)
+- 2026-06-29 19:48 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/675776384.shtml)
+- 2026-06-29 19:59 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/05635932837.shtml)
+- 2026-06-29 19:39 - [C罗10球7球对垫底队](https://www.blog.kurohicncr.top/Article/details/00212477526.shtml)
+- 2026-06-29 19:39 - [流金岁月](http://www.share.kurohicncr.top/Article/details/4180998.shtml)
+- 2026-06-29 19:53 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/2675927.shtml)
+- 2026-06-29 19:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/557535.shtml)
+- 2026-06-29 19:46 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/36241983.shtml)
+- 2026-06-29 19:30 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/157791466.shtml)
+- 2026-06-29 19:59 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/4274228.shtml)
+- 2026-06-29 19:49 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/98196577.shtml)
+- 2026-06-29 19:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/4211759.shtml)
+- 2026-06-29 19:39 - [小娘惹](https://www.share.kurohicncr.top/Article/details/089139365.shtml)
+- 2026-06-29 19:50 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/724704596921.shtml)

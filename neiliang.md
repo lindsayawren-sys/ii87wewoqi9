@@ -1,59 +1,60 @@
-# 继砂锅焖面后，西贝再推“天边肉汁水饺”？官方回应：网传猜测不属实，无饺子品类计划
+# 国防部：欢迎台湾同胞常回家看看
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-5月13日午间消息，近日，有餐饮行业人士在社交平台发帖称，西贝在北京筹备“天边肉汁水饺”新门店。根据发布的图片，门店围挡上印有“天边”商标，并写有“一把掐”、“肉质水饺”等字眼。 今年年初，贾国龙推出全新独立餐饮品牌“天边砂锅焖面”，并于2月在北京开设首店，此后该品牌接连在呼和浩特、上海、深圳、杭州等地开出超10家门店。 天眼查知识产权信息显示，西贝关联公司内蒙古西贝餐饮集团有
+中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。 有记者提问：据报道，台海军退役舰长吕礼诗等台湾同胞在青岛参加海军开放日活动，称祖国的强大代表台湾的安全，还想看福建舰。台湾陆委会称吕礼诗配合大陆“统战”，将研究相关行为是否违法。请问对此有何评论？ 张晓刚表示，今年庆祝人民海军成立77周年期间，我们组织40多艘现役主
 
 ## 正文
 
-5月13日午间消息，近日，有餐饮行业人士在社交平台发帖称，西贝在北京筹备“天边肉汁水饺”新门店。
+中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。
 
-根据发布的图片，门店围挡上印有“天边”商标，并写有“一把掐”、“肉质水饺”等字眼。
+有记者提问：据报道，台海军退役舰长吕礼诗等台湾同胞在青岛参加海军开放日活动，称祖国的强大代表台湾的安全，还想看福建舰。
 
-今年年初，贾国龙推出全新独立餐饮品牌“天边砂锅焖面”，并于2月在北京开设首店，此后该品牌接连在呼和浩特、上海、深圳、杭州等地开出超10家门店。
+台湾陆委会称吕礼诗配合大陆“统战”，将研究相关行为是否违法。
 
-天眼查知识产权信息显示，西贝关联公司内蒙古西贝餐饮集团有限公司已申请注册多枚“天边”“天边的厨房”商标，国际分类涉及餐饮住宿、材料加工等，部分商标已注册成功。
+请问对此有何评论？
 
-对此，西贝官方回应称，“没有推出饺子品类的计划，网传猜测不属实。
+张晓刚表示，今年庆祝人民海军成立77周年期间，我们组织40多艘现役主战舰艇在22个城市港口对外开放等活动，50多万民众亲身感受人民海军转型建设成果。
 
-”至于前述门店围挡为何使用了“天边”商标，西贝相关工作人员表示：“还在核实。
+特别是台湾同胞赴青岛登上祖国战舰受到广泛关注，“两岸一家亲、家和万事兴”的旗语引发现场强烈共鸣。
 
-”责任编辑：杨赐
+民进党当局见不得两岸同胞走近走亲，在他们看来什么都是统战，但不管他们怎么阻挠，也都是枉费心机。
+
+我们欢迎台湾同胞常回家看看，见证新时代伟大成就，共享民族复兴荣耀。
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 19:35 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 19:49 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 19:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 19:44 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 19:50 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 19:30 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 19:45 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 19:37 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 19:39 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 19:49 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 19:34 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 19:49 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 19:44 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 19:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 19:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 19:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 19:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 19:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 19:36 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 19:45 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 19:34 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 19:37 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 19:57 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 19:41 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 19:41 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 19:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 19:52 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 19:57 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/661794612.shtml)
-- 2026-06-29 19:25 - [叠纸](https://www.share.kurohicncr.top/Article/details/150106.shtml)
-- 2026-06-29 19:45 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.blog.kurohicncr.top/Article/details/66496260075.shtml)
-- 2026-06-29 19:50 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/966515.shtml)
-- 2026-06-29 19:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/54893.shtml)
-- 2026-06-29 19:40 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/788731084783.shtml)
-- 2026-06-29 19:46 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/86698423.shtml)
-- 2026-06-29 19:33 - [美人鱼](http://www.share.minike.top/Article/details/445111.shtml)
-- 2026-06-29 19:43 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/67961779.shtml)
-- 2026-06-29 19:35 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/4070233155.shtml)
-- 2026-06-29 19:24 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/333422769.shtml)
-- 2026-06-29 19:50 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/67005.shtml)
-- 2026-06-29 19:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/51184094.shtml)
-- 2026-06-29 19:46 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/4716047.shtml)
-- 2026-06-29 19:31 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/93877092.shtml)
+- 2026-06-29 19:35 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/9534331471.shtml)
+- 2026-06-29 19:31 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/30820266113.shtml)
+- 2026-06-29 19:32 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/883718.shtml)
+- 2026-06-29 19:30 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/906538.shtml)
+- 2026-06-29 19:34 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/261750.shtml)
+- 2026-06-29 19:54 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/263649.shtml)
+- 2026-06-29 19:46 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/49469727458.shtml)
+- 2026-06-29 19:39 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/48101713.shtml)
+- 2026-06-29 19:33 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/6106464735.shtml)
+- 2026-06-29 19:42 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/7749359.shtml)
+- 2026-06-29 19:31 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/834796399149.shtml)
+- 2026-06-29 19:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/876423.shtml)
+- 2026-06-29 19:50 - [这一刀 会很帅](http://www.share.minike.top/Article/details/906990591095.shtml)
+- 2026-06-29 19:44 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/465637844037.shtml)
+- 2026-06-29 19:56 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/791917.shtml)

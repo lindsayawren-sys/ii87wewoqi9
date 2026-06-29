@@ -1,50 +1,60 @@
-# 雪域高原迎游客 拉萨热门景点人气渐旺
+# 沃尔玛墨西哥和中美洲公司首席执行官：一季度增速放缓，全年销售复苏可期
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 21:56 来源：中国新闻网 5月11日，随着雪域高原气温逐步回升，西藏旅游旺季日渐临近，中外游客纷至沓来。在拉萨罗布林卡、大昭寺广场、药王山、布达拉宫等热门景点，游客络绎不绝，大家驻足参观、拍照留念，尽享高原古城独特魅力。(贡确 制作 徐妙巧) 责任编辑：【刘湃】
+墨西哥零售巨头沃尔玛墨西哥和中美洲公司（Walmex）首席执行官克里斯蒂安·巴里恩托斯·波佐周三表示，尽管第一季度业绩表现温和，但公司对恢复销售增长步伐充满信心，预计全年业绩将逐步改善。 一季度业绩：营收增长，利润承压 Walmex公布的第一季度财报显示，截至3月31日的三个月内，公司营收同比增长1.7%至2450.2亿墨西哥比索。净利润为125亿墨西哥比索，同比增长1.5%。
 
 ## 正文
 
-发布时间：2026年05月11日 21:56 来源：中国新闻网 5月11日，随着雪域高原气温逐步回升，西藏旅游旺季日渐临近，中外游客纷至沓来。
+墨西哥零售巨头沃尔玛墨西哥和中美洲公司（Walmex）首席执行官克里斯蒂安·巴里恩托斯·波佐周三表示，尽管第一季度业绩表现温和，但公司对恢复销售增长步伐充满信心，预计全年业绩将逐步改善。
 
-在拉萨罗布林卡、大昭寺广场、药王山、布达拉宫等热门景点，游客络绎不绝，大家驻足参观、拍照留念，尽享高原古城独特魅力。
+一季度业绩：营收增长，利润承压 Walmex公布的第一季度财报显示，截至3月31日的三个月内，公司营收同比增长1.7%至2450.2亿墨西哥比索。
 
-(贡确 制作 徐妙巧) 责任编辑：【刘湃】
+净利润为125亿墨西哥比索，同比增长1.5%。
+
+然而，盈利能力指标出现隐忧。
+
+公司运营收入同比下降2.2%至184.7亿比索，运营利润率从7.8%收窄至7.5%。
+
+息税折旧摊销前利润下滑0.4%至249.8亿比索。
+
+按地区看，墨西哥本土市场表现稳健，营收增长4.4%至2043.5亿比索，同店销售额增长3.1%。
+
+中美洲地区业务则相对疲软，营收按固定汇率计算增长2.5%，但按比索计价大幅下滑。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 19:47 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 19:45 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 19:28 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 19:33 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 19:26 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 19:48 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 19:36 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 19:46 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 19:37 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 19:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 19:42 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 19:39 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 19:39 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 19:53 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 19:30 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 19:40 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 19:48 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 19:43 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 19:42 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 19:45 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 19:30 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 19:47 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 19:34 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 19:37 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 19:49 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 19:32 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 19:38 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/39657.shtml)
-- 2026-06-29 19:47 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/50967.shtml)
-- 2026-06-29 19:34 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/42813281410.shtml)
-- 2026-06-29 19:25 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/719882647914.shtml)
-- 2026-06-29 19:24 - [千与千寻](http://www.share.minike.top/Article/details/009156.shtml)
-- 2026-06-29 19:52 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/991662792.shtml)
-- 2026-06-29 19:42 - [《贺子珍》](https://www.blog.minike.top/Article/details/7917721919.shtml)
-- 2026-06-29 19:24 - [流金岁月](https://www.share.kurohicncr.top/Article/details/978282497640.shtml)
-- 2026-06-29 19:30 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/11951470756.shtml)
-- 2026-06-29 19:47 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/965295.shtml)
-- 2026-06-29 19:48 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/090258861.shtml)
-- 2026-06-29 19:44 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/700544.shtml)
-- 2026-06-29 19:45 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/322790783213.shtml)
-- 2026-06-29 19:31 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/3795891487.shtml)
-- 2026-06-29 19:25 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/65554704.shtml)
+- 2026-06-29 19:36 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/8288716.shtml)
+- 2026-06-29 19:51 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/818706.shtml)
+- 2026-06-29 19:53 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/407887614.shtml)
+- 2026-06-29 19:45 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/46759243.shtml)
+- 2026-06-29 19:48 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/0122004417.shtml)
+- 2026-06-29 19:54 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/274816945669.shtml)
+- 2026-06-29 19:30 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/46671401111.shtml)
+- 2026-06-29 19:40 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/12008.shtml)
+- 2026-06-29 19:40 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/924020926.shtml)
+- 2026-06-29 19:48 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/90970151.shtml)
+- 2026-06-29 19:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/93869404947.shtml)
+- 2026-06-29 19:46 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/097374986.shtml)
+- 2026-06-29 19:45 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/4187609171.shtml)
+- 2026-06-29 19:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/86593298172.shtml)
+- 2026-06-29 19:57 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/71021758720.shtml)

@@ -1,56 +1,60 @@
-# 2026年广西防灾减灾宣传周启动 救援演示引民众关注
+# 特朗普称赞阿联酋退出OPEC 表示此举将降低能源价格
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。 当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事
+美国总统唐纳德·特朗普对阿联酋决定退出OPEC表示赞赏，表示此举将有助于降低能源价格。伊朗战争爆发后，能源价格大幅上涨。 特朗普周三在白宫被问及此举时表示，“我认为这很好。” “他可能想走自己的路，”特朗普还表示，他指的是阿联酋总统穆罕默德·本·扎耶德·阿勒纳哈扬。“这有助于降低汽油价格，降低油价，降低一切价格。” 阿联酋本周宣布将于下月退出OPEC，在石油行业努力应对美国和以
 
 ## 正文
 
-中新网南宁5月12日电(韦佳秀)安全教官通过喊话吸引周边救援力量，并向“溺水”人员抛投救生工具、入水解救“溺水”人员......5月12日，广西南宁上演了一场针对溺水人员的专业救援演示。
+美国总统唐纳德·特朗普对阿联酋决定退出OPEC表示赞赏，表示此举将有助于降低能源价格。
 
-当天，2026年广西防灾减灾宣传周启动仪式在广西体育中心壮小安应急安全主题馆举行。
+伊朗战争爆发后，能源价格大幅上涨。
 
-广西壮族自治区应急管理厅预案管理和综合减灾处处长、一级调研员何品志此间受访时表示，广西全区各级防灾减灾救灾议事协调机构结合实际，组织开展一系列防灾减灾科普宣教活动，在易灾区域至少开展一次应急演练，至少开展一次风险隐患排查等活动。
+特朗普周三在白宫被问及此举时表示，“我认为这很好。
 
-据介绍，今年广西聚焦重大基础设施和人员密集场所开展涉灾风险排查，完善监测预警“叫应”和跟踪反馈机制，围绕大震巨灾、城市内涝、山区极端暴雨—山洪—泥石流等复杂场景组织跨区域跨部门协同演练，发挥八桂应急社区响应队“第一响应人”和党员先锋模范作用，确保全区社会大局和谐稳定、全区人民安居乐业。
+” “他可能想走自己的路，”特朗普还表示，他指的是阿联酋总统穆罕默德·本·扎耶德·阿勒纳哈扬。
 
-本次活动拉开了集中开展防灾减灾救灾科普宣传教育的序幕，以“人人讲安全，个个会应急——提高防灾减灾救灾能力”为主题，旨在营造人人讲安全、个个会应急的社会氛围。
+“这有助于降低汽油价格，降低油价，降低一切价格。
 
-活动现场，广西各级各部门通过设立展板、发放资料、有奖问答等形式，为民众普及防灾减灾知识和自救互救技能。
+” 阿联酋本周宣布将于下月退出OPEC，在石油行业努力应对美国和以色列对伊朗战争引发的供应中断之际，此举可能削弱该组织对石油市场的影响力。
 
-广西消防救援队伍、南宁消防救援机动队伍等通过应急装备展示，提高民众对于新质应急救援装备的认知度。
+此举也是阿联酋与OPEC领导者沙特阿拉伯多年紧张关系的结果，双方在包括石油产量在内的一系列问题上存在分歧。
 
-壮小安应急安全主题馆提供沉浸式的灾害事故场景体验，进一步加深民众的避灾避险意识。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 19:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 19:52 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 19:28 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 19:25 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 19:31 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:28 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 19:50 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 19:28 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 19:38 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 19:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 19:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 19:35 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 19:49 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 19:35 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 19:58 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 20:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 19:36 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 19:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 19:37 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 19:35 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 19:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 19:39 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 19:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/66195315198.shtml)
-- 2026-06-29 19:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/190936295.shtml)
-- 2026-06-29 19:25 - [毛朝晖任湖南省农业农村厅厅长](http://www.blog.minike.top/Article/details/3847261.shtml)
-- 2026-06-29 19:47 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/682313.shtml)
-- 2026-06-29 19:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/9194484653.shtml)
-- 2026-06-29 19:26 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/602007555358.shtml)
-- 2026-06-29 19:46 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/7864176.shtml)
-- 2026-06-29 19:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/73237744964.shtml)
-- 2026-06-29 19:47 - [周生如故](https://www.share.kurohicncr.top/Article/details/251641073994.shtml)
-- 2026-06-29 19:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/37652382.shtml)
-- 2026-06-29 19:27 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/68090673571.shtml)
-- 2026-06-29 19:38 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/31140.shtml)
-- 2026-06-29 19:34 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/92578.shtml)
-- 2026-06-29 19:42 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/23239.shtml)
-- 2026-06-29 19:36 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/97025067117.shtml)
+- 2026-06-29 19:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/48037248.shtml)
+- 2026-06-29 19:41 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/7742308.shtml)
+- 2026-06-29 19:57 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/6309925.shtml)
+- 2026-06-29 19:57 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/19674323.shtml)
+- 2026-06-29 19:59 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/150052034199.shtml)
+- 2026-06-29 19:30 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/6469954709.shtml)
+- 2026-06-29 19:43 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/3867433864.shtml)
+- 2026-06-29 19:52 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/679795783924.shtml)
+- 2026-06-29 19:40 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/3147197.shtml)
+- 2026-06-29 19:43 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/8696169476.shtml)
+- 2026-06-29 19:56 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/551663469459.shtml)
+- 2026-06-29 19:49 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/6050339301.shtml)
+- 2026-06-29 19:52 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/5005671726.shtml)
+- 2026-06-29 19:37 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/74644603649.shtml)
+- 2026-06-29 19:55 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/9945139.shtml)

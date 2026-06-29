@@ -1,59 +1,60 @@
-# 宗馥莉罢免销售总经理，整合销售公司多科室
+# 杭州欧美同学会OPC成长营开营
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-5月12日，据市场消息称，宏胜饮料集团发布一份组织架构调整及人员任免通知。 其中透露，将营销中心划归总裁宗馥莉统筹直管，营销中心总监兼销售公司总经理吴汀燕被免职。 同时，销售公司商超管理科、特通管理科合并更名为商超特通管理科。渠道客户管理科与产品价格管理科合并为渠道管理科，由渠道管理科承接原两科室全部业务职能。 此外，宏胜饮料还宣布了相关科室的相关人士变动： 舒康廷为销售公司副
+4月28日，杭州欧美同学会OPC成长营系列活动在上城区鸿鹄汇OPC社区开营。市委统战部副部长罗明誉出席并讲话。近百名海归创业者、行业专家及创投机构代表参加。 活动中，上城区委统战部有关负责人介绍了上城区OPC产业生态布局。上城区科技经信局有关负责人解读了OPC创新创业支持政策，并送上“政策大礼包”。法国工程师和科学家联合会(IESF)主席克里斯托夫以视频形式，为大家带来国际视野
 
 ## 正文
 
-5月12日，据市场消息称，宏胜饮料集团发布一份组织架构调整及人员任免通知。
+4月28日，杭州欧美同学会OPC成长营系列活动在上城区鸿鹄汇OPC社区开营。
 
-其中透露，将营销中心划归总裁宗馥莉统筹直管，营销中心总监兼销售公司总经理吴汀燕被免职。
+市委统战部副部长罗明誉出席并讲话。
 
-同时，销售公司商超管理科、特通管理科合并更名为商超特通管理科。
+近百名海归创业者、行业专家及创投机构代表参加。
 
-渠道客户管理科与产品价格管理科合并为渠道管理科，由渠道管理科承接原两科室全部业务职能。
+活动中，上城区委统战部有关负责人介绍了上城区OPC产业生态布局。
 
-此外，宏胜饮料还宣布了相关科室的相关人士变动： 舒康廷为销售公司副总经理兼商超特通管理科科长；刘凡为销售公司商超特通管理科副科长；余国英为销售公司渠道管理科科长；牟爽为销售公司渠道管理科副科长。
+上城区科技经信局有关负责人解读了OPC创新创业支持政策，并送上“政策大礼包”。
 
-另任命吴丹凤为计划中心生产管理科副科长；姚丽娜为桥南基地综合管理科副科长。
+法国工程师和科学家联合会(IESF)主席克里斯托夫以视频形式，为大家带来国际视野下的创新洞察。
 
-对于上述情况，新浪财经问询了娃哈哈方面，截至发稿前未获回应。
+鸿鹄汇合伙人王家豪发布《一人公司OPC洞察报告》，品览科技创始人李一帆、粤港澳大湾区青年创新创业中心理事长王凯等嘉宾围绕AI时代创业路径作主题分享。
 
-责任编辑：杨赐
+活动同步举行了成长营导师聘任及“OPC业务场景”发布仪式，发布了覆盖消费、文旅、民生、治理、产业等领域的十大OPC业务场景。
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 19:47 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 19:25 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 19:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 19:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 19:33 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 19:46 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 19:47 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 19:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 19:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 19:42 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 19:41 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 19:40 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 19:34 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 19:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 19:43 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 19:59 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 19:39 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 19:58 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 19:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 19:57 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 19:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 19:41 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 19:50 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 19:32 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 19:55 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 19:48 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [扬名立万](https://www.share.minike.top/Article/details/876421791406.shtml)
-- 2026-06-29 19:29 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/78016772.shtml)
-- 2026-06-29 19:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/16636.shtml)
-- 2026-06-29 19:50 - [永远有话聊的原因](https://www.share.minike.top/Article/details/50001936.shtml)
-- 2026-06-29 19:52 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/148664159.shtml)
-- 2026-06-29 19:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/680459252.shtml)
-- 2026-06-29 19:43 - [V8](https://www.blog.minike.top/Article/details/68720529670.shtml)
-- 2026-06-29 19:48 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/693323065184.shtml)
-- 2026-06-29 19:34 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/27707087734.shtml)
-- 2026-06-29 19:36 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/3386469693.shtml)
-- 2026-06-29 19:30 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/5168797.shtml)
-- 2026-06-29 19:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/325403.shtml)
-- 2026-06-29 19:29 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/338337.shtml)
-- 2026-06-29 19:52 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/2568574290.shtml)
-- 2026-06-29 19:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/2499187.shtml)
+- 2026-06-29 19:34 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/25483.shtml)
+- 2026-06-29 19:41 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/2490874.shtml)
+- 2026-06-29 19:41 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/2020878.shtml)
+- 2026-06-29 19:57 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/39759376.shtml)
+- 2026-06-29 19:43 - [我们的少年时代2](http://www.blog.minike.top/Article/details/197649304.shtml)
+- 2026-06-29 19:43 - [流金岁月](http://www.share.minike.top/Article/details/0951049.shtml)
+- 2026-06-29 19:45 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/0191082.shtml)
+- 2026-06-29 19:45 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/2182993.shtml)
+- 2026-06-29 19:47 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/121446414771.shtml)
+- 2026-06-29 19:59 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/728379.shtml)
+- 2026-06-29 19:31 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/256028027067.shtml)
+- 2026-06-29 19:46 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/07037661.shtml)
+- 2026-06-29 19:31 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/71929.shtml)
+- 2026-06-29 19:38 - [王楚钦开门红](https://www.share.minike.top/Article/details/523093.shtml)
+- 2026-06-29 19:55 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/5527409661.shtml)

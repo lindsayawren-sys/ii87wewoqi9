@@ -1,59 +1,60 @@
-# 废弃防空洞变身“微醺”博物馆 烟台葡萄酒旅游升温
+# 假期闲钱往哪放？这个底仓品种吸金461亿
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网烟台5月12日电 题：废弃防空洞变身“微醺”博物馆 烟台葡萄酒旅游升温 作者 王娇妮 杨馥宁 作为中国葡萄酒工业发祥地、亚洲唯一的“国际葡萄·葡萄酒城”，山东烟台葡萄酒产业基础深厚，带动葡萄酒旅游持续升温。 烟台市区一处废弃防空洞历经改造，如今成为游客聚集的葡萄酒文化博物馆，正是这股“微醺”旅游热潮的缩影。 “改造最大的难点，是在保留防空洞原始肌理的基础上解决渗漏、潮湿问
+3月以来，全球市场波动明显加剧。地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？ 刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。在市场波动加剧的背景下，短债基金依然保持了可观的
 
 ## 正文
 
-中新网烟台5月12日电 题：废弃防空洞变身“微醺”博物馆 烟台葡萄酒旅游升温 作者 王娇妮 杨馥宁 作为中国葡萄酒工业发祥地、亚洲唯一的“国际葡萄·葡萄酒城”，山东烟台葡萄酒产业基础深厚，带动葡萄酒旅游持续升温。
+3月以来，全球市场波动明显加剧。
 
-烟台市区一处废弃防空洞历经改造，如今成为游客聚集的葡萄酒文化博物馆，正是这股“微醺”旅游热潮的缩影。
+地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。
 
-“改造最大的难点，是在保留防空洞原始肌理的基础上解决渗漏、潮湿问题。
+面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？
 
-”大德葡萄酒文化博物馆负责人于俊宁介绍，建设团队“以疏代堵”，通过科学疏导地下水、升级除湿系统等方式，将原本阴暗潮湿的空间蜕变为四季恒温的文化休闲场所。
+刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。
 
-该博物馆以历史实物、图文资料、多媒体互动等形式，集中展示世界各地葡萄酒及文化。
+据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。
 
-同时依托独特的地下空间，推出特色旅游项目，开放至今已累计举办葡萄酒品鉴会、文化沙龙等各类活动400余场。
+在市场波动加剧的背景下，短债基金依然保持了可观的资金流入，侧面印证了其作为资产配置底仓的独特价值——不投权益、主投高评级短期债券，波动可控，且假期票息收益不间断，恰好契合闲钱理财的核心诉求。
 
-这一“微醺”地标，折射出烟台葡萄酒旅游的多点开花。
+眼下，五一小长假即将到来。
 
-当地已培育“葡萄酒+”多业融合示范企业10家，葡萄酒主题景区景点25处，张裕酒文化博物馆、朝阳街葡萄酒主题街区、所城葡萄酒慢生活体验中心等一批特色载体不断完善。
+需要留意的是，假期期间海外金融市场仍将正常交易，外围消息面存在不确定性。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 19:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 19:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 19:44 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 19:29 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 19:48 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 19:36 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 19:48 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 19:42 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 19:44 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 19:33 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 19:35 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 19:55 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 19:56 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 19:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 19:30 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 19:38 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 19:49 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 19:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 19:51 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 19:58 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 19:36 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 19:50 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 19:33 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 19:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 19:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/526389767.shtml)
-- 2026-06-29 19:38 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/84894.shtml)
-- 2026-06-29 19:29 - [斛珠夫人](http://www.share.minike.top/Article/details/463222433.shtml)
-- 2026-06-29 19:36 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/928039984.shtml)
-- 2026-06-29 19:53 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/12393704.shtml)
-- 2026-06-29 19:46 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/00879.shtml)
-- 2026-06-29 19:46 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/6481939916.shtml)
-- 2026-06-29 19:51 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/62509711509.shtml)
-- 2026-06-29 19:47 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/00511655327.shtml)
-- 2026-06-29 19:28 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/700183.shtml)
-- 2026-06-29 19:31 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/45745550.shtml)
-- 2026-06-29 19:48 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/3290533.shtml)
-- 2026-06-29 19:52 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/35807355054.shtml)
-- 2026-06-29 19:50 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/76109536165.shtml)
-- 2026-06-29 19:39 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/0036017574.shtml)
+- 2026-06-29 19:49 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/76071.shtml)
+- 2026-06-29 19:42 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/2923137422.shtml)
+- 2026-06-29 19:59 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/898742084306.shtml)
+- 2026-06-29 19:31 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/869717334634.shtml)
+- 2026-06-29 19:57 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/2151884357.shtml)
+- 2026-06-29 19:47 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/8063218689.shtml)
+- 2026-06-29 19:42 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/822496.shtml)
+- 2026-06-29 19:57 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/2124929.shtml)
+- 2026-06-29 19:41 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/12240.shtml)
+- 2026-06-29 19:43 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/791872.shtml)
+- 2026-06-29 19:35 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/25692349482.shtml)
+- 2026-06-29 19:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/80651.shtml)
+- 2026-06-29 19:48 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/76574606.shtml)
+- 2026-06-29 19:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/641337.shtml)
+- 2026-06-29 19:38 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/842153282729.shtml)

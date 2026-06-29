@@ -1,57 +1,61 @@
-# 京沪高铁部分动车组列车公布票价上浮20%
+# 波浪能与潮汐能：两种不同的海洋新能源
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。 公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。 公告指出，公司将持续提升客运服务品质。此次票价优化调整对公司业绩的影响具
+波浪能和潮汐能常被混为一谈，但它们是两种不同的可再生能源。 能量来源不同：波浪能来自风能传导到海面形成的波浪动能，随气象变化而波动；潮汐能则源于月球和太阳引力引起的海面周期性升降势能，高度可预测。 技术原理不同：波浪能通过点吸式、摆式等装置捕获波浪的上下运动能量；潮汐能则利用潮汐坝或水下涡轮机，类似拦河大坝或水下风车。 地理要求不同：波浪能适合常年有大浪的大洋沿岸；潮汐能则要求
 
 ## 正文
 
-中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。
+波浪能和潮汐能常被混为一谈，但它们是两种不同的可再生能源。
 
-公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。
+能量来源不同：波浪能来自风能传导到海面形成的波浪动能，随气象变化而波动；潮汐能则源于月球和太阳引力引起的海面周期性升降势能，高度可预测。
 
-公告指出，公司将持续提升客运服务品质。
+技术原理不同：波浪能通过点吸式、摆式等装置捕获波浪的上下运动能量；潮汐能则利用潮汐坝或水下涡轮机，类似拦河大坝或水下风车。
 
-此次票价优化调整对公司业绩的影响具有一定的不确定性，公司董事会提醒广大投资者谨慎决策，注意投资风险。
+地理要求不同：波浪能适合常年有大浪的大洋沿岸；潮汐能则要求潮差大（如布里斯托尔湾）或潮汐流速快的狭窄海峡。
 
-京沪高铁连接京津冀和长三角两大经济区，区域经济增长快，人口密度大，城市化程度高，具有良好的客流基础。
+连续性差异：波浪能存在间歇性，风平浪静时发电量下降；潮汐能则极为规律，每天通过四次涨落循环，可提前数十年精准预测。
 
-作为“中国高铁第一股”，京沪高铁已于2020年1月16日在A股上市。
+为什么常有人说波浪能“更稳定”？
 
-据京沪高铁财报显示，2026年一季度实现营收105.59亿元(人民币，下同)，同比增长3.29%；实现归母净利润31.43亿元，同比增长6.03%。
+这是相对风能和太阳能而言的。
 
-(完)
+海浪能量衰减缓慢，一个大浪系统可在海面传播数千公里、持续数日，即使近岸风力减弱，涌浪依然存在，使其输出曲线比风能和太阳能更平稳。
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 19:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 19:47 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 19:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 19:46 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 19:35 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 19:25 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 19:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 19:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 19:32 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 19:53 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 19:51 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 19:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 19:40 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 19:41 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 19:56 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 19:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 19:37 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 19:55 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 19:48 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 19:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 19:59 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 19:54 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 19:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 19:48 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 19:51 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/6612498.shtml)
-- 2026-06-29 19:53 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/274955160.shtml)
-- 2026-06-29 19:24 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/86150.shtml)
-- 2026-06-29 19:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/79130.shtml)
-- 2026-06-29 19:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/684378080013.shtml)
-- 2026-06-29 19:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/1727809.shtml)
-- 2026-06-29 19:46 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/00244821384.shtml)
-- 2026-06-29 19:50 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/41383994.shtml)
-- 2026-06-29 19:45 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6144278.shtml)
-- 2026-06-29 19:41 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/08490.shtml)
-- 2026-06-29 19:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/4616252.shtml)
-- 2026-06-29 19:44 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/26782.shtml)
-- 2026-06-29 19:29 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/183463921.shtml)
-- 2026-06-29 19:37 - [天道](https://www.share.minike.top/Article/details/628398.shtml)
-- 2026-06-29 19:29 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/52722411790.shtml)
+- 2026-06-29 19:50 - [韩国小学生都来吐槽了](https://www.share.minike.top/Article/details/112211336099.shtml)
+- 2026-06-29 19:35 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/171811.shtml)
+- 2026-06-29 19:59 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/74571.shtml)
+- 2026-06-29 19:32 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/814090152.shtml)
+- 2026-06-29 19:59 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/8767137742.shtml)
+- 2026-06-29 19:32 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/529377.shtml)
+- 2026-06-29 19:57 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/984602.shtml)
+- 2026-06-29 19:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/322636335.shtml)
+- 2026-06-29 19:55 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/045934228.shtml)
+- 2026-06-29 19:46 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/378221.shtml)
+- 2026-06-29 19:32 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/81794417382.shtml)
+- 2026-06-29 19:42 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/57590.shtml)
+- 2026-06-29 19:52 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/81646604372.shtml)
+- 2026-06-29 19:58 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/529200.shtml)
+- 2026-06-29 19:59 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/09580402.shtml)

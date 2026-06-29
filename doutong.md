@@ -1,59 +1,46 @@
-# “中国林都”伊春：火山岩上杜鹃花开 “撞色”美景醉游人
+# 日韩股市开盘涨跌互现 日经225指数低开0.7%
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网伊春5月11日电(刘璐 兰胜宇)11日，第三届伊春·丰林杜鹃花观赏季启幕。在黑龙江省伊春市丰林县红星火山地质公园，火山岩黝黑粗粝，杜鹃花粉紫如烟，“撞色”美景吸引全国各地游客及摄影爱好者，共赴一场花海之约。 “早就听说伊春环境好、生态好、空气好，果然名不虚传。刚刚体验了武侠风格的旅拍，很出片。”山东菏泽游客赵先生说。活动依托火山岩杜鹃花海原生态景观，精心打造文旅观赏、定制
+日经225指数低开0.72%，报59484.71点。韩国综合股价指数（KOSPI）开盘报6739.39点，上涨0.7%。责任编辑：王永生
 
 ## 正文
 
-中新网伊春5月11日电(刘璐 兰胜宇)11日，第三届伊春·丰林杜鹃花观赏季启幕。
+日经225指数低开0.72%，报59484.71点。
 
-在黑龙江省伊春市丰林县红星火山地质公园，火山岩黝黑粗粝，杜鹃花粉紫如烟，“撞色”美景吸引全国各地游客及摄影爱好者，共赴一场花海之约。
+韩国综合股价指数（KOSPI）开盘报6739.39点，上涨0.7%。
 
-“早就听说伊春环境好、生态好、空气好，果然名不虚传。
-
-刚刚体验了武侠风格的旅拍，很出片。
-
-”山东菏泽游客赵先生说。
-
-活动依托火山岩杜鹃花海原生态景观，精心打造文旅观赏、定制旅拍、花海音乐会等多元场景，让游客沉浸式感受花海美景，留存专属旅行记忆。
-
-走进景区，不少游客换上精致的汉服妆造，在花间拍照打卡；声乐演唱、古风舞蹈、器乐演奏轮番登场，与漫山杜鹃相映成趣。
-
-黑龙江林业文工团、琵琶演奏员夏怡蕊表示，传统民乐自带山水意境，琵琶婉转的古韵与山林美景浑然相融，让人心情舒畅。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 19:45 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 19:29 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 19:29 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 19:30 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 19:44 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 19:48 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 19:43 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 19:24 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 19:42 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 19:43 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 19:50 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 19:45 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 19:55 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 19:40 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 19:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 19:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 19:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 19:49 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 19:54 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 19:57 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 19:30 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 19:44 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/17692953.shtml)
-- 2026-06-29 19:38 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/834786114559.shtml)
-- 2026-06-29 19:30 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/183404765.shtml)
-- 2026-06-29 19:43 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/357187690.shtml)
-- 2026-06-29 19:26 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/99833698815.shtml)
-- 2026-06-29 19:33 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/1931594601.shtml)
-- 2026-06-29 19:30 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/554067.shtml)
-- 2026-06-29 19:33 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/54053642658.shtml)
-- 2026-06-29 19:46 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/647766465399.shtml)
-- 2026-06-29 19:49 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/9194171826.shtml)
-- 2026-06-29 19:36 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/59698.shtml)
-- 2026-06-29 19:37 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/60446665.shtml)
-- 2026-06-29 19:39 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/13209.shtml)
-- 2026-06-29 19:39 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/4139664235.shtml)
-- 2026-06-29 19:33 - [毒液2](http://www.blog.minike.top/Article/details/586091917.shtml)
+- 2026-06-29 19:38 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/14084886049.shtml)
+- 2026-06-29 19:49 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/96004.shtml)
+- 2026-06-29 19:50 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/155460877496.shtml)
+- 2026-06-29 19:35 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/815982.shtml)
+- 2026-06-29 19:47 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/503172.shtml)
+- 2026-06-29 19:53 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/91261.shtml)
+- 2026-06-29 19:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/27422337248.shtml)
+- 2026-06-29 19:47 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/279285335310.shtml)
+- 2026-06-29 19:48 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/5763074.shtml)
+- 2026-06-29 19:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/920139.shtml)
+- 2026-06-29 19:32 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/683093290.shtml)
+- 2026-06-29 19:40 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/410165617.shtml)
+- 2026-06-29 19:53 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/6820018145.shtml)
+- 2026-06-29 19:49 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/83069.shtml)
+- 2026-06-29 19:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/71621.shtml)

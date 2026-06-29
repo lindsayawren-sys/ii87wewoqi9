@@ -1,60 +1,47 @@
-# 5家险企偿付能力不达标
+# 美国付费让风电公司退出租约 将资本转向化石燃料项目
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 偿付能力充足率是衡量保险公司偿还债务能力的核心指标。 近日，保险机构陆续公布2026年第一季度偿付能力情况。据《金融时报》记者统计，截至发稿，共有86家财产险公司、72家人身险公司及16家再保险公司按期披露了相关数据。整体来看，行业偿付能力水平充裕。超过97%的保险机构偿付能力充足，14家获得风险综合评级AAA的最高评价。不过，一季度共有5家机构偿付能力不达标，
+继与道达尔能源达成10亿美元协议后，特朗普政府将向开发商支付补偿金以终止海上风电项目，从而将资本转向化石燃料项目。责任编辑：张俊 SF065
 
 ## 正文
 
-来源：金融时报 偿付能力充足率是衡量保险公司偿还债务能力的核心指标。
+继与道达尔能源达成10亿美元协议后，特朗普政府将向开发商支付补偿金以终止海上风电项目，从而将资本转向化石燃料项目。
 
-近日，保险机构陆续公布2026年第一季度偿付能力情况。
-
-据《金融时报》记者统计，截至发稿，共有86家财产险公司、72家人身险公司及16家再保险公司按期披露了相关数据。
-
-整体来看，行业偿付能力水平充裕。
-
-超过97%的保险机构偿付能力充足，14家获得风险综合评级AAA的最高评价。
-
-不过，一季度共有5家机构偿付能力不达标，另有两家为重点核查对象。
-
-根据偿二代二期工程监管要求，保险公司偿付能力达标须同时满足三项条件：核心偿付能力充足率不低于50%、综合偿付能力充足率不低于100%、风险综合评级在B类及以上。
-
-三项中任一不达标，即被认定为偿付能力不达标机构。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 19:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 19:37 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 19:47 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 19:40 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 19:51 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 19:36 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 19:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 19:35 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 19:34 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 19:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 19:29 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 19:36 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 19:37 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 19:38 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 19:40 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 19:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-29 19:36 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 19:57 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 19:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 19:45 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 19:49 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 19:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 19:35 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 19:39 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 19:46 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 19:58 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 19:33 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/03970721.shtml)
-- 2026-06-29 19:30 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/6972231684.shtml)
-- 2026-06-29 19:26 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/24779013353.shtml)
-- 2026-06-29 19:51 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/240230377829.shtml)
-- 2026-06-29 19:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/744788.shtml)
-- 2026-06-29 19:27 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/860597781.shtml)
-- 2026-06-29 19:48 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/862231585.shtml)
-- 2026-06-29 19:39 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/531689.shtml)
-- 2026-06-29 19:42 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/916462.shtml)
-- 2026-06-29 19:26 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/398703552.shtml)
-- 2026-06-29 19:41 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/8168118650.shtml)
-- 2026-06-29 19:50 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/842025.shtml)
-- 2026-06-29 19:43 - [青春环游记第三季](https://www.share.minike.top/Article/details/2366708.shtml)
-- 2026-06-29 19:25 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/51659.shtml)
-- 2026-06-29 19:25 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/6648955602.shtml)
+- 2026-06-29 19:48 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/74439463621.shtml)
+- 2026-06-29 19:39 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/47462189840.shtml)
+- 2026-06-29 19:34 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/0206307898.shtml)
+- 2026-06-29 19:45 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/47333751.shtml)
+- 2026-06-29 19:43 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/66055.shtml)
+- 2026-06-29 19:56 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/772495075561.shtml)
+- 2026-06-29 19:56 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/8743271.shtml)
+- 2026-06-29 19:42 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/2958508.shtml)
+- 2026-06-29 19:45 - [天道](http://www.blog.minike.top/Article/details/9483987.shtml)
+- 2026-06-29 19:48 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/60257588975.shtml)
+- 2026-06-29 19:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/0657300289.shtml)
+- 2026-06-29 19:56 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/49531.shtml)
+- 2026-06-29 19:34 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/4435503282.shtml)
+- 2026-06-29 19:50 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/057080558.shtml)
+- 2026-06-29 19:57 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/73891449.shtml)

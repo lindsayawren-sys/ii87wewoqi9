@@ -1,49 +1,56 @@
-# 广发证券发行58亿元公司债券
+# 深圳：进一步优化调整本市房地产相关政策 提高住房公积金贷款额度
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-广发证券（01776）发布公告，广发证券股份有限公司2026年面向专业投资者公开发行公司债券（第三期）发行时间为2026年5月8日至2026年5月11日，其中品种一发行期限为3年，最终发行规模为36.4亿元，最终票面利率为1.74%，认购倍数为2.43倍；品种二发行期限为5年，最终发行规模为21.6亿元，最终票面利率为1.86%，认购倍数为2.61倍。本期债券募集资金27亿元用
+4月29日金融一线消息，深圳市住房和建设局发布关于进一步优化调整本市房地产相关政策的通知。通知提到，符合本市商品住房购买条件的居民家庭（包括本市户籍居民家庭、自购房之日前在本市连续缴纳社会保险或个人所得税满1年及以上的非本市户籍居民家庭），在执行现有住房限购政策基础上，可在福田区、南山区和宝安区新安街道范围内增购1套商品住房。 持有有效深圳经济特区居住证的非本市户籍居民家庭，可
 
 ## 正文
 
-广发证券（01776）发布公告，广发证券股份有限公司2026年面向专业投资者公开发行公司债券（第三期）发行时间为2026年5月8日至2026年5月11日，其中品种一发行期限为3年，最终发行规模为36.4亿元，最终票面利率为1.74%，认购倍数为2.43倍；品种二发行期限为5年，最终发行规模为21.6亿元，最终票面利率为1.86%，认购倍数为2.61倍。
+4月29日金融一线消息，深圳市住房和建设局发布关于进一步优化调整本市房地产相关政策的通知。
 
-本期债券募集资金27亿元用于偿还“21广发06”，9.8亿元用于偿还“23广发C1”，10亿元用于偿还“21广发Y1”，11.2亿元用于偿还“21广发11”。
+通知提到，符合本市商品住房购买条件的居民家庭（包括本市户籍居民家庭、自购房之日前在本市连续缴纳社会保险或个人所得税满1年及以上的非本市户籍居民家庭），在执行现有住房限购政策基础上，可在福田区、南山区和宝安区新安街道范围内增购1套商品住房。
 
-责任编辑：卢昱君
+持有有效深圳经济特区居住证的非本市户籍居民家庭，可在福田区、南山区和宝安区新安街道范围内购买1套商品住房，以满足其在深住房需求。
+
+提高住房公积金贷款额度，缴存职工单独申请住房公积金贷款的，住房公积金贷款额度为70万元；缴存职工共同申请住房公积金贷款的，若合并计算可贷额度，住房公积金贷款额度为130万元。
+
+优化住房公积金贷款额度上浮比例，使用住房公积金贷款购买本市首套住房的，住房公积金贷款额度可以上浮60%；初婚初育居民家庭、有两个及以上子女的居民家庭使用住房公积金贷款购买本市住房的，住房公积金贷款额度可以分别上浮50%、70%，同时符合两种条件的家庭可以选择上浮50%或70%；使用住房公积金贷款购买本市保障性住房的，住房公积金贷款额度可以上浮40%。
+
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 19:45 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 19:31 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 19:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 19:30 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 19:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 19:37 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 19:53 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 19:30 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 19:26 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 19:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 19:46 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 19:33 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 19:56 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 19:44 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 19:35 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 19:37 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 19:36 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-29 19:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 19:30 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 19:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 19:38 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 19:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 19:43 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 19:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 19:36 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 19:30 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:39 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/638411835.shtml)
-- 2026-06-29 19:36 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/57187259.shtml)
-- 2026-06-29 19:31 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/4439389150.shtml)
-- 2026-06-29 19:32 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/3682469.shtml)
-- 2026-06-29 19:41 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/518952688.shtml)
-- 2026-06-29 19:43 - [流金岁月](https://www.blog.minike.top/Article/details/39428.shtml)
-- 2026-06-29 19:28 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/9862426.shtml)
-- 2026-06-29 19:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/68415799.shtml)
-- 2026-06-29 19:34 - [天道](https://www.blog.kurohicncr.top/Article/details/74426891.shtml)
-- 2026-06-29 19:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/9464761425.shtml)
-- 2026-06-29 19:54 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.kurohicncr.top/Article/details/13572198.shtml)
-- 2026-06-29 19:45 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/149383.shtml)
-- 2026-06-29 19:38 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/4057385.shtml)
-- 2026-06-29 19:41 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/574914.shtml)
-- 2026-06-29 19:51 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/40332112.shtml)
+- 2026-06-29 19:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/984439834.shtml)
+- 2026-06-29 19:41 - [娜扎搂着我的腰和我合照](http://www.blog.kurohicncr.top/Article/details/43884129.shtml)
+- 2026-06-29 19:30 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/877638.shtml)
+- 2026-06-29 19:44 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/1399757665.shtml)
+- 2026-06-29 19:35 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/4379338.shtml)
+- 2026-06-29 19:53 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.kurohicncr.top/Article/details/86549.shtml)
+- 2026-06-29 19:32 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/859860848.shtml)
+- 2026-06-29 19:53 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/22459.shtml)
+- 2026-06-29 19:44 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/805691823368.shtml)
+- 2026-06-29 19:37 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/136332373.shtml)
+- 2026-06-29 19:56 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/119092743.shtml)
+- 2026-06-29 19:53 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/544065541789.shtml)
+- 2026-06-29 19:37 - [爱很美味](https://www.share.minike.top/Article/details/34304817.shtml)
+- 2026-06-29 19:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/21929732.shtml)
+- 2026-06-29 19:32 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/68196.shtml)

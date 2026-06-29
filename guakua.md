@@ -1,61 +1,57 @@
-# OpenAI创始人私人日记曝光：成马斯克诉讼案庭审焦点
+# 传雅诗兰黛考虑以每股18-19欧元收购Puig
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-OpenAI总裁兼联合创始人格雷格·布罗克曼（Greg Brockman）的私人日记，如今已成为该公司与埃隆·马斯克（Elon Musk）诉讼案中的关键证据。这场科技界顶级人物之间的法律争端，最具人情味的部分，或许正是这些原本只属于个人的私密记录。想象一下，如果有人翻看了你的私人日记，那会多么令人尴尬。而现在，这本记录了布罗克曼人生中一段高压时期的日记，正在法庭上被当众朗读，全
+据西班牙《Expansión》周三援引知情人士消息报道，美国化妆品巨头雅诗兰黛正考虑以每股18至19欧元的价格收购Puig的全部B类股份。 交易估值约29亿欧元 基于该报价区间，按Puig B类股份总数计算，此次交易估值约为26亿至28亿欧元。然而，如约20%的小股东选择现金对价，且将家族持有的不可出售的A类股归入一揽子计划，雅诗兰黛的现金支出或将高达32.5亿欧元。 两家公司
 
 ## 正文
 
-OpenAI总裁兼联合创始人格雷格·布罗克曼（Greg Brockman）的私人日记，如今已成为该公司与埃隆·马斯克（Elon Musk）诉讼案中的关键证据。
+据西班牙《Expansión》周三援引知情人士消息报道，美国化妆品巨头雅诗兰黛正考虑以每股18至19欧元的价格收购Puig的全部B类股份。
 
-这场科技界顶级人物之间的法律争端，最具人情味的部分，或许正是这些原本只属于个人的私密记录。
+交易估值约29亿欧元 基于该报价区间，按Puig B类股份总数计算，此次交易估值约为26亿至28亿欧元。
 
-想象一下，如果有人翻看了你的私人日记，那会多么令人尴尬。
+然而，如约20%的小股东选择现金对价，且将家族持有的不可出售的A类股归入一揽子计划，雅诗兰黛的现金支出或将高达32.5亿欧元。
 
-而现在，这本记录了布罗克曼人生中一段高压时期的日记，正在法庭上被当众朗读，全世界都在关注。
+两家公司早在今年3月就已确认正在就潜在合并进行谈判，一旦成功将打造全球最大的高端美妆集团，将Tom Ford、Carolina Herrera、Jean Paul Gaultier和倩碧等知名品牌汇聚一堂。
 
-因为起诉OpenAI的是全球最富有的人之一，而公司未来可能部分取决于这些突然曝光的私人想法。
+报道称，双方谈判仍在继续，财务和治理问题尚待解决。
 
-在本周的庭审中，布罗克曼被迫大声朗读近十年前自己写下的文字，这对他来说是一段极其煎熬的经历。
+Puig股价较发行价折价27% 周三下午交易中，这家总部位于巴塞罗那的公司股价下跌2.4%，至17.84欧元。
 
-对格雷格·布罗克曼来说，这曾经是无法想象的。
+自2024年5月上市以来，该股一直未能恢复元气，目前较首次公开募股价格低27%。
 
-日记的背景与内容布罗克曼从2010年左右开始记日记，当时他还是一个正在考虑辍学和职业方向的大学生。
+据此前报道，雅诗兰黛已聘请摩根大通牵头约50亿欧元的融资方案，以完成对Puig的现金加股票收购。
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 19:40 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 19:41 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 19:30 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-29 19:47 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 19:27 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 19:31 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 19:35 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 19:42 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 19:49 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 19:33 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 19:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 19:46 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 19:50 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 19:34 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 19:44 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 19:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 19:46 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 19:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 19:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 19:52 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 19:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 19:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 19:44 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 19:56 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 19:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/3699389083.shtml)
-- 2026-06-29 19:32 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/82624700522.shtml)
-- 2026-06-29 19:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/326488.shtml)
-- 2026-06-29 19:43 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/869270960864.shtml)
-- 2026-06-29 19:52 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/282984305.shtml)
-- 2026-06-29 19:35 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/7063093540.shtml)
-- 2026-06-29 19:38 - [盛秋平任南昌市委书记](http://www.share.minike.top/Article/details/04651987002.shtml)
-- 2026-06-29 19:44 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/8930124529.shtml)
-- 2026-06-29 19:53 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/1755118285.shtml)
-- 2026-06-29 19:33 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/64033480.shtml)
-- 2026-06-29 19:24 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/424704374949.shtml)
-- 2026-06-29 19:39 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/067879053639.shtml)
-- 2026-06-29 19:33 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/664724556524.shtml)
-- 2026-06-29 19:47 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/390943018.shtml)
-- 2026-06-29 19:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/216868041.shtml)
+- 2026-06-29 19:37 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/11757654150.shtml)
+- 2026-06-29 19:34 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/960872.shtml)
+- 2026-06-29 19:43 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/7229189140.shtml)
+- 2026-06-29 19:54 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/757530917.shtml)
+- 2026-06-29 19:33 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/05898700864.shtml)
+- 2026-06-29 19:39 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/119062.shtml)
+- 2026-06-29 19:37 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/84488919.shtml)
+- 2026-06-29 19:51 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/9977779.shtml)
+- 2026-06-29 19:55 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/86875118003.shtml)
+- 2026-06-29 19:44 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/03696.shtml)
+- 2026-06-29 19:37 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/86880308060.shtml)
+- 2026-06-29 19:32 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/401369.shtml)
+- 2026-06-29 19:35 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/521859112202.shtml)
+- 2026-06-29 19:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/7646856965.shtml)
+- 2026-06-29 19:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/11188975663.shtml)

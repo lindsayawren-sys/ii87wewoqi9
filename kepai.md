@@ -1,60 +1,52 @@
-# 韩国生物制药公司Celltrion收购法国Gifrer
+# 特朗普称美政府将公布“大量”关于不明飞行物的信息
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-韩国生物技术巨头Celltrion公司周二表示，已收购法国医疗保健公司Gifrer的全部股份，旨在扩大其在欧盟的业务。 Celltrion未披露交易的财务细节，但表示计划在本月底前完成与收购相关的行政手续。 Celltrion表示，希望将Gifrer作为一家独立实体运营，并已同意保留这家法国公司约70名员工的职位。 Gifrer成立于1912年，销售约140种非处方药品，包括生
+中新网4月30日电 据《今日美国》报道，当地时间4月29日，美国总统特朗普在白宫会见“阿耳忒弥斯2号”任务宇航员时称，美国政府将在不久的将来向美国公众公布关于不明飞行物(UFO)的“大量信息”。 特朗普称：“我认为其中一些内容会让人们感到非常有趣。” 报道还称，本月早些时候，特朗普在一场政治集会上曾表示，他下令五角大楼进行的一项关于不明飞行物的研究“发现了许多非常有趣的文件”，
 
 ## 正文
 
-韩国生物技术巨头Celltrion公司周二表示，已收购法国医疗保健公司Gifrer的全部股份，旨在扩大其在欧盟的业务。
+中新网4月30日电 据《今日美国》报道，当地时间4月29日，美国总统特朗普在白宫会见“阿耳忒弥斯2号”任务宇航员时称，美国政府将在不久的将来向美国公众公布关于不明飞行物(UFO)的“大量信息”。
 
-Celltrion未披露交易的财务细节，但表示计划在本月底前完成与收购相关的行政手续。
+特朗普称：“我认为其中一些内容会让人们感到非常有趣。
 
-Celltrion表示，希望将Gifrer作为一家独立实体运营，并已同意保留这家法国公司约70名员工的职位。
+” 报道还称，本月早些时候，特朗普在一场政治集会上曾表示，他下令五角大楼进行的一项关于不明飞行物的研究“发现了许多非常有趣的文件”，并且“首批文件的公开将很快、很快开始。
 
-Gifrer成立于1912年，销售约140种非处方药品，包括生理盐水、牙齿漂白剂以及保健品。
-
-其在法国的销售网络覆盖超过9000家药店和约800家医院。
-
-Celltrion表示，此次收购正值法国医疗保险体系近期进行改革之际，改革允许药剂师在特定条件下用生物类似药替代处方药。
-
-该公司还表示，预计未来五年内，这笔交易将为其带来约2500亿韩元（约合1.69亿美元）的额外收入。
-
-Celltrion表示，计划重新评估通过其海外销售渠道销售Gifrer产品的方式，同时继续推进对其他知名国际公司的并购。
+”
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 19:42 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 19:33 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 19:26 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 19:38 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 19:25 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 19:46 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 19:41 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
-- 2026-06-29 19:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 19:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 19:51 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 19:48 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 19:44 - [滚石点名酒店员工说有急救培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 19:45 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 19:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 19:44 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 19:38 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 19:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 19:42 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 19:37 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 19:32 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 19:52 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-29 19:32 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 19:56 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 19:42 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 19:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 19:32 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 19:56 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/143345982081.shtml)
-- 2026-06-29 19:46 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/414970.shtml)
-- 2026-06-29 19:45 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/4213117.shtml)
-- 2026-06-29 19:33 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/76035805.shtml)
-- 2026-06-29 19:45 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/5355712222.shtml)
-- 2026-06-29 19:38 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/6419520.shtml)
-- 2026-06-29 19:44 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/13716785387.shtml)
-- 2026-06-29 19:48 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/728205538051.shtml)
-- 2026-06-29 19:27 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/7893109286.shtml)
-- 2026-06-29 19:36 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.kurohicncr.top/Article/details/629063.shtml)
-- 2026-06-29 19:28 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/903693.shtml)
-- 2026-06-29 19:24 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/5546052.shtml)
-- 2026-06-29 19:38 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/1863018338.shtml)
-- 2026-06-29 19:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/766926346.shtml)
-- 2026-06-29 19:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/1590805030.shtml)
+- 2026-06-29 19:32 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/92768675.shtml)
+- 2026-06-29 19:31 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/21922736.shtml)
+- 2026-06-29 19:57 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/91837.shtml)
+- 2026-06-29 19:43 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/6405527095.shtml)
+- 2026-06-29 19:58 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/711141909.shtml)
+- 2026-06-29 19:42 - [急先锋](http://www.blog.minike.top/Article/details/607237944688.shtml)
+- 2026-06-29 19:38 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/5825377197.shtml)
+- 2026-06-29 19:54 - [流金岁月](https://www.blog.minike.top/Article/details/00645.shtml)
+- 2026-06-29 19:36 - [逃狱兄弟](https://www.share.minike.top/Article/details/18329.shtml)
+- 2026-06-29 19:30 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/943744110.shtml)
+- 2026-06-29 19:49 - [乔家的儿女](https://www.blog.minike.top/Article/details/111873.shtml)
+- 2026-06-29 19:37 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/788654.shtml)
+- 2026-06-29 19:41 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/30912050204.shtml)
+- 2026-06-29 19:35 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/598485246597.shtml)
+- 2026-06-29 19:31 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/685533271601.shtml)

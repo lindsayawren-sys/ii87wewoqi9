@@ -1,60 +1,60 @@
-# 美国枪击事件受害者家属起诉ChatGPT 称其是“帮凶”
+# 长江智慧馆藏创新大会召开 咸宁馆店融合获推广
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-美国佛罗里达州立大学枪击案受害者家属10日向法院提起诉讼，指控美国开放人工智能研究中心OpenAI旗下聊天机器人ChatGPT为枪手作案“出谋划策”，而这家企业未能采取措施防止这类事件发生。 2025年4月，佛罗里达州立大学塔拉哈西校区发生枪击事件，导致2人死亡、6人受伤，枪手菲尼克斯·伊克纳被捕。其中一名遇难者蒂鲁·查巴的妻子10日对伊克纳和OpenAI提起诉讼。原告称，枪手
+中新网咸宁4月29日电(胡传林 黄倩倩)第二届长江智慧馆藏创新大会暨馆店融合交流会29日在湖北咸宁举行。本次大会聚焦馆藏数字化建设、公共阅读服务升级与馆店深度融合创新，汇聚全国多地图书馆行业专家学者，咸宁市探索打造的馆店一体化运维创新模式获评典型案例。 大会以“数智赋能·协同共享——新时代图书馆资源建设与馆店融合创新”为主题，聚焦公共图书馆、高校图书馆资源建设、馆配市场提质、馆
 
 ## 正文
 
-美国佛罗里达州立大学枪击案受害者家属10日向法院提起诉讼，指控美国开放人工智能研究中心OpenAI旗下聊天机器人ChatGPT为枪手作案“出谋划策”，而这家企业未能采取措施防止这类事件发生。
+中新网咸宁4月29日电(胡传林 黄倩倩)第二届长江智慧馆藏创新大会暨馆店融合交流会29日在湖北咸宁举行。
 
-2025年4月，佛罗里达州立大学塔拉哈西校区发生枪击事件，导致2人死亡、6人受伤，枪手菲尼克斯·伊克纳被捕。
+本次大会聚焦馆藏数字化建设、公共阅读服务升级与馆店深度融合创新，汇聚全国多地图书馆行业专家学者，咸宁市探索打造的馆店一体化运维创新模式获评典型案例。
 
-其中一名遇难者蒂鲁·查巴的妻子10日对伊克纳和OpenAI提起诉讼。
+大会以“数智赋能·协同共享——新时代图书馆资源建设与馆店融合创新”为主题，聚焦公共图书馆、高校图书馆资源建设、馆配市场提质、馆店协同创新等重点方向，通过主旨演讲、行业研讨、经验交流等形式，探索数智时代公共文化服务提质增效、馆店融合高质量发展新路径。
 
-原告称，枪手作案前曾就枪击案话题与ChatGPT聊天数月，ChatGPT据信就如何给枪上子弹、发生枪击案后政府会如何应对等问题提供了信息。
+会上，北京大学出版研究院等行业专家带来专业主旨分享，安徽、上海、浙江等地图书馆分享区域馆店融合建设经验，互鉴优质实践成果。
 
-枪击案受害者蒂鲁·查巴家属的代理律师 巴卡里·塞勒斯：枪手把OpenAI和ChatGPT当成了同伙，把它用作实施大规模谋杀的工具，而平台根本没有任何预防机制。
+会议期间，与会嘉宾现场观摩咸宁市首届图书文创展。
 
-原告同时指控OpenAI没有向公众提示ChatGPT的相关风险，并为迅速占领市场对此类风险刻意淡化。
+展览以“书香咸宁·文创融合”为主题，设置精品图书、文创精品、智慧阅读互动三大展区。
 
-此外，原告还指控OpenAI的主要股东微软公司施压要求OpenAI快速推出更先进的聊天机器人产品，从而忽略了安全责任。
+展会汇聚优质出版书目，依托咸宁“中国桂花之乡”特色文化IP，集中展出桂花系列本土文创产品。
 
-枪击案受害者蒂鲁·查巴家属的代理律师 巴卡里·塞勒斯：OpenAI决定将金钱置于普通美国民众的生命之上。
+同时融入AR、人工智能等前沿技术，打造沉浸式智慧阅读场景，以科技赋能全民阅读，推动馆藏资源、文创产业与公共阅读服务深度融合，获得与会嘉宾一致好评。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 19:45 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 19:35 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 19:25 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 19:37 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 19:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 19:46 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 19:47 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 19:50 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 19:53 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 19:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 19:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 19:43 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 19:37 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 19:57 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 19:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 19:48 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 19:30 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 19:52 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 19:48 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 19:33 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 19:52 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 19:53 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:43 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 19:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 19:33 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 19:57 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 19:46 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/46812484.shtml)
-- 2026-06-29 19:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/62364463.shtml)
-- 2026-06-29 19:33 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/607906839.shtml)
-- 2026-06-29 19:32 - [斛珠夫人](http://www.share.minike.top/Article/details/162791687215.shtml)
-- 2026-06-29 19:28 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/313951721.shtml)
-- 2026-06-29 19:43 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/98409302.shtml)
-- 2026-06-29 19:40 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/02408309.shtml)
-- 2026-06-29 19:32 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/6893843.shtml)
-- 2026-06-29 19:51 - [第一炉香](https://www.share.kurohicncr.top/Article/details/561156163.shtml)
-- 2026-06-29 19:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/69139.shtml)
-- 2026-06-29 19:41 - [中外合作办学是“低分捷径”吗](https://www.blog.kurohicncr.top/Article/details/454086798480.shtml)
-- 2026-06-29 19:42 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/03821543992.shtml)
-- 2026-06-29 19:51 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/59571385154.shtml)
-- 2026-06-29 19:41 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/737553756.shtml)
-- 2026-06-29 19:40 - [扬名立万](http://www.share.minike.top/Article/details/6314822608.shtml)
+- 2026-06-29 19:57 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/66336.shtml)
+- 2026-06-29 19:51 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/605100562.shtml)
+- 2026-06-29 19:31 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/312142590.shtml)
+- 2026-06-29 19:46 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/09576.shtml)
+- 2026-06-29 19:38 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/271516969.shtml)
+- 2026-06-29 19:58 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/78606101026.shtml)
+- 2026-06-29 19:37 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/91810884111.shtml)
+- 2026-06-29 19:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/15169167146.shtml)
+- 2026-06-29 19:44 - [《贺子珍》](https://www.blog.minike.top/Article/details/462030506286.shtml)
+- 2026-06-29 19:38 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/4004831130.shtml)
+- 2026-06-29 19:53 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/38174928.shtml)
+- 2026-06-29 19:58 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/3206186.shtml)
+- 2026-06-29 19:42 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/11521316030.shtml)
+- 2026-06-29 19:44 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/18604634.shtml)
+- 2026-06-29 19:51 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/887252.shtml)

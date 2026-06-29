@@ -1,61 +1,56 @@
-# 四川启动《四川省饮用水水源保护管理条例》执法检查
+# 马里安全形势严峻 中使馆提醒中国企业和公民撤离危险地区
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网成都5月11日电 (单鹏)四川省人大常委会11日在成都举行《四川省饮用水水源保护管理条例》执法检查动员会，并正式启动此次执法检查。 据悉，四川省人大常委会开展此次执法检查，是落实人大法定职责、运用法治方式保障饮水安全的具体举措，旨在依法加强饮用水水源保护，切实保障人民群众饮用水安全。 《四川省饮用水水源保护管理条例》自1995年颁布实施以来，经历3次修订或修正，推动成都等
+中新网4月30日电 据中国驻马里大使馆微信公众号消息，近期，马里安全形势十分严峻，境内多地遭遇恐怖袭击，针对外国在马人员的袭击绑架案件增多，首都巴马科等多个地区实施宵禁。 鉴于以上情况，驻马里使馆再次提醒： 一、在马中国企业和公民密切关注当地形势，加强安全防范，严格遵守当地法律法规，外出时提高警惕，同身边亲友、同事保持联系，发现风险事态及时规避。仍在肯涅巴、纳雷纳、扬福利拉、康
 
 ## 正文
 
-中新网成都5月11日电 (单鹏)四川省人大常委会11日在成都举行《四川省饮用水水源保护管理条例》执法检查动员会，并正式启动此次执法检查。
+中新网4月30日电 据中国驻马里大使馆微信公众号消息，近期，马里安全形势十分严峻，境内多地遭遇恐怖袭击，针对外国在马人员的袭击绑架案件增多，首都巴马科等多个地区实施宵禁。
 
-据悉，四川省人大常委会开展此次执法检查，是落实人大法定职责、运用法治方式保障饮水安全的具体举措，旨在依法加强饮用水水源保护，切实保障人民群众饮用水安全。
+鉴于以上情况，驻马里使馆再次提醒： 一、在马中国企业和公民密切关注当地形势，加强安全防范，严格遵守当地法律法规，外出时提高警惕，同身边亲友、同事保持联系，发现风险事态及时规避。
 
-《四川省饮用水水源保护管理条例》自1995年颁布实施以来，经历3次修订或修正，推动成都等11个市(州)制定饮用水水源保护地方性法规或政府规章，对老鹰水库、华强沟水库等特殊饮用水水源制定专门法规制度。
+仍在肯涅巴、纳雷纳、扬福利拉、康加巴、富鲁以及马里与几内亚、科特迪瓦边境地区的中国企业和公民将面临极高的人身安全风险，请立即撤离危险地区，坚决杜绝麻痹思想和侥幸心理。
 
-此外，四川还出台了《四川省饮用水水源保护区管理规定》。
+二、所有在马企业和公民均应合法合规经营，禁止从事非法采矿，马政府无法对非法经营者提供安全保护，并将对违反马法律法规的企业和人员予以打击。
 
-在多层制度体系支撑下，四川成为全国首个“地方性法规+配套制度”、用最严格制度最严密法治保护饮用水水源地的省份。
+三、未向使馆报备信息的中国企业应立即报备，以便紧急情况下及时获得领事保护与协助。
 
-四川省现有2492个集中式饮用水水源地。
+四、坚持前往或停留极高风险地区的企业和人员，由此产生的一切后果将由其自行承担。
 
-近年来，四川优化饮用水水源布局，截至2025年12月，全省300个县级及以上(简称“城市”)集中式饮用水水源水质连续6年达标率保持100%、保护区规范化建设完成率达100%；通过优化水源等方式，乡镇及以下集中式饮用水水源水质达标率从93.60%提升至99.60%针对保护区内涉永久基本农田、矿产资源、基础设施、工业企业等问题，四川建立集中式饮用水水源保护区“划定”会审会签制度；在全国率先发布集中式饮用水水源保护区勘界定标地方标准；制定耕地林地园地管理边界与饮用水水源保护区的冲突解决规则；推进农村供水提质增效三年行动，确保全省3200万农村人口“有水喝”“喝好水”。
+如遇紧急情况，请及时报警并与使馆联系寻求协助。
 
-“条例对保护全省饮用水水源安全、保障人民群众身体健康、促进经济社会发展发挥了积极作用。
+马里报警电话：101、80001115、60603572 驻马里使馆领事保护电话：+223-78110040 外交部全球领事保护与服务应急呼叫中心电话：+86-10-12308或+86-10-65612308
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:30 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 19:51 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 19:28 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 19:39 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 19:30 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 19:31 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 19:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 19:31 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 19:46 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 19:40 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 19:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 19:26 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 19:43 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 19:39 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-29 19:36 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 19:44 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 19:52 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 19:38 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 19:42 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 19:48 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 19:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 19:46 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 19:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 19:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/204463950.shtml)
-- 2026-06-29 19:36 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/278005928.shtml)
-- 2026-06-29 19:25 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/75193.shtml)
-- 2026-06-29 19:52 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/3523529115.shtml)
-- 2026-06-29 19:33 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/14783757.shtml)
-- 2026-06-29 19:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/96569223174.shtml)
-- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/18975601550.shtml)
-- 2026-06-29 19:39 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/19798436.shtml)
-- 2026-06-29 19:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/13671880.shtml)
-- 2026-06-29 19:26 - [黄金也扛不住了](http://www.share.minike.top/Article/details/9454481941.shtml)
-- 2026-06-29 19:45 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/159298148171.shtml)
-- 2026-06-29 19:49 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/2012948.shtml)
-- 2026-06-29 19:27 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/90891039.shtml)
-- 2026-06-29 19:37 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/811866451620.shtml)
-- 2026-06-29 19:45 - [逆天祖国人](https://www.blog.minike.top/Article/details/43855464214.shtml)
+- 2026-06-29 19:34 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/48405.shtml)
+- 2026-06-29 19:49 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/3706705351.shtml)
+- 2026-06-29 19:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/35095460316.shtml)
+- 2026-06-29 19:32 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/10822.shtml)
+- 2026-06-29 19:47 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/89623575.shtml)
+- 2026-06-29 19:40 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/00019.shtml)
+- 2026-06-29 19:39 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/336312.shtml)
+- 2026-06-29 19:44 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/56665878394.shtml)
+- 2026-06-29 19:37 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/5950395753.shtml)
+- 2026-06-29 19:54 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/659445.shtml)
+- 2026-06-29 19:37 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/599149147570.shtml)
+- 2026-06-29 19:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/7460430485.shtml)
+- 2026-06-29 19:55 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/517805884957.shtml)
+- 2026-06-29 19:30 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/3747234284.shtml)
+- 2026-06-29 19:51 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/4123694.shtml)

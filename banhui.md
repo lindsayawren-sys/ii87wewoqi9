@@ -1,57 +1,57 @@
-# 国际护士节 广西融安护士在平凡岗位上书写医者担当
+# 中国贸促会：2月全球经贸摩擦指数处于高位
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-遭党内“逼宫” 斯塔默能迈过这道坎吗？Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？ 专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？保温杯等商品在多国热销 中式生活带动中国产品出海刷牙后立即漱口等于白刷？
+中新社北京4月29日电 (记者 尹倩芸)中国贸促会29日公布的最新数据显示，2026年2月份，全球经贸摩擦指数为103，处于高位。全球经贸摩擦措施涉及金额同比下降2.4%，环比上升8.2%。 从国别指数看，在监测范围内的20个国家(地区)中，美国、印度和巴西的全球经贸摩擦指数位居前三，美国的全球经贸摩擦措施涉及金额最多。 中国贸促会新闻发言人王冠男当日在例行新闻发布会上提到，尤
 
 ## 正文
 
-遭党内“逼宫” 斯塔默能迈过这道坎吗？
+中新社北京4月29日电 (记者 尹倩芸)中国贸促会29日公布的最新数据显示，2026年2月份，全球经贸摩擦指数为103，处于高位。
 
-Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？
+全球经贸摩擦措施涉及金额同比下降2.4%，环比上升8.2%。
 
-专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？
+从国别指数看，在监测范围内的20个国家(地区)中，美国、印度和巴西的全球经贸摩擦指数位居前三，美国的全球经贸摩擦措施涉及金额最多。
 
-央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？
+中国贸促会新闻发言人王冠男当日在例行新闻发布会上提到，尤其是在美国最高法院判定美国政府依据《国际紧急经济权力法》对相关贸易伙伴加征对等关税、芬太尼关税等违法后，美国政府援引《1974年贸易法》第122条对大部分美国进口商品加征10%关税，美新一轮关税措施对全球贸易带来更多不确定性。
 
-保温杯等商品在多国热销 中式生活带动中国产品出海刷牙后立即漱口等于白刷？
+从行业指数看，在监测范围内13个主要行业中，经贸摩擦措施的冲突点聚焦于电子、化工和机械设备行业，其中电子行业经贸摩擦指数居首。
 
-医生建议情绪易怒爱走神是前额叶受损吗？
+在涉华经贸摩擦方面，19个国家(地区)涉华经贸摩擦指数为105，较上月上升5个点。
 
-保护大脑做好这4件事汶川地震十八载，我们从未忘记AI蒸馏复刻同事？
+其中，美国涉华经贸摩擦指数最高，包含传感器、无人机和电源转换器等产品的电子行业涉华经贸摩擦指数处于高位。
 
-潜藏三方面法律风险需关注图书广告引热议 “余华读得浑身发抖”被余华打假这种花是天然“消炎药”还能增强免疫力 有几类人要慎用徒步热潮下，山野垃圾谁来收？
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 19:25 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 19:30 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 19:38 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 19:36 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 19:48 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 19:36 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 19:39 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 19:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 19:49 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 19:24 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 19:58 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 19:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 19:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 19:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 19:56 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 19:39 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 19:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 19:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 19:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 19:44 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 19:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/247902.shtml)
-- 2026-06-29 19:28 - [《贺子珍》](http://www.share.minike.top/Article/details/78698043876.shtml)
-- 2026-06-29 19:26 - [我和我的家乡](http://www.blog.minike.top/Article/details/722715.shtml)
-- 2026-06-29 19:48 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/998781848837.shtml)
-- 2026-06-29 19:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/11214188.shtml)
-- 2026-06-29 19:28 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.kurohicncr.top/Article/details/05782.shtml)
-- 2026-06-29 19:47 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/49027.shtml)
-- 2026-06-29 19:25 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/8683874076.shtml)
-- 2026-06-29 19:33 - [沙丘](http://www.blog.minike.top/Article/details/81912286.shtml)
-- 2026-06-29 19:48 - [我和我的家乡](http://www.share.minike.top/Article/details/1243842.shtml)
-- 2026-06-29 19:32 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/937576424457.shtml)
-- 2026-06-29 19:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/98219424503.shtml)
-- 2026-06-29 19:30 - [起风了](http://www.share.kurohicncr.top/Article/details/96996065.shtml)
-- 2026-06-29 19:33 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/942104242.shtml)
-- 2026-06-29 19:26 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/852730871.shtml)
+- 2026-06-29 19:54 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/452692.shtml)
+- 2026-06-29 19:38 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/0047607331.shtml)
+- 2026-06-29 19:36 - [极限挑战第一季](http://www.blog.minike.top/Article/details/6113664.shtml)
+- 2026-06-29 19:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/70245586521.shtml)
+- 2026-06-29 19:38 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/883238240.shtml)
+- 2026-06-29 19:54 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/037462149063.shtml)
+- 2026-06-29 19:39 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/71522435842.shtml)
+- 2026-06-29 19:56 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/497246.shtml)
+- 2026-06-29 19:30 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/958938076793.shtml)
+- 2026-06-29 19:54 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/857809.shtml)
+- 2026-06-29 19:40 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/072717223.shtml)
+- 2026-06-29 19:55 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/094024.shtml)
+- 2026-06-29 19:45 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/14444062.shtml)
+- 2026-06-29 19:50 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/71793654071.shtml)
+- 2026-06-29 19:32 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/65375804364.shtml)

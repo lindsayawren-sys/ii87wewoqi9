@@ -1,57 +1,56 @@
-# York Space Systems遭Wolfpack Research做空，股价暴跌
+# 海信视像2026年一季报：高端大屏驱动价值提升，多元业务打开成长新空间
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-太空科技公司York Space Systems周一股价大幅下挫，此前做空机构Wolfpack Research宣布已建立空头头寸，并发布做空报告，直指该公司对五角大楼单一客户的过度依赖正面临重大风险。 Wolfpack Research在报告中指出，York Space Systems 2025年高达96%的营收来自向五角大楼旗下太空发展局出售卫星。然而，五角大楼已于今年4月
+4月28日晚，海信视像(600060.SH)披露2026年第一季度财报。报告期内，公司实现营业收入137.21亿元，同比增长2.58%；主营业务收入134.50亿元，同比增长9.40%；归母净利润5.91亿元，同比增长6.71%。公司坚定践行全球化与高端化战略，产品结构持续优化，经营业绩稳健增长。 智慧显示终端业务方面，公司高端大屏战略成效显著。根据奥维睿沃数据，今年1-2月，
 
 ## 正文
 
-太空科技公司York Space Systems周一股价大幅下挫，此前做空机构Wolfpack Research宣布已建立空头头寸，并发布做空报告，直指该公司对五角大楼单一客户的过度依赖正面临重大风险。
+4月28日晚，海信视像(600060.SH)披露2026年第一季度财报。
 
-Wolfpack Research在报告中指出，York Space Systems 2025年高达96%的营收来自向五角大楼旗下太空发展局出售卫星。
+报告期内，公司实现营业收入137.21亿元，同比增长2.58%；主营业务收入134.50亿元，同比增长9.40%；归母净利润5.91亿元，同比增长6.71%。
 
-然而，五角大楼已于今年4月下旬宣布取消对太空发展局“第3批次传输层”项目的未来资金支持，并着手解散太空发展局。
+公司坚定践行全球化与高端化战略，产品结构持续优化，经营业绩稳健增长。
 
-做空机构进一步披露，该传输层项目将被“太空数据网络”取代。
+智慧显示终端业务方面，公司高端大屏战略成效显著。
 
-根据4月28日公开的五角大楼预算文件，SpaceX旗下的Starshield已被列为太空数据网络的指定供应商，文件中并未提及针对第二家卫星供应商的竞争性招标安排。
+根据奥维睿沃数据，今年1-2月，海信百吋及以上大屏电视全球出货量份额47.7%，继续高居全球第一；在国内市场，根据奥维云网数据，2026年一季度海信系电视国内销售量占有率26.15%、销售额占有率31.67%，均稳居行业第一；在85英寸及以上、98英寸及以上、100英寸及以上大屏市场，以及万元及以上、2万元及以上高端市场，海信均斩获量额双冠。
 
-Wolfpack Research还与多名前员工进行了交流，这些员工对York提出批评，称该公司在争取合同时存在欺骗太空发展局的行为，并在生产过程中偷工减料，交付的卫星其关键任务软件尚未完成开发。
+报告期内，公司推出UX2026款RGB-Mini LED新产品，通过搭载全球首创的玲珑4芯真彩背光技术，打破行业技术瓶颈，将高端电视视觉体验拉升至专业监视器水平。
 
-York Space Systems于今年1月完成IPO，其增长预期建立在此前为太空发展局持续供货的基础之上。
+根据奥维云网数据，2026年一季度，国内RGB-Mini LED电视月均销量达到2025年3月至12月月均销量的3倍以上，其中，海信以79.4%的销量份额强势领跑。
 
-该公司定于本周三举行下一次财报电话会议。
+随着4月搭载RGB-Mini LED技术小墨E5S系列新品的上市，公司已经构建覆盖中高端市场的完整RGB-Mini LED产品矩阵。
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 19:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 19:31 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 19:31 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 19:31 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-29 19:34 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 19:28 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 19:32 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 19:43 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 19:48 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 19:28 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 19:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 19:35 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 19:40 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 19:37 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 19:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 19:43 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 19:33 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 19:47 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 19:50 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 19:49 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:36 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/066827.shtml)
-- 2026-06-29 19:35 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/089881987801.shtml)
-- 2026-06-29 19:44 - [急先锋](https://www.blog.kurohicncr.top/Article/details/920824851140.shtml)
-- 2026-06-29 19:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/274667448.shtml)
-- 2026-06-29 19:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/7850344.shtml)
-- 2026-06-29 19:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/294286698629.shtml)
-- 2026-06-29 19:31 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/351271717573.shtml)
-- 2026-06-29 19:44 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/7954204277.shtml)
-- 2026-06-29 19:31 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/098730070852.shtml)
-- 2026-06-29 19:40 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/59924810.shtml)
-- 2026-06-29 19:43 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/96379.shtml)
-- 2026-06-29 19:44 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/69612.shtml)
-- 2026-06-29 19:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/3689459.shtml)
-- 2026-06-29 19:47 - [沙丘](http://www.share.kurohicncr.top/Article/details/275558088188.shtml)
-- 2026-06-29 19:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/296550.shtml)
+- 2026-06-29 19:32 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/519208412.shtml)
+- 2026-06-29 19:39 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/386430744.shtml)
+- 2026-06-29 19:38 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/0290432645.shtml)
+- 2026-06-29 19:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/749075239.shtml)
+- 2026-06-29 19:31 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/045380.shtml)
+- 2026-06-29 19:57 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/7945890.shtml)
+- 2026-06-29 19:57 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/2857942.shtml)
+- 2026-06-29 19:51 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/6419966.shtml)
+- 2026-06-29 19:45 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/43684.shtml)
+- 2026-06-29 19:57 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/32235733.shtml)
+- 2026-06-29 19:52 - [斗破苍穹](http://www.share.minike.top/Article/details/9338221.shtml)
+- 2026-06-29 19:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/5368605.shtml)
+- 2026-06-29 19:42 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/667367580319.shtml)
+- 2026-06-29 19:56 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/215805927.shtml)
+- 2026-06-29 19:48 - [青春环游记第三季](http://www.blog.minike.top/Article/details/3450863256.shtml)

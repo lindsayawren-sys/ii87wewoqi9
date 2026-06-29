@@ -1,60 +1,58 @@
-# 美国人中的百万富翁：拥有七位数净资产到底有多普遍？
+# 比尔·阿克曼的潘兴广场美国公司开盘价42美元/股，远低于IPO发行价
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-美国每天有超 1000 人新晋成为百万富翁。 如果你也曾梦想成为百万富翁，你并不孤单。对很多人而言，达成这个财富里程碑，意味着真正实现了人生财务成功。 当个人资产达到七位数级别，许多曾因囊中羞涩而困扰你的财务压力，都将迎刃而解。 不过，随着通胀逐年侵蚀美元购买力，如今的百万富翁早已不像过去那样含金量十足。 也正因如此，现在的百万富翁数量比以往更多，普通人跻身这一行列的门槛也变得
+比尔·阿克曼期盼已久的公开市场上市计划于周三正式启动，这标志着他在打造类似伯克希尔·哈撒韦的投资平台方面迈出了规模虽有所缩减但仍雄心勃勃的一步。 这位潘兴广场资本管理公司创始人的合并IPO共募资50亿美元，定价位于预期区间的低端。此前推介的目标募资额在50亿至100亿美元之间。这一募资规模与两年前提出的高达250亿美元的早期目标相去甚远。 此次交易在纽约证券交易所创造了两只独立
 
 ## 正文
 
-美国每天有超 1000 人新晋成为百万富翁。
+比尔·阿克曼期盼已久的公开市场上市计划于周三正式启动，这标志着他在打造类似伯克希尔·哈撒韦的投资平台方面迈出了规模虽有所缩减但仍雄心勃勃的一步。
 
-如果你也曾梦想成为百万富翁，你并不孤单。
+这位潘兴广场资本管理公司创始人的合并IPO共募资50亿美元，定价位于预期区间的低端。
 
-对很多人而言，达成这个财富里程碑，意味着真正实现了人生财务成功。
+此前推介的目标募资额在50亿至100亿美元之间。
 
-当个人资产达到七位数级别，许多曾因囊中羞涩而困扰你的财务压力，都将迎刃而解。
+这一募资规模与两年前提出的高达250亿美元的早期目标相去甚远。
 
-不过，随着通胀逐年侵蚀美元购买力，如今的百万富翁早已不像过去那样含金量十足。
+此次交易在纽约证券交易所创造了两只独立交易的实体：封闭式基金潘兴广场美国有限公司（股票代码：PSUS）和资产管理公司潘兴广场公司（股票代码：PS）。
 
-也正因如此，现在的百万富翁数量比以往更多，普通人跻身这一行列的门槛也变得更低。
+这种双重结构使投资者既可以投资底层投资组合，也可以投资管理业务本身。
 
-下文带你了解目前美国百万富翁的规模，以及普通人如何提升净资产、一步步成为百万富翁。
+PSUS开盘价为42美元，远低于50美元的IPO发行价。
 
-如今成为百万富翁意味着什么？
+最新交易价约为40.90美元，跌幅18%。
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 19:32 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 19:35 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 19:31 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 19:43 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 19:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 19:41 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 19:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 19:44 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 19:27 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 19:41 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 19:31 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 19:33 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 19:41 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 19:38 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 19:51 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 19:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 19:51 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 19:58 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 19:42 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 19:43 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 19:46 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 19:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 19:36 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 19:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 19:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/08266.shtml)
-- 2026-06-29 19:35 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/5598455.shtml)
-- 2026-06-29 19:26 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/88432.shtml)
-- 2026-06-29 19:48 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/1877393267.shtml)
-- 2026-06-29 19:50 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/673993980392.shtml)
-- 2026-06-29 19:44 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/13826.shtml)
-- 2026-06-29 19:37 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/4389530.shtml)
-- 2026-06-29 19:41 - [《贺子珍》](https://www.share.minike.top/Article/details/55305130757.shtml)
-- 2026-06-29 19:33 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/9571328.shtml)
-- 2026-06-29 19:43 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/15573.shtml)
-- 2026-06-29 19:39 - [金刚川](http://www.share.minike.top/Article/details/969344.shtml)
-- 2026-06-29 19:44 - [周杰伦千禧年就有小卡了](https://www.share.kurohicncr.top/Article/details/71699.shtml)
-- 2026-06-29 19:40 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/344197.shtml)
-- 2026-06-29 19:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/13985.shtml)
-- 2026-06-29 19:28 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/98011334.shtml)
+- 2026-06-29 19:43 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/04011180699.shtml)
+- 2026-06-29 19:43 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/5506271116.shtml)
+- 2026-06-29 19:46 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/1141694.shtml)
+- 2026-06-29 19:38 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/95921284436.shtml)
+- 2026-06-29 19:47 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/715265278974.shtml)
+- 2026-06-29 19:45 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/2244655528.shtml)
+- 2026-06-29 19:59 - [沉睡花园](https://www.share.minike.top/Article/details/83670365914.shtml)
+- 2026-06-29 19:48 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/67971066743.shtml)
+- 2026-06-29 19:33 - [一生一世](https://www.share.kurohicncr.top/Article/details/8662628541.shtml)
+- 2026-06-29 19:42 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/268813617952.shtml)
+- 2026-06-29 19:46 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/334437639.shtml)
+- 2026-06-29 19:55 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/87597.shtml)
+- 2026-06-29 19:53 - [逆天祖国人](https://www.blog.minike.top/Article/details/57519564.shtml)
+- 2026-06-29 19:41 - [东宫女主是不是顶级恋爱脑](https://www.blog.kurohicncr.top/Article/details/1666505.shtml)
+- 2026-06-29 19:45 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/00719.shtml)

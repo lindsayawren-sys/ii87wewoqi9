@@ -1,56 +1,57 @@
-# 特斯拉将向德国工厂注资2.5亿美元
+# 昔日“彩电一哥”康佳将被实施退市风险警示，去年巨亏125亿
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-马斯克旗下的特斯拉将向其德国工厂注资2.5亿美元，用于提高电动汽车电芯产能。随著欧洲市场销量回暖，特斯拉正借此举进一步提升该地区的整体产量。 柏林-勃兰登堡工厂是特斯拉在欧洲的首个制造基地。这座“超级工厂”于2022年3月投产，不仅生产数十万辆Model Y汽车，还制造数以百万计的电芯。电芯是为电动汽车提供动力的储能单元。 工厂负责人安德烈·蒂里希在社交平台上发文称，这笔2.5
+4月28日晚间，康佳集团（深康佳A，000016.SZ）发布公告称，公司2025年度经审计的期末归母净资产为负数，根据相关规定，公司股票将被实施退市风险警示。公告称，康佳集团最近三个会计年度经审计扣除非经常性损益前后净利润孰低者均为负值，且信永中和会计师事务所（特殊普通合伙）对公司2025年年度财务报告出具了带持续经营重大不确定性段落的无保留意见的审计报告。根据相关规定，公司股
 
 ## 正文
 
-马斯克旗下的特斯拉将向其德国工厂注资2.5亿美元，用于提高电动汽车电芯产能。
+4月28日晚间，康佳集团（深康佳A，000016.SZ）发布公告称，公司2025年度经审计的期末归母净资产为负数，根据相关规定，公司股票将被实施退市风险警示。
 
-随著欧洲市场销量回暖，特斯拉正借此举进一步提升该地区的整体产量。
+公告称，康佳集团最近三个会计年度经审计扣除非经常性损益前后净利润孰低者均为负值，且信永中和会计师事务所（特殊普通合伙）对公司2025年年度财务报告出具了带持续经营重大不确定性段落的无保留意见的审计报告。
 
-柏林-勃兰登堡工厂是特斯拉在欧洲的首个制造基地。
+根据相关规定，公司股票将被实施其他风险警示。
 
-这座“超级工厂”于2022年3月投产，不仅生产数十万辆Model Y汽车，还制造数以百万计的电芯。
+康佳集团表示，公司股票（证券代码：000016、200016，证券简称：深康佳A、深康佳B）自4月29日开市起停牌一天，自4月30日开市起复牌。
 
-电芯是为电动汽车提供动力的储能单元。
+复牌后被实施退市风险警示和其他风险警示，股票简称由“深康佳 A”变更为“*ST康佳A”，由“深康佳B”变更为“*ST康佳B”，证券代码不变，仍为“000016、200016”。
 
-工厂负责人安德烈·蒂里希在社交平台上发文称，这笔2.5亿美元的投资将助力特斯拉扩充员工队伍并提升产能。
+实施风险警示后，公司股票交易的日涨跌幅限制为5%。
 
-特斯拉的目标是在该厂实现100万辆的产量；就在最近，该厂的累计产量刚刚突破75万辆大关。
+该公司还称，2025年度计提资产减值准备共计76.97亿元，将影响2025年度利润总额-76.97亿元，对当期经营性现金流无影响。
 
-蒂里希表示，眼下德国本土车企正面临来自竞争对手的激烈竞争角逐，整个德国工业界处境艰难，而特斯拉的这一增资计划无疑是个好消息。
+本次计提减值准备包括应收账款坏账准备、存货跌价准备、长期股权投资减值准备等，旨在客观、公正地反映公司截至2025年12月31日的财务状况和资产价值。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 19:26 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 19:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 19:41 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 19:53 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 19:36 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 19:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 19:51 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:27 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 19:41 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 19:57 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-29 19:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 19:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 19:31 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 19:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 19:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 19:37 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 19:34 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 19:57 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 19:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 19:57 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.minike.top/Article/details/09210.shtml)
-- 2026-06-29 19:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/37430570.shtml)
-- 2026-06-29 19:38 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/15994.shtml)
-- 2026-06-29 19:29 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/76738596805.shtml)
-- 2026-06-29 19:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/3660020884.shtml)
-- 2026-06-29 19:38 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/5354826.shtml)
-- 2026-06-29 19:51 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/863071.shtml)
-- 2026-06-29 19:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/07839478.shtml)
-- 2026-06-29 19:27 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/3128770.shtml)
-- 2026-06-29 19:52 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/149145277.shtml)
-- 2026-06-29 19:35 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/70683455047.shtml)
-- 2026-06-29 19:52 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/279269172518.shtml)
-- 2026-06-29 19:30 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/13056533.shtml)
-- 2026-06-29 19:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/51907628793.shtml)
-- 2026-06-29 19:43 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/9705876723.shtml)
+- 2026-06-29 20:00 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/522208.shtml)
+- 2026-06-29 19:31 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/5409852.shtml)
+- 2026-06-29 19:30 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/22424.shtml)
+- 2026-06-29 19:49 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/7689560.shtml)
+- 2026-06-29 19:54 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/373197.shtml)
+- 2026-06-29 19:43 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/139268927.shtml)
+- 2026-06-29 19:35 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/8166652.shtml)
+- 2026-06-29 19:53 - [欧洲极端高温如何影响家电股](https://www.blog.kurohicncr.top/Article/details/603066207345.shtml)
+- 2026-06-29 19:44 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/2870466.shtml)
+- 2026-06-29 19:58 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/4576489424.shtml)
+- 2026-06-29 19:43 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/56294969.shtml)
+- 2026-06-29 19:34 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/1264539.shtml)
+- 2026-06-29 19:35 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/9136319.shtml)
+- 2026-06-29 19:59 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/959340611.shtml)
+- 2026-06-29 19:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/033765043.shtml)

@@ -1,56 +1,50 @@
-# 大湾区生物医药未来产业创新中心在广州成立
+# 拉萨市色拉寺举办藏文书法比赛 以笔墨传承千年文化
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月12日电 (记者 蔡敏婕 张璐)大湾区生物医药未来产业创新中心12日在广州成立，该中心重点布局五大前沿赛道：干细胞与细胞治疗、人工智能与医疗智能制造、中医药现代化、创新药物研发、先进生物材料及成果转化。 当天，粤港澳大湾区生物医药未来产业创新论坛暨大湾区生物医药未来产业创新中心成立大会在广州举行。“如今生物医药创新，已经很难靠某一个学科、某一个团队单独完成。”中国
+发布时间：2026年04月30日 11:41 来源：中国新闻网 近日，西藏佛学院色拉寺分院举办“2026藏文书法节”书法比赛颁奖仪式，西藏自治区书法协会藏文书法家、寺院僧众及管委会干部等300余人出席。 本次比赛共征集僧众藏文书法作品240幅，经专业评审，评选出一等奖12名、二等奖5名、三等奖14名。获奖作品风格多样、技艺精湛，现场还集中展示了全部参赛作品，僧众驻足观赏、交流切
 
 ## 正文
 
-中新网广州5月12日电 (记者 蔡敏婕 张璐)大湾区生物医药未来产业创新中心12日在广州成立，该中心重点布局五大前沿赛道：干细胞与细胞治疗、人工智能与医疗智能制造、中医药现代化、创新药物研发、先进生物材料及成果转化。
+发布时间：2026年04月30日 11:41 来源：中国新闻网 近日，西藏佛学院色拉寺分院举办“2026藏文书法节”书法比赛颁奖仪式，西藏自治区书法协会藏文书法家、寺院僧众及管委会干部等300余人出席。
 
-当天，粤港澳大湾区生物医药未来产业创新论坛暨大湾区生物医药未来产业创新中心成立大会在广州举行。
+本次比赛共征集僧众藏文书法作品240幅，经专业评审，评选出一等奖12名、二等奖5名、三等奖14名。
 
-“如今生物医药创新，已经很难靠某一个学科、某一个团队单独完成。
+获奖作品风格多样、技艺精湛，现场还集中展示了全部参赛作品，僧众驻足观赏、交流切磋。
 
-”中国工程院院士顾晓松表示，诸多关键突破往往孕育在医学、工程、信息与材料等学科的交汇处。
+此次活动旨在弘扬传承藏族优秀书法艺术，促进僧人间文化交流与技艺提升，为藏文书法当代传承注入新活力，同时以“笔墨润心、文化赋能”形式，推动“三个意识”教育贴近僧众、深入人心。
 
-创新中心的核心价值，绝不只是单纯增加一个合作平台，而是以顶尖医疗机构的前沿临床需求为核心牵引，将高校、科研院所和企业的顶尖力量高效组织起来，打造一个面向未来的原始创新策源地。
-
-圆桌讨论环节，来自香港科技大学、中山大学附属第三医院和医药科技产业的专家学者们展开了深入交流研讨。
-
-大家认为，创新中心将香港的基础研究、深圳的硬件制造、广州的临床资源等要素串珠成链，有望带动粤港澳大湾区生物医药产业高质量发展迈上更高台阶。
-
-中山大学附属第三医院院长戎利民称，此前，基础研究专家、临床医生与企业直接对接、高效转化的有效渠道相对缺乏，此次创新中心正是要打破这一局面，设立从概念验证到产业转化的加速机制，缩短转化周期。
+(记者 贡桑拉姆） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 19:40 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 19:48 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 19:26 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 19:38 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 19:50 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 19:26 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 19:42 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 19:44 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 19:29 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 19:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 19:50 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 19:56 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 19:48 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 19:34 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 19:52 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 19:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 19:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 19:37 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 19:49 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/00662987.shtml)
-- 2026-06-29 19:45 - [第一炉香](https://www.share.kurohicncr.top/Article/details/1417694209.shtml)
-- 2026-06-29 19:27 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/49924.shtml)
-- 2026-06-29 19:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/34118.shtml)
-- 2026-06-29 19:54 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/57076.shtml)
-- 2026-06-29 19:35 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/039953.shtml)
-- 2026-06-29 19:42 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/10423889.shtml)
-- 2026-06-29 19:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/17216804096.shtml)
-- 2026-06-29 19:46 - [叠纸](http://www.blog.kurohicncr.top/Article/details/05301886.shtml)
-- 2026-06-29 19:43 - [流金岁月](https://www.blog.minike.top/Article/details/8580992216.shtml)
-- 2026-06-29 19:47 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/94055.shtml)
-- 2026-06-29 19:50 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/26306116530.shtml)
-- 2026-06-29 19:34 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/442005.shtml)
-- 2026-06-29 19:35 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/780889.shtml)
-- 2026-06-29 19:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/67495.shtml)
+- 2026-06-29 19:47 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/492836010.shtml)
+- 2026-06-29 19:48 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/20655333.shtml)
+- 2026-06-29 19:39 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/8818988.shtml)
+- 2026-06-29 19:30 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.kurohicncr.top/Article/details/31318948.shtml)
+- 2026-06-29 19:49 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/859250913060.shtml)
+- 2026-06-29 19:37 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/1325064.shtml)
+- 2026-06-29 19:40 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/62586.shtml)
+- 2026-06-29 19:41 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/3433961.shtml)
+- 2026-06-29 19:58 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/295532452047.shtml)
+- 2026-06-29 19:51 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/488536900.shtml)
+- 2026-06-29 19:56 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/937482251992.shtml)
+- 2026-06-29 19:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/648844.shtml)
+- 2026-06-29 19:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/65548.shtml)
+- 2026-06-29 19:39 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/3189279.shtml)
+- 2026-06-29 19:40 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/82695.shtml)

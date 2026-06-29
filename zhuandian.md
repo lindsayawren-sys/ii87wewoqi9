@@ -1,48 +1,61 @@
-# 大美边疆看我家丨黑龙江七台河：冠军摇篮 和美之城
+# 粤海饲料“扭亏”背后：盈利主要靠减值收窄，主业疲软与坏账风险未解
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 09:27 来源：中国新闻网 黑龙江省七台河市，是进入国家奥运梯队建设布局中唯一的冬季项目城市，先后培育出杨扬、王濛、范可新等世界冠军，是名副其实的“冠军之城”。这里也是北国生态秘境，三山两湖相拥，林海连绵不绝，空气清新，四季温润，天然氧吧，宜居康养。满眼青绿入怀，自在悠然安家。(来源：七台河市融媒体中心） 责任编辑：【魏聪聪】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 继2024年经历上市后首个年度亏损后，水产饲料行业龙头粤海饲料（001313.SZ）交出了一份成功“扭亏”的成绩单。2025年，公司“营利双增”，其中扣非后净利润同比大增逾一倍。然而，光鲜业绩却难掩粤海饲料基本面的深层隐忧。 证券之星注意到，粤海饲料2025年的业绩高增实则更多来自低基数效应
 
 ## 正文
 
-发布时间：2026年05月12日 09:27 来源：中国新闻网 黑龙江省七台河市，是进入国家奥运梯队建设布局中唯一的冬季项目城市，先后培育出杨扬、王濛、范可新等世界冠军，是名副其实的“冠军之城”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这里也是北国生态秘境，三山两湖相拥，林海连绵不绝，空气清新，四季温润，天然氧吧，宜居康养。
+来源：证券之星 继2024年经历上市后首个年度亏损后，水产饲料行业龙头粤海饲料（001313.SZ）交出了一份成功“扭亏”的成绩单。
 
-满眼青绿入怀，自在悠然安家。
+2025年，公司“营利双增”，其中扣非后净利润同比大增逾一倍。
 
-(来源：七台河市融媒体中心） 责任编辑：【魏聪聪】
+然而，光鲜业绩却难掩粤海饲料基本面的深层隐忧。
+
+证券之星注意到，粤海饲料2025年的业绩高增实则更多来自低基数效应与信用减值损失的大幅收窄。
+
+相较2022年上市当年，其扣非后净利润仍下降超85%。
+
+值得注意的是，近几年粤海饲料持续计提高额信用减值损失，对公司业绩造成沉重拖累。
+
+截至2025年末，其应收账款规模仍高达10.64亿元，占公司总资产超过两成比重，公司坏账风险依然高悬。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 19:33 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 19:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 19:49 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 19:41 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 19:30 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 19:29 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 19:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 19:31 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 19:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 19:52 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 19:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 19:51 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 19:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 19:45 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 19:42 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 19:42 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 19:47 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 19:54 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 19:39 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 19:56 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 19:46 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 19:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 19:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 19:41 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/988213.shtml)
-- 2026-06-29 19:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/74814071981.shtml)
-- 2026-06-29 19:32 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/74804612295.shtml)
-- 2026-06-29 19:36 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/22174668453.shtml)
-- 2026-06-29 19:50 - [沉睡花园](http://www.share.minike.top/Article/details/367771745483.shtml)
-- 2026-06-29 19:26 - [王俊凯命名方式](https://www.blog.kurohicncr.top/Article/details/47288281187.shtml)
-- 2026-06-29 19:41 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/595876529.shtml)
-- 2026-06-29 19:26 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/682516.shtml)
-- 2026-06-29 19:27 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/71857279490.shtml)
-- 2026-06-29 19:35 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/598958195589.shtml)
-- 2026-06-29 19:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/981593733638.shtml)
-- 2026-06-29 19:30 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/562336575.shtml)
-- 2026-06-29 19:52 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/354837932.shtml)
-- 2026-06-29 19:28 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/935152785.shtml)
-- 2026-06-29 19:31 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/1435874.shtml)
+- 2026-06-29 19:47 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/0359079021.shtml)
+- 2026-06-29 19:47 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/92275.shtml)
+- 2026-06-29 19:37 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/3384265.shtml)
+- 2026-06-29 19:31 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/48576.shtml)
+- 2026-06-29 19:40 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/44535231.shtml)
+- 2026-06-29 19:35 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/6936069.shtml)
+- 2026-06-29 19:46 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/632876167238.shtml)
+- 2026-06-29 19:55 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/300553712.shtml)
+- 2026-06-29 19:32 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/93226.shtml)
+- 2026-06-29 19:49 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.kurohicncr.top/Article/details/753550.shtml)
+- 2026-06-29 19:32 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/98508.shtml)
+- 2026-06-29 19:47 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/0354414410.shtml)
+- 2026-06-29 19:52 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/6712894.shtml)
+- 2026-06-29 19:55 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/3781950.shtml)
+- 2026-06-29 19:44 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/248895641938.shtml)

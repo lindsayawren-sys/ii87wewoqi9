@@ -1,55 +1,57 @@
-# 华泰证券：中国宏桥维持买入评级 目标价为35.22港元
+# 严厉打击恶意欠薪行为 最高法发布5个典型执行案例
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-华泰证券发布研报称，维持中国宏桥（01378）25-27年归母净利润256.25/254.26/257.60亿元。公司2017年以来PE均值为8XPE，由于公司高分红属性突出，且考虑公司在港股电解铝标的中的稀缺属性以及近期市场整体风险偏好上升，该行维持公司25年12XPE，11月18日港币对人民币汇率为0.92，给予目标价为35.22港币，维持买入评级。 根据11月18日公告，
+中新网4月29日电 据最高人民法院微信公众号消息，人民法院贯彻落实党中央关于治理欠薪的决策部署，对欠薪纠纷采取“快立快审快执”的审判执行工作方式，依法实施各种强制措施，兑现劳动者合法权益。最高人民法院总结各地治理欠薪工作中遇到的具体情况，结合人民群众反映较多的突出问题，发布治理欠薪典型执行案例，进一步指导各地法院加大治理欠薪工作力度，同时采取有效措施实质性化解矛盾纠纷，切实维护
 
 ## 正文
 
-华泰证券发布研报称，维持中国宏桥（01378）25-27年归母净利润256.25/254.26/257.60亿元。
+中新网4月29日电 据最高人民法院微信公众号消息，人民法院贯彻落实党中央关于治理欠薪的决策部署，对欠薪纠纷采取“快立快审快执”的审判执行工作方式，依法实施各种强制措施，兑现劳动者合法权益。
 
-公司2017年以来PE均值为8XPE，由于公司高分红属性突出，且考虑公司在港股电解铝标的中的稀缺属性以及近期市场整体风险偏好上升，该行维持公司25年12XPE，11月18日港币对人民币汇率为0.92，给予目标价为35.22港币，维持买入评级。
+最高人民法院总结各地治理欠薪工作中遇到的具体情况，结合人民群众反映较多的突出问题，发布治理欠薪典型执行案例，进一步指导各地法院加大治理欠薪工作力度，同时采取有效措施实质性化解矛盾纠纷，切实维护劳动者合法权益。
 
-根据11月18日公告，公司计划以先旧后新方式配售最多4亿股股份，每股配售价29.2港元，较前一交易日收市价折让约9.6%，募资最多116.8亿港元。
+在欠薪案件执行工作中，各地法院既注重执行和解等方式恢复企业造血能力，又对恶意欠薪者采取相应的罚款、拘留等强制措施，依法追究拒不执行判决、裁定罪，让执行既有力度又有温度。
 
-配售股份占现有已发行股本约4.2%，占扩大后股本约4.03%。
+同时，人民法院依托“一张网”系统建设应用，强化大数据查控与线下实地调查协同，确保有效查控可供执行财产。
 
-该行认为，此次配售有利于公司优化资本结构，为国内、海外项目发展优化提供良好基础。
+此次发布的5件案例中，人民法院根据案件不同情况分类施策，为办理不同类型欠薪案件提供参考。
 
-公司作为铝全球龙头，铝价偏强预期下，该行继续看好公司26-27年业绩稳定表现，同时资本结构持续优化，或为公司延续高分红政策提供必要条件。
+案例一强调通过依法追究拒执罪，严厉打击恶意欠薪行为，倒逼被执行人履行债务；案例二强调快执接力快立快审，确保工资债权依法高效兑现；案例三强调推动府院联动跨域协作，全额兑现职工债权；案例四强调执行工作实施穿透式财产查控手段，促使被执行人分期履行；案例五突出人民法院拓宽被执行人执行路径，确保工资债权执行到位。
 
-责任编辑：卢昱君
+上述案例体现出人民法院在审判执行工作中坚持将人民群众的利益落到实处。
+
+下一步，人民法院将进一步贯彻落实党中央关于治理欠薪决策部署，持续深化典型案例的示范引领作用，在以交叉执行为牵引，立审执协调、终本出清、失信惩戒分级分类、队伍建设协同支撑的总体解决“执行难”工作模式统领下，推动各地法院不断强化执行措施运用，加大欠薪案件执行力度，推动欠薪治理从“个案攻坚”向“源头治理”深化，依法妥善执行民生领域案件，助力兜牢民生底线，切实保障民生福祉、维护社会公平正义。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 19:24 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 19:41 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 19:42 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 19:46 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 19:53 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 19:36 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-29 19:36 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 19:44 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 19:50 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 19:29 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 19:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 19:53 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 19:55 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 19:36 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 19:40 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 19:31 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 19:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 19:54 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 19:41 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 19:53 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 19:41 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/1303075768.shtml)
-- 2026-06-29 19:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/607121.shtml)
-- 2026-06-29 19:25 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/183992058781.shtml)
-- 2026-06-29 19:44 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/527481833.shtml)
-- 2026-06-29 19:48 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/161776746.shtml)
-- 2026-06-29 19:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/46340.shtml)
-- 2026-06-29 19:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/66770709136.shtml)
-- 2026-06-29 19:47 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/34338.shtml)
-- 2026-06-29 19:39 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/0759411976.shtml)
-- 2026-06-29 19:27 - [世界杯1/16决赛对阵出炉](http://www.blog.kurohicncr.top/Article/details/9257283570.shtml)
-- 2026-06-29 19:34 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/079977754101.shtml)
-- 2026-06-29 19:32 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/693905.shtml)
-- 2026-06-29 19:28 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/28239.shtml)
-- 2026-06-29 19:29 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/115698.shtml)
-- 2026-06-29 19:40 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/8991083079.shtml)
+- 2026-06-29 19:47 - [这一刀 会很帅](https://www.share.minike.top/Article/details/3898536307.shtml)
+- 2026-06-29 19:44 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/08345045.shtml)
+- 2026-06-29 19:50 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/735456534926.shtml)
+- 2026-06-29 19:39 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/069272764438.shtml)
+- 2026-06-29 19:51 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/72356.shtml)
+- 2026-06-29 19:52 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/6409429.shtml)
+- 2026-06-29 19:35 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/20938.shtml)
+- 2026-06-29 19:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/9837104802.shtml)
+- 2026-06-29 19:57 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/39602.shtml)
+- 2026-06-29 19:59 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/9033664835.shtml)
+- 2026-06-29 19:41 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/53372016.shtml)
+- 2026-06-29 19:40 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/619079.shtml)
+- 2026-06-29 19:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/4383989995.shtml)
+- 2026-06-29 19:45 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/113134410.shtml)
+- 2026-06-29 19:55 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/59061922359.shtml)

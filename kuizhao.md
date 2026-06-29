@@ -1,53 +1,58 @@
-# 四川遂宁：从电子“打螺丝”到“专项精标” 数据标注岗位走热
+# 业绩为王！创业板50ETF华安（159949）半日成交11.34亿领跑同类 机构：聚焦硬科技与真资源
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 19:15 来源：中国新闻网 近年来，随着人工智能快速发展，数据标注员这一早在2020年就被纳入国家职业分类目录的职业逐渐走入民众视野，成为热门新职业之一。在位于四川遂宁河东新区的中鸿数智内，200余名数据标注员在电脑前，对图片、视频、语音等数据进行处理，为互联网企业、智能驾驶汽车公司、具身智能机器人企业提供数据服务。 在该公司执行董事陈臻看来
+4月29日，市场早盘低开高走，创业板指涨超2%。受此带动，创业板50ETF华安（159949）涨2.68%报1.763元，换手率5.25%，半日成交额11.34亿元，居同类标的ETF首位。 消息面上，随着2026年一季报披露进入密集期，创业板核心资产的业绩成色也逐渐揭晓。在新能源、AI算力及半导体等关键赛道，龙头企业交出了一份份超预期的成绩单，强力助推指数上行。作为紧密跟踪创业
 
 ## 正文
 
-发布时间：2026年05月12日 19:15 来源：中国新闻网 近年来，随着人工智能快速发展，数据标注员这一早在2020年就被纳入国家职业分类目录的职业逐渐走入民众视野，成为热门新职业之一。
+4月29日，市场早盘低开高走，创业板指涨超2%。
 
-在位于四川遂宁河东新区的中鸿数智内，200余名数据标注员在电脑前，对图片、视频、语音等数据进行处理，为互联网企业、智能驾驶汽车公司、具身智能机器人企业提供数据服务。
+受此带动，创业板50ETF华安（159949）涨2.68%报1.763元，换手率5.25%，半日成交额11.34亿元，居同类标的ETF首位。
 
-在该公司执行董事陈臻看来，数据标注行业既是人工智能产业链的重要基础环节，也是劳动密集型产业。
+消息面上，随着2026年一季报披露进入密集期，创业板核心资产的业绩成色也逐渐揭晓。
 
-人工智能产业的发展不仅带来了新岗位，也为本地青年就业和人才留存提供了新的机会，相关领域人才需求将持续扩大。
+在新能源、AI算力及半导体等关键赛道，龙头企业交出了一份份超预期的成绩单，强力助推指数上行。
 
-从长远来看，AI带来的不是岗位减少，而是更多细分新职业的产生。
+作为紧密跟踪创业板50指数的代表性产品， 创业板50ETF华安（159949） 凭借其高弹性的成长风格，在指数创新高、业绩超预期与资金持续流入的多重共振下，成为市场关注的焦点。
 
-杨予頔 四川遂宁报道 责任编辑：【刘湃】
+招商证券表示，一季报验证下，景气线索聚焦三条主线：一是PPI转正与AI爆发驱动的资源及算力重估；二是出海红利下高新技术制造业的业绩韧性；三是政策托底后地产链的底部修复。
+
+建议在拥挤赛道中优选分化，围绕硬科技与真资源，把握盈利与景气双驱动的结构性机遇，重点关注电子（半导体）、电力、电力设备（电池、电网设备）、国防军工、有色金属（工业金属、能源金属、小金属）、基础化工（化学原料、化学制品）等领域。
+
+大同证券研报称，从全球局势来看，四月中旬之后，国际局势逐步从最初的纷乱走向阶段性缓和，地缘冲突虽未结束，但全球投资者已逐步有所适应，短期的黑天鹅对市场带来的冲击，已经逐步被消化，场内情绪缓和，全球资本市场仍处于缓和后的趋势向上周期中。
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 19:35 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 19:44 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 19:37 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 19:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 19:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 19:53 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 19:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 19:35 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 19:31 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 19:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 19:37 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-29 19:59 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 19:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 19:32 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 19:51 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 19:47 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 19:59 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 19:34 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 19:49 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 19:46 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-29 19:45 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 19:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/848618.shtml)
-- 2026-06-29 19:35 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/6437030.shtml)
-- 2026-06-29 19:47 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/8008422629.shtml)
-- 2026-06-29 19:35 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/35841924168.shtml)
-- 2026-06-29 19:46 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/535196273.shtml)
-- 2026-06-29 19:40 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/673302800.shtml)
-- 2026-06-29 19:45 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/01043.shtml)
-- 2026-06-29 19:39 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/1761037105.shtml)
-- 2026-06-29 19:44 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/66048116981.shtml)
-- 2026-06-29 19:42 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/54645525.shtml)
-- 2026-06-29 19:33 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/700890.shtml)
-- 2026-06-29 19:49 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/847699020.shtml)
-- 2026-06-29 19:51 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/589015.shtml)
-- 2026-06-29 19:40 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/9403143.shtml)
-- 2026-06-29 19:46 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/41543161161.shtml)
+- 2026-06-29 19:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/10063.shtml)
+- 2026-06-29 19:51 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/184055251076.shtml)
+- 2026-06-29 19:33 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/5006772092.shtml)
+- 2026-06-29 19:51 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/33556537364.shtml)
+- 2026-06-29 19:53 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/66632.shtml)
+- 2026-06-29 19:59 - [娜扎搂着我的腰和我合照](https://www.share.minike.top/Article/details/56106864743.shtml)
+- 2026-06-29 19:41 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/788333805693.shtml)
+- 2026-06-29 19:51 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/35529759842.shtml)
+- 2026-06-29 19:30 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/1283148248.shtml)
+- 2026-06-29 19:46 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/90395084692.shtml)
+- 2026-06-29 19:53 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/85797.shtml)
+- 2026-06-29 19:55 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/12014.shtml)
+- 2026-06-29 19:45 - [AG 宫斗](https://www.share.minike.top/Article/details/922916606143.shtml)
+- 2026-06-29 19:57 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/38934111.shtml)
+- 2026-06-29 19:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/26015.shtml)

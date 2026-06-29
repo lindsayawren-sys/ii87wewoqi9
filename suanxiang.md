@@ -1,61 +1,56 @@
-# 转型向“智”拓市向“云” 衡水冀州以数智赋能工业发展
+# 华泰期货：地缘局势仍紧张，带动聚丙烯丙烯上涨
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网衡水5月12日电 题：转型向“智”拓市向“云” 衡水冀州以数智赋能工业发展 作者 李玉素 谌诗雨 王鹏 “大家现在看到的是我们专为失能、半失能老人推出的多功能护理床，背腿联动、一键操作，大大减轻家人照护压力。”日前，走进河北迈锐医疗器械有限公司的直播间，主播正在通过电商平台细致讲解产品功能与使用场景。 这是河北省衡水市冀州区推进 “一品一播” 行动、以数智赋能工业发展的日
+来源：华泰期货 作者： 化工组 4月28日午后收盘，丙烯主力期货合约PL2607上涨3.35%，聚丙烯PP2609合约上涨3.17%。 昨日上涨的主要驱动仍在于地缘局势仍紧张带动原油及丙烷等原料价格的走强，烯烃类成本端支撑再度明显抬升。美国方面表示，特朗普对伊朗的谈判提议感到不满，因为提议没有涉及伊朗的核项目。当前美伊谈判没有实质性改善，霍尔木兹海峡封锁持续时间不断延长，全球原
 
 ## 正文
 
-中新网衡水5月12日电 题：转型向“智”拓市向“云” 衡水冀州以数智赋能工业发展 作者 李玉素 谌诗雨 王鹏 “大家现在看到的是我们专为失能、半失能老人推出的多功能护理床，背腿联动、一键操作，大大减轻家人照护压力。
+来源：华泰期货 作者： 化工组 4月28日午后收盘，丙烯主力期货合约PL2607上涨3.35%，聚丙烯PP2609合约上涨3.17%。
 
-”日前，走进河北迈锐医疗器械有限公司的直播间，主播正在通过电商平台细致讲解产品功能与使用场景。
+昨日上涨的主要驱动仍在于地缘局势仍紧张带动原油及丙烷等原料价格的走强，烯烃类成本端支撑再度明显抬升。
 
-这是河北省衡水市冀州区推进 “一品一播” 行动、以数智赋能工业发展的日常场景。
+美国方面表示，特朗普对伊朗的谈判提议感到不满，因为提议没有涉及伊朗的核项目。
 
-近年来，冀州区以智能化转型强根基、以云端营销拓市场，推动主导产业提质增效。
+当前美伊谈判没有实质性改善，霍尔木兹海峡封锁持续时间不断延长，全球原油市场供应中断担忧再次升温，油价短期再度大幅上涨，带动丙烷价格继续走强。
 
-同时，通过打造“冀州辅具”区域公共品牌等措施，为传统工业转型升级探索出一条数智融合新路径。
+丙烯方面，近端供应仍是偏紧格局，丙烷价格再度走强带动PDH利润回落，后续PDH装置回归预期再度存疑。
 
-从“一片暖”到“多元强” 传统产业向“智”转型 采暖铸造产业是冀州区的一张名片。
+需求端下游跟进买盘尚可，近端需求支撑；但亦需关注下游利润近期持续受压后需求端跟进或不及前期。
 
-始建于1972年的冀县暖气片厂，历经多年转型升级，现已成长为区域内优秀民营企业——春风实业集团有限责任公司(简称“春风集团”)。
+后期继续关注PDH装置开工情况以及下游需求跟进情况。
 
-据春风集团宣传科科长于久雪介绍，20世纪七八十年代，我国首款拥有自主知识产权的760型铸铁暖气片问世，该企业凭借这款产品打响行业品牌。
+PP方面，供应端开工存见底回升预期，但海峡局势再度紧张，且由于前期检修偏多，供应端回归进程仍偏慢，继续支撑近端价格。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 19:45 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 19:53 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 19:53 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 19:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 19:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 19:43 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 19:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:25 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 19:53 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 19:39 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 19:27 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 19:45 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 19:47 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 19:35 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 19:56 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 19:42 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 19:33 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 19:59 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 19:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 19:38 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 19:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:35 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 19:31 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 19:50 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/07670.shtml)
-- 2026-06-29 19:47 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/65955.shtml)
-- 2026-06-29 19:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/959066538.shtml)
-- 2026-06-29 19:40 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/36735.shtml)
-- 2026-06-29 19:26 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/418652944.shtml)
-- 2026-06-29 19:31 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/071635.shtml)
-- 2026-06-29 19:31 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/004183913294.shtml)
-- 2026-06-29 19:48 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/577803.shtml)
-- 2026-06-29 19:25 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/766437.shtml)
-- 2026-06-29 19:48 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/504841787.shtml)
-- 2026-06-29 19:49 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/8781169.shtml)
-- 2026-06-29 19:32 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/16997918667.shtml)
-- 2026-06-29 19:24 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/647709456707.shtml)
-- 2026-06-29 19:45 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/0848388620.shtml)
-- 2026-06-29 19:49 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/744509890137.shtml)
+- 2026-06-29 19:48 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/112525509.shtml)
+- 2026-06-29 19:49 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/60259869827.shtml)
+- 2026-06-29 19:59 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/04474091.shtml)
+- 2026-06-29 19:31 - [《贺子珍》](https://www.blog.minike.top/Article/details/229469.shtml)
+- 2026-06-29 19:43 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/199275556946.shtml)
+- 2026-06-29 19:34 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/25701.shtml)
+- 2026-06-29 19:57 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/798403352012.shtml)
+- 2026-06-29 19:59 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/82276500.shtml)
+- 2026-06-29 19:38 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/003036642951.shtml)
+- 2026-06-29 19:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/523219436234.shtml)
+- 2026-06-29 19:32 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/19826188.shtml)
+- 2026-06-29 19:48 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/37819646.shtml)
+- 2026-06-29 19:37 - [欧洲安装一台空调要花近8000元](https://www.blog.kurohicncr.top/Article/details/953238.shtml)
+- 2026-06-29 19:56 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/424863111994.shtml)
+- 2026-06-29 19:37 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/58595172.shtml)

@@ -1,56 +1,58 @@
-# 中东局势致能源价格上涨 莫迪呼吁民众“少吃油别买金”
+# 广西一季度跨境收支同比增长28.18%
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-一个周六的早上，印度德里阿南德维哈尔火车站，35岁的拾荒者拉朱·普拉萨德肩上挎着一大包行李，身边的妻子一手抱着小女儿，一手拎着白色塑料桶，三个孩子跟在身后拖着包裹。 九个月前，他们从北方邦搬到首都，梦想着在这扎根。如今，他们正准备逃回老家。 “如果我们再在这里待几天，孩子可能会饿死。”普拉萨德对《卫报》说。他家的最后一个煤气罐15天前就用完了。黑市上，一罐煤气的价格飙涨了5倍，
+中新社南宁4月29日电 (记者 黄艳梅)中国人民银行广西壮族自治区分行29日举行新闻发布会介绍，2026年一季度，广西跨境收支规模204.91亿美元，同比增长28.18%；银行结售汇总量104.06亿美元，同比增长11.22%，二者规模均创近五年同期新高。2026年一季度，广西货物贸易收支规模176.66亿美元，同比增长33.61%。广西与东盟国家、“一带一路”共建国家、《区域
 
 ## 正文
 
-一个周六的早上，印度德里阿南德维哈尔火车站，35岁的拾荒者拉朱·普拉萨德肩上挎着一大包行李，身边的妻子一手抱着小女儿，一手拎着白色塑料桶，三个孩子跟在身后拖着包裹。
+中新社南宁4月29日电 (记者 黄艳梅)中国人民银行广西壮族自治区分行29日举行新闻发布会介绍，2026年一季度，广西跨境收支规模204.91亿美元，同比增长28.18%；银行结售汇总量104.06亿美元，同比增长11.22%，二者规模均创近五年同期新高。
 
-九个月前，他们从北方邦搬到首都，梦想着在这扎根。
+2026年一季度，广西货物贸易收支规模176.66亿美元，同比增长33.61%。
 
-如今，他们正准备逃回老家。
+广西与东盟国家、“一带一路”共建国家、《区域全面经济伙伴关系协定》(RCEP)其他成员国贸易收支分别同比增长24.35%、18.23%、26.2%。
 
-“如果我们再在这里待几天，孩子可能会饿死。
+同期，广西服务贸易各业态快速发展，服务贸易收支规模6.33亿美元，同比增长18.93%。
 
-”普拉萨德对《卫报》说。
+广西对外投资保持热度，对外直接投资(ODI)跨境资金汇出0.88亿美元，同比增长27.98%。
 
-他家的最后一个煤气罐15天前就用完了。
+近年来，广西深化数智平台应用，通过科技赋能提升外汇管理服务质效。
 
-黑市上，一罐煤气的价格飙涨了5倍，他根本买不起。
+目前，“汇小二”跨境金融服务智能体的推广已从本地延伸至以越南为核心的东盟市场，并实现与中国(广西)国际贸易单一窗口对接。
 
-据《卫报》报道，当前，由于能源价格飙升，越来越多印度普通人正像普拉萨德一家一样逃回农村。
+此外，广西在“单一窗口”上线“贸金通”跨境收付款新功能，创新打造集外汇政策咨询、企业名录登记、跨境结算办理于一体的跨境金融服务模式。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 19:36 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 19:32 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 19:39 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 19:37 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 19:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 19:42 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 19:26 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 19:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 19:40 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 19:50 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 19:57 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 19:58 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 19:53 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-29 19:39 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 19:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 19:37 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 19:35 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 19:47 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 19:37 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 19:47 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 19:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:25 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/53665.shtml)
-- 2026-06-29 19:45 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/118818573.shtml)
-- 2026-06-29 19:48 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/216167386745.shtml)
-- 2026-06-29 19:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/580491.shtml)
-- 2026-06-29 19:48 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/2442809.shtml)
-- 2026-06-29 19:49 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/099768662.shtml)
-- 2026-06-29 19:26 - [扬名立万](http://www.share.minike.top/Article/details/52660182.shtml)
-- 2026-06-29 19:31 - [王楚钦开门红](https://www.share.minike.top/Article/details/8421202960.shtml)
-- 2026-06-29 19:36 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/00902516559.shtml)
-- 2026-06-29 19:46 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/935224202.shtml)
-- 2026-06-29 19:41 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/236541301.shtml)
-- 2026-06-29 19:33 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/9970775.shtml)
-- 2026-06-29 19:31 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/34225822.shtml)
-- 2026-06-29 19:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/31358661710.shtml)
-- 2026-06-29 19:24 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/0229706.shtml)
+- 2026-06-29 19:39 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/563387695671.shtml)
+- 2026-06-29 19:32 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/868217.shtml)
+- 2026-06-29 19:34 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/764657.shtml)
+- 2026-06-29 19:40 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.minike.top/Article/details/57282.shtml)
+- 2026-06-29 19:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/78610483598.shtml)
+- 2026-06-29 19:47 - [千与千寻](https://www.share.kurohicncr.top/Article/details/22250.shtml)
+- 2026-06-29 19:59 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/512385562912.shtml)
+- 2026-06-29 19:50 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/505153354.shtml)
+- 2026-06-29 19:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/12304228367.shtml)
+- 2026-06-29 19:59 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/457931090032.shtml)
+- 2026-06-29 19:53 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/81917935231.shtml)
+- 2026-06-29 19:36 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/64072176715.shtml)
+- 2026-06-29 19:53 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/6219788.shtml)
+- 2026-06-29 19:42 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/0364058.shtml)
+- 2026-06-29 19:55 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/4551589454.shtml)

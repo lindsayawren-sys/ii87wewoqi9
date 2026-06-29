@@ -1,56 +1,61 @@
-# 配置性价比凸显，低位券商暴力吸金，顶流券商ETF华宝（512000）近5日狂揽14.9亿元
+# 看不见的污染怎么治？农业专家“死磕”世界级难题
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-5月13日，券商板块短线回调，个股多数下行，华泰证券跌2%，国泰海通、东方财富、中信建投、中国银河等跌逾1%。规模360亿元+的顶流券商ETF华宝（512000）场内价格现跌1.14%。最新数据显示，证券公司指数市净率PB（LF）仅1.3倍，位于近10年18.2%分位点。资金面低位大举抢筹，上交所数据显示，券商ETF华宝（512000）近5日连续获资金净流入14.92亿元。 上
+发布时间：2026年04月30日 14:11 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。 农业面源污染深埋地下、难以察觉，是长江生态治理的世界级难题。2023年，无党派人士、农业环境专家赵立欣随团赴江西鄱阳
 
 ## 正文
 
-5月13日，券商板块短线回调，个股多数下行，华泰证券跌2%，国泰海通、东方财富、中信建投、中国银河等跌逾1%。
+发布时间：2026年04月30日 14:11 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。
 
-规模360亿元+的顶流券商ETF华宝（512000）场内价格现跌1.14%。
+从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
 
-最新数据显示，证券公司指数市净率PB（LF）仅1.3倍，位于近10年18.2%分位点。
+农业面源污染深埋地下、难以察觉，是长江生态治理的世界级难题。
 
-资金面低位大举抢筹，上交所数据显示，券商ETF华宝（512000）近5日连续获资金净流入14.92亿元。
+2023年，无党派人士、农业环境专家赵立欣随团赴江西鄱阳湖调研，精准锁定当地因农田氮磷流失导致总磷超标的痛点。
 
-上市券商一季报业绩全面超预期，市场活跃度提升为行业景气度上行提供了坚实支撑，叠加行业估值水平处于历史低位，券商板块配置性价比突出。
+调研团不仅深入一线发现问题，更发挥专业所长，将科研带入现场。
 
-根据Wind数据，2026年一季度上市券商整体营业收入同比增长20.24%；归母净利润同比增长16.44%。
+团队针对当地气候与种植模式，集成优化了治理技术，成功使水稻氮磷地表径流流失率减少了40%。
 
-多家券商创造历史，中信证券单季净利润首次突破百亿元，东方证券净利润创近11年来新高。
+这次实践真正实现了用专业优势解决实际问题，将民主监督落到了实处，成为了长江守护行动中令人欣喜的成果。
 
-近日A股日均成交额再度站上3万亿元的高位，两融余额再创新高，市场交投情绪仍在较高水平，有望支撑二季度券商业绩延续增长。
+责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 19:46 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 19:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 19:37 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 19:42 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 19:27 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 19:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 19:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 19:30 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 19:38 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 19:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 19:46 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-29 19:47 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 19:39 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 19:32 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 19:43 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-29 19:43 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 19:44 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 19:43 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 19:38 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 19:56 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 19:52 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 19:37 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 19:54 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 19:31 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/67023884377.shtml)
-- 2026-06-29 19:24 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/89435287.shtml)
-- 2026-06-29 19:40 - [毒液2](http://www.share.minike.top/Article/details/881169.shtml)
-- 2026-06-29 19:48 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/50260715487.shtml)
-- 2026-06-29 19:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/27773.shtml)
-- 2026-06-29 19:39 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/398901.shtml)
-- 2026-06-29 19:44 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/92351495.shtml)
-- 2026-06-29 19:42 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/776756906544.shtml)
-- 2026-06-29 19:45 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/496148101068.shtml)
-- 2026-06-29 19:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/590583327.shtml)
-- 2026-06-29 19:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/98626228.shtml)
-- 2026-06-29 19:46 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/59089685080.shtml)
-- 2026-06-29 19:44 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/37858271.shtml)
-- 2026-06-29 19:42 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/05179.shtml)
-- 2026-06-29 19:37 - [扬名立万](https://www.share.minike.top/Article/details/03008705.shtml)
+- 2026-06-29 19:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/363889469.shtml)
+- 2026-06-29 19:39 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/68928.shtml)
+- 2026-06-29 19:53 - [温网](https://www.share.minike.top/Article/details/0138594460.shtml)
+- 2026-06-29 19:30 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/8405106.shtml)
+- 2026-06-29 19:35 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.minike.top/Article/details/976638.shtml)
+- 2026-06-29 19:55 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/152846733.shtml)
+- 2026-06-29 19:58 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/68434.shtml)
+- 2026-06-29 19:56 - [明星大侦探第四季](http://www.share.minike.top/Article/details/3268600710.shtml)
+- 2026-06-29 19:39 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/82663810.shtml)
+- 2026-06-29 19:32 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/3382004535.shtml)
+- 2026-06-29 19:51 - [TTG KSG](http://www.blog.minike.top/Article/details/50593.shtml)
+- 2026-06-29 19:57 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/970832328287.shtml)
+- 2026-06-29 19:36 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/8524000544.shtml)
+- 2026-06-29 19:33 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/3017221503.shtml)
+- 2026-06-29 19:48 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/08436854.shtml)

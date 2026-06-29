@@ -1,58 +1,53 @@
-# 德国央行行长Nagel称欧洲央行加息的可能性越来越高
+# 涉案资金超5亿 一名重大跨境网赌案主要犯罪嫌疑人被引渡回国
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-德国央行行长Joachim Nagel表示，受伊朗战争影响，欧洲央行不得不提高借贷成本的可能性上升。 “我仍然对中东紧张局势大幅缓和抱有一定希望——但我们不能忽视高企的能源价格，”这位德国央行行长在接受《商报》采访时表示，“加息的可能性越来越大，除非通胀形势发生根本性变化。” 经济学家押注欧洲央行今年将加息两次，分别在6月和9月，市场预期到年底前还会进行第三次。 “我们不再处于
+4月29日，按照公安部部署，在泰国有关部门大力支持下，天津公安机关成功将一名重大跨境网络赌博案件主要犯罪嫌疑人黄某铠从泰国引渡回国。 经查，2022年9月至2023年6月，黄某铠伙同他人在柬埔寨组建犯罪团伙，通过互联网设立“万合足球”赌博平台，以高额利润为诱饵，网罗招募人员从事网络赌博犯罪活动，采用代理形式发展下线、赌客会员，在国内招揽各层级代理及赌客，涉案资金5亿余元。202
 
 ## 正文
 
-德国央行行长Joachim Nagel表示，受伊朗战争影响，欧洲央行不得不提高借贷成本的可能性上升。
+4月29日，按照公安部部署，在泰国有关部门大力支持下，天津公安机关成功将一名重大跨境网络赌博案件主要犯罪嫌疑人黄某铠从泰国引渡回国。
 
-“我仍然对中东紧张局势大幅缓和抱有一定希望——但我们不能忽视高企的能源价格，”这位德国央行行长在接受《商报》采访时表示，“加息的可能性越来越大，除非通胀形势发生根本性变化。
+经查，2022年9月至2023年6月，黄某铠伙同他人在柬埔寨组建犯罪团伙，通过互联网设立“万合足球”赌博平台，以高额利润为诱饵，网罗招募人员从事网络赌博犯罪活动，采用代理形式发展下线、赌客会员，在国内招揽各层级代理及赌客，涉案资金5亿余元。
 
-” 经济学家押注欧洲央行今年将加息两次，分别在6月和9月，市场预期到年底前还会进行第三次。
+2026年2月，泰国有关部门裁定向中方引渡黄某铠。
 
-“我们不再处于欧元体系预测的基准情境中，而是正朝着不利情境发展，”Nagel说。
+下一步，天津公安机关将全力开展案件侦办工作。
 
-他指的是欧洲央行在3月列出的不同增长和通胀路径。
-
-他还警告说，“我们未来可能还会面临相当的通胀。
-
-” Nagel表示，“价格上涨可能不会仅限于燃油。
-
-我们从过去的经验中得知，供应冲击传导至各类商品往往需要长达18个月的时间。
+(总台记者 朱辛未 陈昱)
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 19:33 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 19:40 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 19:27 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 19:51 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 19:47 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 19:39 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 19:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 19:39 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 19:35 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 19:36 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
+- 2026-06-29 19:38 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 19:37 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 19:41 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 19:53 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 19:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 19:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 19:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 19:46 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 19:50 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 19:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 19:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 19:53 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 19:45 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/36599979.shtml)
-- 2026-06-29 19:46 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/694032.shtml)
-- 2026-06-29 19:45 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/398215657.shtml)
-- 2026-06-29 19:35 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/953413.shtml)
-- 2026-06-29 19:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/5517176.shtml)
-- 2026-06-29 19:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/33594208242.shtml)
-- 2026-06-29 19:26 - [逆天祖国人](https://www.share.minike.top/Article/details/5506332665.shtml)
-- 2026-06-29 19:46 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/2985258.shtml)
-- 2026-06-29 19:49 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/899811.shtml)
-- 2026-06-29 19:38 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/510535062.shtml)
-- 2026-06-29 19:33 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/05724621164.shtml)
-- 2026-06-29 19:43 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/39080860.shtml)
-- 2026-06-29 19:37 - [急先锋](http://www.share.minike.top/Article/details/97285.shtml)
-- 2026-06-29 19:29 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/548082891.shtml)
-- 2026-06-29 19:33 - [AG 宫斗](http://www.share.minike.top/Article/details/505557324.shtml)
+- 2026-06-29 19:49 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/236793093.shtml)
+- 2026-06-29 19:56 - [存储三巨头被告了](http://www.share.minike.top/Article/details/530490171.shtml)
+- 2026-06-29 19:54 - [逃狱兄弟](https://www.share.minike.top/Article/details/2054387651.shtml)
+- 2026-06-29 19:47 - [V8](http://www.share.minike.top/Article/details/66134339.shtml)
+- 2026-06-29 19:55 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/235104.shtml)
+- 2026-06-29 19:41 - [105岁女红军看到自己长征时的模样](http://www.share.kurohicncr.top/Article/details/6465085830.shtml)
+- 2026-06-29 19:50 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/70252.shtml)
+- 2026-06-29 19:30 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/186605124355.shtml)
+- 2026-06-29 19:50 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/831851.shtml)
+- 2026-06-29 19:52 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/70403.shtml)
+- 2026-06-29 19:35 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/305155981.shtml)
+- 2026-06-29 19:47 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/3098614082.shtml)
+- 2026-06-29 19:39 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/306562.shtml)
+- 2026-06-29 19:56 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/44940.shtml)
+- 2026-06-29 19:31 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/90939852.shtml)

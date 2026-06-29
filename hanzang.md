@@ -1,56 +1,57 @@
-# 跳槽到易方达的名单，也太长了……
+# 中信建投期货：4月30日工业品早报
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-来源：硬核姬的碎碎念 有一阵子没写行业里的人事盘点了。最近其实瓜很多，光是上海的公募圈，就听说三个知名基金经理蠢蠢欲动，准备跳槽。 不过目前都处于坊间传言的阶段，还没落地。我们先讲一些落地了的。 一、姜老板真的成老板了 最近中泰资管完成了核心管理层的更换。原先的董事长黄文卿、总经理徐建东双双因个人原因离开。原中泰证券投行委员会主任姜天坊接董事长，大家熟悉的价值派的扛把子姜诚姜老
+铜：节前情绪降温，铜价延续承压 隔夜沪铜主力走软至100820元，伦铜收阴倒锤子线至1.3万美金下沿。 宏观中性。美联储维持当前利率按兵不动，声明对通胀的表述由“略高”修改为“高企”，市场基本放弃押注今年降息可能性，货币政策宽松前景受阻，市场情绪降温施压铜价回调。 基本面中性。昨日上期所铜仓单减少3273吨至10万吨余，LME铜库存增加400吨至39.7万吨。下游企业基本完成节
 
 ## 正文
 
-来源：硬核姬的碎碎念 有一阵子没写行业里的人事盘点了。
+铜：节前情绪降温，铜价延续承压 隔夜沪铜主力走软至100820元，伦铜收阴倒锤子线至1.3万美金下沿。
 
-最近其实瓜很多，光是上海的公募圈，就听说三个知名基金经理蠢蠢欲动，准备跳槽。
+宏观中性。
 
-不过目前都处于坊间传言的阶段，还没落地。
+美联储维持当前利率按兵不动，声明对通胀的表述由“略高”修改为“高企”，市场基本放弃押注今年降息可能性，货币政策宽松前景受阻，市场情绪降温施压铜价回调。
 
-我们先讲一些落地了的。
+基本面中性。
 
-一、姜老板真的成老板了 最近中泰资管完成了核心管理层的更换。
+昨日上期所铜仓单减少3273吨至10万吨余，LME铜库存增加400吨至39.7万吨。
 
-原先的董事长黄文卿、总经理徐建东双双因个人原因离开。
+下游企业基本完成节前备货，现货升水低位运行。
 
-原中泰证券投行委员会主任姜天坊接董事长，大家熟悉的价值派的扛把子姜诚姜老板也升职了，从中泰资管副总变成了代任总经理。
+总体来看，宏观情绪偏弱指引价格延续承压，但铜原料约束、国内冶炼检修、海外冶炼收缩趋势，铜价具备一定韧性，中线不宜过分悲观，警惕地缘发酵风险。
 
-姜诚的这波升职可以说是火箭速度了。
+今日沪铜主力运行参考9.96万-10.16万元/吨。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 19:43 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 19:34 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 19:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 19:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 19:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 19:50 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 19:54 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 19:41 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 19:43 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 19:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 19:55 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 19:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 19:54 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 19:33 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 19:57 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 19:51 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 19:42 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 19:30 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 19:35 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 19:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/646450845.shtml)
-- 2026-06-29 19:53 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/62719390332.shtml)
-- 2026-06-29 19:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/1894092.shtml)
-- 2026-06-29 19:25 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/8177322050.shtml)
-- 2026-06-29 19:50 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/814918.shtml)
-- 2026-06-29 19:32 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/317884470760.shtml)
-- 2026-06-29 19:38 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/2106418251.shtml)
-- 2026-06-29 19:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/127220.shtml)
-- 2026-06-29 19:27 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/15939.shtml)
-- 2026-06-29 19:39 - [沉睡花园](http://www.blog.minike.top/Article/details/835812.shtml)
-- 2026-06-29 19:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/97895118570.shtml)
-- 2026-06-29 19:41 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/974296027563.shtml)
-- 2026-06-29 19:47 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/884122755.shtml)
-- 2026-06-29 19:46 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/61471867520.shtml)
-- 2026-06-29 19:26 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/74540619610.shtml)
+- 2026-06-29 19:34 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/503967.shtml)
+- 2026-06-29 19:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/8383318546.shtml)
+- 2026-06-29 19:36 - [TTG KSG](http://www.share.minike.top/Article/details/8270240752.shtml)
+- 2026-06-29 19:48 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/8606590365.shtml)
+- 2026-06-29 19:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/9643588.shtml)
+- 2026-06-29 19:46 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/4074037411.shtml)
+- 2026-06-29 19:34 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/583058120366.shtml)
+- 2026-06-29 19:48 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/2317560138.shtml)
+- 2026-06-29 19:48 - [TTG KSG](https://www.share.minike.top/Article/details/6435476100.shtml)
+- 2026-06-29 19:32 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/127587679.shtml)
+- 2026-06-29 19:47 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/28010.shtml)
+- 2026-06-29 19:49 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/37369596406.shtml)
+- 2026-06-29 19:30 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/6372834.shtml)
+- 2026-06-29 19:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/7912976311.shtml)
+- 2026-06-29 19:30 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/97748.shtml)

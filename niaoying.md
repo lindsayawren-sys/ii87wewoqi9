@@ -1,50 +1,57 @@
-# 中国工商银行董事长廖林会见斯洛文尼亚副总理兼财政部部长博什特扬契奇
+# 年薪297万的王良卸任，招商银行新行长浮出水面
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-原标题：廖林会见斯洛文尼亚副总理兼财政部部长博什特扬契奇 来源：中国工商银行 5月12日，中国工商银行董事长廖林会见了来访的斯洛文尼亚副总理兼财政部部长博什特扬契奇，双方就全球宏观经济金融形势、深化中斯金融合作、助力中斯经贸往来等话题进行交流。中国工商银行副行长张伟武，斯洛文尼亚驻华大使马博洋参加会见。 中国工商银行积极支持中斯金融合作和经贸往来，在投融资、支付结算、跨境金融、
+来源：银瑞社 招商银行最新召开的全行干部大会，透出一个重大消息。 招商银行行长王良因年龄原因卸任，而原副行长、招商金控总经理王小青接任招商银行党委书记，后续将接任行长一职。 王良从2022年临危受命，接过了招商银行行长一职，至今已有四年时间。 彼时，招商银行面临原行长田惠宇被查的舆论危机，老将王良成为“救火队长”，稳定了这场震动。 2022年-2025年，王良年薪分别为642.
 
 ## 正文
 
-原标题：廖林会见斯洛文尼亚副总理兼财政部部长博什特扬契奇 来源：中国工商银行 5月12日，中国工商银行董事长廖林会见了来访的斯洛文尼亚副总理兼财政部部长博什特扬契奇，双方就全球宏观经济金融形势、深化中斯金融合作、助力中斯经贸往来等话题进行交流。
+来源：银瑞社 招商银行最新召开的全行干部大会，透出一个重大消息。
 
-中国工商银行副行长张伟武，斯洛文尼亚驻华大使马博洋参加会见。
+招商银行行长王良因年龄原因卸任，而原副行长、招商金控总经理王小青接任招商银行党委书记，后续将接任行长一职。
 
-中国工商银行积极支持中斯金融合作和经贸往来，在投融资、支付结算、跨境金融、债券承销等领域取得一系列务实成果，近期作为联席主承销商支持斯洛文尼亚成功发行首期熊猫债。
+王良从2022年临危受命，接过了招商银行行长一职，至今已有四年时间。
 
-中国工商银行将充分发挥全球一体化经营服务优势，依托“一带一路”银行间合作机制（BRBR）、中欧企业联盟（CEBC）等多边平台，提供全面金融解决方案，全力服务中斯、中欧金融合作，助力中斯、中欧经贸往来再上新台阶。
+彼时，招商银行面临原行长田惠宇被查的舆论危机，老将王良成为“救火队长”，稳定了这场震动。
 
-责任编辑：李琳琳
+2022年-2025年，王良年薪分别为642.5万元、345.3万元、296.2万元、297.1万元，下滑明显。
+
+算下来，王良是招商银行历任行长里面，履职时间最短的一任。
+
+招商银行首任行长王世祯，履职时间12年，推出“一卡通”在国内率先实现一卡多户功能，而任期最长的是马蔚华，履职时间超过了14年，一举奠定了招商银行“零售之王”的地位，并推动A+H股上市。
+
+王良年龄不小，现年已经61岁，进入招商银行工作已有超30年的时间。
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 19:36 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 19:50 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 19:37 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 19:38 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 19:51 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 19:25 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 19:45 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 19:29 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 19:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 19:55 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 19:54 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:43 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 19:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 19:41 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 19:41 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 19:59 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 19:32 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 19:55 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 19:31 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 19:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/769375230.shtml)
-- 2026-06-29 19:26 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/87012.shtml)
-- 2026-06-29 19:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/031862.shtml)
-- 2026-06-29 19:42 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/81793738.shtml)
-- 2026-06-29 19:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/92616003926.shtml)
-- 2026-06-29 19:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/2284209.shtml)
-- 2026-06-29 19:27 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/881592017.shtml)
-- 2026-06-29 19:30 - [斗破苍穹](http://www.share.minike.top/Article/details/81243646903.shtml)
-- 2026-06-29 19:41 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/6239001.shtml)
-- 2026-06-29 19:25 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/056232732006.shtml)
-- 2026-06-29 19:40 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/46817444783.shtml)
-- 2026-06-29 19:47 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/08447.shtml)
-- 2026-06-29 19:29 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/534275.shtml)
-- 2026-06-29 19:37 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/409274091.shtml)
-- 2026-06-29 19:51 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/0684442.shtml)
+- 2026-06-29 19:44 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/82815089.shtml)
+- 2026-06-29 19:33 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/411534.shtml)
+- 2026-06-29 19:35 - [依法管制阻遏日方军事化危险动向](http://www.share.kurohicncr.top/Article/details/756216.shtml)
+- 2026-06-29 19:33 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/77205.shtml)
+- 2026-06-29 19:41 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/0863608440.shtml)
+- 2026-06-29 19:53 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/9203738.shtml)
+- 2026-06-29 19:54 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/389794668837.shtml)
+- 2026-06-29 19:46 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/24489700888.shtml)
+- 2026-06-29 19:44 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/996028566051.shtml)
+- 2026-06-29 19:58 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/73081.shtml)
+- 2026-06-29 19:41 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/4768052174.shtml)
+- 2026-06-29 19:52 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/988208960.shtml)
+- 2026-06-29 19:59 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/44281925.shtml)
+- 2026-06-29 19:38 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/64865269.shtml)
+- 2026-06-29 19:31 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/47239307528.shtml)

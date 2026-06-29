@@ -1,57 +1,53 @@
-# 平潭边检站便捷通关 助力口岸经济一季度“开门红”
+# 访杭州地铁突发渗漏工地：227名受影响居民得到快速安置
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网平潭5月12日电 (郑江洛 白志斌)“情况正常，可以开始作业。”12日，在平潭金井港区上空，无人机来回盘旋，对停泊在港口的“台北快轮”进行空中巡查。与此同时，平潭边检站民警快速核验船员信息，高效办结船舶出入境边防手续，全程不到20分钟。 据数据统计，今年第一季度，平潭受理申报进出口金额达49.5亿元，同比增长3.1%，外贸发展实现“开门红”。其中，跨境电商网购保税进口出区
+发布时间：2026年04月29日 21:46 来源：中国新闻网 杭州市地铁集团4月29日发布情况通报称，28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。当天21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。 4月29日，中新社记者前往事发现场看到，相关抢修、监测工作正有序进行。28日晚上至29日1时许，此次
 
 ## 正文
 
-中新网平潭5月12日电 (郑江洛 白志斌)“情况正常，可以开始作业。
+发布时间：2026年04月29日 21:46 来源：中国新闻网 杭州市地铁集团4月29日发布情况通报称，28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。
 
-”12日，在平潭金井港区上空，无人机来回盘旋，对停泊在港口的“台北快轮”进行空中巡查。
+当天21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。
 
-与此同时，平潭边检站民警快速核验船员信息，高效办结船舶出入境边防手续，全程不到20分钟。
+4月29日，中新社记者前往事发现场看到，相关抢修、监测工作正有序进行。
 
-据数据统计，今年第一季度，平潭受理申报进出口金额达49.5亿元，同比增长3.1%，外贸发展实现“开门红”。
+28日晚上至29日1时许，此次受影响的227名周边居民均已得到快速妥善安置。
 
-其中，跨境电商网购保税进口出区清单达921.76万票，同比增长58.51%；进出口集装箱1.05万标箱，同比增长18.5%，口岸通关效率与贸易活力显著提升。
-
-在跨境电商物流园选货区内，工作人员正根据电商订单选货、验单，包裹在传送带上快速流转；批量打包区里，装盒、封箱等动作一气呵成。
-
-平潭外代船务代理有限公司船代部经理阮邦川受访时说，以往，夜间、节假日货运航班通关曾是企业运营的痛点，如今平潭边检推出“7×24小时”全天候通关服务，实现货运船舶、船员“随到随检、即检即放”，提升了物流运转效率，有效降低企业运营成本。
-
-在通关提速、服务升级的基础上，平潭边检站以数字化改革为抓手，推动科技应用与通关服务深度融合，通过智能管控平台，前置开展船舶信息核验、船员身份核查、安全风险智能筛查，真正实现“数据多跑路、企业少跑腿”。
+(王逸飞 吴君毅 制作 徐妙巧) 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [V8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 19:40 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 19:52 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:37 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 19:47 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 19:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 19:44 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 19:34 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 19:37 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 19:33 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 19:30 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 19:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 19:47 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 19:53 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 19:46 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 19:36 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 19:54 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 19:53 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 19:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 19:35 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 19:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 19:41 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 19:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 19:43 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/0898324.shtml)
-- 2026-06-29 19:42 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/733213003.shtml)
-- 2026-06-29 19:35 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/93155054934.shtml)
-- 2026-06-29 19:32 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/45175655.shtml)
-- 2026-06-29 19:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/120864.shtml)
-- 2026-06-29 19:37 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/8454447.shtml)
-- 2026-06-29 19:29 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/12308973482.shtml)
-- 2026-06-29 19:53 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/036494870.shtml)
-- 2026-06-29 19:47 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/9029581163.shtml)
-- 2026-06-29 19:47 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/7734280.shtml)
-- 2026-06-29 19:29 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/045704799431.shtml)
-- 2026-06-29 19:27 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/37852571.shtml)
-- 2026-06-29 19:52 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/1729565710.shtml)
-- 2026-06-29 19:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/76331236.shtml)
-- 2026-06-29 19:26 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/29069.shtml)
+- 2026-06-29 19:35 - [明星大侦探第一季](https://www.share.minike.top/Article/details/252482126458.shtml)
+- 2026-06-29 19:55 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/497982200147.shtml)
+- 2026-06-29 19:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/5288482156.shtml)
+- 2026-06-29 19:32 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/396518091.shtml)
+- 2026-06-29 19:47 - [新官上任三把火](http://www.blog.minike.top/Article/details/401137.shtml)
+- 2026-06-29 19:30 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/716392036.shtml)
+- 2026-06-29 19:54 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/562856.shtml)
+- 2026-06-29 19:35 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/980992603281.shtml)
+- 2026-06-29 19:48 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/03225123.shtml)
+- 2026-06-29 19:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/84081105.shtml)
+- 2026-06-29 19:48 - [第一炉香](https://www.blog.minike.top/Article/details/519376467.shtml)
+- 2026-06-29 19:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/90615475059.shtml)
+- 2026-06-29 19:30 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/329204145453.shtml)
+- 2026-06-29 19:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/478936119739.shtml)
+- 2026-06-29 19:59 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/905425007.shtml)

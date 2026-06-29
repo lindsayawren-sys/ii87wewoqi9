@@ -1,46 +1,60 @@
-# 大美边疆看我家丨黑龙江密山：用色彩点亮家乡画卷
+# 霍尔木兹海峡，大消息！伊朗最新发声！
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 13:32 来源：中国新闻网 用航拍视角，展现黑龙江省密山市的多彩景色，描摹出一幅生动独特的家乡画卷。(作者：程琪） 责任编辑：【魏聪聪】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！最新消息： 伊朗：可以利用与周边国家的陆地边界绕过封锁 据伊朗伊斯兰共和国通讯社29日报道，伊朗驻埃及开罗利益代表处负责人穆杰塔巴·菲尔多西普尔表示，美国试图以海上封锁迫使伊朗接受其单方面要求是徒劳的，伊朗可以利用与周边国家的陆地边界绕过封锁。菲尔多西普尔重申，伊朗有权掌控霍尔木兹海峡的安全。 菲尔多西普尔
 
 ## 正文
 
-发布时间：2026年05月12日 13:32 来源：中国新闻网 用航拍视角，展现黑龙江省密山市的多彩景色，描摹出一幅生动独特的家乡画卷。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-(作者：程琪） 责任编辑：【魏聪聪】
+最新消息： 伊朗：可以利用与周边国家的陆地边界绕过封锁 据伊朗伊斯兰共和国通讯社29日报道，伊朗驻埃及开罗利益代表处负责人穆杰塔巴·菲尔多西普尔表示，美国试图以海上封锁迫使伊朗接受其单方面要求是徒劳的，伊朗可以利用与周边国家的陆地边界绕过封锁。
+
+菲尔多西普尔重申，伊朗有权掌控霍尔木兹海峡的安全。
+
+菲尔多西普尔说，美国继续对伊朗实施海上封锁不符合美国政治和经济利益，并重申霍尔木兹海峡仅对与以色列和美国有关的船只关闭。
+
+伊朗有权掌控霍尔木兹海峡的安全，并不违反国际公约。
+
+菲尔多西普尔还说，伊朗不信任美国，也不希望与美国直接谈判，伊朗有权动用一切手段捍卫自身安全，抵御美国和以色列攻击，美国“已在第一阶段耗尽其在中东地区的导弹储备，而伊朗更愿意重返战场”。
+
+美媒称特朗普要求准备长期封锁伊朗 美国《华尔街日报》28日援引美国官员的话报道说，美国总统特朗普已指示其助手，准备对伊朗实施长期封锁。
+
+报道说，在近期举行的会议中，特朗普选择通过阻止船只进出伊朗港口的方式，继续打压伊朗的经济和石油出口。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 19:48 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 19:46 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 19:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 19:43 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 19:44 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 19:27 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 19:26 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 19:51 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 19:41 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 19:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 19:32 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 19:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 19:47 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:41 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 19:39 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 19:41 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 19:34 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 19:32 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 19:42 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 19:30 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 19:34 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 19:50 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 19:37 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 19:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 19:56 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/121754129842.shtml)
-- 2026-06-29 19:42 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/99445709520.shtml)
-- 2026-06-29 19:46 - [《贺子珍》](https://www.blog.minike.top/Article/details/26343380790.shtml)
-- 2026-06-29 19:53 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/075903095867.shtml)
-- 2026-06-29 19:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/36516238397.shtml)
-- 2026-06-29 19:27 - [极限挑战第一季](https://www.share.minike.top/Article/details/49876280.shtml)
-- 2026-06-29 19:29 - [7款高价创新药有望降价](http://www.blog.kurohicncr.top/Article/details/4885868.shtml)
-- 2026-06-29 19:32 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/840374985.shtml)
-- 2026-06-29 19:49 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/04948.shtml)
-- 2026-06-29 19:31 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/875258.shtml)
-- 2026-06-29 19:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/6248194.shtml)
-- 2026-06-29 19:49 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/4014292030.shtml)
-- 2026-06-29 19:32 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/0003216079.shtml)
-- 2026-06-29 19:41 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/5846403.shtml)
-- 2026-06-29 19:40 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/142445.shtml)
+- 2026-06-29 19:58 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/437733161829.shtml)
+- 2026-06-29 19:49 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/175971565.shtml)
+- 2026-06-29 19:43 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/1219276598.shtml)
+- 2026-06-29 19:37 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/317257328.shtml)
+- 2026-06-29 19:39 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/07710.shtml)
+- 2026-06-29 19:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/89650863525.shtml)
+- 2026-06-29 19:43 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/790297621.shtml)
+- 2026-06-29 19:40 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/7016120075.shtml)
+- 2026-06-29 19:31 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/10874589.shtml)
+- 2026-06-29 19:52 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/023080117.shtml)
+- 2026-06-29 19:49 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/463282582.shtml)
+- 2026-06-29 19:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/35871523660.shtml)
+- 2026-06-29 19:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/3676145.shtml)
+- 2026-06-29 19:30 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/60295383736.shtml)
+- 2026-06-29 19:57 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/01151024.shtml)

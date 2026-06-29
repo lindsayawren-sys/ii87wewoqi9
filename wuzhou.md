@@ -1,60 +1,61 @@
-# 美国参议院批准凯文·沃什出任美联储理事
+# 通用电气医疗下调全年业绩预期 拟合并两大核心业务板块
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-美国参议院已确认凯文·沃什出任美联储理事会理事，这使他有望在鲍威尔的任期于周五结束后接任美联储主席。 周二51票赞成、45票反对的表决结果几乎完全按照党派划线，仅有宾夕法尼亚州的约翰·费特曼这一名民主党人投票支持沃什。在上个月的提名确认听证会上，民主党人就沃什是否会抵制白宫对美联储的影响进行了密集盘问。沃什曾表示，他将独立开展工作。 此次投票确认沃什成为美联储七名理事之一，让他
+专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。 这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。 通用电气医疗于周三公布： 全年调整后
 
 ## 正文
 
-美国参议院已确认凯文·沃什出任美联储理事会理事，这使他有望在鲍威尔的任期于周五结束后接任美联储主席。
+专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。
 
-周二51票赞成、45票反对的表决结果几乎完全按照党派划线，仅有宾夕法尼亚州的约翰·费特曼这一名民主党人投票支持沃什。
+这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。
 
-在上个月的提名确认听证会上，民主党人就沃什是否会抵制白宫对美联储的影响进行了密集盘问。
+通用电气医疗于周三公布： 全年调整后每股收益预期下调至4.80–5.00 美元，此前预期为 4.95–5.15 美元；FactSet 调研分析师预期为 5.06 美元 / 股。
 
-沃什曾表示，他将独立开展工作。
+公司维持全年内生营收增速 3%–4% 的指引不变。
 
-此次投票确认沃什成为美联储七名理事之一，让他重返了2006年至2011年间曾担任的职位，当时他还是理事会的一副新面孔。
+首席执行官彼得・阿尔杜尼尼就下调盈利预期表示：“我们正采取审慎保守的经营策略。
 
-美联储理事任期为14年。
+” 他补充称，公司计划通过产品调价与成本管控措施，抵消过半通胀带来的成本压力。
 
-沃什接替了斯蒂芬·米兰。
+他同时表示：“重要的是，新一轮创新战略推进成效显著，将为未来营收与利润率增长蓄力。
 
-米兰是特朗普政府前顾问，从去年年底开始在理事会填补了一个短暂的临时空缺。
+” 公司盘前股价大跌 9.6%，报 61.93 美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 19:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 19:51 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 19:29 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 19:47 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 19:28 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 19:26 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 19:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 19:40 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 19:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 19:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 19:32 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 19:30 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 19:27 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 19:43 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 19:53 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 19:33 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 19:33 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 19:53 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 19:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 19:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 19:41 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 19:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 19:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 19:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 19:40 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 19:30 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 19:41 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 19:40 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/14520696677.shtml)
-- 2026-06-29 19:48 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/599184599.shtml)
-- 2026-06-29 19:48 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/33725673.shtml)
-- 2026-06-29 19:31 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/3706554357.shtml)
-- 2026-06-29 19:32 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/3350850.shtml)
-- 2026-06-29 19:36 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/6543230.shtml)
-- 2026-06-29 19:38 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/497422.shtml)
-- 2026-06-29 19:31 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/5542102187.shtml)
-- 2026-06-29 19:47 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/1395653.shtml)
-- 2026-06-29 19:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/719867381399.shtml)
-- 2026-06-29 19:25 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/620428.shtml)
-- 2026-06-29 19:34 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/69658409.shtml)
-- 2026-06-29 19:41 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/1774606250.shtml)
-- 2026-06-29 19:50 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/34161328084.shtml)
-- 2026-06-29 19:42 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/698169625.shtml)
+- 2026-06-29 19:37 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/649366.shtml)
+- 2026-06-29 19:54 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/33842749.shtml)
+- 2026-06-29 19:30 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/43954.shtml)
+- 2026-06-29 19:54 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/411871722229.shtml)
+- 2026-06-29 19:58 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/7505371.shtml)
+- 2026-06-29 19:57 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/4935003047.shtml)
+- 2026-06-29 19:47 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/089920079161.shtml)
+- 2026-06-29 19:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/8464943519.shtml)
+- 2026-06-29 19:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/78396880.shtml)
+- 2026-06-29 19:45 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/54431209.shtml)
+- 2026-06-29 19:43 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/805652929.shtml)
+- 2026-06-29 19:35 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/44024.shtml)
+- 2026-06-29 19:46 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/062454534.shtml)
+- 2026-06-29 19:34 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/53952779.shtml)
+- 2026-06-29 19:31 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/59929.shtml)

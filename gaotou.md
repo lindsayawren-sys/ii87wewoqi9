@@ -1,61 +1,61 @@
-# 东西问丨达巍：今年有机会为“调适”中美关系构建新基础
+# 北京京剧院赴广西“学艺” 南北院团共续梨园薪火
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 题：今年有机会为“调适”中美关系构建新基础 ——专访清华大学战略与安全研究中心主任达巍 中新社记者 王梦瑶 美国总统特朗普将于5月13日至15日对中国进行国事访问。对于当前动荡的国际秩序而言，此次中美两个大国间的元首会晤意义非凡。 近日，清华大学战略与安全研究中心主任达巍就中美关系、中东局势等国际热点议题接受中新社“东西问”专访。他认为，当前中美关系核心
+中新网南宁4月30日电 (俞靖)4月29日，北京京剧院院长秦艳携该院演员专程赴广西戏剧院学习桂剧经典剧目《打棍出箱》。此次“南下学艺”，是上述南北院团合作交流，推动《戏剧振兴三年行动计划(2026—2028年)》落地的有效实践，以助力中国戏曲艺术薪火相传。 桂剧《打棍出箱》是广西桂剧极具代表性的经典折子戏，剧中演员需在狭小木箱上“三跌四出”令人称绝。学艺现场，北京京剧院青年演员
 
 ## 正文
 
-中新社北京5月12日电 题：今年有机会为“调适”中美关系构建新基础 ——专访清华大学战略与安全研究中心主任达巍 中新社记者 王梦瑶 美国总统特朗普将于5月13日至15日对中国进行国事访问。
+中新网南宁4月30日电 (俞靖)4月29日，北京京剧院院长秦艳携该院演员专程赴广西戏剧院学习桂剧经典剧目《打棍出箱》。
 
-对于当前动荡的国际秩序而言，此次中美两个大国间的元首会晤意义非凡。
+此次“南下学艺”，是上述南北院团合作交流，推动《戏剧振兴三年行动计划(2026—2028年)》落地的有效实践，以助力中国戏曲艺术薪火相传。
 
-近日，清华大学战略与安全研究中心主任达巍就中美关系、中东局势等国际热点议题接受中新社“东西问”专访。
+桂剧《打棍出箱》是广西桂剧极具代表性的经典折子戏，剧中演员需在狭小木箱上“三跌四出”令人称绝。
 
-他认为，当前中美关系核心任务是“调适”，今年有很好的机会构建两国关系新基础；从当前国际局势来看，尽管冲突风险有所上升，但对世界来说，核威慑与经济相互依存仍是重要的和平“压舱石”；而中国发展的最大定力，始终源于自身。
+学艺现场，北京京剧院青年演员曹阳阳在桂剧演员王培等多名传承人细心指导下，在不足一平方米的木箱内，学习箱内转身、跌箱等动作，身体在数小时的练习中磕碰生疼，切身感受到传统桂剧技艺习得之艰辛、绝活练就之不易。
 
-现将访谈实录整理如下： 中新社记者：全球化智库近期将中美关系描述为“战略稳定”，您怎么看当前的中美关系？
+他表示，京剧武戏与桂剧武戏同根同源、艺术内核一脉相承，而桂剧《打棍出箱》难度高，表演技巧独一无二，其希望跨剧种取长补短，努力挖掘和展现桂剧绝活的艺术价值。
 
-即将到来的中美元首会晤将对双边关系带来何种影响？
+秦艳表示，此行以戏曲振兴为共同目标与广西戏剧院开展交流，并向广西戏曲名家龙倩请教桂剧绝活《打棍出箱》，旨在为该院今年新编京剧《一仆二主》的创排取经赋能，两地演员通过开展互学互鉴，推动戏剧人才培养，助力地方戏曲传承发展。
 
-达巍：战略稳定这个概念有不同的含义。
+广西戏剧院党委副书记、副院长唐红友介绍，广西戏剧院为培养京剧老生人才，2022年申请北京京剧院帮扶，习得新编历史京剧《屈原》。
 
-在学术上，这个词是有固定意义的，这是指两个或多个核大国之间，各方都没有强烈动机首先使用核武器、发动战略打击，或通过扩军来获得决定性优势的一种安全状态。
+该院演员罗艺伟便是通过该戏帮扶锻炼，得以成为广西戏剧院京剧团主要演员。
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 19:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 19:31 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 19:35 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 19:30 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 19:48 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 19:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 19:47 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 19:39 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 19:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 19:36 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 19:28 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 19:48 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 19:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 19:30 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 19:35 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 19:57 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 19:40 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 19:56 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 19:55 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-29 19:41 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 19:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 19:49 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 19:42 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 19:56 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 19:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 19:54 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 19:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 19:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 19:32 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/813002034.shtml)
-- 2026-06-29 19:29 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/8169240.shtml)
-- 2026-06-29 19:24 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/328822.shtml)
-- 2026-06-29 19:34 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/851207530515.shtml)
-- 2026-06-29 19:47 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/39034556.shtml)
-- 2026-06-29 19:43 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/381034013.shtml)
-- 2026-06-29 19:24 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/41449947.shtml)
-- 2026-06-29 19:27 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/748183830629.shtml)
-- 2026-06-29 19:36 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/2220620.shtml)
-- 2026-06-29 19:47 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/6612453.shtml)
-- 2026-06-29 19:32 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/70017813955.shtml)
-- 2026-06-29 19:40 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/99730558.shtml)
-- 2026-06-29 19:25 - [周生如故](http://www.blog.kurohicncr.top/Article/details/4174581.shtml)
-- 2026-06-29 19:37 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/0951075.shtml)
-- 2026-06-29 19:41 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/0496999942.shtml)
+- 2026-06-29 19:59 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/6916732859.shtml)
+- 2026-06-29 19:30 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/938140222.shtml)
+- 2026-06-29 19:32 - [7款高价创新药有望降价](https://www.share.minike.top/Article/details/149476.shtml)
+- 2026-06-29 19:32 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/369722092.shtml)
+- 2026-06-29 19:52 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/9270700.shtml)
+- 2026-06-29 19:57 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/287757955344.shtml)
+- 2026-06-29 19:45 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/85944621934.shtml)
+- 2026-06-29 19:53 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/7497590.shtml)
+- 2026-06-29 19:42 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/28651977087.shtml)
+- 2026-06-29 19:52 - [刘冰任河南南阳市代市长](http://www.blog.minike.top/Article/details/76585556100.shtml)
+- 2026-06-29 19:57 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/952571361.shtml)
+- 2026-06-29 19:44 - [韩国小学生都来吐槽了](http://www.blog.minike.top/Article/details/55967.shtml)
+- 2026-06-29 19:57 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/90593949919.shtml)
+- 2026-06-29 19:35 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/371467.shtml)
+- 2026-06-29 19:32 - [毒液2](http://www.share.minike.top/Article/details/207170568884.shtml)

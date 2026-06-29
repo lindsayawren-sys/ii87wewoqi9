@@ -1,57 +1,58 @@
-# 日本财务大臣：贝森特对日元干预政策“充分理解”
+# 太原机场“五一”假期预计保障航班起降1491架次
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-来源：华尔街见闻 日本财务大臣称贝森特对当局日元干预政策“充分理解”，双方沟通“极为顺畅”。会后，日元短线拉升约100点，而后迅速跌回157，显示出官方日元政策干预成效存疑。分析师警告，若跌破158关口，新一轮干预随时触发，而日本央行加息与否的悬念，才是日元走势的真正关键。 日本与美国就汇率政策立场达成协调。 日本财务大臣片山皋月周二表示，美国财政部长贝森特对当局日元干预政策“
+中新网太原4月29日电 (记者 李庭耀)记者29日从山西航空产业集团获悉，随着“五一”假期临近，航空出行需求迎来集中释放，休闲旅游、探亲访友将成为本次假期出行主流，其间太原机场预计保障航班起降1491架次、旅客吞吐量20.63万人次。 为满足旅客多元化出行需求，太原机场精准投放运力，持续优化航线网络，国内、国际航线同步发力，推动假期航班量稳步提升。 国内航线方面，集中恢复哈尔滨
 
 ## 正文
 
-来源：华尔街见闻 日本财务大臣称贝森特对当局日元干预政策“充分理解”，双方沟通“极为顺畅”。
+中新网太原4月29日电 (记者 李庭耀)记者29日从山西航空产业集团获悉，随着“五一”假期临近，航空出行需求迎来集中释放，休闲旅游、探亲访友将成为本次假期出行主流，其间太原机场预计保障航班起降1491架次、旅客吞吐量20.63万人次。
 
-会后，日元短线拉升约100点，而后迅速跌回157，显示出官方日元政策干预成效存疑。
+为满足旅客多元化出行需求，太原机场精准投放运力，持续优化航线网络，国内、国际航线同步发力，推动假期航班量稳步提升。
 
-分析师警告，若跌破158关口，新一轮干预随时触发，而日本央行加息与否的悬念，才是日元走势的真正关键。
+国内航线方面，集中恢复哈尔滨=太原=福州、哈尔滨=太原=兰州、太原=湛江、太原=青岛、海口=太原、厦门=太原等多条热门航线，加密重点城市航班频次；开通串联张家界、上饶、衡阳、腾冲、襄阳、大理、西双版纳等热门文旅目的地的航线，为旅客提供更丰富的出行选择。
 
-日本与美国就汇率政策立场达成协调。
+国际及地区航线方面，太原至中国香港、泰国曼谷、越南芽庄、俄罗斯莫斯科航线保持稳定运营；4月20日正式开通太原=重庆=河内航班，班期为每天一班，这是太原机场首次开通飞往越南河内的航班，有效打通晋越空中快捷通道，为旅客出境出行、两地经贸文旅交流提供航空支撑。
 
-日本财务大臣片山皋月周二表示，美国财政部长贝森特对当局日元干预政策“充分理解”，双方就近期包括汇率在内的市场动态“协调极为顺畅”。
+“五一”假期期间，太原机场各部门协同发力，全方位提升旅客出行体验。
 
-贝森特随后在X平台发文称，双方在应对“不良的过度汇率波动”方面的沟通与协调“持续且稳健”。
+完善航站楼内交通引导标识，优化整合各类交通指引标志，清晰标注公交、出租车、网约车、地铁等出行接驳区域，方便旅客高效换乘、减少绕行；动态增开值机柜台，推行分区域登机及中转急转预约通道；提供便民物资、行李防水保护、安检充电宝预检、银龄旅客专属通道、“急客找我”绿马甲及轮椅助力器等服务；航站楼及出租车点安排志愿者帮扶特殊旅客，客服热线全天候接受爱心服务预约。
 
-会谈后，日元一度拉升近100点至156.75，但美元迅速收复失地最新报1美元兑157.72。
-
-野村证券外汇策略师Yujiro Goto指出，片山皋月的表态并未释放出支持进一步干预的明确信号，未能推动日元走强。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 19:50 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 19:37 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 19:30 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 19:45 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 19:27 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 19:53 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 19:26 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 19:28 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 19:26 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 19:35 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 19:58 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 19:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 19:46 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 19:39 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 19:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 19:38 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 19:57 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 19:32 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 19:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 19:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 19:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 19:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 19:45 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/68931684905.shtml)
-- 2026-06-29 19:32 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/00163.shtml)
-- 2026-06-29 19:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/854112226249.shtml)
-- 2026-06-29 19:24 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/30576906949.shtml)
-- 2026-06-29 19:28 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/0195489172.shtml)
-- 2026-06-29 19:33 - [逃狱兄弟](http://www.share.minike.top/Article/details/93831232.shtml)
-- 2026-06-29 19:38 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/778611.shtml)
-- 2026-06-29 19:29 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/073387008.shtml)
-- 2026-06-29 19:29 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/01087425.shtml)
-- 2026-06-29 19:49 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/027946.shtml)
-- 2026-06-29 19:30 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/09263409427.shtml)
-- 2026-06-29 19:36 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/603817.shtml)
-- 2026-06-29 19:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/435371.shtml)
-- 2026-06-29 19:26 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/34327115.shtml)
-- 2026-06-29 19:30 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/010218.shtml)
+- 2026-06-29 19:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/536070.shtml)
+- 2026-06-29 19:52 - [韩国小学生都来吐槽了](http://www.blog.minike.top/Article/details/87410391022.shtml)
+- 2026-06-29 19:52 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/23581907248.shtml)
+- 2026-06-29 19:40 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/81104.shtml)
+- 2026-06-29 19:57 - [V8](http://www.share.minike.top/Article/details/146323564.shtml)
+- 2026-06-29 19:34 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/49089847203.shtml)
+- 2026-06-29 19:48 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/22953838569.shtml)
+- 2026-06-29 19:36 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/0290020279.shtml)
+- 2026-06-29 19:58 - [极限挑战第一季](https://www.blog.minike.top/Article/details/28304382871.shtml)
+- 2026-06-29 19:42 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/97987071989.shtml)
+- 2026-06-29 19:33 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/29402831502.shtml)
+- 2026-06-29 19:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/5848948.shtml)
+- 2026-06-29 19:58 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/6219830014.shtml)
+- 2026-06-29 19:47 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/266972122739.shtml)
+- 2026-06-29 19:42 - [明星大侦探第一季](https://www.share.minike.top/Article/details/197139833573.shtml)

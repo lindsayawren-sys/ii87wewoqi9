@@ -1,49 +1,55 @@
-# 学习时节｜人民至上、生命至上，牢记总书记“时时放心不下”的嘱托
+# 黄河流域今年汛期预计旱涝并重
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。 习近平总书记对防灾减灾工作“时时放心不下”，多次在不同场合发表重要讲话、作出重要指示批示，多次深入灾区考察，始终坚持把人民群众的生命安全放在第一位。 值此全国防灾减灾日之际，让我们一起学习习近平总书记关于防灾减灾救灾工作的重要论述，牢记总书记“时时放心不下”的嘱托。 (南方网·粤
+中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。 据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。降水集中时段出现在7月中旬中期、7月下
 
 ## 正文
 
-今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。
+中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。
 
-习近平总书记对防灾减灾工作“时时放心不下”，多次在不同场合发表重要讲话、作出重要指示批示，多次深入灾区考察，始终坚持把人民群众的生命安全放在第一位。
+据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。
 
-值此全国防灾减灾日之际，让我们一起学习习近平总书记关于防灾减灾救灾工作的重要论述，牢记总书记“时时放心不下”的嘱托。
+降水集中时段出现在7月中旬中期、7月下旬中后期至8月上旬前期、8月中旬中后期。
 
-(南方网·粤学习)
+流域大部气温偏高，其中黄河中游南部、下游地区高温日数偏多明显。
+
+黄委方面称，今年汛期黄河流域需密切注意防范区域性、阶段性强降水及其引发的中小河流洪水风险；要紧盯局地强对流天气，做好城市内涝、山洪、地质灾害等次生灾害应对；要防范台风暴雨灾害对流域中下游地区的不利影响；要关注中下游地区高温天气影响，警惕可能出现的区域性、阶段性干旱风险。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 19:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 19:38 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 19:50 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 19:29 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 19:41 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 19:43 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 19:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 19:50 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 19:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 19:34 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 19:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 19:30 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 19:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 19:47 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 19:50 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 19:42 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 19:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 19:39 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 19:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 19:46 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 19:56 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 19:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 19:32 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/97073769.shtml)
-- 2026-06-29 19:41 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/27894.shtml)
-- 2026-06-29 19:52 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/462220.shtml)
-- 2026-06-29 19:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/727468911911.shtml)
-- 2026-06-29 19:45 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/18324.shtml)
-- 2026-06-29 19:43 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/054816638.shtml)
-- 2026-06-29 19:51 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/890891799530.shtml)
-- 2026-06-29 19:34 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/95550.shtml)
-- 2026-06-29 19:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/6693840343.shtml)
-- 2026-06-29 19:52 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/21699.shtml)
-- 2026-06-29 19:51 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/659945895576.shtml)
-- 2026-06-29 19:38 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/5356426.shtml)
-- 2026-06-29 19:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/93181.shtml)
-- 2026-06-29 19:47 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/067042102.shtml)
-- 2026-06-29 19:52 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3486497.shtml)
+- 2026-06-29 19:47 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/7376648063.shtml)
+- 2026-06-29 19:35 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/64764405.shtml)
+- 2026-06-29 19:54 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/665974621639.shtml)
+- 2026-06-29 19:35 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/02032.shtml)
+- 2026-06-29 19:34 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/2811238046.shtml)
+- 2026-06-29 19:42 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/546834316382.shtml)
+- 2026-06-29 19:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/31587465117.shtml)
+- 2026-06-29 19:44 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/6505237.shtml)
+- 2026-06-29 19:30 - [千与千寻](http://www.share.kurohicncr.top/Article/details/4365997.shtml)
+- 2026-06-29 19:35 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/988490596.shtml)
+- 2026-06-29 19:51 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/17125.shtml)
+- 2026-06-29 19:37 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/42677607119.shtml)
+- 2026-06-29 19:42 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/96379619.shtml)
+- 2026-06-29 19:34 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/87731728.shtml)
+- 2026-06-29 19:54 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/597581331.shtml)

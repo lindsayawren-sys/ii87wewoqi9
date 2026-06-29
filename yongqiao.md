@@ -1,59 +1,61 @@
-# 生成式人工智能挑战传统商业模式，印度IT板块指数跌至三年来新低
+# 杨德龙：美联储继续维持利率不变 鲍威尔呼吁保持货币政策独立性
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-5月12日，受人工智能（AI）技术快速演进及行业龙头业绩低迷等多重因素影响，印度IT板块遭遇重挫。蓝筹股指数Nifty IT收盘下跌3.6%，触及2023年5月以来最低水平，领跌印度大盘。 此次行业震荡的核心诱因在于全球AI领军企业对传统IT外包模式的直接冲击。OpenAI近日宣布成立一家注资超过40亿美元的新公司，计划通过派遣工程师直接进驻企业客户的方式，深度挖掘AI应用潜力
+北京时间4月30日凌晨2点，美联储宣布将基准利率维持在3.5%-3.75%不变，连续三次会议按兵不动，符合市场预期。这也是美联储主席鲍威尔在任期结束前的最后一次新闻发布会。5月15日鲍威尔任期结束，他可能继续担任美联储理事。特朗普新提名的继任者为沃什，沃什上任后可能采取“缩表+降息”的组合拳。鲍威尔首先祝贺沃什获得参议院银行委员会表决通过，他评价沃什拥有驱动共识的能力，并表示相
 
 ## 正文
 
-5月12日，受人工智能（AI）技术快速演进及行业龙头业绩低迷等多重因素影响，印度IT板块遭遇重挫。
+北京时间4月30日凌晨2点，美联储宣布将基准利率维持在3.5%-3.75%不变，连续三次会议按兵不动，符合市场预期。
 
-蓝筹股指数Nifty IT收盘下跌3.6%，触及2023年5月以来最低水平，领跌印度大盘。
+这也是美联储主席鲍威尔在任期结束前的最后一次新闻发布会。
 
-此次行业震荡的核心诱因在于全球AI领军企业对传统IT外包模式的直接冲击。
+5月15日鲍威尔任期结束，他可能继续担任美联储理事。
 
-OpenAI近日宣布成立一家注资超过40亿美元的新公司，计划通过派遣工程师直接进驻企业客户的方式，深度挖掘AI应用潜力。
+特朗普新提名的继任者为沃什，沃什上任后可能采取“缩表+降息”的组合拳。
 
-此举被视为对印度IT企业“离岸外包”模式的颠覆性挑战。
+鲍威尔首先祝贺沃什获得参议院银行委员会表决通过，他评价沃什拥有驱动共识的能力，并表示相信这将是一次标准、正常的人事更迭。
 
-此前，Anthropic公司推出的Claude Code已在今年年初引发市场恐慌，加剧了投资者对生成式AI取代传统软件开发及专业服务需求的担忧。
+他特别提到，相信沃什会勇敢面对来自白宫的降息压力，维护美联储与财政部之间的边界，即保持美联储货币政策的独立性。
 
-行业标杆企业的疲软业绩进一步打击了市场信心。
+鲍威尔发出严厉警告，称美联储的独立性正受到威胁。
 
-汇丰银行（HSBC）在周二发布的报告中指出，印度一线IT企业今年一季度的经营数据及全年业绩展望均不及预期。
+他强调，如果货币政策受到政治干预，市场将丧失对通胀目标的信心，这对美国经济将是灾难性的。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 19:37 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 19:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 19:43 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 19:25 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 19:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 19:39 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 19:52 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 19:37 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 19:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 19:42 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 19:52 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 19:31 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 19:58 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 19:49 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 19:46 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 19:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 19:53 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 19:57 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 19:40 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 19:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 19:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 19:52 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 19:49 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 19:42 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 19:55 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 19:59 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 19:59 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.share.minike.top/Article/details/0034904084.shtml)
-- 2026-06-29 19:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/37079314223.shtml)
-- 2026-06-29 19:26 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/69998.shtml)
-- 2026-06-29 19:45 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/825572.shtml)
-- 2026-06-29 19:38 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/628225831.shtml)
-- 2026-06-29 19:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/4844360487.shtml)
-- 2026-06-29 19:42 - [绘画区你赢了](https://www.blog.minike.top/Article/details/028316.shtml)
-- 2026-06-29 19:31 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/473973362116.shtml)
-- 2026-06-29 19:47 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/7199247.shtml)
-- 2026-06-29 19:41 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/6779160260.shtml)
-- 2026-06-29 19:35 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/87242.shtml)
-- 2026-06-29 19:27 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/63369251.shtml)
-- 2026-06-29 19:26 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/0978519.shtml)
-- 2026-06-29 19:32 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/40016807731.shtml)
-- 2026-06-29 19:52 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/74029.shtml)
+- 2026-06-29 19:59 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/610398671663.shtml)
+- 2026-06-29 19:41 - [新官上任三把火](https://www.blog.minike.top/Article/details/9058728.shtml)
+- 2026-06-29 19:48 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/123382.shtml)
+- 2026-06-29 19:50 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/609674957.shtml)
+- 2026-06-29 19:43 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/960779090.shtml)
+- 2026-06-29 19:41 - [小娘惹](https://www.share.minike.top/Article/details/14240983640.shtml)
+- 2026-06-29 19:54 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/933277078.shtml)
+- 2026-06-29 19:59 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/4402285.shtml)
+- 2026-06-29 19:33 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/8052481901.shtml)
+- 2026-06-29 19:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/132860767.shtml)
+- 2026-06-29 19:58 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/9766430.shtml)
+- 2026-06-29 19:31 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/660260032007.shtml)
+- 2026-06-29 19:50 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/73038034303.shtml)
+- 2026-06-29 19:34 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/9558856.shtml)
+- 2026-06-29 19:46 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/354429.shtml)

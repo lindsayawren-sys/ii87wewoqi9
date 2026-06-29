@@ -1,55 +1,59 @@
-# 贵阳银行：有条件时可以进行中期利润分配
+# 外交部：日本“新型军国主义”成势为患，已对世界的和平稳定构成现实威胁
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。2025年度现金分红较上年度增加 3656.20 万元。本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经
+【环球时报-环球网报道 记者 索炎琦】外交部发言人林剑主持4月30日例行记者会。会上环球时报-环球网记者提问：据报道，日本已敲定修改自卫队“官阶”名称的方案，并计划于年内向国会提交相关修订草案。新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。报道还声称，日本政府高官评价此举旨在“营造具有荣誉感的工作环境”，以吸引和留住人才。发言人对此有何评论？ 林剑在回应环球时报
 
 ## 正文
 
-5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。
+【环球时报-环球网报道 记者 索炎琦】外交部发言人林剑主持4月30日例行记者会。
 
-在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。
+会上环球时报-环球网记者提问：据报道，日本已敲定修改自卫队“官阶”名称的方案，并计划于年内向国会提交相关修订草案。
 
-2025年度现金分红较上年度增加 3656.20 万元。
+新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。
 
-本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经营情况，平衡业务稳健发展与投资者长期回报，保持持续、稳定、合理的现金分红，及时与投资者分享经营成果，增强投资者获得感。
+报道还声称，日本政府高官评价此举旨在“营造具有荣誉感的工作环境”，以吸引和留住人才。
 
-关于中期分红，该行表示，本行牢固树立回报投资者意识，已制定新三年股东回报规划，未来将按照监管要求和导向，平衡业务稳健发展与投资者长期回报，在符合利润分配原则、保证公司正常经营和持续发展的前提下，有条件时可以进行中期利润分配，及时与投资者分享经营成果。
+发言人对此有何评论？
 
-责任编辑：李琳琳
+林剑在回应环球时报-环球网记者提问时表示，二战结束后，日本作为战败国，军队被解散，军事机构被撤销。
+
+1954年日本自卫队成立时，废弃了旧军队中的称谓，采用数字序列衔级名称等新制度。
+
+日本国内普遍认为，自卫队采用去军事化的名称，意在切断与旧军队的历史联系，体现“和平宪法”的精神。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 19:39 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 19:52 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 19:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 19:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 19:31 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 19:27 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 19:35 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 19:50 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 19:53 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 19:32 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 19:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 19:34 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 19:47 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-29 19:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 19:55 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 19:57 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 19:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 19:50 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 19:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 19:59 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 19:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 19:44 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 19:56 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 19:35 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 19:32 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/794069932826.shtml)
-- 2026-06-29 19:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/52868365949.shtml)
-- 2026-06-29 19:48 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/11515150.shtml)
-- 2026-06-29 19:46 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/945111461878.shtml)
-- 2026-06-29 19:30 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/011841228896.shtml)
-- 2026-06-29 19:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/103468278923.shtml)
-- 2026-06-29 19:43 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/7075999.shtml)
-- 2026-06-29 19:40 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/11689878468.shtml)
-- 2026-06-29 19:27 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/161942.shtml)
-- 2026-06-29 19:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/70983942.shtml)
-- 2026-06-29 19:47 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/891207.shtml)
-- 2026-06-29 19:33 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/232439.shtml)
-- 2026-06-29 19:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/424320304773.shtml)
-- 2026-06-29 19:28 - [女心理师](https://www.blog.minike.top/Article/details/008146.shtml)
-- 2026-06-29 19:35 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/459889.shtml)
+- 2026-06-29 19:31 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/82216.shtml)
+- 2026-06-29 19:40 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/532033977.shtml)
+- 2026-06-29 19:42 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/817850.shtml)
+- 2026-06-29 19:59 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/2313142.shtml)
+- 2026-06-29 19:43 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/909094171430.shtml)
+- 2026-06-29 19:36 - [存储三巨头被告了](http://www.share.minike.top/Article/details/36642799490.shtml)
+- 2026-06-29 19:56 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/9812994.shtml)
+- 2026-06-29 19:45 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/349631014205.shtml)
+- 2026-06-29 19:32 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/362028.shtml)
+- 2026-06-29 19:43 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/55698979178.shtml)
+- 2026-06-29 19:38 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/97228.shtml)
+- 2026-06-29 19:38 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/7832994281.shtml)
+- 2026-06-29 19:41 - [绘画区你赢了](https://www.blog.minike.top/Article/details/1020754621.shtml)
+- 2026-06-29 19:54 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/61827666.shtml)
+- 2026-06-29 19:42 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/44792.shtml)

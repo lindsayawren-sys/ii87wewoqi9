@@ -1,58 +1,51 @@
-# 美国联合航空将恢复飞往委内瑞拉的航线航班
+# 瑞银：中国石油化工股份目标价降至7.1港元 维持“买入”评级
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-联合航空将重启飞往委内瑞拉的航班服务。这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。 联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。 就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。此举也被视作特朗普政府快速推
+瑞银发布研报称，中国石油化工股份（00386）首季收入同比下降3.9%至7，067亿元人民币（下同）；净利润同比增长28%至170亿元，符合该行预期，主要受惠于录得约86亿元的原油库存收益，对比去年同期为库存损失2.4亿元。维持“买入”评级，目标价由7.8港元下调至7.1港元。 展望第二季，由于原油成本上升，该行预计炼油及化工业务将面临重大压力。基于对未来炼油和化工业务的忧虑，
 
 ## 正文
 
-联合航空将重启飞往委内瑞拉的航班服务。
+瑞银发布研报称，中国石油化工股份（00386）首季收入同比下降3.9%至7，067亿元人民币（下同）；净利润同比增长28%至170亿元，符合该行预期，主要受惠于录得约86亿元的原油库存收益，对比去年同期为库存损失2.4亿元。
 
-这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。
+维持“买入”评级，目标价由7.8港元下调至7.1港元。
 
-联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。
+展望第二季，由于原油成本上升，该行预计炼油及化工业务将面临重大压力。
 
-就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。
+基于对未来炼油和化工业务的忧虑，该行将2026年盈利预测下调18%。
 
-此举也被视作特朗普政府快速推动与委内瑞拉关系正常化最直观的标志性事件。
-
-此前报道称，特朗普政府已推出一套特殊安排：一方面吸引美国投资者赴委内瑞拉投资，另一方面进一步巩固两国政府间关系。
-
-美国交通部长表示，联合航空新开这条航线，标志着美委两国关系再获新进展。
-
-他称：“随着美国与委内瑞拉合作扩大石油产能、创造新的经济机遇，这条航线对于运送石油行业从业人员赴委工作至关重要。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 19:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 19:48 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 19:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 19:37 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 19:52 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 19:29 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 19:34 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 19:41 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 19:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 19:38 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 19:36 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 19:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 19:36 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 19:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 19:50 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 19:43 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 19:41 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 19:49 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 19:40 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 19:48 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 19:42 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 19:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [扬名立万](https://www.share.minike.top/Article/details/787023979535.shtml)
-- 2026-06-29 19:45 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/8780024.shtml)
-- 2026-06-29 19:38 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/8906851.shtml)
-- 2026-06-29 19:47 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/7881994445.shtml)
-- 2026-06-29 19:25 - [《贺子珍》](http://www.share.minike.top/Article/details/50393172966.shtml)
-- 2026-06-29 19:26 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/69935295275.shtml)
-- 2026-06-29 19:39 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/96298.shtml)
-- 2026-06-29 19:25 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/9990799404.shtml)
-- 2026-06-29 19:43 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/77384728.shtml)
-- 2026-06-29 19:51 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/79654112.shtml)
-- 2026-06-29 19:53 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/15569941744.shtml)
-- 2026-06-29 19:29 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/00324891.shtml)
-- 2026-06-29 19:32 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/078114.shtml)
-- 2026-06-29 19:32 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/8207292.shtml)
-- 2026-06-29 19:46 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/137264.shtml)
+- 2026-06-29 19:42 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/20515011.shtml)
+- 2026-06-29 19:35 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/33936.shtml)
+- 2026-06-29 19:52 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/50493765.shtml)
+- 2026-06-29 19:45 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/548381427292.shtml)
+- 2026-06-29 19:56 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/20363555.shtml)
+- 2026-06-29 19:45 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/77979.shtml)
+- 2026-06-29 19:38 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/50568.shtml)
+- 2026-06-29 19:42 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/71748584.shtml)
+- 2026-06-29 19:58 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/40046614008.shtml)
+- 2026-06-29 19:30 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/5881800.shtml)
+- 2026-06-29 19:48 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/044574.shtml)
+- 2026-06-29 19:56 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/3891428162.shtml)
+- 2026-06-29 19:56 - [7款高价创新药有望降价](https://www.share.minike.top/Article/details/669316922357.shtml)
+- 2026-06-29 19:59 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/3031088089.shtml)
+- 2026-06-29 19:53 - [请回答王牌2019](http://www.blog.minike.top/Article/details/131053597.shtml)

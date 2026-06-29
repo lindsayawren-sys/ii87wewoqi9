@@ -1,61 +1,58 @@
-# 水口海关关于开展2026年5月份“关长接待日”的公告
+# 华泰柏瑞基金获天相投顾主动股混三年期AAAAA评级 主动权益规模季度增长超百亿
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就水口海关2026年5月份关长接待日有关事项预告如下： 一、接待时间：2026年5月26日(星期二上午上班时间)。 二、当值领导：水口海关党委委员、副关长王艳辉。 三、接待地点：水口海关办公楼308室。四、有关要求： (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或
+以“指数大厂”闻名的华泰柏瑞基金，在主动权益领域同样交出硬核成绩单。公司荣获天相投顾主动股混三年期AAAAA评级；权益类基金近五年绝对收益在国泰海通排名中位居行业前列（28/139），投研实力获专业机构认可1。 单只产品方面，华泰柏瑞旗下将近1/4的主动权益产品近三年回报均位于晨星同类前10%，同时斩获国泰海通三年期★★★★★与天相投顾三年期AAAAA评级2。 靓丽业绩同时受到
 
 ## 正文
 
-为了解社会各界的建议和意见，并切实解决实际问题和困难，现就水口海关2026年5月份关长接待日有关事项预告如下： 一、接待时间：2026年5月26日(星期二上午上班时间)。
+以“指数大厂”闻名的华泰柏瑞基金，在主动权益领域同样交出硬核成绩单。
 
-二、当值领导：水口海关党委委员、副关长王艳辉。
+公司荣获天相投顾主动股混三年期AAAAA评级；权益类基金近五年绝对收益在国泰海通排名中位居行业前列（28/139），投研实力获专业机构认可1。
 
-三、接待地点：水口海关办公楼308室。
+单只产品方面，华泰柏瑞旗下将近1/4的主动权益产品近三年回报均位于晨星同类前10%，同时斩获国泰海通三年期★★★★★与天相投顾三年期AAAAA评级2。
 
-四、有关要求： (一)为做好接待安排工作，请来访者提前预约，预约的主要内容包括： 1.来访者的姓名、人数、单位、联系电话或其他联系方式、身份证号码； 2.来访目的，如反映问题、咨询业务、提供工作建议等； 3.其他需要预约的事项。
+靓丽业绩同时受到市场关注。
 
-(二)来访者可通过拨打电话(0771-8858085)告知有关预约信息，或填写《水口海关关领导接待日预约表》(详见附件)发送至水口海关邮箱(skhg8813350@163.com)进行预约。
+最新数据显示，截至2026年一季度末，公司主动权益产品总规模达394.84亿元，季度增长超百亿，增幅近34%，成为同期全市场仅三家实现这一增长幅度的基金公司之一。
 
-(注：若您选择电子邮箱发送，务必请您在发送邮件后拨打电话与我们确认您的邮件是否发送成功。
+规模增长的背后，是公司长期的投研积淀：既有底仓型、致力穿越周期的长跑健将，也有聚焦AI、科技、出海等前沿赛道的特色选手，人才梯队完善、产品布局多元3。
 
-)预约截止时间：2026年5月21日18:00前。
+副总经理董辰是“马拉松型选手”的代表——他独立管理满三年的产品均位列晨星同类前10%，满五年的均位列前2%，其中管理时间最长的华泰柏瑞富利混合A连续五个完整年度取得正收益（相关基金不保本，投资相关基金有本金亏损的风险），展现出穿越市场波动的底仓价值。
 
-(三)我关将根据实际情况采取线上或线下的方式开展“关领导接待日”，具体形式将提前通知预约人员。
+深度价值风格的杨景涵、拥有十六年投资经验的吕慧建，也分别在各自管理产品上交出近三年同类前10%的长期业绩，成为公司权益资产中稳健的压舱石4。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 19:51 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-29 19:44 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 19:37 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 19:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 19:48 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 19:31 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 19:44 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 19:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 19:33 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 19:33 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 19:30 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 19:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 19:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 19:33 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 19:40 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 19:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 19:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 19:41 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 19:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 19:54 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 19:47 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 19:37 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 19:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 19:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 19:44 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 19:57 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:40 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/663985955630.shtml)
-- 2026-06-29 19:36 - [叠纸](http://www.share.minike.top/Article/details/655885792.shtml)
-- 2026-06-29 19:24 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/000650908757.shtml)
-- 2026-06-29 19:51 - [一生一世](https://www.share.kurohicncr.top/Article/details/927800.shtml)
-- 2026-06-29 19:44 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/75187865812.shtml)
-- 2026-06-29 19:41 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/097553.shtml)
-- 2026-06-29 19:44 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.minike.top/Article/details/76874847287.shtml)
-- 2026-06-29 19:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/8152697.shtml)
-- 2026-06-29 19:41 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/3273262.shtml)
-- 2026-06-29 19:24 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/300007227.shtml)
-- 2026-06-29 19:45 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/328782656.shtml)
-- 2026-06-29 19:47 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/4555282558.shtml)
-- 2026-06-29 19:26 - [C罗10球7球对垫底队](https://www.share.minike.top/Article/details/8784731.shtml)
-- 2026-06-29 19:36 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/37248521669.shtml)
-- 2026-06-29 19:54 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/986636803.shtml)
+- 2026-06-29 19:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/232170135942.shtml)
+- 2026-06-29 19:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/531455063802.shtml)
+- 2026-06-29 19:58 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/164637.shtml)
+- 2026-06-29 19:41 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/118691423.shtml)
+- 2026-06-29 19:45 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/2920225812.shtml)
+- 2026-06-29 19:56 - [天道](https://www.share.minike.top/Article/details/894442.shtml)
+- 2026-06-29 19:33 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/8613729.shtml)
+- 2026-06-29 19:33 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/169026.shtml)
+- 2026-06-29 19:31 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/14396.shtml)
+- 2026-06-29 19:40 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/8673781765.shtml)
+- 2026-06-29 19:44 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/915820793239.shtml)
+- 2026-06-29 19:46 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/36202884143.shtml)
+- 2026-06-29 19:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/9818585.shtml)
+- 2026-06-29 19:51 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/2142852434.shtml)
+- 2026-06-29 19:30 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/68525662.shtml)

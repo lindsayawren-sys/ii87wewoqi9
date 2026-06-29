@@ -1,57 +1,51 @@
-# 宁波银行三名副行长的任职资格获监管核准
+# 2026年一季度国内居民出游超19亿人次 同比增长6.0%
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-5月12日金融一线消息，宁波金融监管局发布批复，核准胡海东、陆海英、俞罡宁波银行股份有限公司副行长的任职资格。 公开资料显示，胡海东1988年1月出生，硕士研究生学历。现任宁波银行总行财务会计部总经理。胡海东先生2011年7月加入宁波银行，历任北仑支行行长助理、副行长、行长，嘉兴分行行长，总行财务会计部副总经理（主持工作）、总经理。 陆海英1982年9月出生，硕士研究生学历。现
+根据国内居民出游抽样调查统计结果，2026年一季度，国内居民出游人次19.01亿，比上年同期增加1.07亿，同比增长6.0%。其中，城镇居民国内出游人次14.03亿，同比增长6.5%；农村居民国内出游人次4.98亿，同比增长4.6%。国内居民出游总花费1.86万亿元，比上年同期增加0.05万亿元，同比增长2.9%。其中，城镇居民出游花费1.53万亿元，同比增长3.5%；农村居民
 
 ## 正文
 
-5月12日金融一线消息，宁波金融监管局发布批复，核准胡海东、陆海英、俞罡宁波银行股份有限公司副行长的任职资格。
+根据国内居民出游抽样调查统计结果，2026年一季度，国内居民出游人次19.01亿，比上年同期增加1.07亿，同比增长6.0%。
 
-公开资料显示，胡海东1988年1月出生，硕士研究生学历。
+其中，城镇居民国内出游人次14.03亿，同比增长6.5%；农村居民国内出游人次4.98亿，同比增长4.6%。
 
-现任宁波银行总行财务会计部总经理。
+国内居民出游总花费1.86万亿元，比上年同期增加0.05万亿元，同比增长2.9%。
 
-胡海东先生2011年7月加入宁波银行，历任北仑支行行长助理、副行长、行长，嘉兴分行行长，总行财务会计部副总经理（主持工作）、总经理。
+其中，城镇居民出游花费1.53万亿元，同比增长3.5%；农村居民出游花费0.32万亿元，同比增长0.4%。
 
-陆海英1982年9月出生，硕士研究生学历。
-
-现任宁波银行总行公司银行总部总经理、机构业务部总经理。
-
-陆海英女士2005年7月加入宁波银行，历任总行公司银行部综合管理部高级经理、市场营销部高级经理、部门总经理助理、副总经理，总行机构业务部副总经理（主持工作）、总经理，总行公司平台经营部总经理。
-
-俞罡1977年2月出生，硕士研究生学历，高级经济师。
+(总台央视记者 曹岩 李晶晶)
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 19:33 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:44 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 19:46 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 19:31 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 19:37 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 19:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 19:28 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 19:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-29 19:52 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 19:24 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-29 19:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 19:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 19:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 19:35 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 19:34 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 19:57 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-29 19:40 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 19:58 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 19:36 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 19:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/87734.shtml)
-- 2026-06-29 19:24 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/99234215.shtml)
-- 2026-06-29 19:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.minike.top/Article/details/6609877.shtml)
-- 2026-06-29 19:41 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/280052.shtml)
-- 2026-06-29 19:38 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/514135349270.shtml)
-- 2026-06-29 19:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/0328691445.shtml)
-- 2026-06-29 19:28 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/08348226386.shtml)
-- 2026-06-29 19:37 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/8785123.shtml)
-- 2026-06-29 19:39 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/75836960026.shtml)
-- 2026-06-29 19:25 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/06139087673.shtml)
-- 2026-06-29 19:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/364524057.shtml)
-- 2026-06-29 19:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/050652200067.shtml)
-- 2026-06-29 19:36 - [T1零封KC MSI](https://www.share.minike.top/Article/details/190149419033.shtml)
-- 2026-06-29 19:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/5506422268.shtml)
-- 2026-06-29 19:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/8795353.shtml)
+- 2026-06-29 19:30 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/18663.shtml)
+- 2026-06-29 19:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/518185.shtml)
+- 2026-06-29 19:50 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/8229657266.shtml)
+- 2026-06-29 19:53 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/593445.shtml)
+- 2026-06-29 19:50 - [我和我的家乡](http://www.share.minike.top/Article/details/9853692.shtml)
+- 2026-06-29 19:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/50076.shtml)
+- 2026-06-29 19:44 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/0151363.shtml)
+- 2026-06-29 19:34 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/889784.shtml)
+- 2026-06-29 19:52 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/34811.shtml)
+- 2026-06-29 19:51 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/113662.shtml)
+- 2026-06-29 19:50 - [起风了](https://www.blog.kurohicncr.top/Article/details/9956383760.shtml)
+- 2026-06-29 19:49 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/6831336040.shtml)
+- 2026-06-29 19:30 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/1346987.shtml)
+- 2026-06-29 19:56 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/3904454293.shtml)
+- 2026-06-29 19:49 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/976175.shtml)

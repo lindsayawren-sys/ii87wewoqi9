@@ -1,61 +1,57 @@
-# 哈尔滨太平海事处实战练兵筑牢水上安全屏障
+# 浙江省欧美同学会工作座谈交流会在杭州召开
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月11日电 (吴迪)5月11日，在第18个全国防灾减灾日即将来临之际，哈尔滨太平海事处联合哈尔滨兴龙旅游客渡服务有限公司成功开展水上综合应急演练。旨在切实强化辖区航运企业应对突发事件的快速响应与协同处置水平。 本次综合演练紧扣水上安全风险防控重点，设置船舶碰撞、船舶消防、人员落水施救、船舶溢油、进水堵漏五大实战科目。为确保演练精准高效，哈尔滨太平海事处提前牵头策划
+全省欧美同学会工作座谈交流会在杭州召开 4月29日，全省欧美同学会工作座谈交流会在杭州市滨江区召开，传达学习习近平总书记对“义乌发展经验”的重要指示精神，总结交流工作做法，部署推进年度任务。省委统战部副部长，省社会主义学院党组书记余杰出席会议并讲话。省欧美同学会常务副会长吴伟，各市欧美同学会秘书长，省属团体会员负责人，部分市、县(市、区)、高校统战部有关负责人参加会议。 会上，
 
 ## 正文
 
-中新网哈尔滨5月11日电 (吴迪)5月11日，在第18个全国防灾减灾日即将来临之际，哈尔滨太平海事处联合哈尔滨兴龙旅游客渡服务有限公司成功开展水上综合应急演练。
+全省欧美同学会工作座谈交流会在杭州召开 4月29日，全省欧美同学会工作座谈交流会在杭州市滨江区召开，传达学习习近平总书记对“义乌发展经验”的重要指示精神，总结交流工作做法，部署推进年度任务。
 
-旨在切实强化辖区航运企业应对突发事件的快速响应与协同处置水平。
+省委统战部副部长，省社会主义学院党组书记余杰出席会议并讲话。
 
-本次综合演练紧扣水上安全风险防控重点，设置船舶碰撞、船舶消防、人员落水施救、船舶溢油、进水堵漏五大实战科目。
+省欧美同学会常务副会长吴伟，各市欧美同学会秘书长，省属团体会员负责人，部分市、县(市、区)、高校统战部有关负责人参加会议。
 
-为确保演练精准高效，哈尔滨太平海事处提前牵头策划设计演练方案，组织开展桌面推演，并对参演单位进行专项指导。
+会上，吴伟常务副会长领学习近平总书记对“义乌发展经验”的重要指示精神，并结合自身工作分享了心得体会；部分欧美同学会组织作了交流发言。
 
-演练现场模拟两艘客轮航行中突发碰撞，造成其中一艘客轮船体受损、船艉起火并泄漏少许燃油，1名旅客因受惊意外落水，情况紧急需立即营救。
+会议强调，各级欧美同学会组织要把学习贯彻习近平总书记重要指示精神，与做好全年欧美同学会各项工作结合起来，从“义乌发展经验”中汲取智慧，切实把学习成果转化为实干之效。
 
-险情发生后，船方第一时间启动应急预案，参演船员严格按照应变部署，迅速、有序完成应急避险决策、碰撞损害评估与报告、初期火灾扑救、落水人员搜救、乘客安抚与转移准备等全流程应急处置操作，整个过程反应迅速、分工明确、衔接顺畅。
+要深刻领会和把握欧美同学会组织的性质定位，勇担“留学报国人才库、建言献策智囊团、民间外交生力军”的使命任务，持续扩大组织覆盖和工作覆盖范围，完善运行机制，丰富会员活动，推动各级组织更好自转、公转、联转，团结和引导广大留学人员充分发挥独特优势作用，为全省高质量发展大局作出新的贡献。
 
-为保障演练安全有序推进，哈尔滨太平海事处派出2艘海巡艇、6名执法人员全程开展现场监督与指导，同步对相关水域实施临时交通管制和安全警戒。
-
-经过多方协同联动，演练中模拟的明火被快速扑灭，溢油得到及时清理，落水人员成功获救，事故船舶安全拖带至客运码头停泊，全程未造成模拟人员损伤，圆满完成各项预设科目。
+会前，与会人员一同参访了矽力杰半导体技术(杭州)有限公司、中南集团、白马湖实验室，并与海归科研人员、创业者现场交流。
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 19:46 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 19:53 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 19:26 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 19:44 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 19:49 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 19:42 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 19:47 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 19:27 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 19:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 19:28 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 19:49 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 19:32 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 19:27 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 19:43 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 19:31 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 19:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 19:34 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 19:35 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 19:58 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 19:30 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 19:38 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 19:32 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 19:52 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 19:54 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 19:55 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 19:54 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 19:47 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/1557116989.shtml)
-- 2026-06-29 19:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/32104.shtml)
-- 2026-06-29 19:48 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/345188844643.shtml)
-- 2026-06-29 19:51 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/21550155.shtml)
-- 2026-06-29 19:51 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/5468827.shtml)
-- 2026-06-29 19:48 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/767798.shtml)
-- 2026-06-29 19:31 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/750273630639.shtml)
-- 2026-06-29 19:30 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/762518473.shtml)
-- 2026-06-29 19:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/98058136.shtml)
-- 2026-06-29 19:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/33397423028.shtml)
-- 2026-06-29 19:51 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/437345.shtml)
-- 2026-06-29 19:32 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.kurohicncr.top/Article/details/702510443983.shtml)
-- 2026-06-29 19:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/38135631790.shtml)
-- 2026-06-29 19:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/78034.shtml)
-- 2026-06-29 19:47 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/015855461.shtml)
+- 2026-06-29 19:58 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/844184061383.shtml)
+- 2026-06-29 19:36 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/197389.shtml)
+- 2026-06-29 19:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/66322559.shtml)
+- 2026-06-29 19:38 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/1641837211.shtml)
+- 2026-06-29 19:55 - [绘画区你赢了](http://www.blog.minike.top/Article/details/08448203547.shtml)
+- 2026-06-29 19:51 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/4875419.shtml)
+- 2026-06-29 19:57 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/4593459.shtml)
+- 2026-06-29 19:38 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/812515.shtml)
+- 2026-06-29 19:58 - [TTG KSG](http://www.share.minike.top/Article/details/38304298.shtml)
+- 2026-06-29 19:46 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/72749381.shtml)
+- 2026-06-29 19:46 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/0019286487.shtml)
+- 2026-06-29 19:34 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/1613948.shtml)
+- 2026-06-29 19:34 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/141331.shtml)
+- 2026-06-29 19:56 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/3932619.shtml)
+- 2026-06-29 19:48 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/919288769.shtml)

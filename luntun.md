@@ -1,57 +1,59 @@
-# 快手拟拆分可灵AI融资：200亿美元估值“阳谋”与资本大逃杀
+# 1800万存银行不到一年消失！银行员工伪造签名挂失补卡转移巨款炒股，银行回应：等司法结论
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-2026年5月，一则消息在资本市场上掀起了不小的波澜：快手科技正计划将其旗下视频生成大模型业务“可灵AI”（Kling）进行分拆独立，并以约200亿美元估值展开Pre-IPO轮融资，融资规模预计高达20亿美元，腾讯等资本方有望参与其中。 这是一条看似简单的资本运作新闻，但其背后涉及的市值逻辑、产业竞争、估值体系重构以及AI赛道的发展路径，却可谓一石激起千层浪。要知道，截至消息传
+来源：大象新闻 原标题：1800万存银行不到一年消失，银行员工伪造签名挂失补卡转移巨款炒股，事发后喝药轻生，储户称企业面临欠薪倒闭，银行：等司法结论 吉林省的陈冰向大象新闻·大象帮求助，半年前，她将1000万元现金存入吉林省扶余市的扶余惠民村镇银行，如今存款却离奇失踪。她的存款丢失不久后，涉事银行的储户王女士遇到了相似的情况，存在该行的800万存款去向不明。如今几个月过去了，两
 
 ## 正文
 
-2026年5月，一则消息在资本市场上掀起了不小的波澜：快手科技正计划将其旗下视频生成大模型业务“可灵AI”（Kling）进行分拆独立，并以约200亿美元估值展开Pre-IPO轮融资，融资规模预计高达20亿美元，腾讯等资本方有望参与其中。
+来源：大象新闻 原标题：1800万存银行不到一年消失，银行员工伪造签名挂失补卡转移巨款炒股，事发后喝药轻生，储户称企业面临欠薪倒闭，银行：等司法结论 吉林省的陈冰向大象新闻·大象帮求助，半年前，她将1000万元现金存入吉林省扶余市的扶余惠民村镇银行，如今存款却离奇失踪。
 
-这是一条看似简单的资本运作新闻，但其背后涉及的市值逻辑、产业竞争、估值体系重构以及AI赛道的发展路径，却可谓一石激起千层浪。
+她的存款丢失不久后，涉事银行的储户王女士遇到了相似的情况，存在该行的800万存款去向不明。
 
-要知道，截至消息传出时，快手在港股市场的整体市值尚不足290亿美元，而可灵AI这一块尚处于“烧钱”阶段、在母公司总营收中占比尚不足1%的新业务，其单主体估值竟然已逼近母公司总市值的70%。
+如今几个月过去了，两人这1800万存款何时能取出？
 
-消息传出后，快手股价应声高开近10%，报56.7港元。
+至今银行方面也没有一个回复。
 
-市场立即用脚投了票，但狂欢背后，这场“拆分之谜”却包含着更深层的故事。
+千万现金存银行后消失银行卡被人冒名挂失补办 “我卡里的1000万只剩下一万多了，我都蒙了。
 
-何谓拆分的真正动因？
+”陈冰告诉大象新闻记者，2025年10月28日，她在吉林省扶余市的扶余惠民村镇银行存入了1000万元，办理了七天通知存款储蓄业务。
 
-200亿美元的估值是泡沫还是新定价逻辑的序曲？
+该储蓄业务年利率为0.95%，支取时需提前通知银行。
 
-可灵的“单飞”又将如何重塑中国AI视频生成的竞争格局？
+一个月多后，陈冰计划使用这笔资金时，发现手机银行无法登录。
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 19:24 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 19:41 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 19:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 19:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 19:46 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 19:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 19:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 19:43 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 19:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 19:27 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 19:36 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 19:38 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 19:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 19:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 19:50 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 19:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 19:44 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 19:30 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 19:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 19:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 19:58 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 19:31 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/58695608.shtml)
-- 2026-06-29 19:34 - [AG 宫斗](http://www.blog.minike.top/Article/details/2844649.shtml)
-- 2026-06-29 19:32 - [一生一世](http://www.blog.kurohicncr.top/Article/details/29543709128.shtml)
-- 2026-06-29 19:53 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/9348174499.shtml)
-- 2026-06-29 19:51 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/6468610.shtml)
-- 2026-06-29 19:42 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/089528966045.shtml)
-- 2026-06-29 19:25 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/25726453156.shtml)
-- 2026-06-29 19:41 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/89634.shtml)
-- 2026-06-29 19:45 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/53107093698.shtml)
-- 2026-06-29 19:42 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/59695.shtml)
-- 2026-06-29 19:27 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/13631610877.shtml)
-- 2026-06-29 19:31 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/400991025.shtml)
-- 2026-06-29 19:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/06771079.shtml)
-- 2026-06-29 19:42 - [一生一世](https://www.share.kurohicncr.top/Article/details/57471753444.shtml)
-- 2026-06-29 19:38 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/82391400.shtml)
+- 2026-06-29 19:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/8124566994.shtml)
+- 2026-06-29 19:31 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/01011826.shtml)
+- 2026-06-29 19:43 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/42628.shtml)
+- 2026-06-29 19:43 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/74273819779.shtml)
+- 2026-06-29 19:58 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/610170.shtml)
+- 2026-06-29 19:48 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/56548112.shtml)
+- 2026-06-29 19:50 - [爱很美味](http://www.share.kurohicncr.top/Article/details/99818.shtml)
+- 2026-06-29 19:46 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/060323456.shtml)
+- 2026-06-29 19:46 - [TFING全员黑西装](http://www.share.minike.top/Article/details/426475982.shtml)
+- 2026-06-29 19:45 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/3301659032.shtml)
+- 2026-06-29 19:56 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/9761112009.shtml)
+- 2026-06-29 19:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/8125642823.shtml)
+- 2026-06-29 19:40 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/062434977.shtml)
+- 2026-06-29 19:33 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/485796316806.shtml)
+- 2026-06-29 19:34 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/1256579.shtml)

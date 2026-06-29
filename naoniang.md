@@ -1,59 +1,57 @@
-# 日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统
+# 拉萨首批24小时车驾管自助站正式投用
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-日本经济新闻周三报道称，日本三大银行最快将于5月底获得Anthropic公司开发的人工智能模型Mythos的使用权。报道称，三菱UFJ金融集团、三井住友金融集团 以及瑞穗金融集团的银行部门，很可能已在周二于日本举行的会议上，从美国财政部长斯科特·贝森特处获悉了这一消息。这将是日本企业首次获准使用Mythos。Mythos虽专为防御性网络安全任务设计，但其功能却引发了对传统软件安
+中新网拉萨4月30日电(谢牧)近日，拉萨市公安局交通管理支队车辆管理所在拉百便民警务站举行“智慧交管进万家·警种融合惠民生”拉萨市24小时车驾管自助服务站启动仪式。 近年来，拉萨市车驾管补换领业务办理量超6万笔，驾驶证补换领、期满换证等业务让市民常面临“路程远、耗时长”的难题。为破解这一痛点，拉萨交警按照公安部交管局、西藏自治区公安厅交管总队、拉萨市公安局党委统筹部署，深化公安
 
 ## 正文
 
-日本经济新闻周三报道称，日本三大银行最快将于5月底获得Anthropic公司开发的人工智能模型Mythos的使用权。
+中新网拉萨4月30日电(谢牧)近日，拉萨市公安局交通管理支队车辆管理所在拉百便民警务站举行“智慧交管进万家·警种融合惠民生”拉萨市24小时车驾管自助服务站启动仪式。
 
-报道称，三菱UFJ金融集团、三井住友金融集团 以及瑞穗金融集团的银行部门，很可能已在周二于日本举行的会议上，从美国财政部长斯科特·贝森特处获悉了这一消息。
+近年来，拉萨市车驾管补换领业务办理量超6万笔，驾驶证补换领、期满换证等业务让市民常面临“路程远、耗时长”的难题。
 
-这将是日本企业首次获准使用Mythos。
+为破解这一痛点，拉萨交警按照公安部交管局、西藏自治区公安厅交管总队、拉萨市公安局党委统筹部署，深化公安交管“放管服”改革，大力发展交管业务“自助办”工作模式，引进车驾管自助服务终端。
 
-Mythos虽专为防御性网络安全任务设计，但其功能却引发了对传统软件安全威胁的担忧。
+“以前去补办证件可能要浪费半天时间，有了这个自助设备在家门口就可以办证了，确实很方便。
 
-Anthropic公司表示，在预览测试中发现该系统存在诸多重大漏洞，这些漏洞影响着所有主流操作系统和网络浏览器。
+”拉萨市宇拓路的24小时车驾管自助服务站内市民罗布领到刚补办好的驾驶证后说道。
 
-周二，日本财务大臣片山皋月会见了贝森特，随后表示日本将于本周成立一个公私合作工作组，以应对Mythos给日本金融体系带来的网络安全风险。
+据介绍，24小时车驾管自助服务站特别安排了工作人员指导操作，即便是不熟悉设备操作也能在工作人员的耐心辅助下“零门槛”办结业务。
 
-该工作组的首场会议预计将于周四举行。
+拉萨市公安局古城分局拉百便民警务站站长罗斌说，“24小时车驾管自助服务站能在我们警务站落地，是推动警种资源融合的创新实践。
 
-责任编辑：王永生
+今后我们将严格落实各项管理工作，服务好所有来站办理车驾管业务的群众。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 19:47 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 19:42 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 19:47 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 19:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 19:31 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 19:53 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 19:34 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 19:24 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 19:37 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 19:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 19:31 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 19:47 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 19:57 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 19:56 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 19:51 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 19:37 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 19:34 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 19:39 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 19:37 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:37 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 19:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 19:51 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 19:40 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/814258.shtml)
-- 2026-06-29 19:45 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/720263362589.shtml)
-- 2026-06-29 19:45 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/41757991890.shtml)
-- 2026-06-29 19:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/804293443567.shtml)
-- 2026-06-29 19:53 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/52363.shtml)
-- 2026-06-29 19:53 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/87730188837.shtml)
-- 2026-06-29 19:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/621067.shtml)
-- 2026-06-29 19:46 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/96965.shtml)
-- 2026-06-29 19:36 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/03951.shtml)
-- 2026-06-29 19:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/9677838734.shtml)
-- 2026-06-29 19:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/665177558058.shtml)
-- 2026-06-29 19:40 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/15947826420.shtml)
-- 2026-06-29 19:42 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/132152887768.shtml)
-- 2026-06-29 19:46 - [请回答王牌2019](https://www.share.minike.top/Article/details/75764.shtml)
-- 2026-06-29 19:39 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/90573527.shtml)
+- 2026-06-29 19:42 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/95917121.shtml)
+- 2026-06-29 19:40 - [毒液2](http://www.blog.kurohicncr.top/Article/details/54039659145.shtml)
+- 2026-06-29 19:40 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/067401577.shtml)
+- 2026-06-29 19:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/6250406936.shtml)
+- 2026-06-29 19:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/12160792128.shtml)
+- 2026-06-29 19:42 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/514222430347.shtml)
+- 2026-06-29 19:44 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/9406578.shtml)
+- 2026-06-29 19:50 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/880865.shtml)
+- 2026-06-29 19:52 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/25092889.shtml)
+- 2026-06-29 19:48 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/96260403.shtml)
+- 2026-06-29 19:42 - [斗破苍穹](http://www.blog.minike.top/Article/details/95228092072.shtml)
+- 2026-06-29 19:46 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/367884517.shtml)
+- 2026-06-29 19:59 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/611755949254.shtml)
+- 2026-06-29 19:33 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/96635991422.shtml)
+- 2026-06-29 19:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/07092584294.shtml)

@@ -1,60 +1,55 @@
-# 方意股份闯关北交所：一家三口控股近八成，拟募资1.76亿，刹车片高毛利被追问 | 长三角资本局
+# 中俄界江黑龙江漠河段进入流冰期
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 一家盐城刹车片企业，正在北交所门口回答几道硬题。 5月11日，江苏方意摩擦材料股份有限公司更新北交所上市申请审核动态，公司已回复第一轮审核问询函。 方意股份成立于2010年11月，主营制动摩擦产品，主要产品为盘式刹车片和鼓式刹车蹄。公司产品线不窄，已自主研制制动摩擦材料配方80余种。 业绩上看，方意股份并不是一家大体量公司。2022年至2024年及20
+中新网漠河4月30日电(张瑞鹏 杨志旺)29日，中俄界江黑龙江漠河市北极镇江段进入流冰期。大小不一的冰块在江水的推动下浩浩荡荡顺流而下，相互碰撞发出轰鸣声，壮阔的“跑冰排”景象为即将到来的“五一”假期增添了“神州北极”独特的景观。 “同志您好，拍照时务必注意自身安全！”在漠河市北极村七星广场，大兴安岭边境管理支队北极边境派出所民警一边紧盯江面冰情变化，一边耐心提示靠近江边的游客
 
 ## 正文
 
-文|新浪财经上海站 十里 一家盐城刹车片企业，正在北交所门口回答几道硬题。
+中新网漠河4月30日电(张瑞鹏 杨志旺)29日，中俄界江黑龙江漠河市北极镇江段进入流冰期。
 
-5月11日，江苏方意摩擦材料股份有限公司更新北交所上市申请审核动态，公司已回复第一轮审核问询函。
+大小不一的冰块在江水的推动下浩浩荡荡顺流而下，相互碰撞发出轰鸣声，壮阔的“跑冰排”景象为即将到来的“五一”假期增添了“神州北极”独特的景观。
 
-方意股份成立于2010年11月，主营制动摩擦产品，主要产品为盘式刹车片和鼓式刹车蹄。
+“同志您好，拍照时务必注意自身安全！
 
-公司产品线不窄，已自主研制制动摩擦材料配方80余种。
+”在漠河市北极村七星广场，大兴安岭边境管理支队北极边境派出所民警一边紧盯江面冰情变化，一边耐心提示靠近江边的游客。
 
-业绩上看，方意股份并不是一家大体量公司。
+针对“五一”假期游客增多、流冰期风险加大的双重特点，北极边境派出所科学部署警力，一方面通过高清摄像头全天24小时对冰排流动情况进行实时态势评估，另一方面派出地面巡逻组采取“定点执勤+流动巡逻”相结合的方式，加大对界江一线、网红打卡点及人员密集场所巡逻防控力度，及时对游客进行温馨提示及劝阻，严防事故发生，确保游客游玩安全。
 
-2022年至2024年及2025年上半年，公司营收分别为1.93亿元、2.05亿元、2.53亿元和1.36亿元；同期净利润分别为4451.39万元、4724.96万元、4613.61万元和2464.83万元。
-
-营收在增长，但利润并没有同步走出更陡的上升曲线，2024年营收增至2.53亿元，净利润反而低于2023年。
-
-这门生意的底色，是外销。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 19:30 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 19:30 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 19:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 19:31 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 19:25 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 19:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 19:44 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 19:41 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 19:39 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 19:42 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 19:29 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 19:51 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 19:43 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 19:47 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 19:44 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 19:55 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 19:54 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 19:46 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 19:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 19:56 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 19:41 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 19:30 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 19:41 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 19:49 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 19:57 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 19:47 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [张杰我九岁就跟你了](https://www.blog.minike.top/Article/details/8397958.shtml)
-- 2026-06-29 19:40 - [扩军害了世界杯吗](http://www.blog.minike.top/Article/details/166606114.shtml)
-- 2026-06-29 19:30 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/4081299724.shtml)
-- 2026-06-29 19:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/798295104174.shtml)
-- 2026-06-29 19:46 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/97920854.shtml)
-- 2026-06-29 19:35 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/81980963334.shtml)
-- 2026-06-29 19:48 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/109102.shtml)
-- 2026-06-29 19:52 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/296632.shtml)
-- 2026-06-29 19:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/6362961.shtml)
-- 2026-06-29 19:46 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/46152522048.shtml)
-- 2026-06-29 19:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/37424.shtml)
-- 2026-06-29 19:36 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/34106258.shtml)
-- 2026-06-29 19:52 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/60640.shtml)
-- 2026-06-29 19:52 - [欧洲安装一台空调要花近8000元](http://www.share.minike.top/Article/details/0947166286.shtml)
-- 2026-06-29 19:32 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/21761774.shtml)
+- 2026-06-29 19:33 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/049463371629.shtml)
+- 2026-06-29 19:44 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/54596880.shtml)
+- 2026-06-29 19:41 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/338583.shtml)
+- 2026-06-29 19:55 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.minike.top/Article/details/382667980.shtml)
+- 2026-06-29 19:41 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/232209433941.shtml)
+- 2026-06-29 19:51 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/8622077.shtml)
+- 2026-06-29 19:46 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/242756256.shtml)
+- 2026-06-29 19:47 - [世界杯在中国观看最多的比赛](http://www.share.kurohicncr.top/Article/details/2499663341.shtml)
+- 2026-06-29 19:42 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/46756072182.shtml)
+- 2026-06-29 19:32 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/954376.shtml)
+- 2026-06-29 19:48 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/024703.shtml)
+- 2026-06-29 19:51 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/980178202249.shtml)
+- 2026-06-29 19:45 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/164651850.shtml)
+- 2026-06-29 19:38 - [爱奇艺抬高国剧新标尺](https://www.blog.kurohicncr.top/Article/details/592254.shtml)
+- 2026-06-29 19:57 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/344650.shtml)

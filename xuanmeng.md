@@ -1,59 +1,59 @@
-# 广东发布国内首个针对自然教育径建设的地方性技术规范
+# 连买12日！资金悄悄加仓电力！长江电力逆市领涨2%，电力板块机会切换至基本面逻辑？
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月13日电 (程景伟 林荫)据广东省林业局13日消息，由该局牵头制定的《自然教育径建设规范》地方标准(DB44/T2708—2026)近日经广东省市场监督管理局批准正式发布。该标准是国内首个针对自然教育径建设的地方性技术规范，将于2026年8月9日起正式实施。 自然教育径是引导公众走进自然、了解自然、保护自然的重要载体，也是自然教育建设的核心内容。截至目前，广东省已
+30日早盘，电力板块走低，中证全指电力公用事业指数跌逾1%。成份股大面积飘绿，豫能控股、金开新能跌停，川能动力、晶科科技、节能风电、粤电力A等多股跌超5%。上涨方面，长江电力逆市领涨2%，国投电力、桂冠电力、中国广核等飘红。 热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内下跌1.65%，资金实时净申购250万份，值得注意的是，资金此前已连续11日净
 
 ## 正文
 
-中新网广州5月13日电 (程景伟 林荫)据广东省林业局13日消息，由该局牵头制定的《自然教育径建设规范》地方标准(DB44/T2708—2026)近日经广东省市场监督管理局批准正式发布。
+30日早盘，电力板块走低，中证全指电力公用事业指数跌逾1%。
 
-该标准是国内首个针对自然教育径建设的地方性技术规范，将于2026年8月9日起正式实施。
+成份股大面积飘绿，豫能控股、金开新能跌停，川能动力、晶科科技、节能风电、粤电力A等多股跌超5%。
 
-自然教育径是引导公众走进自然、了解自然、保护自然的重要载体，也是自然教育建设的核心内容。
+上涨方面，长江电力逆市领涨2%，国投电力、桂冠电力、中国广核等飘红。
 
-截至目前，广东省已建成特色自然教育径175条，总长度超过300公里，开发配套课程400余门，其中超120条自然教育径免费对外开放，为公众提供了丰富多样的自然教育室外空间。
+热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内下跌1.65%，资金实时净申购250万份，值得注意的是，资金此前已连续11日净流入，合计流入金额约4亿元！
 
-据介绍，《自然教育径建设规范》地方标准由广东省林业科学研究院、广东省林业事务中心参与编制。
+消息面上，4月29日，长江电力公布2026年一季报，公司营业收入为181.1亿元，同比上升6.4%；归母净利润为67.6亿元，同比上升30.5%；扣非归母净利润为62.4亿元，同比上升19.2%。
 
-该标准确立“主题明确、低碳环保、因地制宜、人地安全”四项建设原则，将自然教育径划分为自然类、体验类和创作类三大类型，对路面长度、宽度、材料、结构等提出明确要求，并对出入口设置、户外授课点布局、标识系统和配套设施等作出系统性技术规定。
+电力ETF华宝（159146）基金经理曹旭辰此前表示，电力板块后市真正的机会或在于基本面逻辑的切换。
 
-标准借鉴“用户—场地—课程”适配理念，推动自然教育径从空间载体建设向教育功能内涵式发展转变。
+一季度是电力板块业绩最差的时期，后续利空出清后或将有效确立基本面底部。
 
-此外，该标准还提供六大类课程主题参考，涵盖生物多样性、自然遗迹、民俗民风、历史遗迹、生态文化和生态实践，积极促进优质教育内容与建设规范有机融合。
+若煤价因夏季用电需求进入上行通道，将推动电价上涨预期，从而可能催生电力板块的大行情。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 19:47 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 19:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 19:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 19:41 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 19:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 19:36 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 19:29 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 19:27 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 19:43 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 19:44 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 19:38 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 19:47 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 19:35 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 19:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 19:30 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 19:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 19:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 19:51 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 19:40 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 19:33 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 19:44 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 19:36 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 19:34 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 19:42 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 19:53 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/491205.shtml)
-- 2026-06-29 19:45 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/127477134121.shtml)
-- 2026-06-29 19:51 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/1810921.shtml)
-- 2026-06-29 19:39 - [金刚川](https://www.share.minike.top/Article/details/10344028848.shtml)
-- 2026-06-29 19:44 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/48807.shtml)
-- 2026-06-29 19:50 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/22426458.shtml)
-- 2026-06-29 19:30 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/15907728702.shtml)
-- 2026-06-29 19:28 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/37978430745.shtml)
-- 2026-06-29 19:40 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/8278859.shtml)
-- 2026-06-29 19:39 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/68446494195.shtml)
-- 2026-06-29 19:51 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/64114417.shtml)
-- 2026-06-29 19:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/362527.shtml)
-- 2026-06-29 19:31 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/5720520364.shtml)
-- 2026-06-29 19:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/98692.shtml)
-- 2026-06-29 19:49 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/02492.shtml)
+- 2026-06-29 19:56 - [女心理师](https://www.share.kurohicncr.top/Article/details/10454499.shtml)
+- 2026-06-29 19:49 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/556472.shtml)
+- 2026-06-29 19:54 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/3694690360.shtml)
+- 2026-06-29 19:56 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/453388.shtml)
+- 2026-06-29 19:50 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/412178565157.shtml)
+- 2026-06-29 19:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/876076.shtml)
+- 2026-06-29 19:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/85612.shtml)
+- 2026-06-29 19:46 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/902937.shtml)
+- 2026-06-29 19:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/8795769.shtml)
+- 2026-06-29 19:56 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/334415.shtml)
+- 2026-06-29 19:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/637319393.shtml)
+- 2026-06-29 19:34 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/890089.shtml)
+- 2026-06-29 19:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/51352370676.shtml)
+- 2026-06-29 19:43 - [逆天祖国人](https://www.blog.minike.top/Article/details/114407249150.shtml)
+- 2026-06-29 19:56 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/858776671.shtml)

@@ -1,60 +1,57 @@
-# （乡村行·看振兴）山西朔州：彩椒管护正当时 拓宽多彩致富路
+# 光大期货0430黄金点评：油价飙升叠加美联储按兵不动，金价继续承压
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网朔州5月12日电 (杨佩佩 聂慧丽)眼下，正值大棚彩椒管护关键期，走进山西省朔州市朔城区神头镇神西千亩彩椒产业园，一排排彩椒植株长势健壮，农户们正开展彩椒掐头管护作业，通过科学打理植株，促进养分均衡供给，为今年彩椒提质丰产筑牢基础。 朔城区甘源种植专业合作社生产厂长刘胜平说：“彩椒长到一定阶段，顶端会冒出三四个头，如果不及时掐掉多余的，养分就会分散，导致果小、品质差。一般
+4月29日，COMEX黄金震荡走低，尾盘企稳，报收4557.3美元/盎司，跌幅1.11%。国内SHFE金夜盘低开震荡，报收1003.66元/克，跌幅0.83%。 当地时间4月29日周三，美联储公布利率决议，如期按兵不动，美联储理事米兰要求降息，此外另有三位票委反对，他们不支持FOMC声明保留宽松倾向。美联储声明公布后，面对美联储内部34年来的最大分歧，美债、美股、黄金走低。不过
 
 ## 正文
 
-中新网朔州5月12日电 (杨佩佩 聂慧丽)眼下，正值大棚彩椒管护关键期，走进山西省朔州市朔城区神头镇神西千亩彩椒产业园，一排排彩椒植株长势健壮，农户们正开展彩椒掐头管护作业，通过科学打理植株，促进养分均衡供给，为今年彩椒提质丰产筑牢基础。
+4月29日，COMEX黄金震荡走低，尾盘企稳，报收4557.3美元/盎司，跌幅1.11%。
 
-朔城区甘源种植专业合作社生产厂长刘胜平说：“彩椒长到一定阶段，顶端会冒出三四个头，如果不及时掐掉多余的，养分就会分散，导致果小、品质差。
+国内SHFE金夜盘低开震荡，报收1003.66元/克，跌幅0.83%。
 
-一般每株留3个健壮侧枝，把多余弱头掐掉，让营养集中、均匀地供到这3个枝上，后期坐果多、果形正、个头大。
+当地时间4月29日周三，美联储公布利率决议，如期按兵不动，美联储理事米兰要求降息，此外另有三位票委反对，他们不支持FOMC声明保留宽松倾向。
 
-” 据介绍，彩椒产业园实行“合作社+基地+农户”的发展模式，园区统一为承包户提供种苗、肥料、技术指导、全程管理等一站式配套服务。
+美联储声明公布后，面对美联储内部34年来的最大分歧，美债、美股、黄金走低。
 
-今年60多岁的承包户刘金枝，已经连续四年承包大棚进行彩椒种植。
+不过美联储主席鲍威尔在他最后一次作为主席的发布会上，整体发言中性偏鸽，黄金自日低走高。
 
-“年收益不错，每年30多座大棚能挣十几万元。
+地缘政治方面，霍尔木兹僵局正从短期冲击演变为持久重定价。
 
-” 彩椒产业园的规模化发展，不仅让承包户种植彩椒更有底气，还辐射带动周边25个村、850名村民就业，有效拓宽增收渠道，让当地村民不用远赴外地务工，在家门口就能稳定就业、就近增收。
+特朗普宣称封锁“比轰炸更有效”并拒绝伊朗三阶段谈判方案，布伦特原油连涨八日逼近122美元创两年新高，30年期美债收益率突破5%，美国汽油价格升至战争以来最高。
 
-农户林银兰说：“一年下来干10个月，能挣个2万多元。
+市场已不再押注海峡突然重开，而是将“数月封锁”计入价格，伊朗议长称油价的下一步是140美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 19:49 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 19:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 19:42 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 19:37 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 19:48 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 19:44 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 19:27 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 19:28 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 19:34 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 19:52 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 19:50 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 19:24 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 19:33 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 19:32 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 19:56 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 19:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 19:38 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 19:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 19:57 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 19:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 19:47 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 19:35 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 19:47 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 19:52 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/2006417934.shtml)
-- 2026-06-29 19:48 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/4615816.shtml)
-- 2026-06-29 19:27 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/23825.shtml)
-- 2026-06-29 19:28 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/02815546150.shtml)
-- 2026-06-29 19:42 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/1920459976.shtml)
-- 2026-06-29 19:53 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/029933.shtml)
-- 2026-06-29 19:53 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/364628.shtml)
-- 2026-06-29 19:51 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/11536637.shtml)
-- 2026-06-29 19:43 - [欧洲多国高温突破40摄氏度](https://www.blog.kurohicncr.top/Article/details/10839674124.shtml)
-- 2026-06-29 19:50 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/318502293.shtml)
-- 2026-06-29 19:33 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/29967919389.shtml)
-- 2026-06-29 19:51 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/63523681.shtml)
-- 2026-06-29 19:51 - [周生如故](https://www.share.minike.top/Article/details/85299.shtml)
-- 2026-06-29 19:33 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/739892421720.shtml)
-- 2026-06-29 19:32 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/151289350.shtml)
+- 2026-06-29 19:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/62122.shtml)
+- 2026-06-29 19:45 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/19964029.shtml)
+- 2026-06-29 19:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/48525.shtml)
+- 2026-06-29 19:36 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/677653514474.shtml)
+- 2026-06-29 19:44 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/6745650032.shtml)
+- 2026-06-29 19:45 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/2716361.shtml)
+- 2026-06-29 19:40 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/46285622377.shtml)
+- 2026-06-29 19:53 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/250755555.shtml)
+- 2026-06-29 19:46 - [第一炉香](https://www.share.kurohicncr.top/Article/details/85923857411.shtml)
+- 2026-06-29 19:40 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/445602379.shtml)
+- 2026-06-29 19:31 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/08177508986.shtml)
+- 2026-06-29 19:43 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/78674759190.shtml)
+- 2026-06-29 19:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0906625987.shtml)
+- 2026-06-29 19:57 - [沉睡花园](http://www.share.minike.top/Article/details/0370774.shtml)
+- 2026-06-29 19:40 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/6440650660.shtml)

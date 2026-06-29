@@ -1,58 +1,56 @@
-# 不锈钢原料偏紧支撑走强 铝合金高位震荡格局不改
+# 浙江省欧美同学会工作座谈交流会召开
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-（来源：五矿期货） 研报正文 【不锈钢】 【行情资讯】 周一下午 15：00 不锈钢主力合约收 15185 元/吨，当日+0.33%（+50），单边持仓 28.88 万手，较上一交易日-6308 手。现货方面，佛山市场德龙 304 冷轧卷板报 15300 元/吨，较前日-100，无锡市场宏旺 304 冷轧卷板报 15550 元/吨，较前日持平；佛山基差-85（-150），无锡基
+全省欧美同学会工作座谈交流会召开 4月29日，全省欧美同学会工作座谈交流会在杭州市滨江区召开。省委统战部副部长、省社会主义学院党组书记余杰出席会议并讲话。 会上，省欧美同学会常务副会长吴伟领学习近平总书记对“义乌发展经验”的重要指示精神，并结合自身工作谈心得体会；部分欧美同学会组织作了交流发言。 会议强调，各级欧美同学会组织要把学习贯彻习近平总书记重要指示精神，与做好全年欧美同
 
 ## 正文
 
-（来源：五矿期货） 研报正文 【不锈钢】 【行情资讯】 周一下午 15：00 不锈钢主力合约收 15185 元/吨，当日+0.33%（+50），单边持仓 28.88 万手，较上一交易日-6308 手。
+全省欧美同学会工作座谈交流会召开 4月29日，全省欧美同学会工作座谈交流会在杭州市滨江区召开。
 
-现货方面，佛山市场德龙 304 冷轧卷板报 15300 元/吨，较前日-100，无锡市场宏旺 304 冷轧卷板报 15550 元/吨，较前日持平；佛山基差-85（-150），无锡基差 165（-50）；佛山宏旺 201 报 9650 元/吨，较前日持平，宏旺罩退 430 报 7750 元/吨，较前日持平。
+省委统战部副部长、省社会主义学院党组书记余杰出席会议并讲话。
 
-原料方面，山东高镍铁出厂价报 1150 元/镍，较前日持平。
+会上，省欧美同学会常务副会长吴伟领学习近平总书记对“义乌发展经验”的重要指示精神，并结合自身工作谈心得体会；部分欧美同学会组织作了交流发言。
 
-保定 304 废钢工业料回收价报 10350 元/吨，较前日持平。
+会议强调，各级欧美同学会组织要把学习贯彻习近平总书记重要指示精神，与做好全年欧美同学会各项工作结合起来，切实把学习成果转化为实干之效；要勇担“留学报国人才库、建言献策智囊团、民间外交生力军”的使命任务，持续扩大组织覆盖和工作覆盖范围，完善运行机制，丰富会员活动，充分发挥留学人员群体的独特优势作用，为全省高质量发展大局积极贡献智慧和力量。
 
-高碳铬铁北方主产区报价 8450 元/50 基吨，较前日-25。
+各市欧美同学会秘书长、省属团体会员负责人，部分市、县(市、区)、高校党委统战部有关负责人参加会议。
 
-期货库存录得 58582 吨，较前日+3380。
-
-05 月 08 日数据，社会库存增加至 109.52 万吨，环比增加 1.96%，其中 300 系库存 69.20 万吨，环比增加 1.48%。
-
-【策略观点】 4 月不锈钢产业链上游原料持续偏紧，推动钢价不断走高。
+(供稿：省欧美同学会、杭州市滨江区委统战部)
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 19:36 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 19:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 19:34 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 19:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 19:33 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-29 19:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 19:53 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 19:48 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 19:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-29 19:32 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 19:25 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 19:52 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 19:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 19:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 19:35 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 19:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 19:57 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 19:56 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 19:38 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 19:55 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 19:46 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 19:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 19:47 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 19:38 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 19:43 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/2573691.shtml)
-- 2026-06-29 19:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/33602401.shtml)
-- 2026-06-29 19:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/1376474.shtml)
-- 2026-06-29 19:45 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/586340997453.shtml)
-- 2026-06-29 19:50 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/531236364007.shtml)
-- 2026-06-29 19:42 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/7516530.shtml)
-- 2026-06-29 19:28 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/286150877.shtml)
-- 2026-06-29 19:45 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/40092572.shtml)
-- 2026-06-29 19:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/685383.shtml)
-- 2026-06-29 19:48 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/242065858.shtml)
-- 2026-06-29 19:41 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/2197991372.shtml)
-- 2026-06-29 19:24 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/03263548499.shtml)
-- 2026-06-29 19:26 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/737630.shtml)
-- 2026-06-29 19:42 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/33324.shtml)
-- 2026-06-29 19:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/21399251982.shtml)
+- 2026-06-29 19:49 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/41177010280.shtml)
+- 2026-06-29 19:35 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/05903918.shtml)
+- 2026-06-29 19:44 - [沙丘](https://www.share.minike.top/Article/details/40633321.shtml)
+- 2026-06-29 19:49 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/598295.shtml)
+- 2026-06-29 19:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/149620842160.shtml)
+- 2026-06-29 19:55 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/704633547771.shtml)
+- 2026-06-29 19:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/97843902.shtml)
+- 2026-06-29 19:37 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/194790.shtml)
+- 2026-06-29 19:58 - [大马同意延长马航370残骸搜寻工作](https://www.share.minike.top/Article/details/201145649.shtml)
+- 2026-06-29 19:50 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/83118.shtml)
+- 2026-06-29 19:34 - [急先锋](https://www.blog.minike.top/Article/details/8818568.shtml)
+- 2026-06-29 19:32 - [这一刀 会很帅](https://www.share.minike.top/Article/details/611903.shtml)
+- 2026-06-29 19:33 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/86208547587.shtml)
+- 2026-06-29 19:35 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/128561253.shtml)
+- 2026-06-29 19:43 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/472382628086.shtml)

@@ -1,61 +1,48 @@
-# 酒价内参5月13日价格发布：古20习酒君品领跌 总价小幅回落
+# 利时集团控股获Wonder Force Holdings Limited增持8亿股 每股作价0.0761港元
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨三跌三平，赢
+联交所最新资料显示，4月24日，Wonder Force Holdings Limited增持利时集团控股（00526）8亿股，每股作价0.0761港元，涉及总金额为6088万港元。增持后最新持股数目为8亿股，最新持股比例为9.05%。责任编辑：卢昱君
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。
+联交所最新资料显示，4月24日，Wonder Force Holdings Limited增持利时集团控股（00526）8亿股，每股作价0.0761港元，涉及总金额为6088万港元。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。
+增持后最新持股数目为8亿股，最新持股比例为9.05%。
 
-今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。
-
-今日白酒市场11大单品五涨三跌三平，赢家占据优势，但涨幅相对温和。
-
-上涨方面，飞天茅台、五粮液普五八代、国窖1573及青花郎均上涨2元/瓶，同步小幅回暖，其中飞天茅台二连涨，普五平近一月最高价格，国窖1573收获四连阳，价格快速回升至月内次高位，青花郎近半月价格中枢总体呈缓慢上升势头；洋河梦之蓝M6+上涨1元/瓶，价格升至月内次高位。
-
-下跌方面，古20跌幅居前，下跌6元/瓶，连续上涨势头告终；习酒君品下跌5元/瓶，创近一月新低；五粮液1618下跌1元/瓶。
-
-精品茅台、青花汾20及水晶剑南春的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 19:25 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 19:34 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 19:26 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 19:46 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 19:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 19:51 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 19:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 19:51 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 19:27 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 19:30 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 19:38 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 19:39 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 19:34 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 19:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 19:55 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 19:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 19:53 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 19:51 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 19:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 19:33 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 19:49 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 19:58 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 19:35 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 19:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 19:44 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 19:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/37445916691.shtml)
-- 2026-06-29 19:46 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/998738736441.shtml)
-- 2026-06-29 19:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/9133436.shtml)
-- 2026-06-29 19:53 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/60080.shtml)
-- 2026-06-29 19:24 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/9329905.shtml)
-- 2026-06-29 19:38 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/599064.shtml)
-- 2026-06-29 19:38 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/113963.shtml)
-- 2026-06-29 19:27 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/025690544.shtml)
-- 2026-06-29 19:36 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/237518.shtml)
-- 2026-06-29 19:34 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/870489.shtml)
-- 2026-06-29 19:42 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/69705327080.shtml)
-- 2026-06-29 19:50 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/31672549439.shtml)
-- 2026-06-29 19:25 - [金刚川](http://www.blog.minike.top/Article/details/2027536.shtml)
-- 2026-06-29 19:35 - [青春环游记第三季](https://www.share.minike.top/Article/details/43753066.shtml)
-- 2026-06-29 19:47 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/592576885.shtml)
+- 2026-06-29 19:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/4964740085.shtml)
+- 2026-06-29 19:31 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/2900344542.shtml)
+- 2026-06-29 19:46 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/7284701.shtml)
+- 2026-06-29 19:46 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/756642623.shtml)
+- 2026-06-29 19:45 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/976400589.shtml)
+- 2026-06-29 19:59 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/679234655.shtml)
+- 2026-06-29 19:31 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/491647376343.shtml)
+- 2026-06-29 19:55 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/1342405.shtml)
+- 2026-06-29 19:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/8242778.shtml)
+- 2026-06-29 19:37 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/6590719312.shtml)
+- 2026-06-29 19:51 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/830722097977.shtml)
+- 2026-06-29 19:49 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/67726002574.shtml)
+- 2026-06-29 19:46 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/150425.shtml)
+- 2026-06-29 19:43 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/123758.shtml)
+- 2026-06-29 19:44 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/368565746.shtml)

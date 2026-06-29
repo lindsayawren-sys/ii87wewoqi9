@@ -1,57 +1,56 @@
-# Hims & Hers一季度亏损、盈利指引疲软，股价暴跌16%
+# 光大期货软商品类日报4.29
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 数字医疗企业Hims & Hers（Hims & Hers）因一季度业绩不及预期，盘前股价大幅下挫。 公司一季度净亏损 9200 万美元，去年同期为 5000 万美元。 公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。 远程医疗企业Hims & Hers公布一季度亏损且全年盈利指引疲软后，周二早盘股价大幅跳水。 这家数字医疗
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西4月前四周出口糖92.13万吨，日均出口量为5.76万吨，较上年4月全月日均出口量7.75万吨减少26%。现货报价方面，广西制糖集团报价区间5320~5410元/吨；云南制糖集团报价5150~5230元/吨，集团报价均持稳；加工糖厂主流报价区间为5610~5880元/吨，个别下调1
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 数字医疗企业Hims & Hers（Hims & Hers）因一季度业绩不及预期，盘前股价大幅下挫。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西4月前四周出口糖92.13万吨，日均出口量为5.76万吨，较上年4月全月日均出口量7.75万吨减少26%。
 
-公司一季度净亏损 9200 万美元，去年同期为 5000 万美元。
+现货报价方面，广西制糖集团报价区间5320~5410元/吨；云南制糖集团报价5150~5230元/吨，集团报价均持稳；加工糖厂主流报价区间为5610~5880元/吨，个别下调10元/吨。
 
-公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。
+原糖期价小幅修复回到14美分/磅以上，未来关注巴西压榨数据。
 
-远程医疗企业Hims & Hers公布一季度亏损且全年盈利指引疲软后，周二早盘股价大幅跳水。
+国内年度糖业会议召开，市场情绪温和，国内基本定产，进入到去库周期，未来短期看进口、中期天气影响不容忽视。
 
-这家数字医疗企业于周一发布一季报，净亏损 9200 万美元，上年同期约亏损 5000 万美元；调整后息税折旧摊销前利润为 4400 万美元，低于去年同期的 9100 万美元。
+五一假期在即注意长假风险。
 
-与此同时，公司营收同比增长 4%，达 6.08 亿美元；每用户月均营收为 80 美元，较去年的 85 美元有所下滑。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周二，ICE美棉上涨0.15%，报收79.7美分/磅，郑棉主力合约环比上涨0.55%，报收16420元/吨，主力合约持仓环比减少9348手至84.88万手，棉花3128B现货价格指数17415元/吨，较前一日持平。
 
-Hims & Hers预计第二季度营收区间为 6.8 亿至 7 亿美元，全年营收最高可达 30 亿美元。
+国际市场方面，美国干旱扰动仍在持续，截至4月21日当周，受D1-D4级别干旱影响面积占比为98%，位于绝对高位，但后续德州及美国东南部地区降雨或有增加，干旱问题或有一定缓解。
 
-公司预测二季度调整后息税折旧摊销前利润最高为 5500 万美元，全年最高可达 3.5 亿美元。
+后续中东地区局势也需要持续关注，将对化肥成本及供应产生一定扰动。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 19:29 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 19:52 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 19:44 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 19:33 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 19:44 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 19:27 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 19:28 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 19:31 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 19:36 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
-- 2026-06-29 19:25 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 19:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 19:44 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 19:45 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 19:51 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 19:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 19:40 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 19:35 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 19:44 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 19:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 19:38 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [一生一世](https://www.blog.minike.top/Article/details/7376787.shtml)
-- 2026-06-29 19:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/143888426370.shtml)
-- 2026-06-29 19:43 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/99253.shtml)
-- 2026-06-29 19:49 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/388161976520.shtml)
-- 2026-06-29 19:40 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/737112407763.shtml)
-- 2026-06-29 19:30 - [沙丘](https://www.blog.minike.top/Article/details/00781.shtml)
-- 2026-06-29 19:36 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/290012507.shtml)
-- 2026-06-29 19:45 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/34440377227.shtml)
-- 2026-06-29 19:48 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/71049.shtml)
-- 2026-06-29 19:43 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/579329234.shtml)
-- 2026-06-29 19:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/211521441541.shtml)
-- 2026-06-29 19:47 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/1078430314.shtml)
-- 2026-06-29 19:52 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/82907390.shtml)
-- 2026-06-29 19:35 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/39701648959.shtml)
-- 2026-06-29 19:34 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/26567.shtml)
+- 2026-06-29 19:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/890252222.shtml)
+- 2026-06-29 19:50 - [沙丘](https://www.blog.minike.top/Article/details/096120.shtml)
+- 2026-06-29 19:53 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/647650.shtml)
+- 2026-06-29 19:57 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/632998.shtml)
+- 2026-06-29 19:48 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/7232069.shtml)
+- 2026-06-29 19:33 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/39086.shtml)
+- 2026-06-29 19:44 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/4028099060.shtml)
+- 2026-06-29 19:55 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/08668878579.shtml)
+- 2026-06-29 19:53 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/64918149.shtml)
+- 2026-06-29 19:32 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/70444366416.shtml)
+- 2026-06-29 19:58 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/63923.shtml)
+- 2026-06-29 19:59 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/176599631106.shtml)
+- 2026-06-29 19:46 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/67616694.shtml)
+- 2026-06-29 19:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/43876470950.shtml)
+- 2026-06-29 19:41 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/761172718.shtml)

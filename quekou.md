@@ -1,46 +1,58 @@
-# 新疆新鑫矿业遭周传有减持81万股 每股均价2.70港元
+# 全球能源秩序正在崩塌
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月7日，周传有减持新疆新鑫矿业（03833）81万股，每股均价2.70港元，总金额为218.7万港元。减持后最新持股数目为8179万股，最新持股比例为8.6%。责任编辑：卢昱君
+伊朗战争加速石油市场转型：从经济效率主导，转向政治与冲突主导 分裂的欧佩克、被封锁的波斯湾、凭借全球领先化石能源产量底气大增的美国。 伊朗战争正在颠覆石油市场长期以来的固有格局，迎来一个格局更破碎、波动风险更高的能源新时代。石油跨洋自由流通的时代落幕，资源民族主义开始盛行。 全球能源版图最新变局发生在周二：阿联酋宣布退出由沙特主导的石油输出国组织（欧佩克）。这对该石油卡特尔构成
 
 ## 正文
 
-香港联交所最新资料显示，5月7日，周传有减持新疆新鑫矿业（03833）81万股，每股均价2.70港元，总金额为218.7万港元。
+伊朗战争加速石油市场转型：从经济效率主导，转向政治与冲突主导 分裂的欧佩克、被封锁的波斯湾、凭借全球领先化石能源产量底气大增的美国。
 
-减持后最新持股数目为8179万股，最新持股比例为8.6%。
+伊朗战争正在颠覆石油市场长期以来的固有格局，迎来一个格局更破碎、波动风险更高的能源新时代。
 
-责任编辑：卢昱君
+石油跨洋自由流通的时代落幕，资源民族主义开始盛行。
+
+全球能源版图最新变局发生在周二：阿联酋宣布退出由沙特主导的石油输出国组织（欧佩克）。
+
+这对该石油卡特尔构成重大打击 —— 欧佩克成立初衷之一，就是平抑石油行业暴涨暴跌的周期性波动。
+
+而如今，阿联酋选择独立发展、自主布局。
+
+此番举动及其他一系列变化，正加速重塑石油市场逻辑：市场不再以经济效率为核心，而是越来越由地缘政治与冲突博弈主导。
+
+亚欧主要能源进口国正加速摆脱对中东化石能源的依赖，要么缩减能源消耗，要么大力提升本土产能。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 19:30 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 19:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 19:51 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 19:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 19:26 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 19:47 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 19:43 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 19:45 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 19:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 19:58 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 19:56 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 19:53 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 19:55 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 19:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 19:30 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 19:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 19:36 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 19:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 19:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 19:37 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 19:38 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:39 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/0623427370.shtml)
-- 2026-06-29 19:40 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/9152315.shtml)
-- 2026-06-29 19:51 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/7853428638.shtml)
-- 2026-06-29 19:49 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/326160091119.shtml)
-- 2026-06-29 19:30 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/917236.shtml)
-- 2026-06-29 19:27 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/0989958196.shtml)
-- 2026-06-29 19:47 - [互助版模拟高考志愿填报](http://www.blog.kurohicncr.top/Article/details/69610640.shtml)
-- 2026-06-29 19:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/96558045.shtml)
-- 2026-06-29 19:47 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/86933934.shtml)
-- 2026-06-29 19:44 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/50590541.shtml)
-- 2026-06-29 19:40 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/85949824051.shtml)
-- 2026-06-29 19:34 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/42345589390.shtml)
-- 2026-06-29 19:52 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/43590.shtml)
-- 2026-06-29 19:52 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/94775.shtml)
-- 2026-06-29 19:46 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.minike.top/Article/details/515332643.shtml)
+- 2026-06-29 19:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/582883530.shtml)
+- 2026-06-29 19:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/839908041842.shtml)
+- 2026-06-29 19:39 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/9442304843.shtml)
+- 2026-06-29 19:55 - [东方风云榜](https://www.blog.minike.top/Article/details/7513858963.shtml)
+- 2026-06-29 19:53 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/91394653718.shtml)
+- 2026-06-29 19:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/311637434349.shtml)
+- 2026-06-29 19:34 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/5997134576.shtml)
+- 2026-06-29 19:47 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/735992.shtml)
+- 2026-06-29 19:52 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/60531.shtml)
+- 2026-06-29 19:37 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/502590016776.shtml)
+- 2026-06-29 19:35 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/3906012.shtml)
+- 2026-06-29 19:59 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/3098219.shtml)
+- 2026-06-29 19:37 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/300325.shtml)
+- 2026-06-29 19:30 - [温网](https://www.blog.minike.top/Article/details/7696640.shtml)
+- 2026-06-29 19:37 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/1714796645.shtml)

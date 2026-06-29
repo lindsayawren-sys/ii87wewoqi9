@@ -1,45 +1,59 @@
-# 中国队获得U17女足世界杯参赛资格
+# 依托京东JoyAI大模型 京办、京通APP数字中国创新大赛同获大奖
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-新华社苏州5月11日电(记者王恒志)2026亚足联U17女足亚洲杯11日在江苏苏州展开四分之一决赛较量，中国U17女足3:0击败印度队，跻身四强的同时，获得2026国际足联U17女足世界杯参赛资格。
+4月29-30日，第九届数字中国建设峰会在福建福州举办，京东可信 AI与政务智能体为核心成果亮相，全面展示AI助力数字政务建设的创新实践与落地成效。京东集团副总裁、协同办公业务总经理王涛受邀发表主题演讲，分享京东政务智能体的技术突破与创新实践，并现场参与国家网信办主导的《政务智能体研发应用自律倡议》签约活动。 依托京东JoyAI大模型与JoyAgent智能体技术，京东深度参与北
 
 ## 正文
 
-新华社苏州5月11日电(记者王恒志)2026亚足联U17女足亚洲杯11日在江苏苏州展开四分之一决赛较量，中国U17女足3:0击败印度队，跻身四强的同时，获得2026国际足联U17女足世界杯参赛资格。
+4月29-30日，第九届数字中国建设峰会在福建福州举办，京东可信 AI与政务智能体为核心成果亮相，全面展示AI助力数字政务建设的创新实践与落地成效。
+
+京东集团副总裁、协同办公业务总经理王涛受邀发表主题演讲，分享京东政务智能体的技术突破与创新实践，并现场参与国家网信办主导的《政务智能体研发应用自律倡议》签约活动。
+
+依托京东JoyAI大模型与JoyAgent智能体技术，京东深度参与北京市政务数字化升级，联合北京市大数据中心完成“京办”“京通APP”两大核心平台智能化创新。
+
+其中，基于“京办”打造的政务全场景一体化智能办公平台，凭借在政务协同、民生服务领域的突出创新，荣获数字中国创新大赛·智能科技赛道一等奖，这也是继京办2025年获得“数字中国创新大赛一等奖”后再次获奖。
+
+京通 APP面向超大城市公共服务打造的“搜问办”一体化智慧应用，以普惠便民、智能协同的服务能力，荣获数字中国创新大赛·人工智能赛道二等奖。
+
+王涛在主题分享中指出，当前 AI生产力正加速重构，多模态、智能体、AI基础设施三大方向同步突破，可靠数据是可信 AI的底座，可信 AI则是政务智能化的引擎。
+
+目前，京东JoyAI大模型已深度融入京东超级供应链，应用于内部超2000个场景，支撑6万余个智能体稳定运行，服务超300万商家。
+
+紧跟国家“人工智能+”行动战略部署，京东面向政务领域推出政务 AI全景图，深度融合 JoyAI大模型与 JoyAgent智能体技术，为政务运行“一网协同”、政务服务“一网通办”智能化升级提供坚实支撑。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 19:40 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 19:25 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 19:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 19:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 19:47 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 19:41 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 19:47 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 19:53 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 19:42 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 19:24 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 19:53 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 19:48 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 19:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 19:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 19:31 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-29 19:42 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 19:56 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 19:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 19:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 19:53 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-29 19:51 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 19:34 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 19:48 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 19:54 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 19:58 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/054750704156.shtml)
-- 2026-06-29 19:45 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/72193534727.shtml)
-- 2026-06-29 19:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/76359811594.shtml)
-- 2026-06-29 19:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/063135050663.shtml)
-- 2026-06-29 19:45 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/26842458.shtml)
-- 2026-06-29 19:26 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/014890104454.shtml)
-- 2026-06-29 19:49 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/3596065.shtml)
-- 2026-06-29 19:39 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/230175447102.shtml)
-- 2026-06-29 19:51 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/4295797.shtml)
-- 2026-06-29 19:52 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/075675985.shtml)
-- 2026-06-29 19:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/62635.shtml)
-- 2026-06-29 19:31 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/023160500548.shtml)
-- 2026-06-29 19:26 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/423949901.shtml)
-- 2026-06-29 19:49 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/8364356791.shtml)
-- 2026-06-29 19:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/140656.shtml)
+- 2026-06-29 19:59 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/985824.shtml)
+- 2026-06-29 19:50 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/64831523.shtml)
+- 2026-06-29 19:33 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/82763991.shtml)
+- 2026-06-29 19:43 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/77920199935.shtml)
+- 2026-06-29 19:53 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/21248876606.shtml)
+- 2026-06-29 19:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/1880067.shtml)
+- 2026-06-29 19:49 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/15719.shtml)
+- 2026-06-29 19:45 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/066917317.shtml)
+- 2026-06-29 19:38 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/48840285329.shtml)
+- 2026-06-29 19:40 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.kurohicncr.top/Article/details/5107334.shtml)
+- 2026-06-29 19:58 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/9948415.shtml)
+- 2026-06-29 19:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/4586752.shtml)
+- 2026-06-29 19:43 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/83353309.shtml)
+- 2026-06-29 19:48 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/84648083.shtml)
+- 2026-06-29 19:50 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/32599543.shtml)

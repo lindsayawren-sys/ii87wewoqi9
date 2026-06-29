@@ -1,60 +1,61 @@
-# 原油：油价上涨 特朗普称美伊停火岌岌可危
+# 金观平：巩固好势头实现投资可持续发展
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-油价上涨，此前美国总统唐纳德·特朗普表示，美伊之间脆弱的停火岌岌可危，这表明霍尔木兹海峡受阻状态可能持续。 布伦特上涨2.9%，收于每桶104美元附近，为近一周以来的最高水平。 有媒体报道称，特朗普与国家安全团队会面讨论中东冲突的下一步行动，包括可能恢复军事行动。 特朗普周一在白宫对记者表示：“我会说，这项停火如今完全是在靠生命维持系统支撑”。 据福克斯新闻报道，特朗普还称在考
+今年一季度，我国固定资产投资同比增长1.7%，成功扭转去年全年下降3.8%的态势，实现逆势转正、稳步回升。这一积极变化，为宏观经济平稳运行提供了重要支撑，既体现宏观政策靠前发力、协同发力的实际成效，也彰显出我国经济运行稳中有进的发展态势。投资是稳增长、调结构、惠民生的关键抓手，既关系当前需求，也影响长远供给。面对复杂多变的内外环境，各地区各部门聚焦扩大有效投资，加快推出“两重”
 
 ## 正文
 
-油价上涨，此前美国总统唐纳德·特朗普表示，美伊之间脆弱的停火岌岌可危，这表明霍尔木兹海峡受阻状态可能持续。
+今年一季度，我国固定资产投资同比增长1.7%，成功扭转去年全年下降3.8%的态势，实现逆势转正、稳步回升。
 
-布伦特上涨2.9%，收于每桶104美元附近，为近一周以来的最高水平。
+这一积极变化，为宏观经济平稳运行提供了重要支撑，既体现宏观政策靠前发力、协同发力的实际成效，也彰显出我国经济运行稳中有进的发展态势。
 
-有媒体报道称，特朗普与国家安全团队会面讨论中东冲突的下一步行动，包括可能恢复军事行动。
+投资是稳增长、调结构、惠民生的关键抓手，既关系当前需求，也影响长远供给。
 
-特朗普周一在白宫对记者表示：“我会说，这项停火如今完全是在靠生命维持系统支撑”。
+面对复杂多变的内外环境，各地区各部门聚焦扩大有效投资，加快推出“两重”建设项目清单，统筹用好超长期特别国债、地方政府专项债券等政策工具，不断完善民营企业参与重大项目的长效机制。
 
-据福克斯新闻报道，特朗普还称在考虑重启“自由计划”。
+一系列务实举措落地见效，有效激活了投资潜力。
 
-交易员将这一潜在举措解读为美方对伊朗短期内开放该水道信心不足。
+从一季度情况看，重点领域投资提速、新兴产业动能增强、民生短板加快补齐、创新投资持续活跃，共同构成投资企稳回升的坚实支撑，推动投资结构更趋优化。
 
-在霍尔木兹海峡受阻导致能源价格飙升后，特朗普周一对汽油税减免表达了支持，以抵消油价上涨带来的冲击。
+当前投资回升基础仍需进一步巩固，内生增长动力有待持续增强。
 
-受特朗普拒绝德黑兰最新和平提议影响，油价在早些时候飙升。
+我国人均资本存量和发达国家相比还有较大差距，新型城镇化、产业升级、民生改善等领域投资空间依然广阔。
 
 ## 相关推荐
 
-- 2026-06-29 19:42 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 19:42 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 19:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 19:47 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 19:52 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 19:27 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 19:42 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 19:32 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 19:37 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-29 19:53 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 19:30 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 19:52 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 19:42 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 19:45 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 19:37 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 19:37 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 19:58 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 19:59 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 19:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 19:54 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 19:44 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 19:57 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 19:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 19:31 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 19:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 19:36 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 19:38 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 19:58 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 19:47 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [AG 宫斗](https://www.share.minike.top/Article/details/739276691203.shtml)
-- 2026-06-29 19:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/1326590676.shtml)
-- 2026-06-29 19:30 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/16182.shtml)
-- 2026-06-29 19:40 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/427261415875.shtml)
-- 2026-06-29 19:28 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/28529.shtml)
-- 2026-06-29 19:40 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/0288699941.shtml)
-- 2026-06-29 19:34 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/7461776.shtml)
-- 2026-06-29 19:53 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/92698369.shtml)
-- 2026-06-29 19:47 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/50777659786.shtml)
-- 2026-06-29 19:53 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/257540990502.shtml)
-- 2026-06-29 19:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/10747178700.shtml)
-- 2026-06-29 19:40 - [一见倾心](http://www.share.kurohicncr.top/Article/details/377435.shtml)
-- 2026-06-29 19:39 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/1882283505.shtml)
-- 2026-06-29 19:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/21364.shtml)
-- 2026-06-29 19:41 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/4077041.shtml)
+- 2026-06-29 19:38 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/22281967826.shtml)
+- 2026-06-29 19:38 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/12004989550.shtml)
+- 2026-06-29 19:59 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/1375235987.shtml)
+- 2026-06-29 19:46 - [金刚川](https://www.blog.kurohicncr.top/Article/details/04246452.shtml)
+- 2026-06-29 19:38 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/2557003993.shtml)
+- 2026-06-29 19:35 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/388759320042.shtml)
+- 2026-06-29 19:54 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/7890052.shtml)
+- 2026-06-29 19:46 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/64669572692.shtml)
+- 2026-06-29 19:59 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/368901839.shtml)
+- 2026-06-29 19:58 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/93488123.shtml)
+- 2026-06-29 19:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/762252.shtml)
+- 2026-06-29 19:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/93640.shtml)
+- 2026-06-29 19:54 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/0523871.shtml)
+- 2026-06-29 19:52 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/4079811.shtml)
+- 2026-06-29 19:43 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/5242045.shtml)

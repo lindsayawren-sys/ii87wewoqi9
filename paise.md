@@ -1,56 +1,53 @@
-# OPPO「母亲节」交学费，另一笔账也得算算了
+# 里昂：中国平安维持“跑赢大市”评级 目标价升至74港元
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：豹变） 作者 | 李白 编辑 | 邢昀 OPPO和荣耀是国内手机市场的“难兄难弟”，两家是一季度IDC榜单上中国市场出货量唯二同比下滑的手机大厂。 荣耀试图用新品“挽救”国内市场；而OPPO则陷入新一轮舆论风波中，一则“我妈有两个‘老公’”的母亲节文案遭遇全网声讨，迫使OPPO发布内部处罚通告。 如
+里昂发布研报称，维持对中国平安（02318）H股“跑赢大市”评级，目标价由71港元上调至74港元；中国平安（601318.SH）A股目标价由77元人民币上调至78元人民币，评级“跑赢大市”。 里昂称中国平安首季集团营运利润（OPAT）同比增长7.6%，略胜市场预期，主要由于资本市场波动对集团的影响较同业小，以及合约服务边际（CSM）具韧性。新业务价值（VNB）及新业务价值率（V
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+里昂发布研报称，维持对中国平安（02318）H股“跑赢大市”评级，目标价由71港元上调至74港元；中国平安（601318.SH）A股目标价由77元人民币上调至78元人民币，评级“跑赢大市”。
 
-（来源：豹变） 作者 | 李白 编辑 | 邢昀 OPPO和荣耀是国内手机市场的“难兄难弟”，两家是一季度IDC榜单上中国市场出货量唯二同比下滑的手机大厂。
+里昂称中国平安首季集团营运利润（OPAT）同比增长7.6%，略胜市场预期，主要由于资本市场波动对集团的影响较同业小，以及合约服务边际（CSM）具韧性。
 
-荣耀试图用新品“挽救”国内市场；而OPPO则陷入新一轮舆论风波中，一则“我妈有两个‘老公’”的母亲节文案遭遇全网声讨，迫使OPPO发布内部处罚通告。
+新业务价值（VNB）及新业务价值率（VNB 利润 ）符合预期，资本压力亦略有缓解。
 
-如果将明面上的动作放进市场竞争角度看，两家国产手机品牌存在诸多同病相怜之处：看着有重回国内头部的希望，又恰处于跌落边缘，这是两者最大的尴尬。
-
-与此同时，荣耀和OPPO都在酝酿着一场关于子品牌的变革和调整。
-
-OPPO公司在品牌层面做减法，要合并此前独立运营的子品牌一加和realme，开启资源协同时代。
-
-荣耀则在做加法，试图学华为当年孵化荣耀的成功路径，试图再养个二代。
-
-行业末尾淘汰赛的枪声已经打响，这两条截然不同的道路，影响着两家企业的命运。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:42 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 19:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 19:35 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 19:45 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 19:49 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 19:42 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 19:29 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 19:35 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 19:30 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 19:27 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 19:55 - [杨紫视后第一场线下活动](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 19:45 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 19:46 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 19:31 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 19:52 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 19:44 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 19:48 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 19:45 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 19:33 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 19:39 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 19:37 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 19:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 19:47 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:58 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 19:50 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/110989840.shtml)
-- 2026-06-29 19:50 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/532623.shtml)
-- 2026-06-29 19:24 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/23358595.shtml)
-- 2026-06-29 19:45 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/6497340181.shtml)
-- 2026-06-29 19:35 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/803728.shtml)
-- 2026-06-29 19:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/47293178840.shtml)
-- 2026-06-29 19:33 - [韩国小学生都来吐槽了](http://www.blog.kurohicncr.top/Article/details/4127055.shtml)
-- 2026-06-29 19:25 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/279070456810.shtml)
-- 2026-06-29 19:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/140820016671.shtml)
-- 2026-06-29 19:37 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/91337.shtml)
-- 2026-06-29 19:41 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/1394811.shtml)
-- 2026-06-29 19:45 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/9543248504.shtml)
-- 2026-06-29 19:48 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/859238.shtml)
-- 2026-06-29 19:39 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/5131585.shtml)
-- 2026-06-29 19:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/55621.shtml)
+- 2026-06-29 19:39 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/85473.shtml)
+- 2026-06-29 19:57 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/010129.shtml)
+- 2026-06-29 19:32 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/064323348.shtml)
+- 2026-06-29 19:50 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/48347.shtml)
+- 2026-06-29 19:50 - [极限挑战第一季](https://www.share.minike.top/Article/details/800924370.shtml)
+- 2026-06-29 19:51 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/70815138.shtml)
+- 2026-06-29 19:39 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/1164473.shtml)
+- 2026-06-29 19:48 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/844234108.shtml)
+- 2026-06-29 19:51 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/946298.shtml)
+- 2026-06-29 19:46 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/862704447.shtml)
+- 2026-06-29 19:36 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.kurohicncr.top/Article/details/747198.shtml)
+- 2026-06-29 19:46 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/32227489049.shtml)
+- 2026-06-29 19:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/0007139925.shtml)
+- 2026-06-29 19:47 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/69711996.shtml)
+- 2026-06-29 19:54 - [《贺子珍》](https://www.blog.minike.top/Article/details/56536561853.shtml)

@@ -1,56 +1,57 @@
-# 汶川大地震中被埋72小时的女孩，如今怎么样了？
+# 4月中国制造业采购经理指数为50.3% 制造业景气水平总体稳定
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？ 黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排
+中新网4月30日电 据国家统计局网站消息，国家统计局30号发布2026年4月中国采购经理指数运行情况。 一、中国制造业采购经理指数运行情况 4月份，制造业采购经理指数(PMI)为50.3%，比上月下降0.1个百分点，制造业景气水平总体稳定。 从企业规模看，大型企业PMI为50.2%，比上月下降1.4个百分点，仍高于临界点；中、小型企业PMI分别为50.5%和50.1%，比上月上
 
 ## 正文
 
-2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？
+中新网4月30日电 据国家统计局网站消息，国家统计局30号发布2026年4月中国采购经理指数运行情况。
 
-黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？
+一、中国制造业采购经理指数运行情况 4月份，制造业采购经理指数(PMI)为50.3%，比上月下降0.1个百分点，制造业景气水平总体稳定。
 
-” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排的角落 她眼前的最后一幕 是保护电视机的学习委员 被坍塌的铁架砸中 教室随即被黑暗、浓烟与惨叫吞没 牛钰的头顶 被一块预制板死死卡住 双腿以下全被压住 身体扭曲着动弹不得 闷热、窒息、剧痛 让她喘不上气 黑暗中 她摸到一只冰凉的手 手腕上戴着一块电子表 那就是坐在她后桌的女生 那个爱笑的女孩 永远留在了废墟之下 家长们哭喊着搜救 可到处都是坍塌的楼房 搬动一块石板 就可能让另一处再次塌陷 “先救我的孩子们！
+从企业规模看，大型企业PMI为50.2%，比上月下降1.4个百分点，仍高于临界点；中、小型企业PMI分别为50.5%和50.1%，比上月上升1.5个和0.8个百分点，均高于临界点。
 
-” 班主任的声音从远处传来 微弱却坚定 废墟之下 牛钰昏迷、清醒、再昏迷 直到5月14日中午 她被一阵光亮唤醒 解放军小于叔叔冒着余震风险 一直俯在她上方的预制板上 手使劲往下够 “不要怕，叔叔在这里 我们一定救你出去” 小于叔叔的头盔上 有一盏很小的灯 微弱却耀眼 牛钰说 那是她关于希望最具象的模样 被困三天三夜后获救 5月15日 牛钰成为她读书的学校 最后一位被救出的幸存者 被抬上担架时 小于叔叔和她说 “一定要活下来” 救护车上 她的体温急剧下降 冷得浑身发抖 护士姐姐跪在担架旁 紧紧抱住她 哭着恳求 “孩子，你都撑了三天三夜 一定要坚持住 马上就到医院了” 没想到 抵达医院后等待她的 是另一个残酷的现实 双腿严重坏死 医生告诉牛钰的父母 “要命还是要腿，你们自己决定” 为保住女儿的生命 父母含泪签字 11岁的牛钰 在手术台上失去了右腿 此后又
+从分类指数看，构成制造业PMI的5个分类指数中，生产指数和新订单指数均高于临界点，原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
 
-” 在无数个深夜里 她哭着向妈妈问出这个问题 康复训练的痛 与内心的自卑、挣扎 一度让她陷入低谷 日子在煎熬中一点点向前 她把委屈与不甘藏在心底 默默等待一个 能与自己和解的契机 2018年5月12日 汶川地震十周年 这天也是牛钰的农历生日 她做了一个勇敢的决定 参加汶川首届马拉松 那天 她取下假肢上的海绵 穿上短裤 第一次坦然露出假肢和伤疤 五百米、再五百米…… 本想跑几公里就放弃 却跑了一程又一程 有人冲她喊了一声“妹妹加油” 接着 很多折返回来的跑者异口同声 “中国加油！
+生产指数为51.5%，比上月上升0.1个百分点，表明制造业生产活动有所加快。
 
-汶川加油！
+新订单指数为50.6%，比上月下降1.0个百分点，仍高于临界点，表明制造业市场需求保持扩张。
 
-” 她突然意识到 伤疤是苦难留下的不完美 也是无数人托举的生命奇迹 更是自己努力活下来的勋章 “从负数起步 我终于又回到了原点 从内心里接纳了这条‘腿’ 所以 哪有什么迈不过的坎儿？
+原材料库存指数为49.3%，比上月上升1.6个百分点，表明制造业主要原材料库存量降幅明显收窄。
 
-倒就爬起来，活就活精彩” 从那天起 她再也没给假肢包过海绵 坦然接受自己的不完美 真正与伤痛、与自己和解 铭记与向前 走出阴霾的牛钰爱上了摄影 即便扛着器材步履艰难 但她依然坚持用镜头 记录真实与美好 拍下残障朋友 最放松、最自信的模样 她也尝试做自媒体 用轻松幽默的方式 科普假肢知识，讲述幻肢痛 她走进校园宣讲 用自己的经历鼓励迷茫的人 “活法有千千万万种 你相信什么 就会成为什么” 她记得 自己是被无数人“拉一把” 才活下来的孩子 她也想成为拉别人一把的人 一位尿毒症女孩曾因绝望想告别世界 在牛钰的鼓励下重返校园 最终考上复旦大学 一位19岁截肢女孩怀揣模特梦 在看到牛钰的视频后重拾勇气 2021年 牛钰戴着闪光假肢 登上上海时装周T台 聚光灯下 她昂首挺胸，步履坚定 走出了最自信的姿态 每年5月12日 牛钰都会回到北川 祭奠逝去的亲友 小时候一
+从业人员指数为48.8%，比上月上升0.2个百分点，表明制造业企业用工景气水平回升。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 19:39 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 19:28 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 19:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 19:49 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 19:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 19:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 19:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 19:36 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 19:59 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 19:38 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 19:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 19:40 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 19:43 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 19:51 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 19:38 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 19:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 19:48 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 19:43 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 19:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/48244.shtml)
-- 2026-06-29 19:48 - [周生如故](http://www.share.minike.top/Article/details/78725.shtml)
-- 2026-06-29 19:52 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/4957759204.shtml)
-- 2026-06-29 19:47 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/019367.shtml)
-- 2026-06-29 19:52 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/1021492547.shtml)
-- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/58255709056.shtml)
-- 2026-06-29 19:27 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/8834852236.shtml)
-- 2026-06-29 19:45 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/112282416.shtml)
-- 2026-06-29 19:32 - [LPL第三赛段赛制公布](https://www.share.kurohicncr.top/Article/details/239674424.shtml)
-- 2026-06-29 19:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/8791847161.shtml)
-- 2026-06-29 19:37 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/1224151.shtml)
-- 2026-06-29 19:41 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/640924.shtml)
-- 2026-06-29 19:31 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/037518266613.shtml)
-- 2026-06-29 19:28 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/44319.shtml)
-- 2026-06-29 19:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/4603460626.shtml)
+- 2026-06-29 19:56 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/14757117.shtml)
+- 2026-06-29 19:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/5748784.shtml)
+- 2026-06-29 19:42 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/876618691.shtml)
+- 2026-06-29 19:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/226161958.shtml)
+- 2026-06-29 19:48 - [温网](http://www.blog.minike.top/Article/details/927224.shtml)
+- 2026-06-29 19:30 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/56249880674.shtml)
+- 2026-06-29 19:45 - [逆天祖国人](https://www.blog.minike.top/Article/details/939030812.shtml)
+- 2026-06-29 19:58 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/214695064845.shtml)
+- 2026-06-29 19:41 - [急先锋](http://www.share.minike.top/Article/details/320840.shtml)
+- 2026-06-29 19:57 - [V8](https://www.share.kurohicncr.top/Article/details/318784977.shtml)
+- 2026-06-29 19:54 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/28152.shtml)
+- 2026-06-29 19:36 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/197698494.shtml)
+- 2026-06-29 19:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/229767.shtml)
+- 2026-06-29 19:33 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/74486.shtml)
+- 2026-06-29 19:36 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/2196884487.shtml)

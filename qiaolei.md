@@ -1,55 +1,56 @@
-# 五项先决条件未落实前 伊朗不会参加下轮美伊会谈
+# 37岁“万吨大列”掌舵人获评“全国五一劳动奖章”
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-知情人士报道称，在五项建立信任的先决条件未落实之前，伊朗不会参加下一轮与美国的谈判。 这些条件包括：结束各条战线的战争，尤其是在黎巴嫩；解除对伊朗的制裁；释放伊朗被冻结的资金；赔偿战争损失；以及承认伊朗对霍尔木兹海峡的主权。 伊朗已告知巴基斯坦方面的调解人员，美国在停火后实施的海上封锁强化了伊朗方面的看法，即与美国谈判并不可靠。 消息人士表示，这些条件是在为重返对话进程建立最低
+中新网太原4月29日电 题：37岁“万吨大列”掌舵人获评“全国五一劳动奖章” 作者 陆祁国 4月28日，庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会在北京举行。中铁三局第二运输段重载列车司机、高级技师王鹏鹏接过“全国五一劳动奖章”。 出生于1989年的王鹏鹏，20岁入职后仅用8年时间，就成长为中铁三局第二运输段首批2万吨列车主控司机，迄今已安全驾驶超140万公里。 从学员到“
 
 ## 正文
 
-知情人士报道称，在五项建立信任的先决条件未落实之前，伊朗不会参加下一轮与美国的谈判。
+中新网太原4月29日电 题：37岁“万吨大列”掌舵人获评“全国五一劳动奖章” 作者 陆祁国 4月28日，庆祝“五一”国际劳动节暨全国五一劳动奖表彰大会在北京举行。
 
-这些条件包括：结束各条战线的战争，尤其是在黎巴嫩；解除对伊朗的制裁；释放伊朗被冻结的资金；赔偿战争损失；以及承认伊朗对霍尔木兹海峡的主权。
+中铁三局第二运输段重载列车司机、高级技师王鹏鹏接过“全国五一劳动奖章”。
 
-伊朗已告知巴基斯坦方面的调解人员，美国在停火后实施的海上封锁强化了伊朗方面的看法，即与美国谈判并不可靠。
+出生于1989年的王鹏鹏，20岁入职后仅用8年时间，就成长为中铁三局第二运输段首批2万吨列车主控司机，迄今已安全驾驶超140万公里。
 
-消息人士表示，这些条件是在为重返对话进程建立最低限度信任的框架内制定的。
+从学员到“万吨大列”主控司机的蜕变 2009年，20岁的王鹏鹏怀揣着对铁路事业的憧憬，成为中铁三局第二运输段一名电力机车学员。
 
-德黑兰认为，在这些条件得到切实落实之前，不可能启动新的谈判。
+“干一行、专一行、精一行”，入职之初，师傅蔡元勋的教诲便深深刻进他的骨子里，也成为他职业生涯的不变信条。
 
-责任编辑：李桐
+学徒时期的日子，枯燥却扎实。
+
+白天，王鹏鹏紧跟师傅身后，钻地沟、查部件、练操作，不放过任何一个学习实操的机会；夜晚，机车参数图、技术规范成了他的“枕边书”，一遍遍默画复杂电路图、逐字逐句背诵操作规程，常常学习至深夜。
+
+凭借这份韧劲与执着，短短3年多时间，王鹏鹏便从同期学员中脱颖而出，考取铁路机车车辆驾驶证，正式开启“火车司机”生涯。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 19:50 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 19:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 19:48 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 19:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 19:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 19:37 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 19:29 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 19:42 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 19:30 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 19:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 19:41 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-29 19:41 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:30 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 19:48 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 19:53 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 19:39 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 19:35 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 19:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 19:49 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 19:42 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 19:33 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:58 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [沙丘](http://www.share.minike.top/Article/details/52232560314.shtml)
-- 2026-06-29 19:51 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/91865.shtml)
-- 2026-06-29 19:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/719784432412.shtml)
-- 2026-06-29 19:33 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/664197742.shtml)
-- 2026-06-29 19:32 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/97452.shtml)
-- 2026-06-29 19:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/1475261115.shtml)
-- 2026-06-29 19:41 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/1220408.shtml)
-- 2026-06-29 19:37 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/68295.shtml)
-- 2026-06-29 19:51 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/1589984.shtml)
-- 2026-06-29 19:24 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/8419957.shtml)
-- 2026-06-29 19:44 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/015604.shtml)
-- 2026-06-29 19:51 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/078419.shtml)
-- 2026-06-29 19:35 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/31829553.shtml)
-- 2026-06-29 19:40 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/519133116.shtml)
-- 2026-06-29 19:36 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/980849322972.shtml)
+- 2026-06-29 19:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/905790293.shtml)
+- 2026-06-29 19:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/879127048546.shtml)
+- 2026-06-29 19:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/25944.shtml)
+- 2026-06-29 19:39 - [极限挑战第一季](http://www.blog.minike.top/Article/details/06508755.shtml)
+- 2026-06-29 19:48 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/624637946167.shtml)
+- 2026-06-29 19:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/5672379231.shtml)
+- 2026-06-29 19:36 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/693088760556.shtml)
+- 2026-06-29 19:55 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/617527572513.shtml)
+- 2026-06-29 19:53 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/82192488497.shtml)
+- 2026-06-29 19:53 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/91022055782.shtml)
+- 2026-06-29 19:54 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/07863857665.shtml)
+- 2026-06-29 19:40 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/1404619.shtml)
+- 2026-06-29 19:57 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/370886.shtml)
+- 2026-06-29 19:45 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/443691.shtml)
+- 2026-06-29 19:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/081354885.shtml)

@@ -1,61 +1,60 @@
-# 长江有色：13日氧化铝期价跌0.53% 日内整体成交反馈平平
+# 史上最大IPO，突爆大消息！
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-长江有色网5月13日讯，今日氧化铝所有合约全线收跌，主力月2609合约偏弱走软；截止当日15：00收盘，氧化铝主力月2609合约报2799元，跌15元，跌幅0.53%；加权合约累计成交213238手，比前一交易日减少213210手，跌幅50%；持仓量541209手增加1513手，涨幅0.28%。 今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，5月13日氧化铝华南地区每吨
+IPO前夕，SpaceX的“天价薪酬”方案突然刷屏。 据最新消息，SpaceX公司董事会已经批准了一项前所未有的薪酬方案，CEO埃隆·马斯克的薪酬将与实现未来目标挂钩，包括火星殖民以及太空数据中心建设。 目前SpaceX公司正紧锣密鼓地筹备上市。据报道，该公司计划在马斯克6月28日生日前后启动IPO，届时公司估值或达约1.75万亿美元（约合人民币12万亿元），或将成为史上规模最
 
 ## 正文
 
-长江有色网5月13日讯，今日氧化铝所有合约全线收跌，主力月2609合约偏弱走软；截止当日15：00收盘，氧化铝主力月2609合约报2799元，跌15元，跌幅0.53%；加权合约累计成交213238手，比前一交易日减少213210手，跌幅50%；持仓量541209手增加1513手，涨幅0.28%。
+IPO前夕，SpaceX的“天价薪酬”方案突然刷屏。
 
-今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，5月13日氧化铝华南地区每吨报2680-2730元之间，与前一交易日报价持平；华东地区氧化铝每吨报2680-2720元之间，与前一交易日报价持平；西南地区氧化铝每吨2765-2805元之间，与前一交易日报价持平；西北地区氧化铝每吨报2985-3025元之间，与前一交易日报价持平。
+据最新消息，SpaceX公司董事会已经批准了一项前所未有的薪酬方案，CEO埃隆·马斯克的薪酬将与实现未来目标挂钩，包括火星殖民以及太空数据中心建设。
 
-今日上期所氧化铝期货主力2605合约震荡走弱，日间交易收跌0.53%，国内氧化铝现货价格持稳； 宏观层面，凯文·沃什预计本周正式确认为美联储主席。
+目前SpaceX公司正紧锣密鼓地筹备上市。
 
-尽管其释放出愿意降息的信号，但市场对政策效果的信心逐渐消退。
+据报道，该公司计划在马斯克6月28日生日前后启动IPO，届时公司估值或达约1.75万亿美元（约合人民币12万亿元），或将成为史上规模最大的IPO项目。
 
-周二（5月12日），美国超预期通胀数据引爆金融市场，交易员对美联储政策预期出现根本性反转，彻底放弃降息期待，转而押注年底前加息概率攀升至约37%。
+与此同时，马斯克对OpenAI的诉讼案也引发高度关注。
 
-美元指数延续偏强走势，全球股市涨跌互现，市场多空交织。
+马斯克于当地时间28日亲赴联邦法院出庭，指控OpenAI“窃取非营利机构”，并索赔逾1800亿美元、要求驱逐OpenAI现任CEO萨姆·奥尔特曼。
 
-叠加氧化铝自身供应过剩的格局压制，今日氧化铝期货主力呈现偏弱震荡走势。
+有分析人士指出，这场为期四周的世纪对决，或将影响OpenAI公司IPO的命运。
 
-基本面方面，海外印度国家铝业宣布部分减产，且几内亚铝土矿出口政策尚不明朗，进口矿价格持稳，对海外氧化铝价格形成一定支撑。
+SpaceX曝出天价薪酬 美东时间4月29日，据路透社报道，SpaceX公司董事会已经批准了公司创始人马斯克的薪酬计划。
 
 ## 相关推荐
 
-- 2026-06-29 19:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 19:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 19:48 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 19:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 19:24 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 19:36 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 19:41 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 19:33 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 19:27 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 19:40 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 19:35 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 19:34 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 19:52 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 19:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 19:28 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 19:59 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 19:56 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 19:46 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 19:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 19:31 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 19:57 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 19:41 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 19:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 19:59 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 19:48 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 19:35 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 19:59 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 19:44 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 19:34 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/819195200416.shtml)
-- 2026-06-29 19:43 - [一见倾心](https://www.share.minike.top/Article/details/44374707.shtml)
-- 2026-06-29 19:43 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/5757826.shtml)
-- 2026-06-29 19:29 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/1406833.shtml)
-- 2026-06-29 19:28 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/803412569.shtml)
-- 2026-06-29 19:42 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/51277457.shtml)
-- 2026-06-29 19:39 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/73766.shtml)
-- 2026-06-29 19:35 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/251420.shtml)
-- 2026-06-29 19:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/2754569403.shtml)
-- 2026-06-29 19:24 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/4930405.shtml)
-- 2026-06-29 19:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/5386764.shtml)
-- 2026-06-29 19:31 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/194857415.shtml)
-- 2026-06-29 19:32 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/802202955.shtml)
-- 2026-06-29 19:37 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/95705.shtml)
-- 2026-06-29 19:30 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/153989529682.shtml)
+- 2026-06-29 19:46 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/896824168.shtml)
+- 2026-06-29 19:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/14804.shtml)
+- 2026-06-29 19:55 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/113361697.shtml)
+- 2026-06-29 19:51 - [起风了](http://www.share.kurohicncr.top/Article/details/552659858945.shtml)
+- 2026-06-29 19:43 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/41273045.shtml)
+- 2026-06-29 19:52 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/1282138430.shtml)
+- 2026-06-29 19:32 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/57531372.shtml)
+- 2026-06-29 19:50 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/87918376.shtml)
+- 2026-06-29 19:53 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/63619.shtml)
+- 2026-06-29 19:34 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/83855.shtml)
+- 2026-06-29 19:43 - [东宫女主是不是顶级恋爱脑](http://www.share.minike.top/Article/details/456137.shtml)
+- 2026-06-29 19:43 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/71728698034.shtml)
+- 2026-06-29 19:43 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/246645250.shtml)
+- 2026-06-29 19:44 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/4744526.shtml)
+- 2026-06-29 19:38 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/45184.shtml)

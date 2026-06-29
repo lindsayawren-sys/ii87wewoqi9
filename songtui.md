@@ -1,59 +1,60 @@
-# ATFX:美原油为何在今日13 30快速拉升
+# 哈门那利润下滑，联邦医保评级走低拖累奖金收入
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月12，ATFX：现阶段，美原油WTI主要由消息面驱动：当主流预期倾向美伊和谈有望时，美原油迅速下跌；当主流预期倾向于美伊重新开打时，美原油迅速上涨。 ▲ATFX图 北京时间今日13：30，美原油从开盘价95.72美元迅速拉升，截至北京时间16：15，美原油最高报价97.8美元，涨幅超2美元。同期的纽约原油期货价格已经上破100美元关口。是什么因素
+专题：聚焦美股2026年第一季度财报 公司重申全年调整后每股收益指引至少 9 美元 因2026 年联邦优势医保星级评级下降带来盈利逆风，医疗保险公司哈门那一季度利润同比下滑。 公司盘前股价下跌 7.4%，报 212.69 美元。 公司维持全年调整后每股收益指引不变，预计至少 9 美元； 同时下调非调整后每股收益预期，从此前至少 8.89 美元降至至少 8.36 美元。 哈门那表
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月12，ATFX：现阶段，美原油WTI主要由消息面驱动：当主流预期倾向美伊和谈有望时，美原油迅速下跌；当主流预期倾向于美伊重新开打时，美原油迅速上涨。
+专题：聚焦美股2026年第一季度财报 公司重申全年调整后每股收益指引至少 9 美元 因2026 年联邦优势医保星级评级下降带来盈利逆风，医疗保险公司哈门那一季度利润同比下滑。
 
-▲ATFX图 北京时间今日13：30，美原油从开盘价95.72美元迅速拉升，截至北京时间16：15，美原油最高报价97.8美元，涨幅超2美元。
+公司盘前股价下跌 7.4%，报 212.69 美元。
 
-同期的纽约原油期货价格已经上破100美元关口。
+公司维持全年调整后每股收益指引不变，预计至少 9 美元； 同时下调非调整后每股收益预期，从此前至少 8.89 美元降至至少 8.36 美元。
 
-是什么因素导致美原油在欧盘开始之前出现剧烈上涨走势？
+哈门那表示，公司正在为多年转型计划计提多项费用，包括离职补偿金、资产减值及外部咨询开支。
 
-▲ATFX图 回顾当时的财经日历，虽然有大量的数据发布，但能够撼动市场的，可能就是上图中的纽约联储主席威廉姆斯演讲。
+该转型计划旨在 “根据不断变化的市场环境，重新调整公司成本结构、运营模式及技术布局”。
 
-这场演讲发发生在北京时间15：16，当时的美原油已经出现了相当幅度的涨幅。
+受医疗服务使用频次增加、药品成本上涨等多重因素影响，医疗开支走高，压制了医疗保险公司利润。
 
-德国的通胀率数据虽然也比较重要，但结果是年率维持2.9%不变，月率维持0.6%不变，数据表现稳定，无法作为驱动美原油价格大幅波动的直接理由。
+老年群体医疗服务使用率显著上升，而哈门那业务高度依赖联邦优势医保计划，因此成本压力高于同业保险公司。
 
-消息面上，美国总统特朗普此前表态对伊朗的回应“完全无法接受”，有消息称特朗普正在考虑对伊朗重新采取打击行动。
+哈门那此前已预警，受本年度联邦优势医保星级评级下调影响，2026 年盈利将承压。
 
 ## 相关推荐
 
-- 2026-06-29 19:26 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 19:46 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 19:31 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 19:33 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 19:28 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 19:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 19:38 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 19:36 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 19:37 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-29 19:41 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 19:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 19:41 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 19:53 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 19:57 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 19:36 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 19:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 19:36 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 19:44 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 19:45 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 19:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 19:46 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 19:35 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 19:49 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 19:48 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 19:36 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 19:39 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 19:37 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/16347.shtml)
-- 2026-06-29 19:53 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/363974.shtml)
-- 2026-06-29 19:25 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/132554933.shtml)
-- 2026-06-29 19:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/85126.shtml)
-- 2026-06-29 19:40 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/3409917954.shtml)
-- 2026-06-29 19:30 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/665823379980.shtml)
-- 2026-06-29 19:40 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/4964792.shtml)
-- 2026-06-29 19:44 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/0936357375.shtml)
-- 2026-06-29 19:24 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/3913719.shtml)
-- 2026-06-29 19:42 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/7369868781.shtml)
-- 2026-06-29 19:38 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/0301820.shtml)
-- 2026-06-29 19:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/83091.shtml)
-- 2026-06-29 19:46 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/627142904531.shtml)
-- 2026-06-29 19:27 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/265546.shtml)
-- 2026-06-29 19:24 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/1481908969.shtml)
+- 2026-06-29 19:52 - [金刚川](https://www.share.minike.top/Article/details/5399152.shtml)
+- 2026-06-29 19:46 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/924738.shtml)
+- 2026-06-29 19:46 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/057952193.shtml)
+- 2026-06-29 19:44 - [无畏为自己的猫正名了](https://www.share.kurohicncr.top/Article/details/7732006205.shtml)
+- 2026-06-29 19:36 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/175550675.shtml)
+- 2026-06-29 19:31 - [学者：建设性战略稳定重塑中美关系](http://www.blog.minike.top/Article/details/047319.shtml)
+- 2026-06-29 19:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/507932191997.shtml)
+- 2026-06-29 19:40 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/534904.shtml)
+- 2026-06-29 19:57 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/82731801.shtml)
+- 2026-06-29 19:54 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/15028989.shtml)
+- 2026-06-29 19:52 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/359187.shtml)
+- 2026-06-29 19:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/27908517.shtml)
+- 2026-06-29 19:33 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/5194597037.shtml)
+- 2026-06-29 19:46 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/13593679494.shtml)
+- 2026-06-29 19:59 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/344340247532.shtml)

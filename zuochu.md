@@ -1,56 +1,54 @@
-# 刚刚，白银，直线拉升
+# 外媒称美国暂停向华虹供应半导体设备，外交部回应
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-来源：中国基金报 【导读】白银突然暴涨 中国基金报记者 泰勒 兄弟姐妹们啊，今晚原油、股市表现平平，但是现货白银突然暴力拉升！ 5月11日晚间，没有一丝丝防备，白银价格突然直线拉升，现暴涨约7%！ 泰勒找了一圈，目前还没有找到触发白银暴涨的原因，因为此时此刻，无论是原油市场还是美股，都没有出现大幅波动。 而市场有一种解读，就是技术分析显示，银价可能正在修复。 白银价格自1月暴跌
+4月29日，外交部发言人林剑主持例行记者会。 路透社记者提问，有报道称，美国上周已要求多家芯片设备公司停止向中国第二大芯片制造商华虹半导体发货。中方对此有何评论？ 林剑强调，中方已多次表明了在美输华芯片问题上的原则立场，希望美方以实际行动维护全球产供链的稳定畅通。 来源：北京日报客户端 责任编辑：刘万里 SF014
 
 ## 正文
 
-来源：中国基金报 【导读】白银突然暴涨 中国基金报记者 泰勒 兄弟姐妹们啊，今晚原油、股市表现平平，但是现货白银突然暴力拉升！
+4月29日，外交部发言人林剑主持例行记者会。
 
-5月11日晚间，没有一丝丝防备，白银价格突然直线拉升，现暴涨约7%！
+路透社记者提问，有报道称，美国上周已要求多家芯片设备公司停止向中国第二大芯片制造商华虹半导体发货。
 
-泰勒找了一圈，目前还没有找到触发白银暴涨的原因，因为此时此刻，无论是原油市场还是美股，都没有出现大幅波动。
+中方对此有何评论？
 
-而市场有一种解读，就是技术分析显示，银价可能正在修复。
+林剑强调，中方已多次表明了在美输华芯片问题上的原则立场，希望美方以实际行动维护全球产供链的稳定畅通。
 
-白银价格自1月暴跌，并在伊朗战争爆发初期再度下挫以来，一直表现挣扎。
-
-3月，白银一度跌至每盎司60.94美元的三个月低点，较1月29日创下的121.64美元历史高位跌去约50%。
-
-此后，白银价格已经企稳。
-
-过去六周里，白银重新站上了两个关键技术分析位，也就是所谓的下行趋势线。
+来源：北京日报客户端 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 19:51 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 19:40 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 19:39 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 19:50 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 19:48 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 19:39 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 19:50 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 19:53 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 19:40 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 19:48 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 19:33 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 19:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 19:53 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 19:39 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 19:34 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 19:58 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 19:54 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 19:55 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 19:47 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 19:44 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 19:56 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 19:47 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:42 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/7550879.shtml)
-- 2026-06-29 19:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/348290873.shtml)
-- 2026-06-29 19:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/39871710284.shtml)
-- 2026-06-29 19:33 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/5303097.shtml)
-- 2026-06-29 19:40 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/69678.shtml)
-- 2026-06-29 19:27 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/739936.shtml)
-- 2026-06-29 19:41 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/380878.shtml)
-- 2026-06-29 19:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/264338684055.shtml)
-- 2026-06-29 19:37 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/32206.shtml)
-- 2026-06-29 19:31 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/70484868.shtml)
-- 2026-06-29 19:46 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/5278392.shtml)
-- 2026-06-29 19:39 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/953506.shtml)
-- 2026-06-29 19:32 - [一生一世](https://www.share.kurohicncr.top/Article/details/02391602006.shtml)
-- 2026-06-29 19:50 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/442935258793.shtml)
-- 2026-06-29 19:34 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/7070275.shtml)
+- 2026-06-29 19:57 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/97960593.shtml)
+- 2026-06-29 19:33 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/349826502790.shtml)
+- 2026-06-29 19:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/4177965.shtml)
+- 2026-06-29 19:36 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/703368981313.shtml)
+- 2026-06-29 19:54 - [欧洲多国高温突破40摄氏度](http://www.share.kurohicncr.top/Article/details/09765332441.shtml)
+- 2026-06-29 19:53 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/4473417304.shtml)
+- 2026-06-29 19:53 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/7325496683.shtml)
+- 2026-06-29 19:51 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/59643547785.shtml)
+- 2026-06-29 19:31 - [大马同意延长马航370残骸搜寻工作](https://www.share.minike.top/Article/details/506863342.shtml)
+- 2026-06-29 19:54 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/370282.shtml)
+- 2026-06-29 19:30 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/8253959380.shtml)
+- 2026-06-29 19:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/3087057845.shtml)
+- 2026-06-29 19:38 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/17858410858.shtml)
+- 2026-06-29 19:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/145638603.shtml)
+- 2026-06-29 19:42 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/2536854390.shtml)

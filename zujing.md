@@ -1,58 +1,58 @@
-# TMC与Allseas签署协议，共建首套商业深海结核回收系统
+# 国台办回应赖清德取消窜访斯威士兰
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。 该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。 该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。 TM
+中新网4月29日电 4月29日，国台办举行例行新闻发布会。有记者问：对于赖清德取消窜访斯威士兰，有舆论认为，越来越多的国家将坚持一个中国原则视为理性决策，台湾在国际社会中将更难所谓“交到朋友”。还有舆论认为，赖清德当局借此事大肆渲染“大陆打压”，是要蓄意升高两岸对立对抗，制造“芒果干”(“亡国感”)，符合民进党一贯选举招数。请问对此有何评论？ 国台办发言人陈斌华表示，我们对待台
 
 ## 正文
 
-The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。
+中新网4月29日电 4月29日，国台办举行例行新闻发布会。
 
-该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。
+有记者问：对于赖清德取消窜访斯威士兰，有舆论认为，越来越多的国家将坚持一个中国原则视为理性决策，台湾在国际社会中将更难所谓“交到朋友”。
 
-该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。
+还有舆论认为，赖清德当局借此事大肆渲染“大陆打压”，是要蓄意升高两岸对立对抗，制造“芒果干”(“亡国感”)，符合民进党一贯选举招数。
 
-TMC表示，该系统还将包括布放回收系统、立管系统以及一艘转运船。
+请问对此有何评论？
 
-TMC称，关键长周期设备（包括立管和脐带缆系统）的概念设计和基础工程已经完成，预计在2026年第三季度末启动供应商接洽和分包合同授予。
+国台办发言人陈斌华表示，我们对待台湾对外交往的立场是一贯的、明确的，即必须按一个中国原则处理。
 
-公司预计海上系统的调试将于2027年第四季度开始。
+一个中国原则是人心所向、大势所趋、大义所在，妄图在国际社会挑战一中原则，只会四处碰壁。
 
-根据协议，Allseas将承担部分开发成本，并通过未来的生产收入回收。
+赖清德当局顽固坚持“台独”立场，是台海局势紧张动荡的始作俑者。
 
-TMC董事长兼首席执行官杰拉德·巴伦表示：“与Allseas的这份协议现在是我们与Allseas战略联盟的合同基石：它建立了一个清晰的商业框架，规定了我们如何完成首套商业规模结核回收系统的开发和调试，并启动海上结核回收作业。
+赖清德当局妄图通过外窜搞所谓“外交突破”，遭到相关国家拒绝后，不但不思悔改，还公然歪曲事实，编造所谓“受害者”叙事，欺骗岛内民众。
 
 ## 相关推荐
 
-- 2026-06-29 19:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 19:31 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 19:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 19:40 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 19:36 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 19:35 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 19:49 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-29 19:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 19:40 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 19:46 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 19:53 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 19:26 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 19:47 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 19:32 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 19:32 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 19:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 19:51 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 19:59 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 19:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 19:54 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 19:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 19:32 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 19:36 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 19:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/0904414592.shtml)
-- 2026-06-29 19:25 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/26239229.shtml)
-- 2026-06-29 19:42 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/8493624.shtml)
-- 2026-06-29 19:28 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/5075002.shtml)
-- 2026-06-29 19:24 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/7185349.shtml)
-- 2026-06-29 19:48 - [扬名立万](https://www.share.kurohicncr.top/Article/details/408319606.shtml)
-- 2026-06-29 19:44 - [法生态部长反对装空调却自己吹空调](http://www.blog.minike.top/Article/details/1588848885.shtml)
-- 2026-06-29 19:33 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/72865.shtml)
-- 2026-06-29 19:34 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/16039.shtml)
-- 2026-06-29 19:51 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/854543301.shtml)
-- 2026-06-29 19:40 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/37889.shtml)
-- 2026-06-29 19:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/36074900564.shtml)
-- 2026-06-29 19:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/85661.shtml)
-- 2026-06-29 19:32 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/2128172862.shtml)
-- 2026-06-29 19:25 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/2908493026.shtml)
+- 2026-06-29 19:42 - [我们的少年时代2](https://www.blog.minike.top/Article/details/7513535.shtml)
+- 2026-06-29 19:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/9884215.shtml)
+- 2026-06-29 19:33 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/1927389503.shtml)
+- 2026-06-29 19:42 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/278985786.shtml)
+- 2026-06-29 19:51 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/42967548.shtml)
+- 2026-06-29 19:36 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/30379476.shtml)
+- 2026-06-29 19:34 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/662771886.shtml)
+- 2026-06-29 19:43 - [逆天祖国人](https://www.blog.minike.top/Article/details/42196.shtml)
+- 2026-06-29 19:43 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/73346.shtml)
+- 2026-06-29 19:44 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/8466717.shtml)
+- 2026-06-29 19:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/501244.shtml)
+- 2026-06-29 19:38 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/229771.shtml)
+- 2026-06-29 19:33 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/151371.shtml)
+- 2026-06-29 19:42 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/56112782793.shtml)
+- 2026-06-29 19:40 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/11037790.shtml)

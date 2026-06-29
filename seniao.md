@@ -1,56 +1,53 @@
-# Arvinas Q1 2026财报前瞻：市场聚焦PROTAC平台进展，营收预计同比下滑
+# 亚马逊净销售额增长17% 净利润增长77% AWS增速创15季新高
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-靶向蛋白降解疗法先驱Arvinas将于5月12日周二盘前公布2026年第一季度财报。市场普遍预期，受合作收入确认周期影响，本季营收将同比大幅下滑，但市场焦点更多集中于其领先的PROTAC药物开发管线的临床进展及长期商业前景。 核心财务预期 根据多家机构数据汇总，分析师预计Arvinas第一季度每股亏损为0.96美元，较去年同期的亏损0.63美元有所扩大；预期营收约为1661万美
+专题：聚焦美股2026年第一季度财报 亚马逊公司今日公布了截至2026年3月31日的第一季度财务业绩。 净销售额为1815亿美元，同比增长17%（剔除汇率影响增长15%） 营业收入为239亿美元，同比增长30% 净利润为303亿美元，同比增长77% 稀释每股收益为2.78美元，同比增长75% 净利润包含来自Anthropic投资的168亿美元税前收益（计入非营业收益） 分部门业
 
 ## 正文
 
-靶向蛋白降解疗法先驱Arvinas将于5月12日周二盘前公布2026年第一季度财报。
+专题：聚焦美股2026年第一季度财报 亚马逊公司今日公布了截至2026年3月31日的第一季度财务业绩。
 
-市场普遍预期，受合作收入确认周期影响，本季营收将同比大幅下滑，但市场焦点更多集中于其领先的PROTAC药物开发管线的临床进展及长期商业前景。
+净销售额为1815亿美元，同比增长17%（剔除汇率影响增长15%） 营业收入为239亿美元，同比增长30% 净利润为303亿美元，同比增长77% 稀释每股收益为2.78美元，同比增长75% 净利润包含来自Anthropic投资的168亿美元税前收益（计入非营业收益） 分部门业绩 现金流指标（过去十二个月） 自由现金流下降主要因AI投资导致资本支出增加（同比增加593亿美元） 高管引言 总裁兼首席执行官安迪·贾西表示：“AWS实现28%增长（15个季度最快），芯片业务年收入超过200亿美元（同比增长三位数），广告TTM收入超过700亿美元，商店单位增长15%。
 
-核心财务预期 根据多家机构数据汇总，分析师预计Arvinas第一季度每股亏损为0.96美元，较去年同期的亏损0.63美元有所扩大；预期营收约为1661万美元，同比大幅下降约91%。
+Amazon Leo、Project Hail Mary等取得里程碑进展。
 
-值得注意的是，上一季度公司营收950万美元，大幅低于市场预期。
-
-核心看点：Vepdegestrant商业化进展与管线里程碑 本季财报的最大看点在于其核心产品Vepdegestrant的商业化放量情况。
-
-该药物是与辉瑞合作开发的用于治疗乳腺癌的PROTAC蛋白降解剂，已获美国FDA批准，是全球首个获批的PROTAC类药物。
-
-投资者将密切关注其上市初期的销售渗透率及医生接受度。
-
-除Vepdegestrant外，公司多条早期管线也进入关键数据读出阶段，包括靶向LRRK2的神经退行性疾病资产、靶向KRAS G12D的实体瘤资产以及靶向BCL6的淋巴瘤资产。
+” 其他业务亮点 OpenAI承诺通过AWS基础设施消耗约2GW Trainium容量 Anthropic将获得最多5GW Trainium芯片 Amazon Bedrock Q1处理token量超以往总和，客户支出环比增长170% Prime Day将于6月在大多数国家举行 在美国推出1小时和3小时当日达选项 Amazon Now覆盖九个国家数千万客户 “拯救计划”全球累计票房近6.15亿美元 在轨Amazon Leo卫星超过250颗 Alexa+扩展到墨西哥、英国、意大利、西班牙 2026年第二季度业绩指引 指引假设Prime Day在第二季度举行，汇率预计带来约10个基点的不利影响 1． AWS业务 AWS净销售额同比增长28%，是15个季度以来的最快增速 AWS营业利润从115亿美元增至142亿美元 CEO指出AWS增长“在很大基数上” 2．
 
 ## 相关推荐
 
-- 2026-06-29 19:37 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 19:36 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 19:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 19:49 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 19:31 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 19:53 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 19:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 19:40 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 19:44 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 19:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 19:59 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 19:38 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 19:31 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 19:43 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 19:57 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 19:50 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 19:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 19:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 19:42 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 19:48 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 19:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 19:35 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 19:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 19:55 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 19:42 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/59121.shtml)
-- 2026-06-29 19:50 - [明天睁眼按时来取代我](https://www.blog.kurohicncr.top/Article/details/756072264947.shtml)
-- 2026-06-29 19:25 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/128071211.shtml)
-- 2026-06-29 19:30 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/959955.shtml)
-- 2026-06-29 19:30 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/26482.shtml)
-- 2026-06-29 19:27 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/549332599673.shtml)
-- 2026-06-29 19:35 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.kurohicncr.top/Article/details/84505592247.shtml)
-- 2026-06-29 19:36 - [勇敢的心第二部](http://www.share.minike.top/Article/details/1248678468.shtml)
-- 2026-06-29 19:49 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/8822327.shtml)
-- 2026-06-29 19:25 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/817657.shtml)
-- 2026-06-29 19:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/53621.shtml)
-- 2026-06-29 19:45 - [滚石点名酒店员工说有急救培训](http://www.share.minike.top/Article/details/989374705.shtml)
-- 2026-06-29 19:24 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/179694032607.shtml)
-- 2026-06-29 19:29 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.minike.top/Article/details/4896084.shtml)
-- 2026-06-29 19:40 - [流金岁月](http://www.blog.minike.top/Article/details/99312866021.shtml)
+- 2026-06-29 19:30 - [滚石点名酒店员工说有急救培训](https://www.share.kurohicncr.top/Article/details/121679323.shtml)
+- 2026-06-29 19:48 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/66176.shtml)
+- 2026-06-29 19:35 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/11252.shtml)
+- 2026-06-29 19:55 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/184857.shtml)
+- 2026-06-29 19:42 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/844381.shtml)
+- 2026-06-29 19:45 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/0620845.shtml)
+- 2026-06-29 19:53 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/324027603279.shtml)
+- 2026-06-29 19:37 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/66292812.shtml)
+- 2026-06-29 19:57 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/752679582392.shtml)
+- 2026-06-29 19:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/99775.shtml)
+- 2026-06-29 19:45 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/5864807088.shtml)
+- 2026-06-29 19:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/448069302.shtml)
+- 2026-06-29 19:33 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/676071.shtml)
+- 2026-06-29 19:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/09022.shtml)
+- 2026-06-29 19:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/830181.shtml)

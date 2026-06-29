@@ -1,61 +1,59 @@
-# 中国地震局发布防震减灾科普资源库 实现全民共享“掌上可学”
+# 财政部原副部长朱光耀：国际能源署预测2028年中国将实现碳达峰
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-中新网吉林5月12日电 (记者 孙自法)中国地震局5月12日发布防震减灾科普资源库并正式上线运行，公众登录国家防震减灾公共服务平台即可查看，其面向社会开放，提供权威、普惠、便捷的防震减灾科普服务，从而实现权威资源全民共享、防震避险“掌上可学”。 当天是中国第18个全国防灾减灾日，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。财政部原副部长朱光耀在致辞中谈到， 气候危机是对全人类的挑战，保护人类赖以生存的地球家园是世界各国的共同责任。 他提到，根据联合国的数据，为实现巴黎气候协定目标，预计全球累计清洁能源投资需要90-98万亿美元，2030年前每年新增清洁能源投资5万亿美元
 
 ## 正文
 
-中新网吉林5月12日电 (记者 孙自法)中国地震局5月12日发布防震减灾科普资源库并正式上线运行，公众登录国家防震减灾公共服务平台即可查看，其面向社会开放，提供权威、普惠、便捷的防震减灾科普服务，从而实现权威资源全民共享、防震避险“掌上可学”。
+专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
 
-当天是中国第18个全国防灾减灾日，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。
+财政部原副部长朱光耀在致辞中谈到， 气候危机是对全人类的挑战，保护人类赖以生存的地球家园是世界各国的共同责任。
 
-由中国地震局建设的防震减灾科普资源库在活动上发布。
+他提到，根据联合国的数据，为实现巴黎气候协定目标，预计全球累计清洁能源投资需要90-98万亿美元，2030年前每年新增清洁能源投资5万亿美元左右。
 
-作为集数字化阅读、沉浸式浏览、便捷化使用、全流程管理于一体的防震减灾科普资源服务平台，防震减灾科普资源库着力构建科学权威、分类管理、共建共享、动态调整的供给体系，包括规范、视频、文章、图解、活动、场馆、图书7类资源，首批上线500余部作品，支持关键词、主题、类型3种精准检索，面向社会各界提供精准化、普惠性科普服务。
+中国作为最大的发展中国家，为了实现建设美丽中国的宏伟目标，也是为了世界的共同利益，承诺力争在2030年前碳达峰，2060年前实现碳中和，并力争做得更好。
 
-据介绍，作为推进防震减灾科普工作数字化、智能化、普惠化的重要载体，防震减灾科普资源库由中国地震局公共服务司(法规司)依托国家防震减灾公共服务平台搭建，着力打造全国防震减灾科普资源的权威“总仓库”与“一站式服务窗口”。
+为实现此目标，预计2060年前，中国在清洁能源方面的投资约有139万亿人民币，在2030年前每年增加的投资约为3万亿人民币。
 
-其科普资源丰富，覆盖地震基础知识、监测预警、抗震设防、应急避险、自救互救、应急科普、震后心理疏导等内容，支持多维度精准检索，并建立常态化更新机制，持续收录发布最新科普产品，满足公众碎片化学习、系统性求知、场景化应用等多元需求。
+“中国言必行，行必果。
 
-中国地震局表示，下一步将以防震减灾科普资源库为平台，持续丰富资源内容，优化服务功能，扩大覆盖范围，打通科普服务“最后一公里”，推动防震减灾走进千家万户、深入人心。
+”朱光耀指出，根据国际能源署的数据，2020年至2024年，中国清洁能源的投资额年均在5000亿-6000亿美元之间，连续多年稳居全球最大清洁能源投资国地位。
 
-(完)
+其中，2024年清洁能源投资为6250亿美元，折合人民币4万亿元以上，占当年全球清洁能源投资的1/3。
 
 ## 相关推荐
 
-- 2026-06-29 19:53 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 19:35 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 19:31 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 19:36 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 19:50 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 19:54 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 19:48 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 19:27 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 19:41 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 19:48 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 19:25 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 19:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 19:38 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:28 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 19:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 19:32 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 19:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 19:36 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 19:52 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 19:46 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 19:48 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 19:47 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 19:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 19:34 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 19:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:32 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/52591565.shtml)
-- 2026-06-29 19:51 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/92552813.shtml)
-- 2026-06-29 19:25 - [沉睡花园](http://www.share.minike.top/Article/details/3450697114.shtml)
-- 2026-06-29 19:28 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/973732846799.shtml)
-- 2026-06-29 19:27 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/049547075280.shtml)
-- 2026-06-29 19:42 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/67055414.shtml)
-- 2026-06-29 19:24 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/31334462.shtml)
-- 2026-06-29 19:33 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/7187891692.shtml)
-- 2026-06-29 19:43 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/832924264039.shtml)
-- 2026-06-29 19:37 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/204776328716.shtml)
-- 2026-06-29 19:33 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/95546185450.shtml)
-- 2026-06-29 19:36 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/12514466015.shtml)
-- 2026-06-29 19:43 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/198514855722.shtml)
-- 2026-06-29 19:41 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/3107781509.shtml)
-- 2026-06-29 19:37 - [章若楠包场白敬亭特立独行](https://www.share.kurohicncr.top/Article/details/8831665.shtml)
+- 2026-06-29 19:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/679640904.shtml)
+- 2026-06-29 19:31 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/581946961680.shtml)
+- 2026-06-29 19:35 - [温网](https://www.blog.minike.top/Article/details/177404302576.shtml)
+- 2026-06-29 19:41 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/413387683429.shtml)
+- 2026-06-29 19:56 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/72691458.shtml)
+- 2026-06-29 19:54 - [周生如故](https://www.share.kurohicncr.top/Article/details/94464961.shtml)
+- 2026-06-29 19:40 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/178627115475.shtml)
+- 2026-06-29 19:56 - [青春环游记第三季](http://www.share.minike.top/Article/details/079408454699.shtml)
+- 2026-06-29 19:47 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/36630083.shtml)
+- 2026-06-29 19:39 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/0523046730.shtml)
+- 2026-06-29 19:41 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/212299814973.shtml)
+- 2026-06-29 19:38 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/5122965967.shtml)
+- 2026-06-29 19:47 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/353160370532.shtml)
+- 2026-06-29 19:51 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/2339093.shtml)
+- 2026-06-29 19:32 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/58451628124.shtml)

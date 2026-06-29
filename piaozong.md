@@ -1,60 +1,57 @@
-# 6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？
+# 尹锡悦涉嫌妨碍逮捕案二审被判有期徒刑7年
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|叶峰 近日，白酒上市公司全部公布了2025年年度业绩。20家A股白酒上市公司中，仅山西汾酒、*ST椰岛营收净利“双增”。行业整体寒意弥漫，去库存、稳价格成为摆在每一家酒企面前的紧迫课题。 压力之下，渠道结构的深层变化正在发生。 《每日经济新闻·将进酒》记者统计发现，在整体业绩承压下滑的背后，直
+中新社首尔4月29日电 (记者 刘旭 金旭)29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。尹锡悦律师团队表示将提起上诉。 尹锡悦涉嫌妨碍逮捕等罪行一案二审当天下午在首尔高等法院举行。法院在维持一审对部分指控认定有罪的同时，将一审中判决无罪的部分指控改判为有罪，判处其有期徒刑7年，较一审判决加重两年。 法院指出，被告2025年1月动员总统警卫处人员阻挠公调处执
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|叶峰 近日，白酒上市公司全部公布了2025年年度业绩。
+中新社首尔4月29日电 (记者 刘旭 金旭)29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。
 
-20家A股白酒上市公司中，仅山西汾酒、*ST椰岛营收净利“双增”。
+尹锡悦律师团队表示将提起上诉。
 
-行业整体寒意弥漫，去库存、稳价格成为摆在每一家酒企面前的紧迫课题。
+尹锡悦涉嫌妨碍逮捕等罪行一案二审当天下午在首尔高等法院举行。
 
-压力之下，渠道结构的深层变化正在发生。
+法院在维持一审对部分指控认定有罪的同时，将一审中判决无罪的部分指控改判为有罪，判处其有期徒刑7年，较一审判决加重两年。
 
-《每日经济新闻·将进酒》记者统计发现，在整体业绩承压下滑的背后，直销渠道（含新兴渠道、电商等）却有着反向向上的趋势。
+法院指出，被告2025年1月动员总统警卫处人员阻挠公调处执行逮捕令，涉嫌妨碍特别公务执行、滥用职权妨碍权利行使及教唆窝藏罪犯。
 
-以贵州茅台、五粮液（维权）、山西汾酒、泸州老窖、洋河股份、古井贡酒等六家头部白酒上市公司为例，直销收入合计达到1042亿元。
+同时，为应对内乱调查，尹锡悦指示总统警卫次长金成勋删除前反间谍司令官吕寅兄等人的加密通信记录，涉嫌教唆违反《总统警卫法》。
 
-直销渠道总收入虽有微降，但其降幅明显小于整体营收降幅，收入占比相较于上一年提升约3个百分点；有酒企直销渠道占比甚至首次超过了经销渠道。
+上述指控与一审一致，均被认定有罪。
 
-消费者主权时代的到来，各大酒厂纷纷通过加码直营渠道“直面C端”“触达C端”。
+此外，法院指出，在宣布紧急戒严过程中，尹锡悦为制造“已召开国务会议”的形式，仅召集部分国务委员，涉嫌侵害9名未到场国务委员的戒严审议权。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 19:43 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 19:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 19:34 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 19:34 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 19:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 19:25 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 19:30 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 19:47 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 19:44 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 19:26 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 19:43 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 19:44 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 19:31 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 19:32 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 19:55 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 19:48 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 19:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 19:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 19:54 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 19:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 19:32 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 19:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 19:59 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 19:57 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [起风了](http://www.blog.minike.top/Article/details/26120.shtml)
-- 2026-06-29 19:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/1630519.shtml)
-- 2026-06-29 19:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/927647.shtml)
-- 2026-06-29 19:42 - [扫黑风暴](https://www.share.minike.top/Article/details/077142.shtml)
-- 2026-06-29 19:32 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/214566277632.shtml)
-- 2026-06-29 19:43 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/8312436.shtml)
-- 2026-06-29 19:51 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/625230558064.shtml)
-- 2026-06-29 19:49 - [金牌调解](https://www.blog.minike.top/Article/details/46973172.shtml)
-- 2026-06-29 19:53 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/34905790.shtml)
-- 2026-06-29 19:50 - [女心理师](http://www.share.minike.top/Article/details/8193486619.shtml)
-- 2026-06-29 19:30 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/92836221091.shtml)
-- 2026-06-29 19:31 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/3259708894.shtml)
-- 2026-06-29 19:50 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/63128211.shtml)
-- 2026-06-29 19:42 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/466910.shtml)
-- 2026-06-29 19:37 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/84290095.shtml)
+- 2026-06-29 19:50 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/68167670450.shtml)
+- 2026-06-29 19:45 - [AG 宫斗](https://www.share.minike.top/Article/details/873690615.shtml)
+- 2026-06-29 19:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/17647233.shtml)
+- 2026-06-29 19:55 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/21896371715.shtml)
+- 2026-06-29 19:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/344313564877.shtml)
+- 2026-06-29 19:51 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.kurohicncr.top/Article/details/8999832552.shtml)
+- 2026-06-29 19:56 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/04715.shtml)
+- 2026-06-29 19:47 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/46759511.shtml)
+- 2026-06-29 19:48 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/95484.shtml)
+- 2026-06-29 19:50 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/570568.shtml)
+- 2026-06-29 19:42 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/700691.shtml)
+- 2026-06-29 19:30 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/241204.shtml)
+- 2026-06-29 19:45 - [毒液2](http://www.share.minike.top/Article/details/19048094206.shtml)
+- 2026-06-29 19:54 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/45072.shtml)
+- 2026-06-29 19:52 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/69203068.shtml)

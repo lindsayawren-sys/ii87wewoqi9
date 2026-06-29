@@ -1,59 +1,58 @@
-# 尽管拟征收豪宅空置第二居所税，富人仍持续买入曼哈顿房产
+# 创业板人工智能 VS 通信，谁才是真正的“光模块ETF”？
 
-> 更新时间：2026-06-29 19:54:03 UTC+8
+> 更新时间：2026-06-29 20:00:02 UTC+8
 
 ## 摘要
 
-核心要点 尽管纽约市长拟推出第二居所豪宅税，业内经纪警告该政策可能引发富豪外流，但最新数据显示，曼哈顿高端豪宅成交量近一个月逆势走高。 房产研究机构奥尔尚房地产数据显示，4 月 14 日至 5 月 10 日期间，曼哈顿400 万美元及以上公寓共签约 133 套，去年同期为 130 套；交易总额同比上涨 10%，达11.2 亿美元。 顶级豪宅市场热度尤为强劲：1000 万美元及以
+来源：超级巴飞特 据说现在市场方向主要分两种，一是“站在光里”的，二是“光站在那里”的。 “光”就是光模块——AI算力里业绩最硬、资金最集中的环节。 然而，一个被广泛忽略的事实是：市场并不存在纯粹的“光模块ETF”。投资者若要捕获光模块的beta收益，只能从光模块暴露度较高的相关ETF中择优配置。 在这个过程中，有一个标的无论如何都绕不开——1年飙涨2倍的创业板人工智能ETF（
 
 ## 正文
 
-核心要点 尽管纽约市长拟推出第二居所豪宅税，业内经纪警告该政策可能引发富豪外流，但最新数据显示，曼哈顿高端豪宅成交量近一个月逆势走高。
+来源：超级巴飞特 据说现在市场方向主要分两种，一是“站在光里”的，二是“光站在那里”的。
 
-房产研究机构奥尔尚房地产数据显示，4 月 14 日至 5 月 10 日期间，曼哈顿400 万美元及以上公寓共签约 133 套，去年同期为 130 套；交易总额同比上涨 10%，达11.2 亿美元。
+“光”就是光模块——AI算力里业绩最硬、资金最集中的环节。
 
-顶级豪宅市场热度尤为强劲：1000 万美元及以上公寓签约量飙升 80%，增至 34 单。
+然而，一个被广泛忽略的事实是：市场并不存在纯粹的“光模块ETF”。
 
-眼下房产经纪和商界人士纷纷警示，新的第二居所税会逼走纽约富豪群体，连带削弱其消费能力。
+投资者若要捕获光模块的beta收益，只能从光模块暴露度较高的相关ETF中择优配置。
 
-奥尔尚房地产总裁唐娜・奥尔尚表示：“过去四周行情证明，即将落地的第二居所税并未对曼哈顿豪宅市场造成任何冲击。
+在这个过程中，有一个标的无论如何都绕不开——1年飙涨2倍的创业板人工智能ETF（159363）。
 
-” 当然，一旦正式征税，市场风向仍可能逆转。
+有人会问：那通信ETF（515880）呢？
 
-目前该税收提案正在纽约州议会审议流程中，也引发了一场围绕富豪征税问题的公开激烈博弈。
+它不也有光模块吗？
 
-这项税收由纽约市长曼达尼与州长霍楚尔于 4 月 15 日联合提出，针对价值 500 万美元及以上、非自住的纽约房产，按年征税。
+别急。
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 19:26 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 19:46 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 19:33 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 19:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:25 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 19:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 19:27 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 19:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 19:41 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-29 19:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 19:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 19:53 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 19:46 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 19:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 19:39 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 19:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 19:53 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 19:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 19:34 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 19:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 19:54 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 19:55 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 19:35 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 19:42 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/542577736.shtml)
-- 2026-06-29 19:46 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/85803706226.shtml)
-- 2026-06-29 19:54 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/0194171.shtml)
-- 2026-06-29 19:51 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/9889688119.shtml)
-- 2026-06-29 19:43 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/4203495442.shtml)
-- 2026-06-29 19:43 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/470067430816.shtml)
-- 2026-06-29 19:50 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/827107718050.shtml)
-- 2026-06-29 19:43 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/23175.shtml)
-- 2026-06-29 19:31 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/68383132996.shtml)
-- 2026-06-29 19:24 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/703162.shtml)
-- 2026-06-29 19:26 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/790228323.shtml)
-- 2026-06-29 19:41 - [青春环游记第三季](https://www.blog.minike.top/Article/details/7218776.shtml)
-- 2026-06-29 19:29 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/768467400.shtml)
-- 2026-06-29 19:42 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/6641815.shtml)
-- 2026-06-29 19:34 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/5914449.shtml)
+- 2026-06-29 19:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/048216638492.shtml)
+- 2026-06-29 19:42 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/4331854.shtml)
+- 2026-06-29 19:56 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/081970.shtml)
+- 2026-06-29 19:42 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/6660304.shtml)
+- 2026-06-29 19:38 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/66203.shtml)
+- 2026-06-29 19:39 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/92555359526.shtml)
+- 2026-06-29 19:37 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/905252.shtml)
+- 2026-06-29 19:57 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/03216.shtml)
+- 2026-06-29 19:32 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/28453.shtml)
+- 2026-06-29 19:43 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/436619110405.shtml)
+- 2026-06-29 19:48 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/6391976714.shtml)
+- 2026-06-29 19:49 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/985836.shtml)
+- 2026-06-29 19:42 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/8367866.shtml)
+- 2026-06-29 19:44 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/1465544.shtml)
+- 2026-06-29 19:45 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/52136.shtml)
