@@ -1,49 +1,49 @@
-# 视频|再次加仓泡泡玛特后 段永平发表对王宁的看法: 他对产品的理解和乔布斯同一级别对商业的理解比乔布斯强
+# 升辉清洁附属拟1575万元收购华立数字广东70%股权 进军人工智能系统开发
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 再次加仓泡泡玛特后，段永平发表对王宁的看法：他对产品的理解和乔布斯同一级别，对商业的理解比乔布斯还要强责任编辑：孙同怀
+升辉清洁（02521）发布公告，于2026年5月18日，华立数字郑州与买方（广州天佑升辉数字科技有限公司，本公司全资附属公司）订立股权转让协议，据此，买方同意购买而华立数字郑州同意出售华立数字广东的70%股权（即待售权益），代价为人民币1575万元。 董事认为，倘收购事项得以落实，将为本集团带来一个良机，进军人工智能系统开发及相关服务市场，并进一步加强华立数字广东在人工智能驱动
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+升辉清洁（02521）发布公告，于2026年5月18日，华立数字郑州与买方（广州天佑升辉数字科技有限公司，本公司全资附属公司）订立股权转让协议，据此，买方同意购买而华立数字郑州同意出售华立数字广东的70%股权（即待售权益），代价为人民币1575万元。
 
-来源：中国基金报 再次加仓泡泡玛特后，段永平发表对王宁的看法：他对产品的理解和乔布斯同一级别，对商业的理解比乔布斯还要强责任编辑：孙同怀
+董事认为，倘收购事项得以落实，将为本集团带来一个良机，进军人工智能系统开发及相关服务市场，并进一步加强华立数字广东在人工智能驱动服务方面的能力，从而扩阔本集团的收入来源，同时令华立数字广东的人工智能驱动服务组合进一步多元化。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 21:00 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 21:20 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 21:02 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 21:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 21:04 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 21:20 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 20:59 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 21:13 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 21:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 21:17 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 21:14 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 20:59 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 21:00 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 21:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 21:01 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 21:23 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 21:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 21:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 21:27 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 21:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 21:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 21:23 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 21:10 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 21:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 21:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 21:24 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 21:23 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:08 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/395892999.shtml)
-- 2026-06-29 21:15 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/453934010731.shtml)
-- 2026-06-29 20:56 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/4294948690.shtml)
-- 2026-06-29 21:01 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/591050.shtml)
-- 2026-06-29 21:08 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/2975237.shtml)
-- 2026-06-29 20:56 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/2526925442.shtml)
-- 2026-06-29 20:57 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/230570951.shtml)
-- 2026-06-29 21:03 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/19810238667.shtml)
-- 2026-06-29 21:05 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/8882383847.shtml)
-- 2026-06-29 21:12 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.minike.top/Article/details/61654976337.shtml)
-- 2026-06-29 21:23 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/715675.shtml)
-- 2026-06-29 21:05 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/95612.shtml)
-- 2026-06-29 21:14 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/1425159771.shtml)
-- 2026-06-29 21:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/7766192073.shtml)
-- 2026-06-29 21:04 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/181955.shtml)
+- 2026-06-29 21:12 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/45552.shtml)
+- 2026-06-29 21:15 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/503672.shtml)
+- 2026-06-29 21:25 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/40684939143.shtml)
+- 2026-06-29 21:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/610044903.shtml)
+- 2026-06-29 21:25 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/4727664.shtml)
+- 2026-06-29 21:01 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.minike.top/Article/details/23168.shtml)
+- 2026-06-29 21:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/995480250062.shtml)
+- 2026-06-29 21:26 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/13711466739.shtml)
+- 2026-06-29 21:03 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/0290573.shtml)
+- 2026-06-29 21:15 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/89844871793.shtml)
+- 2026-06-29 21:24 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/78340607514.shtml)
+- 2026-06-29 21:06 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/483614001.shtml)
+- 2026-06-29 21:13 - [我和我的家乡](http://www.blog.minike.top/Article/details/7252621040.shtml)
+- 2026-06-29 21:18 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/590300.shtml)
+- 2026-06-29 21:08 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/206461850275.shtml)

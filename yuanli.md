@@ -1,56 +1,57 @@
-# 以文物为桥讲述中国故事联通世界文明
+# 光大期货：5月19日软商品日报
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月30日电 (记者 应妮)“泥人张”的彩塑仕女、中国最早的可吹奏乐器骨笛、凝聚东方之美的丝织品……当这些展品在哈萨克斯坦、沙特阿拉伯、巴西亮相时，如同架起文明联通之桥，推动不同文化背景的人们之间产生共情和共鸣。 中国国家文物局于2025年启动“文明桥梁计划——文物出境展览精品项目”。作为首批海外落地项目，“文明印记——中国古代工艺文物精华展”于当年10月在哈萨克斯坦
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2026 年 4 月份我国进口食糖 3 万吨，同比减少 10 万吨。2026 年 1-4 月我国累计进口食糖 65 万吨，同比增加 37 万吨。25/26 榨季截 4 月底我国累计进口食糖 242 万吨，同比增加 68 万吨。现货报价方面，广西集团报价区间5380~5490元/吨，下调
 
 ## 正文
 
-中新社北京5月30日电 (记者 应妮)“泥人张”的彩塑仕女、中国最早的可吹奏乐器骨笛、凝聚东方之美的丝织品……当这些展品在哈萨克斯坦、沙特阿拉伯、巴西亮相时，如同架起文明联通之桥，推动不同文化背景的人们之间产生共情和共鸣。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2026 年 4 月份我国进口食糖 3 万吨，同比减少 10 万吨。
 
-中国国家文物局于2025年启动“文明桥梁计划——文物出境展览精品项目”。
+2026 年 1-4 月我国累计进口食糖 65 万吨，同比增加 37 万吨。
 
-作为首批海外落地项目，“文明印记——中国古代工艺文物精华展”于当年10月在哈萨克斯坦国家博物馆开幕。
+25/26 榨季截 4 月底我国累计进口食糖 242 万吨，同比增加 68 万吨。
 
-该展依托天津博物馆馆藏，集中呈现瓷器、雕刻、织绣工艺、津门非遗等62件(套)文物，通过展现文物背后的技艺传承与文化内涵传递中华民族对美好生活的千年追求，帮助海外观众读懂中华文明的精神内核。
+现货报价方面，广西集团报价区间5380~5490元/吨，下调10~20元/吨；云南报价区间5190~5230元/吨，下调30元/吨。
 
-中国国家博物馆2025年在沙特阿拉伯国家博物馆举办“天地同和——中国古代乐器展”，以包括骨笛、编钟、古琴、十二律管等在内的100余件(套)中国古代乐器珍品生动反映出古代中国音乐与礼制、文化认同之间的深刻联系。
+加工糖报价区间5820~6050元/吨，下调20元/吨。
 
-沙特文化部顾问慕娜·哈辛达尔在参观时表示，希望这样的展览可以在两国民众之间架起沟通心灵、增进友谊的文化桥梁。
+原糖调整后暂无明显方向，后期继续受原油、巴西压榨进度主导。
 
-“丝系山海：从中国到巴西”展览携百余件(组)实物展品与互动影像、艺术装置亮相巴西圣保罗移民博物馆，系统梳理丝绸从桑园到织机，再从东方港口出发，一路向西抵达巴西高地的完整旅程。
+国内现货报价小幅下调，进口数据同比大幅回落，未来核心是国内去库进度。
 
-据中国丝绸博物馆社教部主任楼航燕介绍，在工作坊现场，当地孩子们尝试用平纹、附加纬线及多线材混合技法织出独一无二的创意面料。
+盘面跟随大宗商品调整后窄幅整理，缺少方向。
 
 ## 相关推荐
 
-- 2026-06-29 20:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 21:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 20:56 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 20:54 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 21:03 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 21:11 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 21:00 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 20:54 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 21:09 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 21:15 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 21:24 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 21:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 21:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 21:07 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 21:09 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 21:04 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 21:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 21:20 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 21:20 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 21:19 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 21:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/922927641.shtml)
-- 2026-06-29 21:05 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/0644520.shtml)
-- 2026-06-29 21:10 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/7681835.shtml)
-- 2026-06-29 21:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/24761123424.shtml)
-- 2026-06-29 21:15 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/2266475.shtml)
-- 2026-06-29 21:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/32459246705.shtml)
-- 2026-06-29 21:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/932809866.shtml)
-- 2026-06-29 21:16 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/159964.shtml)
-- 2026-06-29 21:01 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/85347092.shtml)
-- 2026-06-29 21:17 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/501982.shtml)
-- 2026-06-29 21:07 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/10942730593.shtml)
-- 2026-06-29 21:21 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/41816197.shtml)
-- 2026-06-29 21:23 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/051615024.shtml)
-- 2026-06-29 21:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/3684473.shtml)
-- 2026-06-29 21:15 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/7836580577.shtml)
+- 2026-06-29 21:08 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/25229993625.shtml)
+- 2026-06-29 21:25 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/498161016018.shtml)
+- 2026-06-29 21:22 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/39453.shtml)
+- 2026-06-29 21:14 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/38401195776.shtml)
+- 2026-06-29 21:21 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/3948751714.shtml)
+- 2026-06-29 21:09 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/509880318.shtml)
+- 2026-06-29 21:06 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/5758735075.shtml)
+- 2026-06-29 21:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/86363720.shtml)
+- 2026-06-29 21:09 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/3023975916.shtml)
+- 2026-06-29 21:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/4380274.shtml)
+- 2026-06-29 21:27 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/01594215.shtml)
+- 2026-06-29 21:13 - [金牌调解](http://www.share.kurohicncr.top/Article/details/9316417.shtml)
+- 2026-06-29 21:03 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/01132264428.shtml)
+- 2026-06-29 21:02 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/80648249011.shtml)
+- 2026-06-29 21:00 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/16311692.shtml)

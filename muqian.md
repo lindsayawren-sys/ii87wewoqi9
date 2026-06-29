@@ -1,56 +1,59 @@
-# 奔驰高管：会进一步拥抱来自中国的供应商、供应链生态系统
+# 美国4月二手房签约量连续三月增长，春季购房需求温和复苏
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。梅赛德斯-奔驰（中国）投资有限公司高级执行副总裁、梅赛德斯-奔驰中国研发和采购负责人庄睦德（Drummond Jacoy）谈及中国市场的竞争强度时表示，首先，竞争是创新的驱动力，科技创新不断发展，非常不错。奔驰也会将AI融入到全系价值链中；第二，奔驰会投入更多的资源在本地研发能
+全美地产经纪商协会周二公布的数据显示，4月份二手房签约量指数环比上涨1.4%至74.8，创五个月新高。这一涨幅超过了经济学家预期的1%，标志着该数据连续第三个月录得增长。 尽管抵押贷款利率仍处于高位，但购房者正带着“谨慎乐观”的情绪入市。从地区来看，东北部地区表现最为强劲，环比大涨6.6%；中西部和西部也录得增长。然而，作为全美最大住房市场的南部地区则出现了0.7%的小幅下滑。
 
 ## 正文
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行。
+全美地产经纪商协会周二公布的数据显示，4月份二手房签约量指数环比上涨1.4%至74.8，创五个月新高。
 
-梅赛德斯-奔驰（中国）投资有限公司高级执行副总裁、梅赛德斯-奔驰中国研发和采购负责人庄睦德（Drummond Jacoy）谈及中国市场的竞争强度时表示，首先，竞争是创新的驱动力，科技创新不断发展，非常不错。
+这一涨幅超过了经济学家预期的1%，标志着该数据连续第三个月录得增长。
 
-奔驰也会将AI融入到全系价值链中；第二，奔驰会投入更多的资源在本地研发能力上；第三，奔驰会进一步拥抱来自中国的供应商、供应链生态系统。
+尽管抵押贷款利率仍处于高位，但购房者正带着“谨慎乐观”的情绪入市。
 
-同时会不断保持支撑梅赛德斯-奔驰在汽车行业取得140年成功的高标准。
+从地区来看，东北部地区表现最为强劲，环比大涨6.6%；中西部和西部也录得增长。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+然而，作为全美最大住房市场的南部地区则出现了0.7%的小幅下滑。
 
-责任编辑：梁斌 SF055
+同比来看，全国签约量上涨3.2%。
+
+NAR首席经济学家Lawrence Yun表示，一旦抵押贷款利率回落至年初水平，需求将更容易被释放。
+
+他还警告称，除非供应量显著增加，否则房价增长可能超过工资涨幅，进一步侵蚀住房拥有率。
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 21:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 21:05 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 21:06 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 20:54 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 21:17 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 21:12 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 21:20 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 21:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 21:00 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 21:20 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 20:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 20:55 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 21:13 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 21:01 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 21:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 21:16 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 21:15 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 21:14 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 21:13 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 21:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 21:28 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 21:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 21:01 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 21:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 21:05 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 21:08 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/641587.shtml)
-- 2026-06-29 21:08 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/652535211.shtml)
-- 2026-06-29 21:13 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/92455597893.shtml)
-- 2026-06-29 20:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/25842692921.shtml)
-- 2026-06-29 21:19 - [恋与深空 巧合](http://www.share.minike.top/Article/details/925880112881.shtml)
-- 2026-06-29 21:13 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/23817544.shtml)
-- 2026-06-29 21:16 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/30825844781.shtml)
-- 2026-06-29 21:06 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/90750.shtml)
-- 2026-06-29 21:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/48536651.shtml)
-- 2026-06-29 21:16 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/46166174.shtml)
-- 2026-06-29 21:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/375716338294.shtml)
-- 2026-06-29 20:57 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/76388.shtml)
-- 2026-06-29 21:01 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/891117715.shtml)
-- 2026-06-29 21:05 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/3317727900.shtml)
-- 2026-06-29 20:59 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/696089681.shtml)
+- 2026-06-29 21:09 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/7671009.shtml)
+- 2026-06-29 21:02 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/346283013620.shtml)
+- 2026-06-29 21:05 - [恋与深空 巧合](https://www.share.minike.top/Article/details/977407.shtml)
+- 2026-06-29 21:15 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/265047.shtml)
+- 2026-06-29 21:01 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/37543.shtml)
+- 2026-06-29 21:15 - [一见倾心](http://www.share.kurohicncr.top/Article/details/0821905742.shtml)
+- 2026-06-29 21:17 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/66863.shtml)
+- 2026-06-29 21:19 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/164581999.shtml)
+- 2026-06-29 21:29 - [乔家的儿女](http://www.blog.minike.top/Article/details/84743388363.shtml)
+- 2026-06-29 21:19 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/4072902.shtml)
+- 2026-06-29 21:05 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/018142685.shtml)
+- 2026-06-29 21:02 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/15590351497.shtml)
+- 2026-06-29 21:06 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/86695.shtml)
+- 2026-06-29 21:21 - [金刚川](http://www.blog.minike.top/Article/details/176081256.shtml)
+- 2026-06-29 21:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/76040.shtml)

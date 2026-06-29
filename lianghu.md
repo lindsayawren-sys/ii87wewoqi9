@@ -1,46 +1,58 @@
-# 老挝人革党中央总书记、国家主席通伦将访华
+# 中芯国际早盘涨超7% 中金维持“跑赢行业”评级
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-新华社北京5月29日电 中共中央对外联络部发言人胡兆明5月29日宣布：应中共中央总书记、国家主席习近平邀请，老挝人革党中央总书记、国家主席通伦将于6月2日至6日对中国进行国事访问。(完)
+中芯国际（00981）早盘涨超7%，截至发稿，股价上涨7.59%，现报73.70港元，成交额74.64亿港元。 中芯国际公告，基于客户需求和在手订单情况，相较于上个季度，公司对于今年的整体运营情况更加乐观。主要由于人工智能对配套芯片的强劲需求，直接推动公司电源管理芯片产能供不应求；人工智能海外虹吸效应使得消费、IOT等客户在大陆寻找产能、订单回流；人工智能亦带动ToF、电动汽车
 
 ## 正文
 
-新华社北京5月29日电 中共中央对外联络部发言人胡兆明5月29日宣布：应中共中央总书记、国家主席习近平邀请，老挝人革党中央总书记、国家主席通伦将于6月2日至6日对中国进行国事访问。
+中芯国际（00981）早盘涨超7%，截至发稿，股价上涨7.59%，现报73.70港元，成交额74.64亿港元。
 
-(完)
+中芯国际公告，基于客户需求和在手订单情况，相较于上个季度，公司对于今年的整体运营情况更加乐观。
+
+主要由于人工智能对配套芯片的强劲需求，直接推动公司电源管理芯片产能供不应求；人工智能海外虹吸效应使得消费、IOT等客户在大陆寻找产能、订单回流；人工智能亦带动ToF、电动汽车、机器人等新应用需求，本土公司积极开拓市场；产业链国产化诉求，推动国产逻辑、网通等芯片需求；涨价效应以及之前提到的客户因担忧以后的供应不足而提前备货。
+
+中金发布研报称，中芯国际（00981）首季业绩和次季指引符合预期。
+
+收入25.05亿美元，同比增长11%，按季增长0.7%（指引按季持平）；毛利率20.1%，按季增长0.9百分点，指引18-20%。
+
+次季公司收入指引按季增长14至16%，毛利率在20至22%之间。
+
+维持“跑赢行业”评级及100港元目标价。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 21:17 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 20:58 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 21:10 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 21:07 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 21:08 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 21:12 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-29 20:59 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 21:00 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 20:54 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 21:17 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 20:54 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 21:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 21:08 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 21:28 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 21:03 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 21:11 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 21:25 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 21:18 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 21:16 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 21:05 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 21:15 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 21:15 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 21:23 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/17611147.shtml)
-- 2026-06-29 20:56 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/5669865361.shtml)
-- 2026-06-29 20:59 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/901458394.shtml)
-- 2026-06-29 21:06 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/2195961959.shtml)
-- 2026-06-29 21:02 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/575925.shtml)
-- 2026-06-29 21:10 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/33614.shtml)
-- 2026-06-29 21:19 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/575037026.shtml)
-- 2026-06-29 21:08 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/1621123335.shtml)
-- 2026-06-29 21:20 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/92889793201.shtml)
-- 2026-06-29 21:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/216830156246.shtml)
-- 2026-06-29 20:55 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/977356323.shtml)
-- 2026-06-29 20:56 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/46785.shtml)
-- 2026-06-29 21:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/3883324.shtml)
-- 2026-06-29 21:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/022471149.shtml)
-- 2026-06-29 21:02 - [爱很美味](http://www.share.minike.top/Article/details/993662.shtml)
+- 2026-06-29 21:26 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/64945041.shtml)
+- 2026-06-29 21:10 - [金刚川](https://www.blog.minike.top/Article/details/9855008.shtml)
+- 2026-06-29 21:06 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/25763.shtml)
+- 2026-06-29 21:16 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/724621701452.shtml)
+- 2026-06-29 21:17 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/40840290.shtml)
+- 2026-06-29 21:05 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/436071.shtml)
+- 2026-06-29 21:06 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/637969.shtml)
+- 2026-06-29 21:29 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/36424667.shtml)
+- 2026-06-29 21:17 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/4347767.shtml)
+- 2026-06-29 21:10 - [巴西10号球衣是天才传承史](http://www.share.minike.top/Article/details/4555183091.shtml)
+- 2026-06-29 21:15 - [一见倾心](http://www.blog.minike.top/Article/details/4047020588.shtml)
+- 2026-06-29 21:20 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/063805577664.shtml)
+- 2026-06-29 21:23 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/45707.shtml)
+- 2026-06-29 21:21 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/726077303.shtml)
+- 2026-06-29 21:14 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/5826019630.shtml)

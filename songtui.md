@@ -1,56 +1,56 @@
-# 2026世界智能产业博览会同期活动《精益赋能·智能跃迁》智能工厂梯度培育闭门会在津举办
+# 多国政要密集访华 专家学者：中国在向世界发出建设性声音
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂
+发布时间：2026年05月19日 19:47 来源：中国新闻网 5月19日，2026香港合作发展论坛在香港举行，来自美国、俄罗斯、法国等近10个国家的各领域人士100余人参会。对于近期多国政要密集访华，有专家学者认为，这是因为中国在向世界发出建设性声音，如在冲突中发挥调解作用，推动各方寻找共同利益，为世界和平与发展注入信心与希望等。(记者 孙悦) 【同期】中欧美全球倡议发起人
 
 ## 正文
 
-专题：2026世界智能产业博览会 2026世界智能产业博览会同期活动——《精益赋能·智能跃迁》智能工厂梯度培育闭门会于5月29日在天津举行。
+发布时间：2026年05月19日 19:47 来源：中国新闻网 5月19日，2026香港合作发展论坛在香港举行，来自美国、俄罗斯、法国等近10个国家的各领域人士100余人参会。
 
-本次同期活动由爱波瑞智能制造研究院承办，汇聚了中国工程院院士、国家智能制造专家咨询委员会专家、工信部相关机构负责人、央国企及行业链主企业高管、行业协会负责人、数智化转型专家学者等150多名嘉宾，围绕人工智能与精益管理深度融合、国家级智能工厂建设、智能化穿透管理落地路径、AI人才体系建设等核心议题展开深度研讨与分享，通过战略指引、标准解读、案例分享、圆桌对话、座谈研讨、工厂参观等形式，为制造业企业实现数智化跃迁注入全新动能。
+对于近期多国政要密集访华，有专家学者认为，这是因为中国在向世界发出建设性声音，如在冲突中发挥调解作用，推动各方寻找共同利益，为世界和平与发展注入信心与希望等。
 
-爱波瑞集团董事长、中国企业改革与发展研究会副会长王洪艳在开场主旨导引中指出，国家智能工厂梯度培育分为基础级、先进级、卓越级、领航级四个层级，尤其领航级工厂要求60%以上的场景融合AI技术，为企业运营模式升级树立了全新标杆。
+(记者 孙悦) 【同期】中欧美全球倡议发起人 高大伟 大家可以看得很清楚，中国的重要性，然后这里面给我们很多希望，因为中国在(向全球)发出很建设性的一个声音，当有冲突，希望你来调解。
 
-她强调，精益是智能化落地的根基，智能化则为精益管理提质增效，二者相辅相成、双向赋能。
+调解是一个很重要的概念，因为现在在香港，有一个新的机构叫国际调解院，我是觉得这个机构，因为这个新的格局，因为各种各样的冲突，但是因为中国在二十一世纪的实力，在香港的国际调解院会发挥越来越大的作用。
 
-企业想要穿越经营周期，核心在于三点：一是坚守经营本质，推动精益与人工智能深度融合、双向共生；二是激发创新活力，让愿景成为前行的内生动力；三是加速产业生态重构，重塑供需关系与价值逻辑，在协同共创中行稳致远，共探适配本土发展的中国式管理范式。
+【同期】“全球社区参与与复原力基金”理事会主席 斯蒂凡诺·曼瑟维斯 我认为中国正在发挥非常积极的作用，正在发挥像中国这样的大国所能发挥的作用，告诉所有人，等一下，让我们想想什么是共同点，共同点是容易实现和平的路径(之一)，以及应对其他困难。
 
-国际欧亚科学院材料学部秘书长、中国电子企业协会国际合作专家会副主任阮汝祥在开场致辞中表示，新质生产力的核心在于科技创新，关键在于将科技成果高效转化为现实生产力，最终落脚在产业的转型升级与价值跃升上。
-
-精益管理是智能制造的基石，智能跃迁是精益管理的升华，二者不是简单的叠加关系，而是内在逻辑上的递进与耦合。
-
-广大制造企业要坚持精益为本，夯实智能制造的管理根基；强化科技赋能，加快形成新质生产力。
+责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 21:22 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 20:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 21:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 20:58 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 21:11 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 20:57 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 21:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 21:01 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 21:23 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 21:20 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 21:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 21:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 21:07 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 21:29 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 21:28 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 21:12 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 21:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 21:27 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 21:12 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 21:21 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 21:09 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 21:17 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 21:12 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 21:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:00 - [巴西10号球衣是天才传承史](http://www.share.kurohicncr.top/Article/details/31390.shtml)
-- 2026-06-29 21:02 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/726621537852.shtml)
-- 2026-06-29 21:20 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/603793.shtml)
-- 2026-06-29 21:11 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/940477279.shtml)
-- 2026-06-29 20:55 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/511838716270.shtml)
-- 2026-06-29 21:21 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/1562487.shtml)
-- 2026-06-29 21:13 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/0177364758.shtml)
-- 2026-06-29 21:15 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/484643081.shtml)
-- 2026-06-29 20:58 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/237837348971.shtml)
-- 2026-06-29 21:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/023487.shtml)
-- 2026-06-29 20:57 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/17345.shtml)
-- 2026-06-29 21:19 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/08548.shtml)
-- 2026-06-29 21:23 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/1144379.shtml)
-- 2026-06-29 20:55 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/83958.shtml)
-- 2026-06-29 20:56 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/6164336.shtml)
+- 2026-06-29 21:00 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/92268440.shtml)
+- 2026-06-29 21:26 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/730391263.shtml)
+- 2026-06-29 21:06 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/803073994.shtml)
+- 2026-06-29 21:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/243980773.shtml)
+- 2026-06-29 21:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/00369806.shtml)
+- 2026-06-29 21:23 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/47478443093.shtml)
+- 2026-06-29 21:05 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/079811993.shtml)
+- 2026-06-29 21:01 - [炽夏](http://www.share.minike.top/Article/details/62258399798.shtml)
+- 2026-06-29 21:05 - [请回答王牌2019](https://www.share.minike.top/Article/details/816150386.shtml)
+- 2026-06-29 21:13 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/2035816839.shtml)
+- 2026-06-29 21:16 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/70882.shtml)
+- 2026-06-29 21:17 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/91044078.shtml)
+- 2026-06-29 21:18 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/83908509885.shtml)
+- 2026-06-29 21:25 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/90430.shtml)
+- 2026-06-29 21:08 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/146319355.shtml)

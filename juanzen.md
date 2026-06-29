@@ -1,59 +1,54 @@
-# “高枕”并非“无忧” 医生提醒选枕不当可能损伤脑血管
+# 湖南桑植县一山体滑坡致电力受损 电力部门冒雨抢修
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网成都5月31日电(何美锟)睡眠时间充足，晨起却常感颈部酸痛、头晕手麻，很多人将其归咎于过度疲劳或床垫不适，却忽视了“罪魁祸首”可能是枕头。近日，针对“高枕无忧”的传统说法，成都市第四人民医院心血管内科主治医师毕娟娟在接受采访时提醒，长期睡高枕不仅无法“无忧”，反而极易诱发颈椎及心脑血管相关疾病。 “枕头过高时，颈部会长期处于过度屈曲状态。夜间翻身时，颈部椎动脉易像‘拧麻花
+发布时间：2026年05月19日 13:52 来源：中国新闻网 5月18日，湖南张家界，受持续强降雨影响，张家界桑植县河口乡塘坊村龚家坡路段发生山体滑坡，导致乡道C400公路中断，倒伏的树木砸断10千伏新河线河太支线的两档供电线路，影响塘坊村691户民众生产生活用电。当地接到险情报告后，冒雨组织供电员工开展应急抢修工作。从树障清理，新电杆吊装立杆、架线、送电，历经10余个小时的
 
 ## 正文
 
-中新网成都5月31日电(何美锟)睡眠时间充足，晨起却常感颈部酸痛、头晕手麻，很多人将其归咎于过度疲劳或床垫不适，却忽视了“罪魁祸首”可能是枕头。
+发布时间：2026年05月19日 13:52 来源：中国新闻网 5月18日，湖南张家界，受持续强降雨影响，张家界桑植县河口乡塘坊村龚家坡路段发生山体滑坡，导致乡道C400公路中断，倒伏的树木砸断10千伏新河线河太支线的两档供电线路，影响塘坊村691户民众生产生活用电。
 
-近日，针对“高枕无忧”的传统说法，成都市第四人民医院心血管内科主治医师毕娟娟在接受采访时提醒，长期睡高枕不仅无法“无忧”，反而极易诱发颈椎及心脑血管相关疾病。
+当地接到险情报告后，冒雨组织供电员工开展应急抢修工作。
 
-“枕头过高时，颈部会长期处于过度屈曲状态。
+从树障清理，新电杆吊装立杆、架线、送电，历经10余个小时的排险作业，10千伏新河线河太支线于5月18日21时恢复供电。
 
-夜间翻身时，颈部椎动脉易像‘拧麻花’般发生扭曲，可能造成血管内膜撕裂，引发自发性椎动脉夹层。
+目前，该村正在开展公路清障工作，预计19日下午可恢复公路畅通。
 
-”毕娟娟解释道，血液渗入血管壁后，会造成血管管腔狭窄、闭塞，形成血栓，最终诱发后循环脑梗死。
-
-而枕头过低同样也有弊端。
-
-毕娟娟指出，头部过度后仰易使人张口呼吸，进而出现口干、打鼾等问题，还会造成头部、鼻咽部充血，加重鼻炎患者不适。
-
-此外，若侧卧时不使用枕头，头颈部悬空下垂，颈部肌肉受牵拉易发生痉挛，这也是落枕的主要诱因之一。
+(高双志 龙锦涛 杜瑜 制作 徐妙巧） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:15 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 21:08 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 20:57 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 21:07 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 21:02 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 21:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 20:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 21:20 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 21:12 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 21:00 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 21:06 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 20:57 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 21:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 21:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 21:21 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 21:01 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 21:24 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 21:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 21:12 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 21:21 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 21:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 21:28 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 21:24 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 21:24 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 21:06 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 21:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/69638976.shtml)
-- 2026-06-29 20:59 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/6988764020.shtml)
-- 2026-06-29 20:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/817634728845.shtml)
-- 2026-06-29 21:02 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/96010039025.shtml)
-- 2026-06-29 21:10 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/6374391635.shtml)
-- 2026-06-29 21:06 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/39739790.shtml)
-- 2026-06-29 20:58 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/6086010085.shtml)
-- 2026-06-29 21:06 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/95524.shtml)
-- 2026-06-29 21:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/81541.shtml)
-- 2026-06-29 21:16 - [急先锋](http://www.blog.kurohicncr.top/Article/details/193398.shtml)
-- 2026-06-29 21:03 - [高质量发展看新疆](http://www.blog.minike.top/Article/details/820540534.shtml)
-- 2026-06-29 21:20 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/64358.shtml)
-- 2026-06-29 21:16 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/21961412539.shtml)
-- 2026-06-29 21:16 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/93138745128.shtml)
-- 2026-06-29 21:06 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/46556405701.shtml)
+- 2026-06-29 21:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/78435.shtml)
+- 2026-06-29 21:23 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/216129246216.shtml)
+- 2026-06-29 21:14 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/20012.shtml)
+- 2026-06-29 21:22 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/0600438.shtml)
+- 2026-06-29 21:13 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/7291963171.shtml)
+- 2026-06-29 21:20 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/48437.shtml)
+- 2026-06-29 21:03 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/233937409.shtml)
+- 2026-06-29 21:14 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/3546097960.shtml)
+- 2026-06-29 21:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/4833923.shtml)
+- 2026-06-29 21:14 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/67813176581.shtml)
+- 2026-06-29 21:29 - [我和我的家乡](http://www.blog.minike.top/Article/details/83228636.shtml)
+- 2026-06-29 21:28 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/58099585.shtml)
+- 2026-06-29 21:12 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/1997020245.shtml)
+- 2026-06-29 21:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/46700841.shtml)
+- 2026-06-29 21:00 - [流金岁月](http://www.share.minike.top/Article/details/46350109.shtml)

@@ -1,58 +1,61 @@
-# 万科股东会：将遵循“同债同权、公平公正”原则推进6-7月债券展期
+# 巅峰思想碰撞！朱民、斯宾塞、白川方明共话全球经济与AI变局
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-“2025年公司围绕‘保交付’、‘保兑付’、‘抓经营’、‘强管理’和‘保稳定’五大目标，迎难而上，实现了生产经营和团队的整体稳定。但当前万科面临的困难依然很大，经营层面尚未有实质性改善，债务和流动性依然承压。”万科管理层在股东会上说道。 5月29日，万科企业股份有限公司（000002.SZ，02202.HK）召开2025年度股东大会。万科集团董事长黄力平，执行副总裁李锋，执行副
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 来源：清华五道口 2026清华五道口全球金融论坛于5月17日-20日在成都举办。本次论坛以“变局下的全球金融治理：新挑战、新机遇、新发展”为主题，关注全球金融发展的新思想、新趋势、新实践、新动力，为实现金融高质量发展，助力金融强国建设建言献策。 5月18日，在论坛开幕式高端对话环节，国际货币基金组织原副总裁、中
 
 ## 正文
 
-“2025年公司围绕‘保交付’、‘保兑付’、‘抓经营’、‘强管理’和‘保稳定’五大目标，迎难而上，实现了生产经营和团队的整体稳定。
+专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 来源：清华五道口 2026清华五道口全球金融论坛于5月17日-20日在成都举办。
 
-但当前万科面临的困难依然很大，经营层面尚未有实质性改善，债务和流动性依然承压。
+本次论坛以“变局下的全球金融治理：新挑战、新机遇、新发展”为主题，关注全球金融发展的新思想、新趋势、新实践、新动力，为实现金融高质量发展，助力金融强国建设建言献策。
 
-”万科管理层在股东会上说道。
+5月18日，在论坛开幕式高端对话环节，国际货币基金组织原副总裁、中国人民银行原副行长朱民，2001年诺贝尔经济学奖得主、斯坦福大学商学院菲利普・H・奈特管理学院荣休教授迈克尔・斯宾塞，日本央行前行长白川方明展开深度对话。
 
-5月29日，万科企业股份有限公司（000002.SZ，02202.HK）召开2025年度股东大会。
+图为高端对话环节 迈克尔・斯宾塞表示，现在世界的稳定因素在减少，各种冲击越来越频繁，就像一个“容易出故障的系统”。
 
-万科集团董事长黄力平，执行副总裁李锋，执行副总裁华翠，执行副总裁、北京公司总经理李刚，执行副总裁、财务负责人韩慧华，董事会秘书田钧等管理层出席会议。
+不过，迈克尔・斯宾塞也表达了一定的乐观预期，他认为从供应侧来看，人工智能会发挥潜在的巨大作用，AI会带来劳动生产率的飙升。
 
-万科管理层在会上表示，2025年以来，公司全力开展自救，在各方特别是大股东的支持下，扎实推进化险化债工作，目前已在部分兑付安排下完成6只公开债券的展期。
+作为亲历2008年全球金融危机及日本央行曾经的核心决策者之一的白川方明表示，地缘政治冲突、AI崛起、民粹主义抬头、老龄化加剧，这四大因素正在深刻改变全球经济，现实世界中的供应链冲击正变得频繁、甚至永久化，各国央行在决策时必须保持谦虚和审慎。
 
-万科强调，公司经营形势依然十分严峻，去年以来，大股东深铁集团持续给予公司有力支持，同时，公司也全力落实主体责任，积极推进资产处置、项目盘活、应收款清收等工作，多渠道回笼资金，缓解到期兑付压力。
+谈及当下的人工智能浪潮时，朱民表示，AI带来了巨大的转型变革力量，正在改变我们生活的一切，我们必须要去适应，同时需要形成适当的政策来引领AI使用，需要社会各界等共同努力建立起保护机制。
 
-据万科介绍，2026年6月-12月公司到期公开债规模合计101.2亿元，兑付压力依然突出。
+谈全球经济走向： 四大因素正在深刻改变全球经济 2026年以来，在地缘冲突升级等多重冲击下，世界经济复苏进程持续承压。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 21:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 21:21 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 21:15 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 21:14 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 21:20 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 21:07 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 21:10 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 21:16 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 21:20 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 21:17 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 21:05 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 21:06 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 21:17 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 21:17 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 21:05 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 21:25 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 21:20 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 21:30 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 21:17 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 21:22 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 21:10 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 21:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 21:08 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 21:21 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 21:14 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 21:09 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/375961.shtml)
-- 2026-06-29 20:58 - [男子称在京东买到“同仁堂”假药](https://www.share.minike.top/Article/details/91320983.shtml)
-- 2026-06-29 21:00 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/753577606496.shtml)
-- 2026-06-29 21:12 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/5437605307.shtml)
-- 2026-06-29 20:55 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/2656946294.shtml)
-- 2026-06-29 21:15 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/22333.shtml)
-- 2026-06-29 21:17 - [美人鱼](https://www.share.minike.top/Article/details/626786647965.shtml)
-- 2026-06-29 21:19 - [恋与深空致歉](http://www.blog.minike.top/Article/details/2401985574.shtml)
-- 2026-06-29 21:16 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/82711644.shtml)
-- 2026-06-29 21:16 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/466674.shtml)
-- 2026-06-29 20:54 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/230236766.shtml)
-- 2026-06-29 21:07 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/260108704.shtml)
-- 2026-06-29 21:11 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/195613390.shtml)
-- 2026-06-29 21:04 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/59767709737.shtml)
-- 2026-06-29 21:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/6899423.shtml)
+- 2026-06-29 21:16 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/560287503152.shtml)
+- 2026-06-29 21:04 - [一生一世](https://www.blog.minike.top/Article/details/73585195316.shtml)
+- 2026-06-29 21:04 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/848041212.shtml)
+- 2026-06-29 21:28 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/9460475.shtml)
+- 2026-06-29 21:15 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/9372959.shtml)
+- 2026-06-29 21:09 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/70780.shtml)
+- 2026-06-29 21:13 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/59030.shtml)
+- 2026-06-29 21:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/842862.shtml)
+- 2026-06-29 21:02 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/456616.shtml)
+- 2026-06-29 21:09 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/7711144.shtml)
+- 2026-06-29 21:29 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/09958.shtml)
+- 2026-06-29 21:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/5358606.shtml)
+- 2026-06-29 21:13 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/7308853935.shtml)
+- 2026-06-29 21:00 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/29419780389.shtml)
+- 2026-06-29 21:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/0573311824.shtml)

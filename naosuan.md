@@ -1,57 +1,59 @@
-# 通胀速度快过收入增长，美国民众财务压力陡增
+# 重庆开展专项行动 规范劳动用工、整顿人力资源市场秩序
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——受生活成本全面上涨、薪资增长滞后影响，美国居民储蓄能力大幅下滑，最新个人储蓄率跌至多年低位。 食品、能源、医疗等刚性支出持续走高，通胀再度升温，民众收支缺口不断扩大。为维持日常运转，越来越多美国人开始依赖信贷工具，甚至动用退休储备资金，居民整体财务健康状况呈现明显恶化态势。 储蓄率大幅跳水，触及近数十年罕见低位 美国经济分析局于周四（5月28日）公布相关数据
+中新网重庆5月19日电 (记者 钟旖)近日，重庆市就业促进和劳动保护工作领导小组办公室印发通知，决定开展2026年全市规范劳动用工暨清理整顿人力资源市场秩序专项行动(下称专项行动)，集中整治侵害劳动者公平就业权益、扰乱人力资源市场秩序的突出违法违规问题。专项行动将持续至7月底。其间，重庆还将开展企业劳动用工法治“体检”和行政指导，集中化解劳动关系风险隐患。 据介绍，专项行动将聚
 
 ## 正文
 
-汇通财经APP讯——受生活成本全面上涨、薪资增长滞后影响，美国居民储蓄能力大幅下滑，最新个人储蓄率跌至多年低位。
+中新网重庆5月19日电 (记者 钟旖)近日，重庆市就业促进和劳动保护工作领导小组办公室印发通知，决定开展2026年全市规范劳动用工暨清理整顿人力资源市场秩序专项行动(下称专项行动)，集中整治侵害劳动者公平就业权益、扰乱人力资源市场秩序的突出违法违规问题。
 
-食品、能源、医疗等刚性支出持续走高，通胀再度升温，民众收支缺口不断扩大。
+专项行动将持续至7月底。
 
-为维持日常运转，越来越多美国人开始依赖信贷工具，甚至动用退休储备资金，居民整体财务健康状况呈现明显恶化态势。
+其间，重庆还将开展企业劳动用工法治“体检”和行政指导，集中化解劳动关系风险隐患。
 
-储蓄率大幅跳水，触及近数十年罕见低位 美国经济分析局于周四（5月28日）公布相关数据，4月美国个人储蓄率仅为2.6%。
+据介绍，专项行动将聚焦七大重点领域精准发力。
 
-个人储蓄率统计口径为居民税后收入扣除全部消费支出后的结余占比，该数值较3月的3.2%、去年同期的5.8%连续走低。
+具体包括，严格规范网络招聘，压实互联网平台企业管理责任，严厉打击以招聘为名诱骗求职者参与电信诈骗、传销等违法犯罪活动；集中整治“招转培(贷)”欺诈，多部门协同开展全链条打击，坚决斩断违法产业链条；着力打击虚假招聘，严查“央国企内推”“保录直签”等虚假宣传及乱收费、滥用“试用期”等行为。
 
-海军联邦信贷联盟首席经济学家希瑟·朗（Heather Long）表示，初见这一数据时甚至怀疑存在录入错误，该水平已处于历史低位。
+此外，专项行动将依法规范劳务派遣，纠治无证经营、“假外包真派遣”、克扣拖欠工资等乱象；依法纠治就业歧视，严禁性别、年龄、户籍等不合理限制，加强劳动者个人信息保护；依法规范劳动用工，重点查处不签劳动合同、欠薪欠保、超时加班、非法裁员等问题；依法纠治违反劳动保护特别规定行为，严厉打击非法使用童工、侵害女职工和未成年工合法权益等行为。
 
-希瑟·朗表示，纵观过去65年，除去2022年全民报复性消费阶段，美国个人储蓄率几乎从未跌至当前水平。
+专项行动期间，该市人社、网信、教育、公安、市场监管、税务等部门将加强普法宣传、信息共享、风险预警和执法协作，畅通举报投诉渠道，全量获取违法违规线索，联动查处重点个案线索；同时还将开展劳动保障监察书面审查和“双随机、一公开”现场检查，推广网络巡查和远程监管，尽量减少对市场主体不必要干扰。
 
-上一次相近低点出现在2022年6月，当时储蓄率为2.2%。
+对查实的违法违规行为，各部门将坚决从严从实查处，依法作出行政处理处罚决定，涉嫌犯罪的移送公安机关，并向社会公布重大典型案例。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 21:01 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 20:58 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 21:11 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 21:19 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
-- 2026-06-29 21:05 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 21:12 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 20:57 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 21:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 21:01 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 21:19 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 21:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 21:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 21:06 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 21:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 21:17 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 21:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 21:23 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 21:10 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 21:12 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 21:04 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 21:05 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 21:07 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-29 21:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:06 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/4469290826.shtml)
-- 2026-06-29 21:05 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/3938411.shtml)
-- 2026-06-29 21:15 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/602002.shtml)
-- 2026-06-29 21:09 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/44633.shtml)
-- 2026-06-29 21:13 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/5800212473.shtml)
-- 2026-06-29 21:20 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/8237152587.shtml)
-- 2026-06-29 21:19 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/176983078.shtml)
-- 2026-06-29 21:18 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/3285709.shtml)
-- 2026-06-29 21:02 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/094622516.shtml)
-- 2026-06-29 21:14 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/404499733093.shtml)
-- 2026-06-29 21:03 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/123377.shtml)
-- 2026-06-29 20:54 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/83854.shtml)
-- 2026-06-29 21:11 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/258908.shtml)
-- 2026-06-29 21:01 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/097148744.shtml)
-- 2026-06-29 21:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/92083350.shtml)
+- 2026-06-29 21:10 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/23683172813.shtml)
+- 2026-06-29 21:19 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/196120.shtml)
+- 2026-06-29 21:20 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/4482918677.shtml)
+- 2026-06-29 21:04 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/3823309875.shtml)
+- 2026-06-29 21:20 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/4955549579.shtml)
+- 2026-06-29 21:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/690149.shtml)
+- 2026-06-29 21:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/722225409.shtml)
+- 2026-06-29 21:04 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/19013772.shtml)
+- 2026-06-29 21:10 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/57000022470.shtml)
+- 2026-06-29 21:28 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.minike.top/Article/details/1881623368.shtml)
+- 2026-06-29 21:21 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/564632.shtml)
+- 2026-06-29 21:25 - [沙丘](https://www.share.kurohicncr.top/Article/details/99842.shtml)
+- 2026-06-29 21:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/66012.shtml)
+- 2026-06-29 21:13 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/1087163.shtml)
+- 2026-06-29 21:18 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/0291986.shtml)

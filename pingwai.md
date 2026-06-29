@@ -1,46 +1,56 @@
-# 世界无烟日｜重度吸烟老年男性是小细胞肺癌高发人群
+# 多国宗教界人士走进新疆
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月31日 10:06 来源：中国新闻网 肺癌主要分为非小细胞肺癌和小细胞肺癌，其中小细胞肺癌占比约15%。它恶性程度高、进展速度快，极易转移、复发，耐药后治疗效果差，患者整体生存期较短，超90%病例与吸烟密切相关，多见于老年重度吸烟男性。(张静） 责任编辑：【岳川】
+中新社乌鲁木齐5月19日电 (胡嘉琛)由印度尼西亚、巴基斯坦、马尔代夫、阿联酋等9个国家的宗教界人士组成的17人参访团，17日至19日在乌鲁木齐先后参访新疆伊斯兰教经学院、乌鲁木齐陕西大寺等，切身感受当地宗教和谐。 走进新疆伊斯兰教经学院，教室宽敞明亮，图书馆书籍丰富。参访团成员详细了解教职人员培养、宗教活动开展等情况，并与正在上课的老师和学生交谈。 印度尼西亚伊斯兰教法学者理
 
 ## 正文
 
-发布时间：2026年05月31日 10:06 来源：中国新闻网 肺癌主要分为非小细胞肺癌和小细胞肺癌，其中小细胞肺癌占比约15%。
+中新社乌鲁木齐5月19日电 (胡嘉琛)由印度尼西亚、巴基斯坦、马尔代夫、阿联酋等9个国家的宗教界人士组成的17人参访团，17日至19日在乌鲁木齐先后参访新疆伊斯兰教经学院、乌鲁木齐陕西大寺等，切身感受当地宗教和谐。
 
-它恶性程度高、进展速度快，极易转移、复发，耐药后治疗效果差，患者整体生存期较短，超90%病例与吸烟密切相关，多见于老年重度吸烟男性。
+走进新疆伊斯兰教经学院，教室宽敞明亮，图书馆书籍丰富。
 
-(张静） 责任编辑：【岳川】
+参访团成员详细了解教职人员培养、宗教活动开展等情况，并与正在上课的老师和学生交谈。
+
+印度尼西亚伊斯兰教法学者理事会主席苏达诺托·阿卜杜拉·哈基姆说：“我亲眼看到了很多学生阅读维吾尔文、汉文和阿拉伯文书籍，还得知学生在校期间可以享受奖学金、助学金。
+
+这为培养具有较高文化水平和宗教学识的宗教人士提供了有效保障。
+
+” “政府出资建设了设施完善的礼拜殿，令我惊讶。
+
+”马尔代夫国际清真旅游组织副主席易卜拉欣·穆罕默德说，中国各级政府持续改善宗教活动场所条件、注重伊斯兰教人才培养，这一现实证明了一些西方媒体报道的不实。
+
+乌鲁木齐陕西大寺始建于清乾隆年间，采用中原传统建筑风格的梁柱结构，八角形立柱上雕刻着宝剑、葫芦、花篮等图案，是新疆多种宗教交融共存的生动写照。
 
 ## 相关推荐
 
-- 2026-06-29 21:18 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 20:55 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 21:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 21:12 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 21:03 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 21:05 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 21:20 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 21:01 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 20:59 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 21:14 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 21:25 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 21:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 21:26 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 21:17 - [炽夏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 21:07 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 21:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 21:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 21:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 21:05 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 21:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/307862930720.shtml)
-- 2026-06-29 21:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/680615.shtml)
-- 2026-06-29 21:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/39753.shtml)
-- 2026-06-29 21:04 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/735527.shtml)
-- 2026-06-29 21:00 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/028747210294.shtml)
-- 2026-06-29 20:54 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/56975490802.shtml)
-- 2026-06-29 21:13 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/107609.shtml)
-- 2026-06-29 21:23 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/460985343.shtml)
-- 2026-06-29 21:20 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/3197539072.shtml)
-- 2026-06-29 21:13 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/74985752120.shtml)
-- 2026-06-29 21:12 - [送你一朵小红花](http://www.share.minike.top/Article/details/82659906030.shtml)
-- 2026-06-29 21:22 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/5710824.shtml)
-- 2026-06-29 21:10 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/8877377395.shtml)
-- 2026-06-29 21:13 - [我们的少年时代2](https://www.share.minike.top/Article/details/13369189.shtml)
-- 2026-06-29 21:22 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/220383193.shtml)
+- 2026-06-29 21:01 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/1241685.shtml)
+- 2026-06-29 21:11 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/69075343.shtml)
+- 2026-06-29 21:16 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/537326841543.shtml)
+- 2026-06-29 21:05 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/616945.shtml)
+- 2026-06-29 21:20 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/75982333.shtml)
+- 2026-06-29 21:03 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/346895.shtml)
+- 2026-06-29 21:06 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/002885509.shtml)
+- 2026-06-29 21:09 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/885317415.shtml)
+- 2026-06-29 21:11 - [杨紫有3部作品入围金鹰奖](https://www.share.minike.top/Article/details/0636106.shtml)
+- 2026-06-29 21:12 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/738492031209.shtml)
+- 2026-06-29 21:09 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/610480.shtml)
+- 2026-06-29 21:01 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/196435.shtml)
+- 2026-06-29 21:23 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/625198892368.shtml)
+- 2026-06-29 21:28 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/5765865576.shtml)
+- 2026-06-29 21:15 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/482176791425.shtml)

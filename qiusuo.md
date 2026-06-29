@@ -1,45 +1,59 @@
-# 华昱高速拟400万港元收购Sunmand Limited100%股权
+# 明日停牌，000608，“摘星脱帽”，日涨跌幅限制由5%变更为10%
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-华昱高速（01823）发布公告，于2026年5月29日（交易时段后），本公司全资附属公司Top Talent Holdings Limited（作为买方）与 Sunmand Limited（一间于英属处女群岛注册成立的公司）（作为卖方）订立有条件股份销售协议，据此，卖方同意出售，而买方同意购买Sunmand Limited（一间于香港注册成立的公司）（目标公司）的 1万股普通股
+来源：中国基金报 【导读】*ST阳光（维权）撤销退市风险警示，证券简称变更为“阳光股份” 中国基金报记者 李智 5月19日，*ST阳光发布公告称，公司股票自5月20日开市起停牌1天，于5月21日开市起复牌并撤销退市风险警示。 撤销退市风险警示后，公司证券简称由“*ST阳光”变更为“阳光股份”，证券代码仍为“000608”，股票交易价格的日涨跌幅限制由“5%”变更为“10%”。
 
 ## 正文
 
-华昱高速（01823）发布公告，于2026年5月29日（交易时段后），本公司全资附属公司Top Talent Holdings Limited（作为买方）与 Sunmand Limited（一间于英属处女群岛注册成立的公司）（作为卖方）订立有条件股份销售协议，据此，卖方同意出售，而买方同意购买Sunmand Limited（一间于香港注册成立的公司）（目标公司）的 1万股普通股，占目标公司全部已发行股本的 100%，总代价为400万港元，须待股份销售协议的条款及条件达成后方可作实（建议收购事项）。
+来源：中国基金报 【导读】*ST阳光（维权）撤销退市风险警示，证券简称变更为“阳光股份” 中国基金报记者 李智 5月19日，*ST阳光发布公告称，公司股票自5月20日开市起停牌1天，于5月21日开市起复牌并撤销退市风险警示。
 
-责任编辑：卢昱君
+撤销退市风险警示后，公司证券简称由“*ST阳光”变更为“阳光股份”，证券代码仍为“000608”，股票交易价格的日涨跌幅限制由“5%”变更为“10%”。
+
+根据公告，*ST阳光2024年度经审计的利润总额、净利润、扣除非经常性损益后的净利润为负值，且扣除后的营业收入低于3亿元，根据《深圳证券交易所股票上市规则》9.3.1条相关规定，公司股票于2025年4月22日被实施退市风险警示。
+
+根据中兴华会计师事务所出具的2025年度标准无保留意见审计报告，公司2025年度经审计的利润总额为-2．28亿元，净利润为-2．18亿元，扣除非经常性损益后的净利润为-2．25亿元，扣除后的营业收入为3．33亿元，期末归属于上市公司股东的净资产为20．77亿元。
+
+公司对照上市规则自查，不存在需要实施退市风险警示或其他风险警示的情形，符合撤销条件，于2月26日向深交所提交撤销申请，目前已获审核同意。
+
+不过，*ST阳光的业绩情况却不容乐观。
+
+今年一季度，*ST阳光实现营业总收入6220.65万元，同比减少14.88%；归属于母公司所有者的净利润为-2347.37万元，亏损同比扩大44.67%。
+
+据悉，*ST阳光核心业务体系涵盖商业运营管理、物业租赁及房屋销售三大板块。
 
 ## 相关推荐
 
-- 2026-06-29 20:55 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 21:16 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 20:55 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 21:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 21:14 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 21:18 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 20:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 21:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 21:05 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 21:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 21:01 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 21:11 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-29 21:02 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 21:11 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 21:23 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 21:24 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 21:10 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 21:29 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 21:27 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 21:28 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 21:00 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 21:02 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 21:27 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 21:28 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/315668.shtml)
-- 2026-06-29 21:02 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/12540276.shtml)
-- 2026-06-29 20:54 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/3922304.shtml)
-- 2026-06-29 21:18 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/04706.shtml)
-- 2026-06-29 20:58 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/49017153437.shtml)
-- 2026-06-29 21:20 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/5979611267.shtml)
-- 2026-06-29 21:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/30326504.shtml)
-- 2026-06-29 21:03 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/35881011267.shtml)
-- 2026-06-29 21:14 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/165711111.shtml)
-- 2026-06-29 21:07 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/71064769805.shtml)
-- 2026-06-29 20:57 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/222932099226.shtml)
-- 2026-06-29 20:55 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/887229.shtml)
-- 2026-06-29 21:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/391741095.shtml)
-- 2026-06-29 21:07 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/155473.shtml)
-- 2026-06-29 20:58 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/116223.shtml)
+- 2026-06-29 21:16 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/683219698.shtml)
+- 2026-06-29 21:12 - [我们的少年时代2](http://www.blog.minike.top/Article/details/377321127.shtml)
+- 2026-06-29 21:19 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/59765700709.shtml)
+- 2026-06-29 21:19 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/0104767.shtml)
+- 2026-06-29 21:00 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/27836020809.shtml)
+- 2026-06-29 21:15 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/67747996272.shtml)
+- 2026-06-29 21:04 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/83393223568.shtml)
+- 2026-06-29 21:05 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/39193458414.shtml)
+- 2026-06-29 21:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/51230.shtml)
+- 2026-06-29 21:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/20897585.shtml)
+- 2026-06-29 21:04 - [高质量发展看新疆](http://www.share.minike.top/Article/details/891467505.shtml)
+- 2026-06-29 21:09 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/5237624.shtml)
+- 2026-06-29 21:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/63436104116.shtml)
+- 2026-06-29 21:08 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/5119681.shtml)
+- 2026-06-29 21:15 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/37784871.shtml)

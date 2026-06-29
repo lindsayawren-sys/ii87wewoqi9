@@ -1,56 +1,59 @@
-# 机器人企业出海工作推进会在广西南宁召开 共探全球化发展新路径
+# 紧平衡的锡，都面临哪些压力？
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网南宁5月30日电(张广权)机器人企业出海工作推进会暨广西机器人产业对接活动29日在广西南宁市召开。 活动由中国机械工业联合会主办，广西壮族自治区工业和信息化厅、南宁市人民政府承办。 对接交流活动就机器人产业发展情况、场景应用需求、市场开拓策略等事项进行深入交流对接。随后，与会代表前往中国—东盟国家人工智能应用合作中心实地调研，深入了解面向东盟的人工智能合作平台建设情况及其
+作者：张圣涵/F3022628、Z0014427/ 一德期货有色金属分析师 要点速览版 宏观面 三重压力：强势美元打压金属估值、通胀预期抬头重创风险资产、AI产业链降温引发需求熄火。 供应端 矿端恢复缓慢：缅甸佤邦复产远低于禁矿前水平，且雨季来临令运输受限； 多重扰动犹存：刚果（金）埃博拉疫情、印尼出口管控等，持续加剧原料紧张； 低库存放大波动：锡锭整体库存较低，消息面扰动会使
 
 ## 正文
 
-中新网南宁5月30日电(张广权)机器人企业出海工作推进会暨广西机器人产业对接活动29日在广西南宁市召开。
+作者：张圣涵/F3022628、Z0014427/ 一德期货有色金属分析师 要点速览版 宏观面 三重压力：强势美元打压金属估值、通胀预期抬头重创风险资产、AI产业链降温引发需求熄火。
 
-活动由中国机械工业联合会主办，广西壮族自治区工业和信息化厅、南宁市人民政府承办。
+供应端 矿端恢复缓慢：缅甸佤邦复产远低于禁矿前水平，且雨季来临令运输受限； 多重扰动犹存：刚果（金）埃博拉疫情、印尼出口管控等，持续加剧原料紧张； 低库存放大波动：锡锭整体库存较低，消息面扰动会使得价格波动被放大。
 
-对接交流活动就机器人产业发展情况、场景应用需求、市场开拓策略等事项进行深入交流对接。
+近期有色金属普跌，前期大涨的锡价从上周五（5月15日）开始遭受重挫，主要是因为内外宏观面共振引发的市场恐慌性抛售。
 
-随后，与会代表前往中国—东盟国家人工智能应用合作中心实地调研，深入了解面向东盟的人工智能合作平台建设情况及其对机器人产业出海的协同赋能成效。
+宏观面 美元指数近日连涨，美国30年期国债收益率突破5%，创下2007年7月以来新高；10年期国债收益率亦突破4.5%关口，强势美元直接压制以美元计价的金属估值。
 
-本次活动聚焦产业出海核心需求，广泛凝聚发展共识，进一步明晰机器人企业出海工作思路，研究谋划下一步工作举措。
+通胀预期抬头，市场对年内降息预期降温，甚至开始计价加息风险。
 
-为“十五五”时期机器人产业高水平出海开好局、起好步奠定了坚实基础，各界力量将持续携手并肩，共同探寻中国机器人产业全球化发展新路径。
+另外锡交易的热点就是与美股科技板块高度绑定的消费端。
 
-(完)
+前期人工智能、算力、半导体等科技板块行情火热，锡作为半导体封装、PCB生产的关键原材料，“硬科技”金融溢价显著，AI、半导体等需求预期传导至锡价。
+
+近日费城半导体指数回调，AI产业链降温让锡需求核心引擎熄火。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 21:00 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 21:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 20:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 20:57 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 20:54 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 21:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 21:21 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 21:03 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 21:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 21:17 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 21:05 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 21:29 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 21:21 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 21:08 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 21:22 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 21:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 21:11 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-29 21:20 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 21:08 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 21:18 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 21:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 21:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 21:27 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 21:06 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/41920121455.shtml)
-- 2026-06-29 21:03 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/1797269819.shtml)
-- 2026-06-29 21:15 - [时光音乐会](http://www.blog.minike.top/Article/details/814988401454.shtml)
-- 2026-06-29 21:04 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/1819815702.shtml)
-- 2026-06-29 21:08 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/421822.shtml)
-- 2026-06-29 21:23 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/91978.shtml)
-- 2026-06-29 20:55 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/342657222963.shtml)
-- 2026-06-29 21:07 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/67762.shtml)
-- 2026-06-29 21:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/89069.shtml)
-- 2026-06-29 20:55 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/9264192467.shtml)
-- 2026-06-29 21:02 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/2796826.shtml)
-- 2026-06-29 20:54 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/69174220.shtml)
-- 2026-06-29 20:54 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/0347838.shtml)
-- 2026-06-29 20:58 - [谁在推动“成都造”影视持续出圈](http://www.share.kurohicncr.top/Article/details/9934682.shtml)
-- 2026-06-29 21:15 - [勇敢的心第二部](https://www.share.minike.top/Article/details/88230637.shtml)
+- 2026-06-29 21:15 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/27936.shtml)
+- 2026-06-29 21:06 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/4201087.shtml)
+- 2026-06-29 21:16 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/93923852.shtml)
+- 2026-06-29 21:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/35034791764.shtml)
+- 2026-06-29 21:23 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/62001112081.shtml)
+- 2026-06-29 21:20 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/592398.shtml)
+- 2026-06-29 21:21 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/845684.shtml)
+- 2026-06-29 21:27 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/198250582.shtml)
+- 2026-06-29 21:16 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/67048768.shtml)
+- 2026-06-29 21:22 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/6097227.shtml)
+- 2026-06-29 21:04 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/6230517775.shtml)
+- 2026-06-29 21:07 - [李思潼：不会介意大家夸我运气好](https://www.share.kurohicncr.top/Article/details/911832962.shtml)
+- 2026-06-29 21:22 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/627748975.shtml)
+- 2026-06-29 21:01 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/931776146327.shtml)
+- 2026-06-29 21:05 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/561479034179.shtml)

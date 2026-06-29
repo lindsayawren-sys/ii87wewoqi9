@@ -1,59 +1,58 @@
-# 宁夏南华山国家级自然保护区麋鹿家族再添丁
+# 哔哩哔哩-W早盘涨逾3% 今日将发布第一季度业绩
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网宁夏海原5月31日电 (记者 于晶)5月31日，记者从宁夏南华山国家级自然保护区获悉，继去年春季连续迎来4只麋鹿幼崽后，该保护区黄石崖沟引种野化放归区内，第五只麋鹿宝宝顺利诞生。与以往不同的是，此次幼崽出生全过程被高清红外摄像设备完整捕捉，成为自2024年9月17只麋鹿从江苏大丰引进以来，新生代麋鹿首次全面、清晰的影像记录。 保护区黄石崖护林点负责人马效忠介绍，这只幼崽是
+哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。 哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。报告指，哔哩哔哩广告收入应持续强劲增长，
 
 ## 正文
 
-中新网宁夏海原5月31日电 (记者 于晶)5月31日，记者从宁夏南华山国家级自然保护区获悉，继去年春季连续迎来4只麋鹿幼崽后，该保护区黄石崖沟引种野化放归区内，第五只麋鹿宝宝顺利诞生。
+哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。
 
-与以往不同的是，此次幼崽出生全过程被高清红外摄像设备完整捕捉，成为自2024年9月17只麋鹿从江苏大丰引进以来，新生代麋鹿首次全面、清晰的影像记录。
+哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。
 
-保护区黄石崖护林点负责人马效忠介绍，这只幼崽是麋鹿群迁入海拔2600米高寒山地并成功越冬后，自然繁育的第五个新生命。
+里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。
 
-此前诞生的4只幼崽均降生于监控盲区，护林员历经3小时艰难搜寻才得以亲眼确认。
+该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。
 
-而这一次，从母鹿临产到幼崽平安落地，整个过程清晰地呈现在监控屏幕前。
+报告指，哔哩哔哩广告收入应持续强劲增长，主要受游戏广告需求稳健以及AI应用推广增加所带动。
 
-“看到幼崽平安降生，我们所有人的心都踏实了。
+同时认为，哔哩哔哩凭借年轻用户群体，是捕捉AI广告的重要平台之一。
 
-这是对所有护鹿人坚守与付出的最好回报。
+花旗也看好公司强劲的广告增长势头将推动未来利润增长。
 
-”保护区马万山管理站站长孙小虎激动地描述了当时的场景。
+预期哔哩哔哩今年第一季收入将同比增长7%至75亿元人民币，非公认会计准则经营利润为5.53亿元人民币，均大致符合市场预期。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 21:21 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 21:16 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 21:23 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 21:06 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 21:08 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 21:16 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 20:57 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 21:14 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 20:57 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 21:21 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 21:14 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 21:14 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 21:03 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 21:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 21:04 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 21:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 21:12 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 21:18 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 21:12 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 21:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 21:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 21:21 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 21:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 21:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/19017886449.shtml)
-- 2026-06-29 21:06 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/07022280.shtml)
-- 2026-06-29 21:00 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/79625.shtml)
-- 2026-06-29 21:24 - [起风了](https://www.share.kurohicncr.top/Article/details/6296624.shtml)
-- 2026-06-29 21:05 - [女心理师](https://www.share.kurohicncr.top/Article/details/498494623.shtml)
-- 2026-06-29 20:58 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/12506.shtml)
-- 2026-06-29 21:22 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/012109.shtml)
-- 2026-06-29 21:16 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/92240341221.shtml)
-- 2026-06-29 21:21 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/99068750.shtml)
-- 2026-06-29 21:09 - [请回答王牌2019](https://www.share.minike.top/Article/details/660324053065.shtml)
-- 2026-06-29 21:01 - [美人鱼](http://www.blog.minike.top/Article/details/9718757692.shtml)
-- 2026-06-29 21:04 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/313657813.shtml)
-- 2026-06-29 20:57 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/01456494.shtml)
-- 2026-06-29 21:17 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/9194514.shtml)
-- 2026-06-29 21:03 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/225557471.shtml)
+- 2026-06-29 21:28 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/178272448734.shtml)
+- 2026-06-29 21:25 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/80395136572.shtml)
+- 2026-06-29 21:07 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/586310.shtml)
+- 2026-06-29 21:05 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/6915391.shtml)
+- 2026-06-29 21:17 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/83807669363.shtml)
+- 2026-06-29 21:07 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/48092955351.shtml)
+- 2026-06-29 21:24 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/800540704503.shtml)
+- 2026-06-29 21:27 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/818301872024.shtml)
+- 2026-06-29 21:14 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/575674013.shtml)
+- 2026-06-29 21:26 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/486832709.shtml)
+- 2026-06-29 21:11 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/398739272060.shtml)
+- 2026-06-29 21:22 - [一生一世](http://www.share.minike.top/Article/details/70612614828.shtml)
+- 2026-06-29 21:23 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/09133093.shtml)
+- 2026-06-29 21:07 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/369508759033.shtml)
+- 2026-06-29 21:17 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/4716077002.shtml)

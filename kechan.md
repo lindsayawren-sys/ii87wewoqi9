@@ -1,59 +1,61 @@
-# 法国一季度经济萎缩 0.1%
+# “抢算力”还是“抢电力”？资金已率先布局
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-法国国家统计与经济研究所（INSEE）周五发布最终数据显示，法国一季度经济小幅萎缩。作为欧元区第二大经济体，该国一季度经济增速不及此前初值的零增长。 该机构公布一季度经济环比下滑 0.1%，低于路透社对 19 名经济学家调查得出的零增长预期中值。 统计部门表示，受航空装备出口下滑拖累，法国出口额在上一季度增长 0.9% 后，本季度下降 3.5%。 居民消费向来是法国经济增长的主
+随着各地气温攀升，我国多地进入用电高峰期，夏季电力需求激增，供需偏紧的背景下，一般会催化一波电力板块的行情，市场上也一直流传着“冬炒煤，夏炒电”的说法。截至5月18日，绿电ETF华夏（562550）已连续10个交易日获资金净流入，合计“吸金”2.90亿元，最新规模为16.16亿元，创历史新高，位居同指数规模第一。 市场正在形成“AI的尽头是电力，电力的尽头是绿电”的共识。机构测
 
 ## 正文
 
-法国国家统计与经济研究所（INSEE）周五发布最终数据显示，法国一季度经济小幅萎缩。
+随着各地气温攀升，我国多地进入用电高峰期，夏季电力需求激增，供需偏紧的背景下，一般会催化一波电力板块的行情，市场上也一直流传着“冬炒煤，夏炒电”的说法。
 
-作为欧元区第二大经济体，该国一季度经济增速不及此前初值的零增长。
+截至5月18日，绿电ETF华夏（562550）已连续10个交易日获资金净流入，合计“吸金”2.90亿元，最新规模为16.16亿元，创历史新高，位居同指数规模第一。
 
-该机构公布一季度经济环比下滑 0.1%，低于路透社对 19 名经济学家调查得出的零增长预期中值。
+市场正在形成“AI的尽头是电力，电力的尽头是绿电”的共识。
 
-统计部门表示，受航空装备出口下滑拖累，法国出口额在上一季度增长 0.9% 后，本季度下降 3.5%。
+机构测算，进入AI推理时代，中国大模型凭借成本优势进行“Token出海”，其对国内电力需求的潜在拉动弹性可能超过10%。
 
-居民消费向来是法国经济增长的主要动力。
+而在能源转型的硬性约束下，这部分新增算力用电需求，可能由由绿电承接。
 
-2025 年第四季度居民消费增长 0.3%，而今年一季度受能源消费走低影响，该指标回落 0.2%。
+电力的双重催化：迎峰度夏+AI算力 电力催化因素，首先是迎峰度夏，传统需求高峰如期而至。
 
-过去一年，法国与欧洲多数国家一样，接连遭遇多重外部冲击：法美关税争端压制出口，美以与伊朗的冲突推高油价，旅游业也随之陷入低迷，多重因素拖累经济增长。
+结合历年全社会用电量数据看，每年的用电高峰都出现在夏季高温时段。
 
-2026 年一季度，法国失业率升至 8.1%，创下 2021 年新冠疫情以来新高。
+每年5月起，“迎峰度夏”便成为能源领域的关键词。
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 21:01 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 21:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-29 21:01 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 21:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 21:12 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 21:11 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:12 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 21:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 20:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 20:54 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 21:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-29 21:14 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 21:22 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 21:17 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 21:22 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 21:27 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 21:23 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 21:20 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 21:06 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 21:14 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 21:16 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 21:17 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 21:27 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 21:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 21:23 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 21:26 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 21:02 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/124096.shtml)
-- 2026-06-29 21:10 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/2034523.shtml)
-- 2026-06-29 21:06 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/8884685.shtml)
-- 2026-06-29 20:56 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/257447880.shtml)
-- 2026-06-29 21:08 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/58263413472.shtml)
-- 2026-06-29 21:01 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/75246785.shtml)
-- 2026-06-29 20:55 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/658453920359.shtml)
-- 2026-06-29 21:04 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/8254898.shtml)
-- 2026-06-29 21:21 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/6621177.shtml)
-- 2026-06-29 20:56 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/73735.shtml)
-- 2026-06-29 21:06 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/7184714164.shtml)
-- 2026-06-29 21:23 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/4389724.shtml)
-- 2026-06-29 21:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/1239955.shtml)
-- 2026-06-29 20:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/36276748.shtml)
-- 2026-06-29 21:17 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/0095409.shtml)
+- 2026-06-29 21:18 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/5812612756.shtml)
+- 2026-06-29 21:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/522101.shtml)
+- 2026-06-29 21:18 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/370212189689.shtml)
+- 2026-06-29 21:00 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/3878481.shtml)
+- 2026-06-29 21:29 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/73118549.shtml)
+- 2026-06-29 21:20 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/547746592.shtml)
+- 2026-06-29 21:01 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/745520120.shtml)
+- 2026-06-29 21:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/5580563668.shtml)
+- 2026-06-29 21:14 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/242586.shtml)
+- 2026-06-29 21:04 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/211309358.shtml)
+- 2026-06-29 21:17 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/095501502902.shtml)
+- 2026-06-29 21:00 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/231428737.shtml)
+- 2026-06-29 21:19 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/767066927.shtml)
+- 2026-06-29 21:16 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/47450546.shtml)
+- 2026-06-29 21:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/4164427329.shtml)

@@ -1,57 +1,57 @@
-# “新时代民营企业家培养计划”第七期培训班开班式在京举行
+# 文旅影像擂台赛聚焦陕西铜川文旅之美
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-新时代民营企业家培养计划”第七期培训班开班式30日在京举行，中央统战部分管日常工作的副部长沈莹出席并讲话。 沈莹表示，“新时代民营企业家培养计划”是落实党中央关于促进“两个健康”要求的重要举措。第七期培训班恰逢“十五五”规划开局之年，希望各位同学以参加培训为契机，深入学习领悟习近平经济思想，积极贯彻落实习近平总书记在民营企业座谈会上的重要讲话精神，在课堂学习和分享交流中，不断强
+中新网铜川5月19日电 时值“5·17世界电信日”与“5·19中国旅游日”双节联动，一场以“Hi四季 趣铜川”为主题的文旅影像擂台赛19日在陕西省铜川市溪山胜境景区启幕。 作为2026年“中国旅游日”铜川分会场，“Hi四季 趣铜川”中国联通文旅影像擂台赛以影像为文旅传播新载体，以赛事为文旅引流新抓手，全方位、立体化展示铜川全域文旅资源魅力，助力文旅产业高质量、品牌化、数字化发展
 
 ## 正文
 
-新时代民营企业家培养计划”第七期培训班开班式30日在京举行，中央统战部分管日常工作的副部长沈莹出席并讲话。
+中新网铜川5月19日电 时值“5·17世界电信日”与“5·19中国旅游日”双节联动，一场以“Hi四季 趣铜川”为主题的文旅影像擂台赛19日在陕西省铜川市溪山胜境景区启幕。
 
-沈莹表示，“新时代民营企业家培养计划”是落实党中央关于促进“两个健康”要求的重要举措。
+作为2026年“中国旅游日”铜川分会场，“Hi四季 趣铜川”中国联通文旅影像擂台赛以影像为文旅传播新载体，以赛事为文旅引流新抓手，全方位、立体化展示铜川全域文旅资源魅力，助力文旅产业高质量、品牌化、数字化发展。
 
-第七期培训班恰逢“十五五”规划开局之年，希望各位同学以参加培训为契机，深入学习领悟习近平经济思想，积极贯彻落实习近平总书记在民营企业座谈会上的重要讲话精神，在课堂学习和分享交流中，不断强化思想理论武装、深化对形势政策的理解把握，全面提升经营管理能力，切实将学习成果转化为实际行动，在厚植家国情怀，因地制宜培育发展新质生产力，加快建立完善中国特色现代企业制度，积极履行社会责任等方面发挥表率作用，为实现中国式现代化作出更大贡献。
+活动紧扣中国旅游日“乐享品质旅游”核心主旨，立足铜川丰富的文旅资源，创新打造赛事采风、文化挖掘、全网传播、成果赋能的一体化文旅推广模式。
 
-清华大学党委书记邱勇出席开班式并讲话，中央统战部、全国工商联有关部门负责同志，清华大学经济管理学院负责同志，培训班全体学员参加。
+赛事采用专业摄影擂台竞技模式，特邀全国11支摄影团体、50余名专业摄影创作者走进铜川全域核心文旅场景，开展限时实地创作、现场竞技评审，以专业影像视角深度解锁铜川文旅新风貌、新亮点、新体验。
 
-“新时代民营企业家培养计划”是中央统战部、全国工商联委托清华大学经济管理学院举办的培训项目，自2018年起已连续举办6期，累计培训600余人，第七期培训班共包含10个教学模块，为期一年。
+采风创作期间，摄影团队将深入照金红色旅游景区、陈炉古镇、药王山、玉华宫等铜川标志性文旅地标，聚焦红色研学、古镇非遗、山水生态康养、都市休闲四大创作维度，用镜头发现铜川文旅的细节之美、人文之韵、发展之变，为铜川文旅积累一批高质量、高质感、高传播度的原创影像素材。
 
-(佟轩) (“统战新语”微信公众号)
+活动还依托数字传播优势与平台资源，通过赛事直播、作品巡展、专题推送、全网分发等形式，助力文旅美景“火起来”，全面激活铜川文旅消费活力与品牌势能。
+
+同时，5G+云影像、数字云端展示等智慧技术的融入，也为铜川智慧文旅建设赋能增效，助力当地文旅产业转型升级。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 21:10 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 20:55 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 21:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 21:20 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 21:11 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 21:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 21:07 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 21:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 21:17 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 21:02 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 21:05 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 21:03 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 20:56 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 21:23 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 21:27 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 21:15 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 21:22 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 21:18 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 21:06 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 21:02 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 21:22 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 21:13 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 21:09 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 21:05 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 21:07 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:56 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/3152390927.shtml)
-- 2026-06-29 21:18 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/29701896579.shtml)
-- 2026-06-29 21:18 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/833181631595.shtml)
-- 2026-06-29 20:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/73525558510.shtml)
-- 2026-06-29 21:02 - [东方风云榜直播](https://www.share.minike.top/Article/details/285262.shtml)
-- 2026-06-29 21:04 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/423457533704.shtml)
-- 2026-06-29 21:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/844123.shtml)
-- 2026-06-29 21:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/38988.shtml)
-- 2026-06-29 21:23 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/390619.shtml)
-- 2026-06-29 21:23 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/75250403513.shtml)
-- 2026-06-29 21:21 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/55344217038.shtml)
-- 2026-06-29 21:18 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/337743839.shtml)
-- 2026-06-29 21:03 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/70585.shtml)
-- 2026-06-29 21:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/18880556179.shtml)
-- 2026-06-29 21:11 - [东方风云榜](http://www.share.minike.top/Article/details/8235266765.shtml)
+- 2026-06-29 21:03 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/46532705.shtml)
+- 2026-06-29 21:09 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/5906813.shtml)
+- 2026-06-29 21:27 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/42853.shtml)
+- 2026-06-29 21:26 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/74726412404.shtml)
+- 2026-06-29 21:14 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/8518061.shtml)
+- 2026-06-29 21:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/0777771.shtml)
+- 2026-06-29 21:26 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/837667416.shtml)
+- 2026-06-29 21:18 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/31260.shtml)
+- 2026-06-29 21:21 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/03520816.shtml)
+- 2026-06-29 21:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/362442.shtml)
+- 2026-06-29 21:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/19978430.shtml)
+- 2026-06-29 21:25 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/1936353629.shtml)
+- 2026-06-29 21:18 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/120645755.shtml)
+- 2026-06-29 21:21 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/76811772676.shtml)
+- 2026-06-29 21:30 - [一汽大众黄金超混技术来袭](https://www.blog.minike.top/Article/details/4142834425.shtml)

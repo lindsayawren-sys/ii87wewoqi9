@@ -1,59 +1,54 @@
-# 微处有幸福 老街有新篇：外国媒体看江苏老社区的“逆生长”
+# 文脉华章｜跟着总书记的文博足迹，打卡中华文明瑰宝
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-“我们刚踏入社区，便被井然有序的环境和多元功能打动，细节之处都用心，是喜爱安静休闲生活的居民的理想去处。”塔吉克斯坦萨菲娜电视台(Safina)文化娱乐部总监迪洛瓦尔·苏尔托尼用这样一句话，概括了她对天鹤社区的第一印象。江阴澄江街道天鹤社区，作为江阴市首批示范站点，辐射8个小区、服务1.4万名居民。社区整合城管、公安、市场监管等多方力量，以常态化服务联动联合执法破解基层治理痛点
+“中华民族历史悠久，中华文明源远流长，中华文化博大精深，一个博物馆就是一所大学校。”党的十八大以来，习近平总书记高度重视博物馆工作，在各地考察调研时多次走进博物馆，观看展陈文物、寻访中华文脉，对我国博物馆建设、文物保护修复、考古研究工作、文化遗产传承等提出一系列重要要求。 博物馆有很多宝贵文物甚至“国宝”，它们实证了我国百万年的人类史、一万年的文化史、五千多年的文明史。5月18
 
 ## 正文
 
-“我们刚踏入社区，便被井然有序的环境和多元功能打动，细节之处都用心，是喜爱安静休闲生活的居民的理想去处。
+“中华民族历史悠久，中华文明源远流长，中华文化博大精深，一个博物馆就是一所大学校。
 
-”塔吉克斯坦萨菲娜电视台(Safina)文化娱乐部总监迪洛瓦尔·苏尔托尼用这样一句话，概括了她对天鹤社区的第一印象。
+”党的十八大以来，习近平总书记高度重视博物馆工作，在各地考察调研时多次走进博物馆，观看展陈文物、寻访中华文脉，对我国博物馆建设、文物保护修复、考古研究工作、文化遗产传承等提出一系列重要要求。
 
-江阴澄江街道天鹤社区，作为江阴市首批示范站点，辐射8个小区、服务1.4万名居民。
+博物馆有很多宝贵文物甚至“国宝”，它们实证了我国百万年的人类史、一万年的文化史、五千多年的文明史。
 
-社区整合城管、公安、市场监管等多方力量，以常态化服务联动联合执法破解基层治理痛点，叠加智能设备赋能精细化管理，让充满烟火气息的老旧街巷，成为城市更新中温暖厚重的民生样板。
+5月18日是国际博物馆日，让我们跟随总书记的文博足迹，打卡博物馆里的中华文明瑰宝。
 
-5月29日，在2026“走读中国”国际媒体交流活动中，多位国际媒体记者实地走访社区，探寻城市更新背后，以人为本、精耕细作的基层治理密码。
-
-老旧社区改造是世界城市化进程中绕不开的共性考题，城市升级不只是空间翻新，更考验发展品质与民生福祉的协同并进。
-
-江阴天鹤社区跳出简单拆建的传统模式，在城市更新中坚守民生底色、留住街巷记忆，交出了一份有温度、有质感、有烟火气的答卷目之所及，邻里悠然、环境整洁。
-
-面对眼前景象，一名外籍记者直言：“最开始我甚至没意识到这是一个90年代的老社区。
+统筹：李琳 杨格 策划：陈海敏 设计：陈伟红 校对：陈学德
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 21:23 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 21:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-29 21:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 20:54 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 21:22 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 20:55 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 21:04 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 21:02 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 21:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 20:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 21:23 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 21:01 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 21:26 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 21:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 21:05 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 21:13 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 21:04 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 21:27 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 21:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 21:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 21:23 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 21:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 21:16 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 21:24 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 21:19 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 21:19 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/135010.shtml)
-- 2026-06-29 21:20 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/22839897839.shtml)
-- 2026-06-29 21:10 - [《贺子珍》](https://www.share.minike.top/Article/details/59181576.shtml)
-- 2026-06-29 21:16 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/8304756.shtml)
-- 2026-06-29 20:55 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/071154.shtml)
-- 2026-06-29 21:15 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/22958603.shtml)
-- 2026-06-29 21:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/86811743906.shtml)
-- 2026-06-29 21:03 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/72371508.shtml)
-- 2026-06-29 21:13 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/49795332.shtml)
-- 2026-06-29 21:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/6292340.shtml)
-- 2026-06-29 21:00 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/69928127774.shtml)
-- 2026-06-29 21:14 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/8460256.shtml)
-- 2026-06-29 20:54 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/919687.shtml)
-- 2026-06-29 20:54 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/51240752.shtml)
-- 2026-06-29 21:23 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/1011980834.shtml)
+- 2026-06-29 21:16 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/4329787.shtml)
+- 2026-06-29 21:18 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/1590292583.shtml)
+- 2026-06-29 21:18 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/98339950.shtml)
+- 2026-06-29 21:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/195665111.shtml)
+- 2026-06-29 21:29 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/69791744.shtml)
+- 2026-06-29 21:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/58219.shtml)
+- 2026-06-29 21:17 - [85花告别古偶](http://www.blog.minike.top/Article/details/579365487089.shtml)
+- 2026-06-29 21:03 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/5626622168.shtml)
+- 2026-06-29 21:05 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/13367750.shtml)
+- 2026-06-29 21:16 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/06319405018.shtml)
+- 2026-06-29 21:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/85516866941.shtml)
+- 2026-06-29 21:14 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/155490.shtml)
+- 2026-06-29 21:24 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/962931300.shtml)
+- 2026-06-29 21:02 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/509134567233.shtml)
+- 2026-06-29 21:12 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/456223.shtml)

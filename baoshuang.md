@@ -1,54 +1,56 @@
-# 卢春龙任中国政法大学校长
+# “浪漫邂逅”秒变“杀猪盘” “爆照打假”背后隐藏连环骗局
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据教育部网站消息，5月29日，教育部党组在中国政法大学宣布了有关任免决定，卢春龙同志任中国政法大学校长、党委副书记，马怀德同志不再担任中国政法大学校长、党委副书记职务。教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。北京市委教育工委有关负责同志出席会议并讲话，教育部人事司有关负责同志出席会议。 卢春龙，1976年4月出生，研究生，博士学位，中共党员，教授
+本报通讯员 金霞 许泰溶 葛明亮 语音交友房间里的“浪漫邂逅”，转眼变成步步紧逼的“杀猪盘”；一句“敢不敢赌照片是本人”，背后竟是环环相扣的诈骗陷阱。近日，江苏省南通市崇川区检察院依法办理了一起利用某语音聊天软件中的婚恋交友直播间实施诈骗的案件，将“爆照打假”“担保对赌”的连环骗局公之于众。经该院提起公诉，近日，法院以诈骗罪判处被告人夏某拘役五个月，缓刑八个月。 “一进房间，全
 
 ## 正文
 
-中新网5月29日电 据教育部网站消息，5月29日，教育部党组在中国政法大学宣布了有关任免决定，卢春龙同志任中国政法大学校长、党委副书记，马怀德同志不再担任中国政法大学校长、党委副书记职务。
+本报通讯员 金霞 许泰溶 葛明亮 语音交友房间里的“浪漫邂逅”，转眼变成步步紧逼的“杀猪盘”；一句“敢不敢赌照片是本人”，背后竟是环环相扣的诈骗陷阱。
 
-教育部党组成员、副部长、总督学王嘉毅出席会议并讲话。
+近日，江苏省南通市崇川区检察院依法办理了一起利用某语音聊天软件中的婚恋交友直播间实施诈骗的案件，将“爆照打假”“担保对赌”的连环骗局公之于众。
 
-北京市委教育工委有关负责同志出席会议并讲话，教育部人事司有关负责同志出席会议。
+经该院提起公诉，近日，法院以诈骗罪判处被告人夏某拘役五个月，缓刑八个月。
 
-卢春龙，1976年4月出生，研究生，博士学位，中共党员，教授。
+“一进房间，全是网友在热情互动，我以为遇到了正常的交友，没想到全是在演戏。
 
-曾任中国政法大学党委常委、副校长。
+”家住南通的被害人邓女士回忆起2025年8月的遭遇仍心有余悸。
+
+当天凌晨，她在使用某语音聊天软件时，发现一个名叫“姻缘房”的直播间人气很高。
+
+一心想要交友、脱单的邓女士便点了进去。
+
+刚进直播间，主持人就以游戏互动为由要求“爆照”。
 
 ## 相关推荐
 
-- 2026-06-29 20:58 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 21:13 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 21:10 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 21:07 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 21:18 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 21:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-29 21:06 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 21:03 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 20:59 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 21:23 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 21:22 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 21:18 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 21:00 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 21:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 21:16 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 21:04 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 21:24 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 21:17 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 21:01 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 21:21 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 21:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 21:00 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 21:14 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 21:19 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/0045166.shtml)
-- 2026-06-29 21:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/781650268.shtml)
-- 2026-06-29 20:56 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/70655035098.shtml)
-- 2026-06-29 21:11 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/828964836372.shtml)
-- 2026-06-29 20:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/01757184811.shtml)
-- 2026-06-29 21:19 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/5964064.shtml)
-- 2026-06-29 21:08 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/7581375964.shtml)
-- 2026-06-29 20:57 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/685602.shtml)
-- 2026-06-29 21:12 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/6931244857.shtml)
-- 2026-06-29 20:59 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/64882448802.shtml)
-- 2026-06-29 21:02 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/215397595981.shtml)
-- 2026-06-29 21:02 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/65580025.shtml)
-- 2026-06-29 21:12 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/19089585.shtml)
-- 2026-06-29 21:11 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/357860885.shtml)
-- 2026-06-29 20:55 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/40189.shtml)
+- 2026-06-29 21:29 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/22772145760.shtml)
+- 2026-06-29 21:11 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.kurohicncr.top/Article/details/6829881.shtml)
+- 2026-06-29 21:07 - [这一刀 会很帅](http://www.share.minike.top/Article/details/53324.shtml)
+- 2026-06-29 21:09 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/477142583031.shtml)
+- 2026-06-29 21:02 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/66058995191.shtml)
+- 2026-06-29 21:19 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/430420099346.shtml)
+- 2026-06-29 21:14 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/989246.shtml)
+- 2026-06-29 21:07 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/35346363.shtml)
+- 2026-06-29 21:08 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/88007117.shtml)
+- 2026-06-29 21:06 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/308471016194.shtml)
+- 2026-06-29 21:12 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/7947977852.shtml)
+- 2026-06-29 21:02 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/87538.shtml)
+- 2026-06-29 21:13 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/71763.shtml)
+- 2026-06-29 21:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/28248125353.shtml)
+- 2026-06-29 21:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/49745468360.shtml)

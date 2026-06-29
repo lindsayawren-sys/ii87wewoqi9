@@ -1,61 +1,58 @@
-# 2026潮阳西胪乌酥杨梅节启幕 杨梅飘香引客来
+# 年度医保药品目录调整工作启动，恒生创新药ETF华泰柏瑞（520500）单日“吸金”超1.6亿元！
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网广东汕头5月30日电(李怡青 林大森)2026潮阳西胪乌酥杨梅节30日在广东省汕头市潮阳西胪镇尖山村正式启幕，吸引众多市民、游客共赴杨梅文化盛宴。 此次杨梅节以“梅”好西胪·乌酥飘香为主题，依托“媒体+文化+产业”的创新模式，通过多项创新环节打造年度农文旅盛宴，提升品牌知名度与市场竞争力，推动“小杨梅”做成“大产业”。 据了解，潮阳是粤东最大的杨梅产区、中国乌酥杨梅之乡，
+今日（26/5/18）早盘创新药板块有所回调，但在多重利好催化下，此次调整或为投资者提供了较好的布局窗口期，相关ETF交投火热。从政策端看，2026年医保药品目录调整工作启动并新增“预申报”环节，进一步加快创新药准入；从基本面看，2025年年报显示港股创新药板块首次实现大幅盈利，盈利拐点或立；从数据催化来看，超90项中国研究入选2026 ASCO年会口头报道，中国药企闪耀全球可
 
 ## 正文
 
-中新网广东汕头5月30日电(李怡青 林大森)2026潮阳西胪乌酥杨梅节30日在广东省汕头市潮阳西胪镇尖山村正式启幕，吸引众多市民、游客共赴杨梅文化盛宴。
+今日（26/5/18）早盘创新药板块有所回调，但在多重利好催化下，此次调整或为投资者提供了较好的布局窗口期，相关ETF交投火热。
 
-此次杨梅节以“梅”好西胪·乌酥飘香为主题，依托“媒体+文化+产业”的创新模式，通过多项创新环节打造年度农文旅盛宴，提升品牌知名度与市场竞争力，推动“小杨梅”做成“大产业”。
+从政策端看，2026年医保药品目录调整工作启动并新增“预申报”环节，进一步加快创新药准入；从基本面看，2025年年报显示港股创新药板块首次实现大幅盈利，盈利拐点或立；从数据催化来看，超90项中国研究入选2026 ASCO年会口头报道，中国药企闪耀全球可期。
 
-据了解，潮阳是粤东最大的杨梅产区、中国乌酥杨梅之乡，拥有600多年的杨梅种植历史。
+创新药赛道近期受到资金青睐。
 
-依托独特的土壤与生态优势，西胪乌酥杨梅更是获评国家地理标志产品。
+Wind及交易所数据显示，当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）成交额最新（26/5/15）单日资金净流入高达1.61亿元，5月以来资金累计净流入4.91亿元、同期日均成交额8.61亿元。
 
-2026年西胪杨梅预计产量3000余吨，产值1.8亿多元，种植户户均收入可达6.8万元。
+连续6个交易日的资金净流入助推该ETF最新规模和份额分别达27.18亿元和18.89亿份，双双创历史新高！
 
-其中，乌酥杨梅凭借核小肉脆、果香醇厚的优势，备受消费者青睐。
+2026年5月17日，国家医保局宣布启动年度医保药品目录调整工作。
 
-活动主会场设置20个“广货行天下”主题展销摊位，8个杨梅主产村携优质鲜果、特色农产品集中亮相。
+本次调整首次允许已纳入2025年商业健康保险创新药品目录的药品申报国家医保目录，并新增“预申报”环节，进一步加快创新药准入。
 
-现场，主办方发布了“媒体+”西胪乌酥杨梅产业发展十条举措、杨梅专属LOGO，并举行“广货行天下”产销对接签约仪式，开拓杨梅线上线下融合销路，以产业振兴赋能乡村振兴。
+工作方案预计5月底发布，新版国家医保目录及商保创新药目录将于11月底前正式公布。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 21:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 21:08 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 20:58 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 21:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-29 21:11 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 20:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 21:03 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 21:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 20:57 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 21:17 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 21:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-29 20:58 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 21:17 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 21:04 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 21:27 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 21:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 21:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 21:19 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 21:19 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 21:20 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 21:17 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 21:24 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 21:27 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 21:01 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 21:02 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 21:28 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/732159385274.shtml)
-- 2026-06-29 20:58 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/44806.shtml)
-- 2026-06-29 21:11 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/5876189731.shtml)
-- 2026-06-29 20:56 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/80476047.shtml)
-- 2026-06-29 21:12 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/6817630657.shtml)
-- 2026-06-29 21:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/8059652.shtml)
-- 2026-06-29 20:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/701447193.shtml)
-- 2026-06-29 21:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/402233345015.shtml)
-- 2026-06-29 21:09 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/310821061782.shtml)
-- 2026-06-29 21:09 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/42170.shtml)
-- 2026-06-29 21:01 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/46650.shtml)
-- 2026-06-29 21:20 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/11400.shtml)
-- 2026-06-29 21:18 - [小娘惹](https://www.share.minike.top/Article/details/71297.shtml)
-- 2026-06-29 21:09 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/29558969526.shtml)
-- 2026-06-29 21:10 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/84923825.shtml)
+- 2026-06-29 21:19 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/2861368671.shtml)
+- 2026-06-29 21:03 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/13754.shtml)
+- 2026-06-29 21:01 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/7989410156.shtml)
+- 2026-06-29 21:21 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/790857658028.shtml)
+- 2026-06-29 21:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/37326632851.shtml)
+- 2026-06-29 21:16 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/686216004499.shtml)
+- 2026-06-29 21:17 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/0361901.shtml)
+- 2026-06-29 21:24 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/362036923841.shtml)
+- 2026-06-29 21:03 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/101349252.shtml)
+- 2026-06-29 21:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/883217580846.shtml)
+- 2026-06-29 21:26 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/30486846.shtml)
+- 2026-06-29 21:14 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/48140172.shtml)
+- 2026-06-29 21:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/3658647.shtml)
+- 2026-06-29 21:24 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/6881036538.shtml)
+- 2026-06-29 21:06 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/966543980857.shtml)

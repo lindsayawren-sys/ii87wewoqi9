@@ -1,56 +1,61 @@
-# “法治纽扣”青少年普法全国首站活动在浙江启动
+# 督察组：广西玉林市多地大面积违法违规削山采矿 生态遭严重破坏
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月29日电(郭其钰)5月29日，“法治纽扣”青少年普法全国首站活动——法治小记者“六一”法治宣传教育专场在浙江杭州举行。该活动以“法治为扣 E路生花”为主题，创新场景化、沉浸式、互动式普法模式，通过法治课堂、模拟法庭、牵手结对成果展示等鲜活载体，让网络法治知识可感可触、入脑入心，契合青少年认知特点与成长规律。 未成年人是“网络原住民”。截至2025年底，中国未成年网
+中新社北京5月19日电 (记者 阮煜琳)中央生态环境保护督察组19日通报，中央第五生态环境保护督察组督察广西壮族自治区发现，玉林市多个地方违法违规采矿，生态遭受严重破坏。 玉林市位于桂东南丘陵区，林业和矿产资源丰富。但多个地方大面积违法违规削山、采矿、毁林，生态修复流于形式、乱象丛生。 2024年10月，玉林市兴业县为规避采矿权设置，以物流园区项目建设需土地平整为由，计划整体削
 
 ## 正文
 
-中新网杭州5月29日电(郭其钰)5月29日，“法治纽扣”青少年普法全国首站活动——法治小记者“六一”法治宣传教育专场在浙江杭州举行。
+中新社北京5月19日电 (记者 阮煜琳)中央生态环境保护督察组19日通报，中央第五生态环境保护督察组督察广西壮族自治区发现，玉林市多个地方违法违规采矿，生态遭受严重破坏。
 
-该活动以“法治为扣 E路生花”为主题，创新场景化、沉浸式、互动式普法模式，通过法治课堂、模拟法庭、牵手结对成果展示等鲜活载体，让网络法治知识可感可触、入脑入心，契合青少年认知特点与成长规律。
+玉林市位于桂东南丘陵区，林业和矿产资源丰富。
 
-未成年人是“网络原住民”。
+但多个地方大面积违法违规削山、采矿、毁林，生态修复流于形式、乱象丛生。
 
-截至2025年底，中国未成年网民约2.03亿人，保障未成年人在网络空间的合法权益成为网络空间治理的重要任务。
+2024年10月，玉林市兴业县为规避采矿权设置，以物流园区项目建设需土地平整为由，计划整体削平156米的鸭木大山，施工将产生高达6000余万吨石灰石矿。
 
-活动现场，全国人大代表祝响响与金华市浦江县人民检察院检察官张凯丽带来双师联动法治课堂，聚焦青少年高频网络风险，开展青少年网络素养专项法治教育，在未成年人心中播撒民主法治的种子。
+2025年2月，该县矿产投资集团下属公司进场施工。
 
-法治小记者还带来“网络打赏”主题的模拟法庭。
+截至督察进驻，施工企业已将所产生的100万吨矿石违规外售给水泥、碳酸钙生产企业。
 
-宁波市奉化区人民法院法官王佩岚表示，希望通过角色扮演与规范庭审程序，引导青少年增强网络安全意识，树立理性消费观念，提升法治素养与自我保护能力。
+现场检查发现，施工企业野蛮开采、粗放作业，直接开挖山体，顺坡倾倒废石矿渣，原有的植被和山体遭受严重破坏。
 
-“法治从来不是冰冷的条文，而是温暖的守护。
+督察发现，兴业县一座废弃矿山矿区面积120亩，开采面宽度200米、垂直开采高度最高达100米，也属于典型的矿山开采“半边山、一面墙”，当地职能部门视而不见，未按要求将其列入整治清单。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 21:05 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 21:06 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 20:57 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 21:09 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 21:05 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 21:21 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 21:11 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 20:58 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 20:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 21:26 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 21:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 21:01 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 21:05 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 21:28 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 21:26 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 21:05 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 21:08 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 21:06 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 21:01 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 21:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 21:10 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 21:19 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 21:14 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 21:18 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/489383181.shtml)
-- 2026-06-29 21:18 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/380020.shtml)
-- 2026-06-29 21:16 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/90902100.shtml)
-- 2026-06-29 21:13 - [送你一朵小红花](http://www.blog.minike.top/Article/details/88238070938.shtml)
-- 2026-06-29 21:03 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/719156.shtml)
-- 2026-06-29 21:16 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8503594.shtml)
-- 2026-06-29 21:00 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/02733.shtml)
-- 2026-06-29 21:07 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/298853494086.shtml)
-- 2026-06-29 21:23 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/11509.shtml)
-- 2026-06-29 21:01 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/0455927.shtml)
-- 2026-06-29 21:09 - [爱很美味](http://www.share.minike.top/Article/details/2642040418.shtml)
-- 2026-06-29 20:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/33198849518.shtml)
-- 2026-06-29 21:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/5397034052.shtml)
-- 2026-06-29 20:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/280553.shtml)
-- 2026-06-29 21:06 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/985704.shtml)
+- 2026-06-29 21:03 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/796560.shtml)
+- 2026-06-29 21:01 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/480567861433.shtml)
+- 2026-06-29 21:27 - [周生如故](http://www.share.minike.top/Article/details/939935654004.shtml)
+- 2026-06-29 21:00 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/685413425.shtml)
+- 2026-06-29 21:07 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/84600107.shtml)
+- 2026-06-29 21:07 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/3369796.shtml)
+- 2026-06-29 21:11 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/4263376.shtml)
+- 2026-06-29 21:19 - [起风了](http://www.share.minike.top/Article/details/361858505.shtml)
+- 2026-06-29 21:24 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/65512693767.shtml)
+- 2026-06-29 21:22 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/02742653576.shtml)
+- 2026-06-29 21:26 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.kurohicncr.top/Article/details/822923.shtml)
+- 2026-06-29 21:29 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/3829434.shtml)
+- 2026-06-29 21:18 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/982776321050.shtml)
+- 2026-06-29 21:13 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/9483934.shtml)
+- 2026-06-29 21:06 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/082398350072.shtml)

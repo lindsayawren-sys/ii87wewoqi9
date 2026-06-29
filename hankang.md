@@ -1,55 +1,60 @@
-# 快讯：恒指高开0.62% 科指涨1.05% 科网股普涨 黄金股回暖 联想涨超14%
+# 追赶三星、海力士，国产存储双雄竞逐上市
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-美股周四温和向好，据报美伊达成停火协议，利好市场气氛，三大指数均创出历史新高收市。美元走势回落，美国十年期债息下滑至4.44厘水平，金价低位反弹，油价反复受压。 今日港股三大指数集体高开，恒指开盘涨0.62%，报25161.52点，恒科指涨1.05%，国企指数涨0.5%。盘面上，科网股普涨，联想涨超14%，百度涨超3%，快手、阿里巴巴涨超1%；AI应用股高开，深演智能涨超12%
+来源：财经杂志 存储超级周期下，国产NAND闪存龙头企业长江存储提交IPO上市辅导备案，正式开启上市进程 文|《财经》研究员 康国亮 编辑|杨秀红 继长鑫科技之后，“国产存储双雄”之一的长江存储（全称“长江存储控股股份有限公司”）也正式开启上市进程。 5月19日，根据证监会官网，长江存储发布首次公开发行股票并上市辅导备案报告，辅导机构为中信证券和中信建投证券。 据胡润研究院发布
 
 ## 正文
 
-美股周四温和向好，据报美伊达成停火协议，利好市场气氛，三大指数均创出历史新高收市。
+来源：财经杂志 存储超级周期下，国产NAND闪存龙头企业长江存储提交IPO上市辅导备案，正式开启上市进程 文|《财经》研究员 康国亮 编辑|杨秀红 继长鑫科技之后，“国产存储双雄”之一的长江存储（全称“长江存储控股股份有限公司”）也正式开启上市进程。
 
-美元走势回落，美国十年期债息下滑至4.44厘水平，金价低位反弹，油价反复受压。
+5月19日，根据证监会官网，长江存储发布首次公开发行股票并上市辅导备案报告，辅导机构为中信证券和中信建投证券。
 
-今日港股三大指数集体高开，恒指开盘涨0.62%，报25161.52点，恒科指涨1.05%，国企指数涨0.5%。
+据胡润研究院发布的《2025全球独角兽榜》，长江存储彼时以1600亿元估值首次入围，位列中国十大独角兽第九，与滴滴估值相当。
 
-盘面上，科网股普涨，联想涨超14%，百度涨超3%，快手、阿里巴巴涨超1%；AI应用股高开，深演智能涨超12%；黄金股回暖，紫金黄金国际涨超5%；锂电池股普遍上涨，比亚迪电子涨超2%；今日创想三维上市，首日涨超80%。
+国盛证券等多家机构预测其IPO（首次公开募股）估值约3000亿元。
 
-责任编辑：郝欣煜
+备案报告显示，长江存储成立于2016年12月21日，注册资本178.20亿元，法定代表人为陈南翔。
+
+公开资料显示，长江存储是中国3D NAND闪存领域的龙头企业，与专注于DRAM领域的长鑫科技并称“国产存储双雄”。
+
+据了解，NAND闪存主要用于消费电子的存储硬盘，而DRAM则主要用于消费电子的运行内存，二者是两类主流的存储芯片。
+
+“长鑫科技和长江存储是中国存储芯片的两大支柱，一个主攻DRAM、一个主攻NAND闪存，肩负着中国在存储芯片领域自主可控的历史性任务，现在它们正处于产业周期、业绩释放以及IPO上市三重因素的最佳窗口期。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 20:58 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 21:00 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 21:12 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 21:03 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 21:03 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 21:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 21:21 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 21:07 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 21:15 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 21:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 21:00 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 21:14 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 21:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 20:58 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 21:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 21:05 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 21:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 21:01 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 21:23 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 21:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 21:28 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 21:02 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 21:08 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 21:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 21:00 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 21:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 21:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 21:28 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/62195434451.shtml)
-- 2026-06-29 20:58 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/25997025000.shtml)
-- 2026-06-29 21:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/561575594036.shtml)
-- 2026-06-29 21:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/405817.shtml)
-- 2026-06-29 20:59 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/376629680905.shtml)
-- 2026-06-29 21:20 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.kurohicncr.top/Article/details/753483.shtml)
-- 2026-06-29 21:06 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/74991823281.shtml)
-- 2026-06-29 21:12 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/193492747.shtml)
-- 2026-06-29 21:03 - [天道](http://www.blog.kurohicncr.top/Article/details/472995632613.shtml)
-- 2026-06-29 21:00 - [福建海警位金门附近海域常态执法巡查](https://www.share.minike.top/Article/details/91699.shtml)
-- 2026-06-29 21:10 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/863931.shtml)
-- 2026-06-29 20:58 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/7567326414.shtml)
-- 2026-06-29 20:54 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/631749.shtml)
-- 2026-06-29 21:21 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/688859889.shtml)
-- 2026-06-29 21:03 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/3677952760.shtml)
+- 2026-06-29 21:26 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/894899401970.shtml)
+- 2026-06-29 21:14 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/34251707378.shtml)
+- 2026-06-29 21:28 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/899657845.shtml)
+- 2026-06-29 21:05 - [曝屠颖去世和酒店失责有关](http://www.blog.minike.top/Article/details/283960423.shtml)
+- 2026-06-29 21:02 - [天道](http://www.share.kurohicncr.top/Article/details/582974.shtml)
+- 2026-06-29 21:05 - [返利科技盘中上演“天地板”](http://www.share.kurohicncr.top/Article/details/134629949931.shtml)
+- 2026-06-29 21:14 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/70493.shtml)
+- 2026-06-29 21:22 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/18419.shtml)
+- 2026-06-29 21:08 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/7309806.shtml)
+- 2026-06-29 21:19 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/15009.shtml)
+- 2026-06-29 21:25 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/11902.shtml)
+- 2026-06-29 21:13 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/7197658.shtml)
+- 2026-06-29 21:03 - [小娘惹](http://www.share.minike.top/Article/details/24679397.shtml)
+- 2026-06-29 21:03 - [女心理师](https://www.share.minike.top/Article/details/75872425898.shtml)
+- 2026-06-29 21:04 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/067248183870.shtml)

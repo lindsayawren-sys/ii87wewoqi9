@@ -1,59 +1,54 @@
-# 中欧班列（合肥）累计开行6000列 通达20国
+# 中国水利部针对南方七省区启动洪水防御Ⅳ级应急响应
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新社合肥5月29日电 (记者 赵强)一列满载彩色液晶显示器、汽车配件、高端装饰布料等货品的中欧班列，29日从合肥北站物流基地启程，经阿拉山口口岸出境，驶向德国汉堡。该趟班列发出后，中欧班列(合肥)累计开行量突破6000列。 2014年6月，安徽省首个国际铁路货运专列“合新欧”中亚班列从合肥北站出发，驶向哈萨克斯坦阿拉木图，实现了安徽省历史上国际铁路货运专列“零的突破”。 今年
+中新社北京5月19日电 (记者 陈溯)中国水利部19日针对南方七省区启动洪水防御Ⅳ级应急响应。 据预报，19日至21日，江西北部、湖南、贵州东部、广西北部及沿海、广东北部及沿海、海南南部等地将有持续强降雨，受其影响，珠江流域西江中下游干流及支流柳江、桂江，北江干流，长江流域洞庭湖水系沅江上游、鄱阳湖水系饶河及赣江将出现涨水过程，广西防城河、湖南沅江上游支流沱江、湖北内荆河长湖等
 
 ## 正文
 
-中新社合肥5月29日电 (记者 赵强)一列满载彩色液晶显示器、汽车配件、高端装饰布料等货品的中欧班列，29日从合肥北站物流基地启程，经阿拉山口口岸出境，驶向德国汉堡。
+中新社北京5月19日电 (记者 陈溯)中国水利部19日针对南方七省区启动洪水防御Ⅳ级应急响应。
 
-该趟班列发出后，中欧班列(合肥)累计开行量突破6000列。
+据预报，19日至21日，江西北部、湖南、贵州东部、广西北部及沿海、广东北部及沿海、海南南部等地将有持续强降雨，受其影响，珠江流域西江中下游干流及支流柳江、桂江，北江干流，长江流域洞庭湖水系沅江上游、鄱阳湖水系饶河及赣江将出现涨水过程，广西防城河、湖南沅江上游支流沱江、湖北内荆河长湖等暴雨区内中小河流可能发生超警以上洪水。
 
-2014年6月，安徽省首个国际铁路货运专列“合新欧”中亚班列从合肥北站出发，驶向哈萨克斯坦阿拉木图，实现了安徽省历史上国际铁路货运专列“零的突破”。
+根据《水利部水旱灾害防御应急响应工作规程》，水利部于19日12时针对江西、湖北、湖南、广东、广西、贵州、海南七省(自治区)启动洪水防御Ⅳ级应急响应。
 
-今年以来，中欧班列(合肥)已开行399列，同比增长14%。
-
-依托铁海联运模式，累计发运超46000标准箱，货值近11亿美元。
-
-班列货物品类持续优化，智能家居、高端装备制造等优势产业产品占比超六成，新能源汽车、锂电池、光伏产品等“新三样”成为出口主力。
-
-近年来，中欧班列(合肥)通道布局不断完善，从最初单一路线拓展至通达20个国家的183个国际站点，物流网络越织越密。
+水利部要求地方水利部门和流域管理机构密切关注雨水情和汛情发展变化，加强监测预报预警，强化会商研判和应急值守，科学精准实施水工程防洪调度，强化中小水库、在建工程安全度汛，突出抓好短历时强降雨可能引发的中小河流洪水和山洪灾害防御工作，及时发布预警信息并督促地方组织人员转移避险，落实临灾预警“叫应”措施，确保民众生命财产安全。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 21:18 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 21:11 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 21:18 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 21:12 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 21:08 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 21:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 20:58 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 21:10 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 21:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 21:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 21:14 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 21:20 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 21:05 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 21:06 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 21:26 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 21:12 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 21:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 21:29 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 21:22 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 21:11 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 21:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 21:27 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 21:16 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 21:10 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 21:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 21:17 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 21:13 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/0207958.shtml)
-- 2026-06-29 21:05 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/96634233276.shtml)
-- 2026-06-29 21:20 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/80952637.shtml)
-- 2026-06-29 21:06 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/58682087300.shtml)
-- 2026-06-29 21:22 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/42627060.shtml)
-- 2026-06-29 21:10 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/996076028.shtml)
-- 2026-06-29 21:23 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.kurohicncr.top/Article/details/808911287.shtml)
-- 2026-06-29 21:07 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/0978203.shtml)
-- 2026-06-29 21:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/6251965.shtml)
-- 2026-06-29 21:07 - [青春环游记第三季](http://www.blog.minike.top/Article/details/53777677236.shtml)
-- 2026-06-29 21:12 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/2492888.shtml)
-- 2026-06-29 21:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/70568140.shtml)
-- 2026-06-29 20:56 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/959126611.shtml)
-- 2026-06-29 20:58 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/43128446.shtml)
-- 2026-06-29 21:17 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/14611852963.shtml)
+- 2026-06-29 21:21 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/3702926.shtml)
+- 2026-06-29 21:09 - [金刚川](http://www.blog.kurohicncr.top/Article/details/23278.shtml)
+- 2026-06-29 21:12 - [《贺子珍》](http://www.share.minike.top/Article/details/3744466.shtml)
+- 2026-06-29 21:27 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/60809147.shtml)
+- 2026-06-29 21:13 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/012778.shtml)
+- 2026-06-29 21:19 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/03806138449.shtml)
+- 2026-06-29 21:03 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/507224.shtml)
+- 2026-06-29 21:00 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/09575049.shtml)
+- 2026-06-29 21:03 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/7574822.shtml)
+- 2026-06-29 21:08 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/780164.shtml)
+- 2026-06-29 21:01 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/888922485.shtml)
+- 2026-06-29 21:09 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/23169094.shtml)
+- 2026-06-29 21:25 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/6583336.shtml)
+- 2026-06-29 21:28 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/92287.shtml)
+- 2026-06-29 21:20 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/1104589383.shtml)

@@ -1,54 +1,57 @@
-# 致敬科技楷模 “最美科技工作者”发布
+# 护腰靠垫是“神器”还是“智商税”？医生提醒
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-5月29日，在第十个全国科技工作者日前夕，中央宣传部、中国科协向全社会发布“最美科技工作者”。 于宗仁、孔海南、苏权科、宋仁德、陈蕾、金海族、赵洋、桂海潮、徐洪杰(已逝)、黄桂云等10位同志光荣入选。 他们自觉胸怀“国之大者”，面向世界科技前沿、面向经济主战场、面向国家重大需求、面向人民生命健康，积极投身高水平科技自立自强。他们爱党爱国、自强不息，敬业乐群、执着朴实，生动展现了
+护腰靠垫是“神器”还是“智商税” 医生提醒：急性期能用，长期用反而让肌肉变“懒惰” 长时间坐在办公桌前，腰酸背痛成了许多人的“标配”。于是，从几十元到上千元不等的护腰靠垫悄然走红，号称能矫正坐姿、缓解腰痛。然而这些靠垫真的能“护腰”吗？还是仅仅是一种心理安慰？ 扬子晚报/紫牛新闻记者 吕彦霖记者探访 护腰靠垫种类繁多，甚至有的上千元 记者走访多家商超和线上平台发现，市面上的护腰
 
 ## 正文
 
-5月29日，在第十个全国科技工作者日前夕，中央宣传部、中国科协向全社会发布“最美科技工作者”。
+护腰靠垫是“神器”还是“智商税” 医生提醒：急性期能用，长期用反而让肌肉变“懒惰” 长时间坐在办公桌前，腰酸背痛成了许多人的“标配”。
 
-于宗仁、孔海南、苏权科、宋仁德、陈蕾、金海族、赵洋、桂海潮、徐洪杰(已逝)、黄桂云等10位同志光荣入选。
+于是，从几十元到上千元不等的护腰靠垫悄然走红，号称能矫正坐姿、缓解腰痛。
 
-他们自觉胸怀“国之大者”，面向世界科技前沿、面向经济主战场、面向国家重大需求、面向人民生命健康，积极投身高水平科技自立自强。
+然而这些靠垫真的能“护腰”吗？
 
-他们爱党爱国、自强不息，敬业乐群、执着朴实，生动展现了新时代科技工作者的良好风貌。
+还是仅仅是一种心理安慰？
 
-记者：刘祯、温竞华 海报制作：刘祯 新华社国内部出品
+扬子晚报/紫牛新闻记者 吕彦霖记者探访 护腰靠垫种类繁多，甚至有的上千元 记者走访多家商超和线上平台发现，市面上的护腰靠垫价格从三四十元到近两千元不等，材质从普通海绵到记忆棉、充气气囊、人体工学硬支撑板，五花八门。
+
+不少产品打出“人体工学设计”“骨科医生推荐”“久坐不累”等宣传语，有的还号称能“矫正脊柱弯曲”“改善腰椎间盘突出”。
+
+而坐着的感受则因人而异，有人觉得软硬适中很舒服，有人则抱怨“硌得慌”“越坐越累”。
+
+一些“护腰靠垫”还有不同型号。
 
 ## 相关推荐
 
-- 2026-06-29 20:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 21:07 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 21:06 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 21:18 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 20:55 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 20:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 21:14 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 21:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 21:08 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-29 21:16 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 21:21 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 21:11 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 21:02 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 21:21 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 21:20 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 21:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 21:27 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 21:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 21:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 21:03 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 21:08 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 21:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 21:03 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 21:17 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 21:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/26589.shtml)
-- 2026-06-29 20:57 - [周杰伦演唱会含星量](http://www.blog.minike.top/Article/details/134918.shtml)
-- 2026-06-29 21:19 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/349825401761.shtml)
-- 2026-06-29 21:06 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/1444908.shtml)
-- 2026-06-29 21:01 - [斗破苍穹](https://www.share.minike.top/Article/details/36966.shtml)
-- 2026-06-29 21:09 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/942585530480.shtml)
-- 2026-06-29 21:02 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/734225.shtml)
-- 2026-06-29 20:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/46504.shtml)
-- 2026-06-29 21:22 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/6365483.shtml)
-- 2026-06-29 21:23 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/55602013277.shtml)
-- 2026-06-29 21:19 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/2754790.shtml)
-- 2026-06-29 20:58 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/10981196.shtml)
-- 2026-06-29 21:13 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/40530558.shtml)
-- 2026-06-29 21:18 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/404474.shtml)
-- 2026-06-29 21:11 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/64694.shtml)
+- 2026-06-29 21:29 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/566627686131.shtml)
+- 2026-06-29 21:04 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/907377127262.shtml)
+- 2026-06-29 21:18 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/320971907.shtml)
+- 2026-06-29 21:03 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/83468.shtml)
+- 2026-06-29 21:26 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/245105.shtml)
+- 2026-06-29 21:05 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/564320823826.shtml)
+- 2026-06-29 21:01 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/2719099909.shtml)
+- 2026-06-29 21:01 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/876153649413.shtml)
+- 2026-06-29 21:05 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/0874247.shtml)
+- 2026-06-29 21:17 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/5422426.shtml)
+- 2026-06-29 21:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/24027741.shtml)
+- 2026-06-29 21:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/663886277.shtml)
+- 2026-06-29 21:14 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/64826149.shtml)
+- 2026-06-29 21:28 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/88538.shtml)
+- 2026-06-29 21:19 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/5606476.shtml)

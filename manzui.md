@@ -1,59 +1,48 @@
-# 给3亿人捏脚捏出一个IPO！
+# 美国制裁伊朗影子银行系统的机构以及19艘船只
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：风云IPO 作者 | 孙梦圆 港交所 “史家父女”的足疗帝国。 作者|刘俊群 编辑|刘钦文 周末走进一家华夏良子，换上浴服，点上艾灸，90分钟的足疗SPA下来，账单轻松过千。这种消费方式，正在吸引越来越多的年轻人。 你可能没想过，这家足疗店正在冲刺资本市场。近日，山东华夏良子健康管理有限公司（下称“华夏良子”）与中泰国际正
+据美国财政部公告，财政部海外资产控制办公室（OFAC）将一家伊朗外汇兑换机构及其关联空壳公司列入制裁名单，这些实体被指代表受制裁的伊朗银行进行交易。 OFAC还制裁了19艘参与伊朗石油和石化产品运输的船只。 此次制裁对象包括Ebrahimi and Associates Partnership（即Amin Exchange），及其所有者和运营者Yousef Ebrahimi。责
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：风云IPO 作者 | 孙梦圆 港交所 “史家父女”的足疗帝国。
+据美国财政部公告，财政部海外资产控制办公室（OFAC）将一家伊朗外汇兑换机构及其关联空壳公司列入制裁名单，这些实体被指代表受制裁的伊朗银行进行交易。
 
-作者|刘俊群 编辑|刘钦文 周末走进一家华夏良子，换上浴服，点上艾灸，90分钟的足疗SPA下来，账单轻松过千。
+OFAC还制裁了19艘参与伊朗石油和石化产品运输的船只。
 
-这种消费方式，正在吸引越来越多的年轻人。
+此次制裁对象包括Ebrahimi and Associates Partnership（即Amin Exchange），及其所有者和运营者Yousef Ebrahimi。
 
-你可能没想过，这家足疗店正在冲刺资本市场。
-
-近日，山东华夏良子健康管理有限公司（下称“华夏良子”）与中泰国际正式签署上市保荐协议，拟冲刺IPO。
-
-消息一出，不少网友的第一反应是：足疗店也能上市？
-
-这并非没有先例。
-
-9年前，“中国头部足浴养生连锁品牌”重庆富侨在澳大利亚上市，仅3年后便摘牌退市。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 20:59 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 20:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 21:06 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 20:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 21:04 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 21:06 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 21:18 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-29 21:18 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 21:07 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 21:21 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 21:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 21:13 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 21:17 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 21:04 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 21:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 21:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 21:11 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-29 21:28 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 21:17 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 21:25 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 21:24 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 21:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/428764.shtml)
-- 2026-06-29 21:00 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/821299721.shtml)
-- 2026-06-29 21:12 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/81111.shtml)
-- 2026-06-29 21:17 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/1802715.shtml)
-- 2026-06-29 21:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/610931354934.shtml)
-- 2026-06-29 21:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/384287106.shtml)
-- 2026-06-29 21:04 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/57811199961.shtml)
-- 2026-06-29 21:21 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/97605.shtml)
-- 2026-06-29 21:22 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/2581461651.shtml)
-- 2026-06-29 21:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/39586386.shtml)
-- 2026-06-29 21:12 - [王楚钦开门红](http://www.blog.minike.top/Article/details/611328.shtml)
-- 2026-06-29 21:03 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/9260170.shtml)
-- 2026-06-29 20:56 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/274671291765.shtml)
-- 2026-06-29 21:15 - [流金岁月](https://www.share.kurohicncr.top/Article/details/099126280.shtml)
-- 2026-06-29 21:07 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/25059.shtml)
+- 2026-06-29 21:16 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/58015682816.shtml)
+- 2026-06-29 21:05 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/716617.shtml)
+- 2026-06-29 21:03 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/15637399.shtml)
+- 2026-06-29 21:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/35302136468.shtml)
+- 2026-06-29 21:12 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/7103952.shtml)
+- 2026-06-29 21:12 - [时光音乐会](http://www.blog.minike.top/Article/details/280846.shtml)
+- 2026-06-29 21:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/485715291719.shtml)
+- 2026-06-29 21:22 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/220297.shtml)
+- 2026-06-29 21:08 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/90194480881.shtml)
+- 2026-06-29 21:26 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/85714676.shtml)
+- 2026-06-29 21:16 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/9796941129.shtml)
+- 2026-06-29 21:29 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/062760505.shtml)
+- 2026-06-29 21:05 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/6828835.shtml)
+- 2026-06-29 21:05 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/967777596.shtml)
+- 2026-06-29 21:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/5924042845.shtml)

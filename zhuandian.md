@@ -1,51 +1,58 @@
-# 军娃专属甜蜜已送达！
+# 涉及民企内部腐败、串通投标等 最高检发布典型案例
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月31日 08:47 来源：中国新闻网 叮咚！军娃的六一儿童节甜蜜已送达！希望军娃们被蛋糕鲜花包围的童年，永远热烈永远甜！(作者：高飞、郑宇轩、林博雅、陈力） 责任编辑：【魏聪聪】
+中新网5月19日电 据最高检网站消息，在《中华人民共和国民营经济促进法》即将正式实施一周年之际，最高人民检察院发布“充分发挥检察职能 依法平等保护企业合法权益典型案例”。这批典型案例共6件，涉及民营企业内部腐败、“一货多卖”类合同诈骗、职务侵占、串通投标等企业生产经营活动中的常见法律问题，充分体现了检察机关服务保障经济社会高质量发展的坚定立场和工作成效。依法惩治侵害企业合法权益
 
 ## 正文
 
-发布时间：2026年05月31日 08:47 来源：中国新闻网 叮咚！
+中新网5月19日电 据最高检网站消息，在《中华人民共和国民营经济促进法》即将正式实施一周年之际，最高人民检察院发布“充分发挥检察职能 依法平等保护企业合法权益典型案例”。
 
-军娃的六一儿童节甜蜜已送达！
+这批典型案例共6件，涉及民营企业内部腐败、“一货多卖”类合同诈骗、职务侵占、串通投标等企业生产经营活动中的常见法律问题，充分体现了检察机关服务保障经济社会高质量发展的坚定立场和工作成效。
 
-希望军娃们被蛋糕鲜花包围的童年，永远热烈永远甜！
+依法惩治侵害企业合法权益犯罪，是检察机关依法平等保护企业合法权益的主要方式。
 
-(作者：高飞、郑宇轩、林博雅、陈力） 责任编辑：【魏聪聪】
+例如，在案例一某民营房地产企业内部腐败系列案中，上海检察机关准确认定犯罪事实、及时补充起诉遗漏罪行，同步推进查处关联行受贿犯罪；同时坚持标本兼治，助力企业完善内部治理，筑牢企业内部腐败“防火墙”。
+
+再如，在案例二某大宗贸易领域合同诈骗案中，涉案金额高达68亿余元，浙江检察机关严格区分民事欺诈与合同诈骗犯罪界限，依法追诉漏罪漏犯，同步推进全流程追赃挽损，依法平等保护涵盖国企、民企、外企等各类受害企业合法权益。
+
+持续加强对涉企案件的法律监督，是这批典型案例的鲜明特点。
+
+既有依法提起抗诉，纠正错误裁判，回应企业信访诉求的审判监督案件，也有依法行使调查核实权，接续监督维护企业合法权益的立案监督案件。
+
+例如，在案例五杨某某职务侵占审判监督抗诉案中，北京检察机关对确有错误的判决，依法提起审判监督抗诉，并在案件再审过程中依法调取使用境外证据，落实“一案多查”、深挖职务犯罪线索，通过充分履职推动抗诉案件顺利改判，有效发挥了检察监督效能。
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 21:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 21:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 21:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:05 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 21:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 21:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 21:17 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 21:23 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 21:22 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 21:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 21:18 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 20:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 21:20 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 21:18 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 21:00 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 21:25 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 21:25 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 21:17 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 21:24 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 21:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 21:04 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 21:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 21:09 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/124034.shtml)
-- 2026-06-29 21:15 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/5293781273.shtml)
-- 2026-06-29 20:56 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/8372520.shtml)
-- 2026-06-29 20:56 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/120581.shtml)
-- 2026-06-29 21:11 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/5813243908.shtml)
-- 2026-06-29 20:56 - [返利科技盘中上演“天地板”](https://www.blog.kurohicncr.top/Article/details/86310334067.shtml)
-- 2026-06-29 21:11 - [哈兰德吃饭被镜中自己吓到](https://www.blog.kurohicncr.top/Article/details/422137574513.shtml)
-- 2026-06-29 21:14 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/50495337.shtml)
-- 2026-06-29 21:21 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/7449717.shtml)
-- 2026-06-29 21:05 - [济南航空航天全面起势](http://www.blog.minike.top/Article/details/178107745.shtml)
-- 2026-06-29 20:54 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/454596858.shtml)
-- 2026-06-29 21:21 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/882123025.shtml)
-- 2026-06-29 21:14 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/774402383.shtml)
-- 2026-06-29 20:58 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/70237837.shtml)
-- 2026-06-29 21:17 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/390950943949.shtml)
+- 2026-06-29 21:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/8118832.shtml)
+- 2026-06-29 21:21 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/10306561.shtml)
+- 2026-06-29 21:08 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/2023418795.shtml)
+- 2026-06-29 21:05 - [明星大侦探第四季](http://www.share.minike.top/Article/details/346339396642.shtml)
+- 2026-06-29 21:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/2436329.shtml)
+- 2026-06-29 21:20 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/44487.shtml)
+- 2026-06-29 21:28 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/049918023.shtml)
+- 2026-06-29 21:15 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/501420403822.shtml)
+- 2026-06-29 21:08 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/382709616.shtml)
+- 2026-06-29 21:02 - [新官上任三把火](https://www.share.minike.top/Article/details/59715.shtml)
+- 2026-06-29 21:15 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/6840657.shtml)
+- 2026-06-29 21:21 - [逃狱兄弟](http://www.blog.minike.top/Article/details/74294362143.shtml)
+- 2026-06-29 21:12 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/64416659.shtml)
+- 2026-06-29 21:11 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/761177.shtml)
+- 2026-06-29 21:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/4222497228.shtml)

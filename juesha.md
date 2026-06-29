@@ -1,58 +1,60 @@
-# 中信建投期货：6月1日能化早报
+# 科创芯片杀疯了！中芯国际飙升10%，寒武纪、华虹公司齐创新高，华宝基金科创芯片ETF（589190）涨近4%！
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-PX： 供需面供增需减。亚洲行业负荷环比增加 1.6pct 至 65.7%，仍处五年低位。中国 PX 行业负荷环比增加 2.1pct至 80.0%，目前因原料问题导致的 PX 装置计划外变动有限，后期东营威联石化、福化集团、盛虹等装置后期存检修计划。需求端，PTA 计划外检修量预计增多，对 PX 需求将形成阶段性压制，6-8 月，PX 将呈现去库状态。伊朗议会拟通过霍尔木兹海峡
+5月20日午后，科创芯片再接再厉，权重龙头集体飙升，中芯国际涨超11%，华虹公司涨超12%，寒武纪涨逾4%，寒武纪、华虹公司齐创历史新高。全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格现涨3.76%，持续刷新上市以来的历史高点。 分析人士认为，半导体景气向上叠加自主可控，国产替代进入加速期。近日，长鑫科技业绩爆表，长江存储首次公开发行股票并上市辅导备案报告，皆
 
 ## 正文
 
-PX： 供需面供增需减。
+5月20日午后，科创芯片再接再厉，权重龙头集体飙升，中芯国际涨超11%，华虹公司涨超12%，寒武纪涨逾4%，寒武纪、华虹公司齐创历史新高。
 
-亚洲行业负荷环比增加 1.6pct 至 65.7%，仍处五年低位。
+全“芯”布局芯片产业的科创芯片ETF华宝（589190）场内价格现涨3.76%，持续刷新上市以来的历史高点。
 
-中国 PX 行业负荷环比增加 2.1pct至 80.0%，目前因原料问题导致的 PX 装置计划外变动有限，后期东营威联石化、福化集团、盛虹等装置后期存检修计划。
+分析人士认为，半导体景气向上叠加自主可控，国产替代进入加速期。
 
-需求端，PTA 计划外检修量预计增多，对 PX 需求将形成阶段性压制，6-8 月，PX 将呈现去库状态。
+近日，长鑫科技业绩爆表，长江存储首次公开发行股票并上市辅导备案报告，皆给整个半导体板块带来了重大驱动力。
 
-伊朗议会拟通过霍尔木兹海峡“主权管辖”计划，美伊谈判陷入拉锯战，美国总统特朗普临时修改协议，导致签署时间再生变数。
+财通证券认为，当前半导体零部件行业整体处于新一轮上行周期的早期阶段，叠加极低国产化率与自主可控紧迫性，正迎来景气上行+国产替代的双重驱动，行业趋势明确向上。
 
-同时，伊朗总统府再度否认佩泽希齐扬辞职的传闻。
+布局芯片产业“超级周期”，优选20CM高弹品种！
 
-受此影响，WTI 原油周一早盘涨超 2%。
+公开资料显示，科创芯片ETF华宝（589190）及其联接基金（A类021224、C类021225）被动跟踪上证科创板芯片指数，在均衡配置、全链布局芯片产业的同时，在集成电路、半导体设备等核心领域权重占比超90%，硬科技含量高、技术壁垒强。
 
-综合来看，即使未来战争达成阶段性和解，油价也难以大幅且持续下挫，难以回到冲突前水平，化工品更是如此。
+数据来源：沪深交易所等。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 21:08 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 20:56 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 21:13 - [高质量发展看新疆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 21:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 21:18 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 21:07 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 21:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 21:12 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 21:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 20:57 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 21:08 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 21:29 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 21:22 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 21:12 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 21:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 21:13 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 21:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 21:17 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-29 21:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 21:19 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 21:24 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 21:23 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 21:17 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 21:08 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 21:23 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/73379459942.shtml)
-- 2026-06-29 21:17 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/36578.shtml)
-- 2026-06-29 21:23 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/238822.shtml)
-- 2026-06-29 21:08 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/92519.shtml)
-- 2026-06-29 21:19 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/627245938588.shtml)
-- 2026-06-29 21:20 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/95620551.shtml)
-- 2026-06-29 20:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/964064528229.shtml)
-- 2026-06-29 21:11 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/33597660.shtml)
-- 2026-06-29 21:07 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/1338854.shtml)
-- 2026-06-29 21:12 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/8754529931.shtml)
-- 2026-06-29 21:15 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/53872082278.shtml)
-- 2026-06-29 21:14 - [金牌调解](http://www.blog.minike.top/Article/details/570321172744.shtml)
-- 2026-06-29 21:02 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/9170513498.shtml)
-- 2026-06-29 21:16 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/642465.shtml)
-- 2026-06-29 21:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/24163844457.shtml)
+- 2026-06-29 21:13 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/311686258.shtml)
+- 2026-06-29 21:22 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/3297137.shtml)
+- 2026-06-29 21:19 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/95526418.shtml)
+- 2026-06-29 21:02 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/88030434328.shtml)
+- 2026-06-29 21:08 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/5934052.shtml)
+- 2026-06-29 21:00 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/5888413.shtml)
+- 2026-06-29 21:19 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/7089741382.shtml)
+- 2026-06-29 21:19 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/0223588.shtml)
+- 2026-06-29 21:19 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/744539790.shtml)
+- 2026-06-29 21:03 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/946227042.shtml)
+- 2026-06-29 21:06 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/0678953.shtml)
+- 2026-06-29 21:26 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/37852.shtml)
+- 2026-06-29 21:07 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/21860408898.shtml)
+- 2026-06-29 21:13 - [英法德葡存在什么隐患](http://www.share.kurohicncr.top/Article/details/06037725.shtml)
+- 2026-06-29 21:10 - [爱很美味](https://www.share.minike.top/Article/details/7189575.shtml)

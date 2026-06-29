@@ -1,61 +1,59 @@
-# 华泰期货：碳酸锂周度库存持续下行，价格区间震荡收敛
+# 小摩：百度集团-SW目标价升至225港元 维持“增持”评级
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 师橙 市场分析 2026-05-28，碳酸锂主力合约2609开于175000元/吨，收于178860元/吨，当日收盘价较昨日结算价变化1.97%。当日成交量为260794手，持仓量为426476手，前一交易日持仓量428592手，根据SMM现货报价，目前基差为-1800元/吨（电碳均价-期货）。当日碳酸锂仓单54033手，较上个交易日变化-216手。 碳
+摩根大通发布研报称，重新评估百度集团-SW（09888）的业务架构。小摩将百度港股目标价由195港元上调至225港元，百度（BIDU.US）美股目标价由200美元上调至230美元，维持“增持”评级。该行预测，随着AI业务占比机械式上升，而广告业务的拖累因基数变小而减弱，此趋势将在2026年持续强化。 报告认为，市场早前预期资金会在昆仑芯上市后从百度轮换至昆仑芯。然而，百度今年第
 
 ## 正文
 
-来源：华泰期货 作者： 师橙 市场分析 2026-05-28，碳酸锂主力合约2609开于175000元/吨，收于178860元/吨，当日收盘价较昨日结算价变化1.97%。
+摩根大通发布研报称，重新评估百度集团-SW（09888）的业务架构。
 
-当日成交量为260794手，持仓量为426476手，前一交易日持仓量428592手，根据SMM现货报价，目前基差为-1800元/吨（电碳均价-期货）。
+小摩将百度港股目标价由195港元上调至225港元，百度（BIDU.US）美股目标价由200美元上调至230美元，维持“增持”评级。
 
-当日碳酸锂仓单54033手，较上个交易日变化-216手。
+该行预测，随着AI业务占比机械式上升，而广告业务的拖累因基数变小而减弱，此趋势将在2026年持续强化。
 
-碳酸锂现货：根据SMM数据，电池级碳酸锂报价171000-180000元/吨，较前一交易日变化-1500元/吨，工业级碳酸锂报价167500-176500元/吨，较前一交易日变化-1500元/吨。
+报告认为，市场早前预期资金会在昆仑芯上市后从百度轮换至昆仑芯。
 
-6%锂精矿价格2565美元/吨，较前一日变化-20美元/吨。
+然而，百度今年第一季的业绩打破了这一说法。
 
-供应：据 SMM 统计，碳酸锂周度总产量25547吨，环比-346吨；其中辉石产碳酸锂14441吨，环比-320吨；云母产碳酸锂3185吨，环比-60吨；盐湖产碳酸锂4885吨，环比+10吨；回收产碳酸锂3036吨，环比+24吨。
+百度核心AI业务收入达136亿元人民币，同比增长49%，首次在百度核心业务中占比过半，达52%。
 
-库存：根据SMM最新统计数据，现货库存为99416吨，环比-1247吨。
+该行更新的分类加总估值法（SOTP）显示，仅AI业务的估值已对应每份ADS达169美元，高于未计入传统业务、爱奇艺或净现金前的当前股价水平。
 
-其中冶炼厂库存为16931吨，环比-1443吨；下游库存为43518吨，环比+789吨；其他库存为38967吨，环比-593吨。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 20:56 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 21:07 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 20:55 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 20:55 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 21:20 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 21:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 21:19 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 21:11 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 21:20 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 21:09 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 21:02 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 21:17 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 21:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 21:15 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 21:11 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 21:25 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 21:06 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 21:21 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 21:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 21:29 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 21:01 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 21:10 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 21:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 21:25 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 21:24 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 21:04 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 21:02 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/670960383.shtml)
-- 2026-06-29 21:16 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/3809640746.shtml)
-- 2026-06-29 21:07 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.kurohicncr.top/Article/details/201622999.shtml)
-- 2026-06-29 21:00 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/201510.shtml)
-- 2026-06-29 21:18 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/869838.shtml)
-- 2026-06-29 21:08 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/0471498.shtml)
-- 2026-06-29 21:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/3819039803.shtml)
-- 2026-06-29 20:58 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/576512091.shtml)
-- 2026-06-29 21:18 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/19868782443.shtml)
-- 2026-06-29 21:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/602993.shtml)
-- 2026-06-29 20:55 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/909461495.shtml)
-- 2026-06-29 21:12 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/737854.shtml)
-- 2026-06-29 21:12 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/576223898.shtml)
-- 2026-06-29 21:17 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/46819346394.shtml)
-- 2026-06-29 21:09 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/84687175.shtml)
+- 2026-06-29 21:24 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/26683489.shtml)
+- 2026-06-29 21:08 - [我和我的家乡](https://www.blog.minike.top/Article/details/402568.shtml)
+- 2026-06-29 21:26 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/08314651123.shtml)
+- 2026-06-29 21:03 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/49246.shtml)
+- 2026-06-29 21:14 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/220228248.shtml)
+- 2026-06-29 21:19 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/017547099556.shtml)
+- 2026-06-29 21:12 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/24003.shtml)
+- 2026-06-29 21:23 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/6278564.shtml)
+- 2026-06-29 21:19 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/759477.shtml)
+- 2026-06-29 21:24 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/633698141126.shtml)
+- 2026-06-29 21:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/957549202.shtml)
+- 2026-06-29 21:09 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/24013965.shtml)
+- 2026-06-29 21:14 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/980693623244.shtml)
+- 2026-06-29 21:25 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/5005092656.shtml)
+- 2026-06-29 21:13 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/15013290.shtml)

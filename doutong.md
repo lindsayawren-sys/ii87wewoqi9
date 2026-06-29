@@ -1,61 +1,59 @@
-# 野生动物频频“进城串门”？生态环境部：理性对待，保持距离不惊扰
+# 高盛：阿里健康维持“中性”评级 目标价降至4.2港元
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 15:11 来源：中国新闻网 近期，部分地区接连出现了野猪“进城”、狼吃羊，甚至熊虎伤人等事件，引发社会广泛关注。5月29日，生态环境部举行例行新闻发布会。会上，生态环境部自然生态保护司司长张玉军表示，客观而言，出现这一现象的根源在于野生动物栖息地破碎化、食物链结构仍然不够完整、局部种群失衡，以及动物与人的生活空间重叠等。对此，我们需要理性对待
+高盛发布研报称，阿里健康（00241）3月底止2026财年下半年业绩好坏参半。该行维持对其“中性”评级，将其12个月目标价由4.8港元下调至4.2港元，基于28倍预测2027至2028财年平均市盈率。认为收入增长主要由药物（特别是处方药及创新产品）带动，但激烈的竞争将导致其增长速度较京东健康（06618）为慢，预期阿里健康明年3月底止2027财年收入同比增长13%，而京东健康2
 
 ## 正文
 
-发布时间：2026年05月29日 15:11 来源：中国新闻网 近期，部分地区接连出现了野猪“进城”、狼吃羊，甚至熊虎伤人等事件，引发社会广泛关注。
+高盛发布研报称，阿里健康（00241）3月底止2026财年下半年业绩好坏参半。
 
-5月29日，生态环境部举行例行新闻发布会。
+该行维持对其“中性”评级，将其12个月目标价由4.8港元下调至4.2港元，基于28倍预测2027至2028财年平均市盈率。
 
-会上，生态环境部自然生态保护司司长张玉军表示，客观而言，出现这一现象的根源在于野生动物栖息地破碎化、食物链结构仍然不够完整、局部种群失衡，以及动物与人的生活空间重叠等。
+认为收入增长主要由药物（特别是处方药及创新产品）带动，但激烈的竞争将导致其增长速度较京东健康（06618）为慢，预期阿里健康明年3月底止2027财年收入同比增长13%，而京东健康2026年收入增长预计达18%。
 
-对此，我们需要理性对待，采取科学合理的措施寻求人与自然和谐共处之道。
+该行指出，阿里健康利润率面临压力，原因是收入组合导致毛利率波动，加上持续对医疗人工智能及药物生态系统（如仓储、冷链配送、上游营销等）进行增量投资。
 
-一方面，要通过优化保护地范围、修复生态廊道、提升食物链完整度，把野生动物的“家”建设得更完整、更舒适。
+此外，医疗人工智能应用（氢离子）及为企业提供基于药品数字化追踪数据的创新解决方案等新兴机会仍处于早期阶段，财务贡献尚待验证。
 
-只有优化生态环境，让动物“安居乐业”，才能从源头上减少它们“进城串门”的需求。
+鉴于第三方平台业务增长逊预期，以及收入组合导致的毛利率波动与对人工智能及创新药物的增量投资，高盛下调阿里健康2027至2028财年收入预测2%，并下调同期经调整纯利预测18%，同时引入2029财年预测。
 
-另一方面，要在人类活动区域和动物密集区域之间建立起安全的缓冲区、隔离带，利用电子围栏和警示牌构筑起物理防线。
-
-同时，也呼吁大家掌握科学的避险知识，遇到野生动物时要保持克制，做到不靠近、不投喂、不惊扰，用理性和距离来守护好人与动物的双重安全。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 21:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 21:23 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 21:13 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 20:57 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-29 21:08 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-29 21:13 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 21:19 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 21:01 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 21:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 20:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 21:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 21:06 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 21:19 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 21:14 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 21:27 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 21:08 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 21:15 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 21:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 21:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 21:22 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 21:10 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 21:04 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 21:28 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 21:19 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 21:07 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 21:19 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 21:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 21:24 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/95210823.shtml)
-- 2026-06-29 21:23 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/2507392466.shtml)
-- 2026-06-29 20:56 - [法生态部长反对装空调却自己吹空调](https://www.blog.minike.top/Article/details/797048564.shtml)
-- 2026-06-29 21:00 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/89326197.shtml)
-- 2026-06-29 20:54 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/1514382.shtml)
-- 2026-06-29 21:02 - [绿营污蔑大陆“海上袭扰”被批](http://www.share.kurohicncr.top/Article/details/1359696184.shtml)
-- 2026-06-29 21:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/719361502.shtml)
-- 2026-06-29 21:23 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/047371650770.shtml)
-- 2026-06-29 21:09 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/0898229518.shtml)
-- 2026-06-29 21:01 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/365381.shtml)
-- 2026-06-29 21:12 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/435565800755.shtml)
-- 2026-06-29 21:07 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2830516851.shtml)
-- 2026-06-29 21:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/99195.shtml)
-- 2026-06-29 21:20 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/694158565.shtml)
-- 2026-06-29 20:57 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/355460.shtml)
+- 2026-06-29 21:05 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/88730116.shtml)
+- 2026-06-29 21:05 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/07197483.shtml)
+- 2026-06-29 21:08 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/27831874.shtml)
+- 2026-06-29 21:17 - [千与千寻](http://www.share.minike.top/Article/details/35464952.shtml)
+- 2026-06-29 21:23 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/952766.shtml)
+- 2026-06-29 21:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/99784221.shtml)
+- 2026-06-29 21:11 - [周生如故](https://www.share.minike.top/Article/details/409587971.shtml)
+- 2026-06-29 21:06 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/4979219784.shtml)
+- 2026-06-29 21:14 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/0421370.shtml)
+- 2026-06-29 21:04 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/680262.shtml)
+- 2026-06-29 21:22 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/480619217977.shtml)
+- 2026-06-29 21:20 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/210997962040.shtml)
+- 2026-06-29 21:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/4693598.shtml)
+- 2026-06-29 21:02 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.kurohicncr.top/Article/details/42380.shtml)
+- 2026-06-29 21:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/75635841905.shtml)

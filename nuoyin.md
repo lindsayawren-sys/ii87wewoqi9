@@ -1,59 +1,48 @@
-# 赣鄱“数智”潮涌，他们在奔涌处筑堤
+# 5月19日增减持汇总：通用电梯等14股拟减持，暂无A股增持（表）
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-指尖轻触屏幕，数字生活的便利与算法推送的洪流同时抵达。在江西，数字经济已经成为高质量发展的新引擎。法治，无疑是一条为数字浪潮校准航向的重要轨道。 轨道铺得如何？日前，2026年“E法同行”全国网络法治主题宣传江西站活动在宜春启动。启动仪式上，来自江西检察、法院、公安、网信一线的四位讲述人代表所在战线讲述了多个鲜活案例，那是他们奋力将法治精神嵌进数字生活的模样。 捍卫网络世界的数
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！据统计，5月19日盘后，通用电梯、岱勒新材、隆扬电子、富祥股份、锦富技术（维权）、强瑞技术、安孚科技、肯特催化、海星股份、壹石通、江苏北人、兴福电子、菱电电控（维权）、正帆科技14家上市公司披露拟减持情况，当日暂无A股公司披露增持情况。 责任编辑：宋雅芳
 
 ## 正文
 
-指尖轻触屏幕，数字生活的便利与算法推送的洪流同时抵达。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在江西，数字经济已经成为高质量发展的新引擎。
+据统计，5月19日盘后，通用电梯、岱勒新材、隆扬电子、富祥股份、锦富技术（维权）、强瑞技术、安孚科技、肯特催化、海星股份、壹石通、江苏北人、兴福电子、菱电电控（维权）、正帆科技14家上市公司披露拟减持情况，当日暂无A股公司披露增持情况。
 
-法治，无疑是一条为数字浪潮校准航向的重要轨道。
-
-轨道铺得如何？
-
-日前，2026年“E法同行”全国网络法治主题宣传江西站活动在宜春启动。
-
-启动仪式上，来自江西检察、法院、公安、网信一线的四位讲述人代表所在战线讲述了多个鲜活案例，那是他们奋力将法治精神嵌进数字生活的模样。
-
-捍卫网络世界的数字“尊严” 晚上11点42分，赣州居民小蒲的手机屏幕骤然亮起。
-
-“查到了，你老公昨晚入住的酒店，同住一人。
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 21:22 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 20:54 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 21:12 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 21:03 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 20:57 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 20:57 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 21:06 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 21:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 21:14 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 21:14 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 21:17 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 21:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 21:10 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 21:19 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 21:22 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 21:09 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 21:29 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 21:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 21:02 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 21:09 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 21:27 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 21:20 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 21:13 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 21:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 21:17 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/41173498.shtml)
-- 2026-06-29 21:21 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/26498.shtml)
-- 2026-06-29 21:05 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/036383564446.shtml)
-- 2026-06-29 21:15 - [韩国队回国欢迎仪式取消](https://www.blog.minike.top/Article/details/323804002343.shtml)
-- 2026-06-29 21:00 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/69256.shtml)
-- 2026-06-29 21:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/0065177.shtml)
-- 2026-06-29 21:07 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/743541195924.shtml)
-- 2026-06-29 21:08 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/41593206445.shtml)
-- 2026-06-29 21:19 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/0142412.shtml)
-- 2026-06-29 21:17 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/66277091468.shtml)
-- 2026-06-29 21:14 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/5074252.shtml)
-- 2026-06-29 21:07 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.kurohicncr.top/Article/details/95510432.shtml)
-- 2026-06-29 21:05 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/78554.shtml)
-- 2026-06-29 21:18 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/05321229067.shtml)
-- 2026-06-29 21:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/6689137.shtml)
+- 2026-06-29 21:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/04584539825.shtml)
+- 2026-06-29 21:05 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/26151074.shtml)
+- 2026-06-29 21:15 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/859825.shtml)
+- 2026-06-29 21:01 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/8339993074.shtml)
+- 2026-06-29 21:24 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/00588369.shtml)
+- 2026-06-29 21:23 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.kurohicncr.top/Article/details/88090242.shtml)
+- 2026-06-29 21:06 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/29242527.shtml)
+- 2026-06-29 21:24 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/447310429.shtml)
+- 2026-06-29 21:29 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/054090924.shtml)
+- 2026-06-29 21:12 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/24182064.shtml)
+- 2026-06-29 21:28 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/4831666013.shtml)
+- 2026-06-29 21:24 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/909690109813.shtml)
+- 2026-06-29 21:20 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/58972.shtml)
+- 2026-06-29 21:23 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/66874295791.shtml)
+- 2026-06-29 21:13 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/339741.shtml)

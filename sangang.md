@@ -1,56 +1,61 @@
-# 高息股资产布局热潮：华泰柏瑞红利全家桶成“吸金”主力
+# 消息人士：日本将推出针对散户投资者的新系列日本国债
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-近期，AI、算力等科技成长方向持续活跃的同时，部分资金开始重新关注防御属性的红利资产，资金布局呈现高低切的趋势。Wind数据显示，华泰柏瑞基金红利全家桶旗下多只产品均获资金积极增持，其中红利ETF华泰柏瑞（510880）、红利低波ETF华泰柏瑞（512890）、央企红利ETF华泰柏瑞（561580）均连续4周（26/5/4-26/5/28）获周度资金净流入，5月以来华泰柏瑞红利
+三名政府消息人士周三表示，日本预计将推出一系列面向散户投资者的新型政府债券，此举旨在填补央行购债规模缩减所留下的空白。 这些要求匿名的消息人士称，新系列将包括仅限家庭购买的通胀保值债券以及超长期日本国债。 此举正值日本国债收益率触及数十年高位之际，投资者对通胀风险以及日本政府计划通过增发债务编列追加预算感到担忧。 消息人士称，负责监管债券发行的日本财务省将于5月26日与专家及学
 
 ## 正文
 
-近期，AI、算力等科技成长方向持续活跃的同时，部分资金开始重新关注防御属性的红利资产，资金布局呈现高低切的趋势。
+三名政府消息人士周三表示，日本预计将推出一系列面向散户投资者的新型政府债券，此举旨在填补央行购债规模缩减所留下的空白。
 
-Wind数据显示，华泰柏瑞基金红利全家桶旗下多只产品均获资金积极增持，其中红利ETF华泰柏瑞（510880）、红利低波ETF华泰柏瑞（512890）、央企红利ETF华泰柏瑞（561580）均连续4周（26/5/4-26/5/28）获周度资金净流入，5月以来华泰柏瑞红利全家桶累计吸金59.87亿元，占同期全市场红利类ETF净流入的半数以上。
+这些要求匿名的消息人士称，新系列将包括仅限家庭购买的通胀保值债券以及超长期日本国债。
 
-专业机构的调仓动向，进一步佐证了高股息资产吸引力的持续攀升。
+此举正值日本国债收益率触及数十年高位之际，投资者对通胀风险以及日本政府计划通过增发债务编列追加预算感到担忧。
 
-据统计，截至2026年一季度，保险资金股票配置余额达3.84万亿元，占资金运用余额的9.7%，创近四年新高。
+消息人士称，负责监管债券发行的日本财务省将于5月26日与专家及学者举行会议，讨论这一方案。
 
-股票和证券投资基金余额合计约5.9万亿元，占比15.5%，并围绕高股息、低波动、长期持有、资本占用较低的权益资产方向进行精细化配置，核心持仓行业包括银行、电信、电力、能源以及部分非银金融。
+由于未获得公开发言的权限，这些消息人士要求匿名。
 
-值得关注的是，为了在低利率环境下获取更具吸引力的股息收益，机构对高股息资产的入池标准进行了下调，如有机构将股息率标准从去年的4.0%降至目前的3.5%。
+日本财务省暂未对此置评。
 
-当前高股息资产受关注的原因主要有，一方面，一方面，当前市场长端利率中枢持续下移，“资产荒”格局延续，资产配置性价比分化明显。
+针对散户投资者，财务省目前发行10年期浮动利率国债，以及三年期和五年期固定利率债券。
 
-截至最新数据，上证红利指数股息率达5.14%，红利低波指数股息率为5.0%，相较1.72%的十年期国债收益率，存在显著的利差优势；另一方面，当前市场资金高度抱团科技成长、产业升级主线，相关赛道估值持续走高，市场畏高情绪逐步升温。
+此类产品因长期低利率而一直不受欢迎，但随着日本央行加息推高收益率，需求已有所增加。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 21:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 21:09 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 21:14 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 20:58 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-29 21:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 21:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 21:15 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 21:01 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 21:12 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 21:28 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 21:09 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 21:16 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 21:18 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 21:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 21:17 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 21:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 21:12 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 21:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 21:29 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 21:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 21:03 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 21:00 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 21:29 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 21:16 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/85214087.shtml)
-- 2026-06-29 21:07 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/5768663.shtml)
-- 2026-06-29 21:09 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/45607.shtml)
-- 2026-06-29 21:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/524293974506.shtml)
-- 2026-06-29 21:15 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/5412567.shtml)
-- 2026-06-29 21:11 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/02546345964.shtml)
-- 2026-06-29 21:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/917292869.shtml)
-- 2026-06-29 20:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/01739089721.shtml)
-- 2026-06-29 21:07 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/244180903594.shtml)
-- 2026-06-29 21:19 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/219700.shtml)
-- 2026-06-29 20:59 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/412057264556.shtml)
-- 2026-06-29 21:05 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/788576768885.shtml)
-- 2026-06-29 21:00 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/2471453.shtml)
-- 2026-06-29 21:20 - [请回答王牌2019](https://www.share.minike.top/Article/details/9695074324.shtml)
-- 2026-06-29 21:18 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/50217694544.shtml)
+- 2026-06-29 21:03 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/87020.shtml)
+- 2026-06-29 21:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/37970.shtml)
+- 2026-06-29 21:09 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/245540406.shtml)
+- 2026-06-29 21:09 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/4796008017.shtml)
+- 2026-06-29 21:22 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/63563.shtml)
+- 2026-06-29 21:04 - [极限挑战第一季](http://www.blog.minike.top/Article/details/859131.shtml)
+- 2026-06-29 21:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/9717844.shtml)
+- 2026-06-29 21:25 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/425862349040.shtml)
+- 2026-06-29 21:17 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/15604892.shtml)
+- 2026-06-29 21:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/81344.shtml)
+- 2026-06-29 21:14 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/566749237.shtml)
+- 2026-06-29 21:11 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/85630545314.shtml)
+- 2026-06-29 21:01 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/3469934.shtml)
+- 2026-06-29 21:27 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/156512.shtml)
+- 2026-06-29 21:25 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/775324360543.shtml)

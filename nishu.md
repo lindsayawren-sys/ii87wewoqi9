@@ -1,56 +1,46 @@
-# 前4月新能源汽车出口激增1.2倍 业界呼吁推动中国标准“出海”
+# 中国和欧洲联合研制的太阳风-磁层相互作用全景成像卫星（“微笑”卫星）成功发射升空
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网天津5月29日电 (记者 杨子炀)中国新能源汽车全球化布局正跑出“加速度”。最新数据显示，今年前4个月，中国新能源汽车出口达到138.4万辆，同比增长1.2倍。 近日于天津召开的"智造跃升·价值共创，新能源汽车新引擎新生态”主题的“现代新国企”研讨会上，多位业内人士表示，在中国汽车产品加速走向世界的同时，更需推动中国技术标准“出海”，为全球用户提供高质量服务。 会议指出，
+新华社快讯：当地时间19日，中国和欧洲联合研制的太阳风-磁层相互作用全景成像卫星(“微笑”卫星)在法属圭亚那库鲁航天中心，由“织女星-C”火箭成功发射升空。
 
 ## 正文
 
-中新网天津5月29日电 (记者 杨子炀)中国新能源汽车全球化布局正跑出“加速度”。
-
-最新数据显示，今年前4个月，中国新能源汽车出口达到138.4万辆，同比增长1.2倍。
-
-近日于天津召开的"智造跃升·价值共创，新能源汽车新引擎新生态”主题的“现代新国企”研讨会上，多位业内人士表示，在中国汽车产品加速走向世界的同时，更需推动中国技术标准“出海”，为全球用户提供高质量服务。
-
-会议指出，2025年我国新能源汽车产销分别完成1662.6万辆和1649万辆，已连续11年位居全球第一。
-
-亮眼成绩的背后，全产业链的智能化跃升与生态共建成为关键驱动力。
-
-面对海外市场的广阔前景，中国长安汽车阿维塔科技副总裁雍军在会上呼吁，中国智能电动汽车已具备引领全球的实力，行业应摒弃低水平竞争，积极构建并推动国家标准走向世界。
-
-“我们要继续向上迈进，提升行业标准、提高准入门槛，让中国的标准服务全世界的汽车用户。
-
-”标准“出海”离不开扎实的技术积累。
+新华社快讯：当地时间19日，中国和欧洲联合研制的太阳风-磁层相互作用全景成像卫星(“微笑”卫星)在法属圭亚那库鲁航天中心，由“织女星-C”火箭成功发射升空。
 
 ## 相关推荐
 
-- 2026-06-29 21:06 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 20:54 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 21:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
-- 2026-06-29 21:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 21:08 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 21:11 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 21:21 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 21:06 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 21:20 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 21:15 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 21:13 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 21:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 21:14 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 21:28 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 21:00 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 21:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 21:04 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 21:10 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 21:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 21:01 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 21:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 21:23 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 21:17 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 21:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/06561.shtml)
-- 2026-06-29 20:54 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/595425629.shtml)
-- 2026-06-29 21:06 - [东方风云榜](http://www.blog.minike.top/Article/details/360942.shtml)
-- 2026-06-29 20:56 - [律师解读滚石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/8000224788.shtml)
-- 2026-06-29 21:18 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/9931475710.shtml)
-- 2026-06-29 21:19 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/6287106.shtml)
-- 2026-06-29 21:16 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/8594009.shtml)
-- 2026-06-29 20:57 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/79646.shtml)
-- 2026-06-29 21:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/8957796.shtml)
-- 2026-06-29 20:58 - [第一炉香](https://www.share.minike.top/Article/details/222489672902.shtml)
-- 2026-06-29 21:03 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/67490.shtml)
-- 2026-06-29 21:00 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/699773.shtml)
-- 2026-06-29 21:19 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/23427901667.shtml)
-- 2026-06-29 21:20 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/862986652250.shtml)
-- 2026-06-29 20:59 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/304359391956.shtml)
+- 2026-06-29 21:13 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/032972276945.shtml)
+- 2026-06-29 21:13 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/755087.shtml)
+- 2026-06-29 21:27 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/924250868694.shtml)
+- 2026-06-29 21:04 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/33747.shtml)
+- 2026-06-29 21:02 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/3923617.shtml)
+- 2026-06-29 21:11 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/7070495984.shtml)
+- 2026-06-29 21:23 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/29849732573.shtml)
+- 2026-06-29 21:12 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/617156963693.shtml)
+- 2026-06-29 21:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/6681061309.shtml)
+- 2026-06-29 21:05 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/28523.shtml)
+- 2026-06-29 21:28 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/160158.shtml)
+- 2026-06-29 21:24 - [起风了](http://www.blog.minike.top/Article/details/66591.shtml)
+- 2026-06-29 21:24 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/4309244.shtml)
+- 2026-06-29 21:11 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/014211.shtml)
+- 2026-06-29 21:15 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.minike.top/Article/details/866196.shtml)

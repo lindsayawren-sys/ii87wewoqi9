@@ -1,56 +1,61 @@
-# 崔东树：未来超豪华车必然崩溃
+# 豆粕：震荡为基，成本为托，天气为引
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行，全国乘用车市场信息联席分会秘书长崔东树出席并演讲。 他指出，在AI与新能源的双重驱动下，中国汽车产业正迎来前所未有的历史性机遇，未来有望突破年销5000万辆大关，占据全球市场的半壁江山。 然而，随着中国力量的崛起，全球汽车产业格局正呈现“东升西落”的态势。丰田、起亚等传统巨头面
+大地期货研究院 观点小结 核心观点：震荡美豆播种偏快但新作或紧平衡，巴西豆对华仍有优势，整体外盘底部抬升。国内到港多，油厂开机回升压制现货，养殖刚需偏强。短期或继续震荡，远期锚定美豆天气，或有阶段性反弹驱动。 现货基差：偏空到港和开机增加，现货和基差继续承压弱势运行。 南美大豆：偏空巴西丰产且出口旺盛；阿根廷收割加快，产量相对稳定。 美国大豆：利多新作播种超前，26/27年度供
 
 ## 正文
 
-专题：2026未来汽车先行者大会 2026第四届未来汽车先行者大会于5月29日-5月30日在深圳举行，全国乘用车市场信息联席分会秘书长崔东树出席并演讲。
+大地期货研究院 观点小结 核心观点：震荡美豆播种偏快但新作或紧平衡，巴西豆对华仍有优势，整体外盘底部抬升。
 
-他指出，在AI与新能源的双重驱动下，中国汽车产业正迎来前所未有的历史性机遇，未来有望突破年销5000万辆大关，占据全球市场的半壁江山。
+国内到港多，油厂开机回升压制现货，养殖刚需偏强。
 
-然而，随着中国力量的崛起，全球汽车产业格局正呈现“东升西落”的态势。
+短期或继续震荡，远期锚定美豆天气，或有阶段性反弹驱动。
 
-丰田、起亚等传统巨头面临下行压力，而比亚迪、吉利、奇瑞等中国车企正加速崛起，尽管在国际市场仍有巨大提升空间，但中国已成为推动行业变革的核心力量。
+现货基差：偏空到港和开机增加，现货和基差继续承压弱势运行。
 
-他认为，AI正在重塑汽车的产品定义，使其从传统的机械产品彻底转变为“耐用电子消费品”。
+南美大豆：偏空巴西丰产且出口旺盛；阿根廷收割加快，产量相对稳定。
 
-在研发端，AI驱动使得新车推出周期从过去的四年缩短至一年，产品迭代速度堪比智能手机。
+美国大豆：利多新作播种超前，26/27年度供需或偏紧；中美达成对美国农产品的采购协议170亿美元，不包括此前的大豆采购。
 
-在体验端，智能座舱正从“感知智能”迈向“认知智能”，未来的汽车将成为集智驾、座舱、底盘于一体的多智能体融合终端。
+进口采购：中性以近月巴西豆为主，四季度或新增美豆采购。
 
-“未来的超豪华车必然崩溃。
+大豆到港库存：偏空5-8月月均到港或高达1100万吨，大豆持续累库，供应宽松。
 
 ## 相关推荐
 
-- 2026-06-29 21:04 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 20:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 21:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 21:16 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 21:05 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 21:20 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 21:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 21:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 21:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 20:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 21:05 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 21:20 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 21:14 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 21:07 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 21:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:08 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 21:19 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 21:20 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 21:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 21:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 21:24 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 21:18 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 21:26 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-29 21:11 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 21:02 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:11 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/580132031631.shtml)
-- 2026-06-29 21:12 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/77771914606.shtml)
-- 2026-06-29 20:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/82249687172.shtml)
-- 2026-06-29 21:21 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/2221837838.shtml)
-- 2026-06-29 21:18 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/17122724753.shtml)
-- 2026-06-29 21:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/029531918438.shtml)
-- 2026-06-29 21:11 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/24140.shtml)
-- 2026-06-29 21:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/452725722093.shtml)
-- 2026-06-29 21:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/8823821844.shtml)
-- 2026-06-29 20:56 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/01197.shtml)
-- 2026-06-29 21:05 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/58830858.shtml)
-- 2026-06-29 21:11 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/78973.shtml)
-- 2026-06-29 21:13 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/45756044.shtml)
-- 2026-06-29 21:04 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/747608386776.shtml)
-- 2026-06-29 21:16 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/58316.shtml)
+- 2026-06-29 21:08 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/762962557.shtml)
+- 2026-06-29 21:26 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/254532636838.shtml)
+- 2026-06-29 21:10 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/9120728.shtml)
+- 2026-06-29 21:13 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/76889.shtml)
+- 2026-06-29 21:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5695621000.shtml)
+- 2026-06-29 21:09 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/84628.shtml)
+- 2026-06-29 21:00 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/935835749040.shtml)
+- 2026-06-29 21:10 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/44586.shtml)
+- 2026-06-29 21:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/688265.shtml)
+- 2026-06-29 21:00 - [极限挑战第一季](http://www.blog.minike.top/Article/details/2164915396.shtml)
+- 2026-06-29 21:06 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/6395343.shtml)
+- 2026-06-29 21:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/65076947.shtml)
+- 2026-06-29 21:17 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/73308277.shtml)
+- 2026-06-29 21:21 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/6258591137.shtml)
+- 2026-06-29 21:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/69745.shtml)

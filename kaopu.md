@@ -1,61 +1,57 @@
-# 公募量化“出圈”：新发爆款频出，存量产品走红
+# 【建投能化|周报】纯碱玻璃：预期悲观，纯碱玻璃弱势下跌
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今年以来，公募量化基金站上风口，热度持续攀升。新发产品密集上线、爆款频现；存量产品业绩“出圈”、规模暴增。公募积极布局与投资者热情进场的双向奔赴，让这一曾经小众的产品赛道迎来快速增长期。 Wind数据显示，按照基金全称含有“量化”二字为统计口径（全文同），今年前5个月，公募量化产品新发规模已超过去年全年总量
+中信建投期货研究 分析师：胡鹏 期货从业信息：F03086797 期货交易咨询从业信息：Z0019445 发布日期：2026年5月19日 期货交易咨询业务资格：证监许可〔2011〕1461 号 纯碱 主要逻辑 供应（偏多）：本周纯碱供应环比下降。本周纯碱检修安排增加，产量环比减少。下周纯碱检修计划增加，预计产量小幅下降。5月纯碱检修安排增加，供应端压力减弱。 需求（偏空）：本周
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中信建投期货研究 分析师：胡鹏 期货从业信息：F03086797 期货交易咨询从业信息：Z0019445 发布日期：2026年5月19日 期货交易咨询业务资格：证监许可〔2011〕1461 号 纯碱 主要逻辑 供应（偏多）：本周纯碱供应环比下降。
 
-今年以来，公募量化基金站上风口，热度持续攀升。
+本周纯碱检修安排增加，产量环比减少。
 
-新发产品密集上线、爆款频现；存量产品业绩“出圈”、规模暴增。
+下周纯碱检修计划增加，预计产量小幅下降。
 
-公募积极布局与投资者热情进场的双向奔赴，让这一曾经小众的产品赛道迎来快速增长期。
+5月纯碱检修安排增加，供应端压力减弱。
 
-Wind数据显示，按照基金全称含有“量化”二字为统计口径（全文同），今年前5个月，公募量化产品新发规模已超过去年全年总量，扩容态势显著。
+需求（偏空）：本周纯碱需求偏弱。
 
-业内人士预判，随着投资者对量化策略产品的接受度不断提高，公募量化规模有望持续走高。
+近期重碱需求下降，轻碱需求略降。
 
-量化与主观投资、AI的深度融合，或将成为该品种的核心竞争壁垒。
+本周浮法玻璃点火1条产线、光伏玻璃冷修1条产线（此外个别企业堵窑口），近期浮法、光伏玻璃日熔量之和小幅下降。
 
-新发、存量双爆发 本轮公募量化的火热行情，是新发市场扩容与存量产品走红的双重结果。
+短期中下游采购积极性一般，碱厂新订单持稳。
 
 ## 相关推荐
 
-- 2026-06-29 21:09 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 21:10 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 21:15 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 21:19 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 21:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 20:59 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 21:09 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 20:56 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 21:06 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 21:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 21:05 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 21:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 21:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 21:02 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 21:01 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 21:02 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 21:01 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 21:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 21:19 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 21:22 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 21:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 21:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 21:08 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 21:20 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 21:00 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 21:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/6138823407.shtml)
-- 2026-06-29 20:54 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/682147482075.shtml)
-- 2026-06-29 21:20 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/8873685408.shtml)
-- 2026-06-29 21:15 - [世界杯高票价为何没劝退球迷](http://www.blog.minike.top/Article/details/49740222.shtml)
-- 2026-06-29 20:57 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/936351095144.shtml)
-- 2026-06-29 21:19 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/14604.shtml)
-- 2026-06-29 21:06 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/099883830746.shtml)
-- 2026-06-29 20:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/36669.shtml)
-- 2026-06-29 21:00 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/477551514.shtml)
-- 2026-06-29 21:01 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/73247529045.shtml)
-- 2026-06-29 20:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/516850367182.shtml)
-- 2026-06-29 21:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/894574.shtml)
-- 2026-06-29 20:59 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/0899915126.shtml)
-- 2026-06-29 20:57 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/12072766008.shtml)
-- 2026-06-29 21:13 - [女心理师](http://www.blog.minike.top/Article/details/626835892.shtml)
+- 2026-06-29 21:22 - [一见倾心](http://www.share.minike.top/Article/details/2446273.shtml)
+- 2026-06-29 21:08 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/34014141.shtml)
+- 2026-06-29 21:06 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/70247.shtml)
+- 2026-06-29 21:07 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/5027309.shtml)
+- 2026-06-29 21:28 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/50044885322.shtml)
+- 2026-06-29 21:08 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/168462.shtml)
+- 2026-06-29 21:14 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/034526827703.shtml)
+- 2026-06-29 21:07 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/70853.shtml)
+- 2026-06-29 21:27 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/6895021849.shtml)
+- 2026-06-29 21:18 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/116107176272.shtml)
+- 2026-06-29 21:19 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/11649.shtml)
+- 2026-06-29 21:01 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/27570.shtml)
+- 2026-06-29 21:28 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/644319.shtml)
+- 2026-06-29 21:29 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/0518124764.shtml)
+- 2026-06-29 21:10 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/411928267128.shtml)

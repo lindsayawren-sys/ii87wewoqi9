@@ -1,51 +1,60 @@
-# 学习原声·开局“十五五”｜打好关键核心技术攻坚战
+# 受美国债30年期收益率上升影响，现货黄金回落失守4460美元
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-党的十八大以来，习近平总书记的脚步，一次次踏入创新要素最活跃的地方。他始终牵挂着科技人才培养，多次同科技工作者面对面交流。 “十五五”时期是建设科技强国的关键时期。从实验室到生产线，从科研院所到产业园区，处处是科技工作者施展抱负的广阔舞台，创新活力竞相奔涌。 统筹：吴炜玲 编导：杨慕茜 记者：张梦洁 海报：王若涵 新华社音视频部制作
+5月20日亚市早盘，继5月19日夜间贵金属猛烈下挫后，现货黄金伦敦金短线继续回落，一度失守4460美元/盎司。COMEX黄金期货同样一度失守4460美元/盎司；COMEX白银期货跌破74美元/盎司。 截至界面新闻发稿，现货黄金最新报4455.78美元/盎司，跌0.58%。COMEX黄金期货报4465.1美元/盎司，跌1.02%。COMEX白银期货报73.72美元/盎司，跌1．9
 
 ## 正文
 
-党的十八大以来，习近平总书记的脚步，一次次踏入创新要素最活跃的地方。
+5月20日亚市早盘，继5月19日夜间贵金属猛烈下挫后，现货黄金伦敦金短线继续回落，一度失守4460美元/盎司。
 
-他始终牵挂着科技人才培养，多次同科技工作者面对面交流。
+COMEX黄金期货同样一度失守4460美元/盎司；COMEX白银期货跌破74美元/盎司。
 
-“十五五”时期是建设科技强国的关键时期。
+截至界面新闻发稿，现货黄金最新报4455.78美元/盎司，跌0.58%。
 
-从实验室到生产线，从科研院所到产业园区，处处是科技工作者施展抱负的广阔舞台，创新活力竞相奔涌。
+COMEX黄金期货报4465.1美元/盎司，跌1.02%。
 
-统筹：吴炜玲 编导：杨慕茜 记者：张梦洁 海报：王若涵 新华社音视频部制作
+COMEX白银期货报73.72美元/盎司，跌1．91%。
+
+消息面上，5月19日，美国30年期国债收益率升至5.179%，触及2007年以来最高水平。
+
+此外，美国通胀超预期强化了加息预期。
+
+数据显示，美国4月消费者价格指数（CPI）同比上涨3.8%，高于市场预期的3.7%，同时4月生产者价格指数（PPI）同比上涨6.0%，远超预期的4.9%。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 20:57 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 21:21 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 21:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 21:07 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 20:57 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 21:22 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 21:22 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 21:01 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 21:01 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 21:05 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 21:17 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 21:03 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 21:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 21:24 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 21:06 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 21:23 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 21:01 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 21:07 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 21:13 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 21:08 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 21:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 21:03 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 21:16 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 21:06 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/27047149907.shtml)
-- 2026-06-29 21:02 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/80060055.shtml)
-- 2026-06-29 20:55 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/52785039216.shtml)
-- 2026-06-29 21:07 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/1338861301.shtml)
-- 2026-06-29 21:01 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/811405732.shtml)
-- 2026-06-29 21:05 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/008679727660.shtml)
-- 2026-06-29 21:09 - [我和我的家乡](https://www.blog.minike.top/Article/details/186847.shtml)
-- 2026-06-29 21:11 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/19551992864.shtml)
-- 2026-06-29 21:04 - [起风了](http://www.blog.kurohicncr.top/Article/details/2878913314.shtml)
-- 2026-06-29 20:59 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/11196865.shtml)
-- 2026-06-29 20:56 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/036921705.shtml)
-- 2026-06-29 21:08 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/2202620.shtml)
-- 2026-06-29 21:19 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/63323269146.shtml)
-- 2026-06-29 21:14 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/1599995379.shtml)
-- 2026-06-29 20:59 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/010222.shtml)
+- 2026-06-29 21:28 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/367767891032.shtml)
+- 2026-06-29 21:28 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/3370549.shtml)
+- 2026-06-29 21:27 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/242314.shtml)
+- 2026-06-29 21:23 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/192123121020.shtml)
+- 2026-06-29 21:08 - [厨房装空调还是装冷烟机](http://www.share.kurohicncr.top/Article/details/507994691.shtml)
+- 2026-06-29 21:22 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/60144812517.shtml)
+- 2026-06-29 21:08 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/1380083.shtml)
+- 2026-06-29 21:16 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/0959754.shtml)
+- 2026-06-29 21:09 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/09492.shtml)
+- 2026-06-29 21:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/18723486167.shtml)
+- 2026-06-29 21:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/3648052.shtml)
+- 2026-06-29 21:01 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/172344072787.shtml)
+- 2026-06-29 21:03 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/813522.shtml)
+- 2026-06-29 21:14 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/402724.shtml)
+- 2026-06-29 21:18 - [田曦薇没招了](https://www.share.minike.top/Article/details/21970950.shtml)

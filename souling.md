@@ -1,60 +1,56 @@
-# 新华社连发三问
+# 光大期货：5月20日农产品日报
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-5月28日凌晨，G40沪陕高速河南南阳桐柏毛集段发生一起重大道路交通事故，致13人死亡、3人受伤。 事故如何发生？暴露出哪些值得警示的问题？针对公众关注焦点，“新华视点”记者展开调查。 事故如何发生？ 5月28日2时40分左右，G40沪陕高速河南省南阳市桐柏毛集段K991+800处，一辆车牌号为鄂F8A7L8的大通客车追尾前方一辆半挂货车。客车核载9人，实载16人。 事故发生后
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆下跌，因获利了结。美豆、美豆粕和美豆油均下跌。美豆播种顺利，历史同期最快进度。美豆出苗率好于预期。天气预报显示，厄尔尼诺潜在风险发酵，盘面资金开始布局，为7-8越美豆关键生长期的天气支付升水。机构预计巴西26/27年度大豆种植面积预计增加40万公顷，近20年最低涨幅，因大豆种
 
 ## 正文
 
-5月28日凌晨，G40沪陕高速河南南阳桐柏毛集段发生一起重大道路交通事故，致13人死亡、3人受伤。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周二，CBOT大豆下跌，因获利了结。
 
-事故如何发生？
+美豆、美豆粕和美豆油均下跌。
 
-暴露出哪些值得警示的问题？
+美豆播种顺利，历史同期最快进度。
 
-针对公众关注焦点，“新华视点”记者展开调查。
+美豆出苗率好于预期。
 
-事故如何发生？
+天气预报显示，厄尔尼诺潜在风险发酵，盘面资金开始布局，为7-8越美豆关键生长期的天气支付升水。
 
-5月28日2时40分左右，G40沪陕高速河南省南阳市桐柏毛集段K991+800处，一辆车牌号为鄂F8A7L8的大通客车追尾前方一辆半挂货车。
+机构预计巴西26/27年度大豆种植面积预计增加40万公顷，近20年最低涨幅，因大豆种植利润收窄、化肥价格高企。
 
-客车核载9人，实载16人。
+巴西5月大豆出口量预计1610万吨，高于此前预估的1600万吨。
 
-事故发生后，记者随即赶赴现场调查。
+国内方面，蛋白粕跟随走高，维持震荡偏强走势。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 21:01 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 21:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 20:54 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 21:12 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 21:03 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 21:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 21:12 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 21:21 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 21:21 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 21:22 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 21:18 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 21:02 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 20:54 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 21:01 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 21:11 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 21:10 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 21:07 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 21:12 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 21:02 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 21:24 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 21:20 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 21:09 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 21:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/396807063059.shtml)
-- 2026-06-29 21:12 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/2930400.shtml)
-- 2026-06-29 20:57 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/79657580113.shtml)
-- 2026-06-29 21:02 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/08625.shtml)
-- 2026-06-29 21:13 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/345034.shtml)
-- 2026-06-29 21:18 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/55029839417.shtml)
-- 2026-06-29 21:02 - [周杰伦演唱会含星量](https://www.share.minike.top/Article/details/3747811.shtml)
-- 2026-06-29 21:08 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/326964.shtml)
-- 2026-06-29 21:10 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/1926830.shtml)
-- 2026-06-29 21:01 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/119310.shtml)
-- 2026-06-29 21:13 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/85416840.shtml)
-- 2026-06-29 20:55 - [记者：预计热火将追求小哈达威和康利](https://www.blog.kurohicncr.top/Article/details/872683048.shtml)
-- 2026-06-29 21:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/6373429.shtml)
-- 2026-06-29 21:16 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/11216594.shtml)
-- 2026-06-29 21:22 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/853712.shtml)
+- 2026-06-29 21:16 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/207023629.shtml)
+- 2026-06-29 21:28 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/216478503275.shtml)
+- 2026-06-29 21:11 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/432879296.shtml)
+- 2026-06-29 21:19 - [李思潼：不会介意大家夸我运气好](https://www.share.kurohicncr.top/Article/details/661894942447.shtml)
+- 2026-06-29 21:17 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/4877773.shtml)
+- 2026-06-29 21:19 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/9186301328.shtml)
+- 2026-06-29 21:03 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/486682.shtml)
+- 2026-06-29 21:24 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/88424687.shtml)
+- 2026-06-29 21:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/27237696.shtml)
+- 2026-06-29 21:18 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/971852.shtml)
+- 2026-06-29 21:28 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/702695957.shtml)
+- 2026-06-29 21:27 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/62614737.shtml)
+- 2026-06-29 21:24 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/951186733.shtml)
+- 2026-06-29 21:05 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/497674113.shtml)
+- 2026-06-29 21:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/86212289.shtml)

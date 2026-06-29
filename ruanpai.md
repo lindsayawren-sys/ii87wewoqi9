@@ -1,57 +1,48 @@
-# 5月全球债券市场剧烈震荡 美以伊战争冲击市场
+# 日韩股市开盘 韩国开盘上涨0.7%
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-5月，美以伊战争再次撼动全球债券市场，随着交易员将央行加息预期计入价格，收益率一度攀升至数十年高位——但和平谈判取得进展的迹象以及疲软的经济数据又令收益率急剧回落。 尽管冲突的明确结束将带来即时的缓解并降低全球各国政府的借贷成本，但5月份的走势凸显了投资者对通胀和不断增长的公共债务的敏感。 国债市场动荡 5月20日，随着伊朗战争搅动规模达28万亿美元的美国国债市场，30年期美国
+专题：第二阶段上涨行情不怕等 中期积极因素持续累积 日经225股价平均指数平开，报60567.27点。*韩国综合股价指数（KOSPI）开盘上涨0.7%，至7324.52点。责任编辑：王永生
 
 ## 正文
 
-5月，美以伊战争再次撼动全球债券市场，随着交易员将央行加息预期计入价格，收益率一度攀升至数十年高位——但和平谈判取得进展的迹象以及疲软的经济数据又令收益率急剧回落。
+专题：第二阶段上涨行情不怕等 中期积极因素持续累积 日经225股价平均指数平开，报60567.27点。
 
-尽管冲突的明确结束将带来即时的缓解并降低全球各国政府的借贷成本，但5月份的走势凸显了投资者对通胀和不断增长的公共债务的敏感。
+*韩国综合股价指数（KOSPI）开盘上涨0.7%，至7324.52点。
 
-国债市场动荡 5月20日，随着伊朗战争搅动规模达28万亿美元的美国国债市场，30年期美国国债收益率飙升至约5.2%，创下2007年以来新高。
-
-和平谈判陷入僵局的迹象推动油价重回110美元以上，加上美国通胀数据走强，这些都是引发全球债务抛售的诱因。
-
-英国国债收益率创下二三十年来新高，部分日本国债收益率创下历史新高，德国10年期国债收益率则创下2011年以来的最高水平。
-
-富兰克林坦普顿欧洲固定收益主管赞恩（David Zahn）表示：“市场担心通胀可能比我们预期的持续时间更长。
-
-” 成长的阵痛 随后，随着美国和伊朗宣布谈判取得进展，借贷成本随油价回落；此外，疲软的经济数据——尤其是欧洲的数据——削弱了大幅加息的理由。
-
-上周数据显示，随着欧元区各国应对不断上涨的能源成本，5月份该区的经济活动萎缩幅度达到两年半以来的最高水平。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 21:23 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 21:11 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 20:55 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 20:55 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 21:18 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 21:05 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 21:13 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 21:00 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 21:20 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 21:04 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 21:25 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 21:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 21:26 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 21:24 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 21:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 21:21 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 21:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 21:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 21:07 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 21:14 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 21:13 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/55271966.shtml)
-- 2026-06-29 21:02 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/41408298518.shtml)
-- 2026-06-29 20:55 - [面对热浪欧洲人为何陷入空调内耗](https://www.share.minike.top/Article/details/250203748371.shtml)
-- 2026-06-29 21:08 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.blog.minike.top/Article/details/299156822.shtml)
-- 2026-06-29 21:05 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/094439399508.shtml)
-- 2026-06-29 21:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/73214346.shtml)
-- 2026-06-29 21:17 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/55799486.shtml)
-- 2026-06-29 21:06 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/957496919237.shtml)
-- 2026-06-29 21:02 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/39034088496.shtml)
-- 2026-06-29 21:12 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/16063228.shtml)
-- 2026-06-29 21:20 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/42577.shtml)
-- 2026-06-29 21:10 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/5873109.shtml)
-- 2026-06-29 21:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/313732612362.shtml)
-- 2026-06-29 21:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/7497928250.shtml)
-- 2026-06-29 21:19 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/197882.shtml)
+- 2026-06-29 21:01 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/9865064.shtml)
+- 2026-06-29 21:03 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/422524178.shtml)
+- 2026-06-29 21:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/620419045150.shtml)
+- 2026-06-29 21:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/49529628389.shtml)
+- 2026-06-29 21:05 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/37161939.shtml)
+- 2026-06-29 21:04 - [一汽大众黄金超混技术来袭](http://www.share.minike.top/Article/details/28793017.shtml)
+- 2026-06-29 21:12 - [逃狱兄弟](https://www.blog.minike.top/Article/details/58312940.shtml)
+- 2026-06-29 21:12 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/948893.shtml)
+- 2026-06-29 21:22 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/50946.shtml)
+- 2026-06-29 21:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/6730791356.shtml)
+- 2026-06-29 21:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/10091716966.shtml)
+- 2026-06-29 21:28 - [委内瑞拉发生余震](https://www.blog.kurohicncr.top/Article/details/253367218004.shtml)
+- 2026-06-29 21:12 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/990626821.shtml)
+- 2026-06-29 21:16 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/417362522.shtml)
+- 2026-06-29 21:19 - [斗破苍穹](http://www.blog.minike.top/Article/details/30610.shtml)

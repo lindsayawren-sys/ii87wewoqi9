@@ -1,59 +1,60 @@
-# 中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点
+# 政策护航粤产动漫高飞 原创动漫IP与展会经济双轮驱动
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-第23届香格里拉对话会定于5月29日至31日在新加坡举行，预计将有来自全球40多个国家的550余位防务安全领域的代表参加本届“香会”。 “香会”是亚太地区重要的高规格防务安全多边论坛之一。在世界变乱交织、地缘热点频发背景下，本届对话会四大看点值得关注。 视频：“香会”是啥？今年有何看点？来源：中国新闻网 美防长与会 中方派代表团参加 近十年来，每届“香会”几乎都绕不开中美关系这
+一年前的文博会开幕首日，广东重磅出台推动文化产业高质量发展“政策包”，提出一揽子87条政策措施，覆盖影视、演艺市场、动漫影视、网络游戏、电子竞技、网络视听等6个领域。 一年来，“政策包”落地生根、成效显著。第二十二届文博会将于21日开幕，今日继续推出“文化新粤动”“政策包”落地一周年实效系列观察，深入解析“政策包”对动漫影视、网络游戏领域产业激活作用。 产值突破600亿元，全国
 
 ## 正文
 
-第23届香格里拉对话会定于5月29日至31日在新加坡举行，预计将有来自全球40多个国家的550余位防务安全领域的代表参加本届“香会”。
+一年前的文博会开幕首日，广东重磅出台推动文化产业高质量发展“政策包”，提出一揽子87条政策措施，覆盖影视、演艺市场、动漫影视、网络游戏、电子竞技、网络视听等6个领域。
 
-“香会”是亚太地区重要的高规格防务安全多边论坛之一。
+一年来，“政策包”落地生根、成效显著。
 
-在世界变乱交织、地缘热点频发背景下，本届对话会四大看点值得关注。
+第二十二届文博会将于21日开幕，今日继续推出“文化新粤动”“政策包”落地一周年实效系列观察，深入解析“政策包”对动漫影视、网络游戏领域产业激活作用。
 
-视频：“香会”是啥？
+产值突破600亿元，全国每三部动画就有一部是“广东造”，喜羊羊、猪猪侠、熊出没等国民IP从这里启航，陪伴亿万观众成长。
 
-今年有何看点？
+这是“动漫大省”广东的实力底色。
 
-来源：中国新闻网 美防长与会 中方派代表团参加 近十年来，每届“香会”几乎都绕不开中美关系这一重要议题。
+面对AI技术浪潮、IP产业链延伸、全年龄段动漫崛起的全新挑战，去年文博会期间，《关于推动广东动漫影视产业高质量发展的若干政策措施》重磅发布，充分彰显了“动漫大省”自我超越的决心。
 
-双方在会议期间的每一次互动，都会成为国际社会关注的焦点。
+过去一年，全省电视动画备案时长超2万分钟，持续位居全国第一方阵；发行部数、时长均占全国近四分之一，领先第二名50%；网络动画片规划备案106部，上线发行73部；吸引7家国内头部动画电影企业、近20部动画电影项目落户广东……“真金白银”的政策成效初显。
 
-本届“香会”，中国人民解放军专家学者代表团将应邀参加。
+一项项数据、一部部精品、一场场展会背后，随着大湾区“动漫+”产业生态圈崛起，粤产动漫充满机遇的新时代正在加速到来。
 
 ## 相关推荐
 
-- 2026-06-29 21:19 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 21:02 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 20:57 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 21:04 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 20:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 20:56 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 21:01 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 21:09 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 20:54 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 20:55 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 21:23 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 21:14 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 21:20 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 21:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 21:20 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 21:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 21:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 21:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 21:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 21:03 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 21:06 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 21:24 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 21:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 21:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 21:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 21:05 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 21:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/45548.shtml)
-- 2026-06-29 21:13 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/181370916.shtml)
-- 2026-06-29 21:13 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/92522.shtml)
-- 2026-06-29 21:18 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/29719078876.shtml)
-- 2026-06-29 21:08 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/51797.shtml)
-- 2026-06-29 21:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/0435664774.shtml)
-- 2026-06-29 21:13 - [世界杯高票价为何没劝退球迷](http://www.share.kurohicncr.top/Article/details/234297978749.shtml)
-- 2026-06-29 21:11 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/176324167.shtml)
-- 2026-06-29 20:55 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/4837063.shtml)
-- 2026-06-29 21:11 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/98715229.shtml)
-- 2026-06-29 21:12 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/5031783.shtml)
-- 2026-06-29 21:09 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.minike.top/Article/details/2256471.shtml)
-- 2026-06-29 21:04 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/201686.shtml)
-- 2026-06-29 21:00 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/661131.shtml)
-- 2026-06-29 21:10 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/373258.shtml)
+- 2026-06-29 21:11 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/49503.shtml)
+- 2026-06-29 21:21 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/6770298.shtml)
+- 2026-06-29 21:09 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/408037223342.shtml)
+- 2026-06-29 21:19 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/84240326193.shtml)
+- 2026-06-29 21:05 - [李思潼：不会介意大家夸我运气好](http://www.share.kurohicncr.top/Article/details/36501.shtml)
+- 2026-06-29 21:19 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2692183.shtml)
+- 2026-06-29 21:27 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/85172.shtml)
+- 2026-06-29 21:16 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/01259958634.shtml)
+- 2026-06-29 21:23 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/62565.shtml)
+- 2026-06-29 21:16 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/692828.shtml)
+- 2026-06-29 21:07 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/80236.shtml)
+- 2026-06-29 21:14 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/700617058.shtml)
+- 2026-06-29 21:28 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/683039076001.shtml)
+- 2026-06-29 21:26 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/066819467671.shtml)
+- 2026-06-29 21:08 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/92843.shtml)

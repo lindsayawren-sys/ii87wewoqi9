@@ -1,57 +1,53 @@
-# 王毅同加拿大外长阿南德会谈
+# 中国新闻网总编辑周锐：真实的中国就是最有传播力的华流
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-新华社渥太华5月29日电(记者林威)中共中央政治局委员、外交部长王毅29日在渥太华同加拿大外长阿南德举行会谈。 王毅表示，很高兴再次访问加拿大。过去几年，中加关系经历了波折。在两国领导人战略引领下，中加关系重新起航，各领域交往合作全面恢复，彼此的主要经贸关切也得到妥善解决。今年1月，卡尼总理成功访华，两国领导人同意推动构建中加新型战略伙伴关系，为双方明确了努力方向。中方期待同加
+中新网5月19日电 媒体该如何讲好中国故事，让“华流”成为“顶流”？5月19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，中国新闻社融媒体中心主任、中国新闻网总编辑周锐指出，要讲好中国故事，不需要小心栽种的文化盆景，也不用装模作样的心灵鸡汤、更不需要靠粉圈文化吹起流量泡沫，我们只需要平视世界，展示好我们高质量发展的点滴成就、日常生活中的鲜活场景。世界不只关注概念
 
 ## 正文
 
-新华社渥太华5月29日电(记者林威)中共中央政治局委员、外交部长王毅29日在渥太华同加拿大外长阿南德举行会谈。
+中新网5月19日电 媒体该如何讲好中国故事，让“华流”成为“顶流”？
 
-王毅表示，很高兴再次访问加拿大。
+5月19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，中国新闻社融媒体中心主任、中国新闻网总编辑周锐指出，要讲好中国故事，不需要小心栽种的文化盆景，也不用装模作样的心灵鸡汤、更不需要靠粉圈文化吹起流量泡沫，我们只需要平视世界，展示好我们高质量发展的点滴成就、日常生活中的鲜活场景。
 
-过去几年，中加关系经历了波折。
+世界不只关注概念化的中国，更向往一个具体、鲜活、有温度的中国。
 
-在两国领导人战略引领下，中加关系重新起航，各领域交往合作全面恢复，彼此的主要经贸关切也得到妥善解决。
-
-今年1月，卡尼总理成功访华，两国领导人同意推动构建中加新型战略伙伴关系，为双方明确了努力方向。
-
-中方期待同加方一道，落实好两国领导人重要共识，进一步探讨中加新型战略伙伴关系的推进路径，筹备好卡尼总理赴华出席亚太经合组织领导人非正式会议，确保两国关系在健康、稳定、可持续轨道上向前发展。
-
-王毅强调，中加关系这些年的跌宕起伏，给我们带来的最重要启示就是应坚持相互尊重、求同存异、战略自主、互利共赢。
-
-相互尊重就是尊重各自人民选择的制度道路，尊重彼此的核心利益。
+我们不需要带着滤镜去传播，而是可以更加自信，新时代真实的中国，就是最有传播力的“华流”。
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 21:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 21:17 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 20:56 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 21:09 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 21:21 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 21:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 21:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 21:20 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 20:57 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 21:03 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 21:22 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 21:22 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 21:25 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 21:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 21:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 21:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 21:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 21:23 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 21:19 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 21:05 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 21:12 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 21:07 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 21:27 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 21:00 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 21:16 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/16860855.shtml)
-- 2026-06-29 21:01 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/13208.shtml)
-- 2026-06-29 21:14 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/515352769666.shtml)
-- 2026-06-29 21:19 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/136268355169.shtml)
-- 2026-06-29 21:07 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/439423824142.shtml)
-- 2026-06-29 21:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/24497.shtml)
-- 2026-06-29 21:15 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/76661.shtml)
-- 2026-06-29 21:12 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/709017.shtml)
-- 2026-06-29 20:54 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/821470740.shtml)
-- 2026-06-29 20:59 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/52031486239.shtml)
-- 2026-06-29 21:10 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/1049023.shtml)
-- 2026-06-29 21:15 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/999948842.shtml)
-- 2026-06-29 21:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/9364364.shtml)
-- 2026-06-29 21:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/914773227548.shtml)
-- 2026-06-29 21:08 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/613247721.shtml)
+- 2026-06-29 21:07 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/36997871933.shtml)
+- 2026-06-29 21:13 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/669628379677.shtml)
+- 2026-06-29 21:01 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/91750491023.shtml)
+- 2026-06-29 21:25 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/666752355061.shtml)
+- 2026-06-29 21:12 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/6674561.shtml)
+- 2026-06-29 21:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.minike.top/Article/details/27864024916.shtml)
+- 2026-06-29 21:20 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/929234.shtml)
+- 2026-06-29 21:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/9683361.shtml)
+- 2026-06-29 21:17 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/5083970.shtml)
+- 2026-06-29 21:22 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/436694083422.shtml)
+- 2026-06-29 21:02 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/926653532.shtml)
+- 2026-06-29 21:21 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/73158222.shtml)
+- 2026-06-29 21:28 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/87863052.shtml)
+- 2026-06-29 21:07 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/4714778.shtml)
+- 2026-06-29 21:03 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/1856853464.shtml)

@@ -1,61 +1,55 @@
-# 北京互联网法院：涉未成年人网络纠纷向社交互动等新业态延伸
+# 被立案调查后，携程在改吗？
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月29日电 (陈杭 罗维佳)2021年5月至2026年5月，北京互联网法院共受理涉未成年人网络纠纷案件2581件，年收案从2021年的50件升至2025年的997件，收案数量增长近20倍，年均增幅111.3%，反映出未成年人网络活动日趋频繁，利用法律手段维权意识逐步增强，司法保护需求愈发迫切。这是记者28日从北京互联网法院未成年人网络司法保护新闻发布会上获悉的。 据
+发布时间：2026年05月19日 13:17 来源：中国新闻网 评分、流量、佣金、调价算法——在携程上经营的酒店民宿商家发现，自己被困在一套连环规则里。 2026年1月，市场监管总局根据前期核查，依据《中华人民共和国反垄断法》，对携程集团有限公司涉嫌滥用市场支配地位实施垄断行为立案调查。3月，北京市市场监管局等三部门联合约谈携程等平台企业，通报的典型事例中直指携程“侵害商家自主
 
 ## 正文
 
-中新网北京5月29日电 (陈杭 罗维佳)2021年5月至2026年5月，北京互联网法院共受理涉未成年人网络纠纷案件2581件，年收案从2021年的50件升至2025年的997件，收案数量增长近20倍，年均增幅111.3%，反映出未成年人网络活动日趋频繁，利用法律手段维权意识逐步增强，司法保护需求愈发迫切。
+发布时间：2026年05月19日 13:17 来源：中国新闻网 评分、流量、佣金、调价算法——在携程上经营的酒店民宿商家发现，自己被困在一套连环规则里。
 
-这是记者28日从北京互联网法院未成年人网络司法保护新闻发布会上获悉的。
+2026年1月，市场监管总局根据前期核查，依据《中华人民共和国反垄断法》，对携程集团有限公司涉嫌滥用市场支配地位实施垄断行为立案调查。
 
-据介绍，相关案件反映出四大突出特征与问题：一是上网场景持续丰富，新型风险不断涌现。
+3月，北京市市场监管局等三部门联合约谈携程等平台企业，通报的典型事例中直指携程“侵害商家自主经营权”“设置不合理规则”“特金牌标识误导消费者”。
 
-涉未成年人网络纠纷已从传统游戏充值、直播打赏向社交互动、盲盒消费、连麦交友等新业态延伸，部分产品设计诱导性消费模式，纠纷形态更趋复杂。
+面对监管，携程宣布：取消酒店特金牌标识，下线调价助手。
 
-二是多方主体深度参与，法律关系日趋复杂。
+然而，部分商户向中新网《民生调查局》记者反馈：携程此前被点名误导消费者的特牌、金牌酒店名称之后的“大拇指”标识虽从页面上撤下，但对应的排序规则仍藏在后台，还需要通过广告投放来稳固排名和流量；调价助手官宣下线，但调价指导却从未停止。
 
-游戏开发商、平台运营方、主播、渠道商等多主体责任边界模糊，未成年人维权难度加大，也对协同治理提出更高要求。
-
-三是消费纠纷占据首位，平台与家庭履责不力，既反映出家庭监护不到位，也暴露出部分平台在防沉迷机制、消费限额、内容审核等方面的短板。
-
-四是侵权纠纷成因多元，网络法治意识薄弱。
+(民生调查局） 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 21:03 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 21:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 21:09 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 21:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 21:00 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 21:07 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 21:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 21:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 21:10 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 21:06 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 20:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 21:06 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 21:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 21:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 21:21 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 21:22 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 21:30 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 21:28 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 21:18 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 21:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 21:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 21:02 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 21:06 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 21:19 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 21:02 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 21:17 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 21:28 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:20 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/51568.shtml)
-- 2026-06-29 21:18 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/246272.shtml)
-- 2026-06-29 21:09 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/38911675.shtml)
-- 2026-06-29 21:07 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/39503347058.shtml)
-- 2026-06-29 21:01 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/5558614788.shtml)
-- 2026-06-29 21:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/475395.shtml)
-- 2026-06-29 21:03 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/278176422.shtml)
-- 2026-06-29 21:02 - [乔家的儿女](https://www.blog.minike.top/Article/details/60577.shtml)
-- 2026-06-29 20:56 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/9726502329.shtml)
-- 2026-06-29 21:08 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/05808535.shtml)
-- 2026-06-29 21:15 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/6735239528.shtml)
-- 2026-06-29 20:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/0710743541.shtml)
-- 2026-06-29 21:17 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/747329847056.shtml)
-- 2026-06-29 21:20 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/72827.shtml)
-- 2026-06-29 21:03 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/26600431.shtml)
+- 2026-06-29 21:19 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/866221.shtml)
+- 2026-06-29 21:21 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/2461950.shtml)
+- 2026-06-29 21:05 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/67916460693.shtml)
+- 2026-06-29 21:20 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/03075.shtml)
+- 2026-06-29 21:02 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/801814.shtml)
+- 2026-06-29 21:05 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/6086050.shtml)
+- 2026-06-29 21:29 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/09429653.shtml)
+- 2026-06-29 21:19 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/175993441746.shtml)
+- 2026-06-29 21:25 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/439381346.shtml)
+- 2026-06-29 21:02 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/67566506727.shtml)
+- 2026-06-29 21:22 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/450425750.shtml)
+- 2026-06-29 21:26 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/52888217.shtml)
+- 2026-06-29 21:13 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/89333443225.shtml)
+- 2026-06-29 21:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/64496446168.shtml)
+- 2026-06-29 21:19 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/86803240.shtml)

@@ -1,57 +1,50 @@
-# 传柠季拟收购哈根达斯中国门店
+# 大美边疆看我家丨云南建水：感受彝族烟盒舞的特色风情
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-5月30日，近日，有消息称，新茶饮品牌柠季柠檬茶正就收购哈根达斯中国门店业务一事进行洽谈。 据报道，柠季相关负责人回应称：“关于网传的相关信息，现阶段暂不透露。” 哈根达斯母公司通用磨坊中国相关负责人以及通用磨坊全球总部，目前未就此事作出回应。 去年6月，有消息称，通用磨坊正在考虑出售在中国市场的哈根达斯门店，同时保留零售业务。《BUG》栏目曾梳理发现，2019年哈根达斯在华门
+发布时间：2026年05月19日 11:55 来源：中国新闻网 5月18日，云南建水，各族人民身穿民族服饰，在凤凰花下翩翩起舞，场面十分热闹。彝族烟盒舞，是云南省红河哈尼族彝族自治州的传统舞蹈，也是国家级非物质文化遗产之一。烟盒舞，就是用“烟盒”作道具的舞蹈，跳舞时将其上下两瓣分别持于双手，并用手指作有规律的弹响。彝族烟盒舞是凝聚人心、增进交融的民族团结载体。(作者：吴俊松 徐
 
 ## 正文
 
-5月30日，近日，有消息称，新茶饮品牌柠季柠檬茶正就收购哈根达斯中国门店业务一事进行洽谈。
+发布时间：2026年05月19日 11:55 来源：中国新闻网 5月18日，云南建水，各族人民身穿民族服饰，在凤凰花下翩翩起舞，场面十分热闹。
 
-据报道，柠季相关负责人回应称：“关于网传的相关信息，现阶段暂不透露。
+彝族烟盒舞，是云南省红河哈尼族彝族自治州的传统舞蹈，也是国家级非物质文化遗产之一。
 
-” 哈根达斯母公司通用磨坊中国相关负责人以及通用磨坊全球总部，目前未就此事作出回应。
+烟盒舞，就是用“烟盒”作道具的舞蹈，跳舞时将其上下两瓣分别持于双手，并用手指作有规律的弹响。
 
-去年6月，有消息称，通用磨坊正在考虑出售在中国市场的哈根达斯门店，同时保留零售业务。
+彝族烟盒舞是凝聚人心、增进交融的民族团结载体。
 
-《BUG》栏目曾梳理发现，2019年哈根达斯在华门店尚有557家，至2026年5月仅剩262家，近乎腰斩。
-
-据不完全统计，哈根达斯已退出南宁、潍坊、石家庄等城市，太原、南昌等城市也仅余“独苗”。
-
-在业绩端，哈根达斯也正在“承压”。
-
-在2025财年第二季度业绩会上，通用磨坊董事长兼CEO Jeff Harmening披露，哈根达斯在中国店铺客流量出现两位数下滑。
+(作者：吴俊松 徐帆） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 21:09 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 20:59 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 21:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 21:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 21:17 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 20:55 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-29 21:15 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 21:18 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 21:09 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 21:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 21:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 21:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 21:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 21:04 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 21:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 21:08 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 21:11 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 21:00 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 21:12 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 21:19 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/2971394954.shtml)
-- 2026-06-29 21:16 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/7097395888.shtml)
-- 2026-06-29 21:00 - [周杰伦千禧年就有小卡了](https://www.share.kurohicncr.top/Article/details/795171646.shtml)
-- 2026-06-29 21:09 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/82443.shtml)
-- 2026-06-29 21:18 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/82812647633.shtml)
-- 2026-06-29 21:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/060801.shtml)
-- 2026-06-29 21:16 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/135325362.shtml)
-- 2026-06-29 20:58 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/6487951739.shtml)
-- 2026-06-29 21:18 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/6642180.shtml)
-- 2026-06-29 20:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/824198733.shtml)
-- 2026-06-29 21:17 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.minike.top/Article/details/58098582.shtml)
-- 2026-06-29 20:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/5987607587.shtml)
-- 2026-06-29 20:58 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/2086227.shtml)
-- 2026-06-29 20:57 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/2133223904.shtml)
-- 2026-06-29 21:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/31258109994.shtml)
+- 2026-06-29 21:04 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/4467271413.shtml)
+- 2026-06-29 21:01 - [媒体评恋与深空用“引狼入室”台词](https://www.share.kurohicncr.top/Article/details/8282720681.shtml)
+- 2026-06-29 21:29 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/3599922.shtml)
+- 2026-06-29 21:24 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/34496.shtml)
+- 2026-06-29 21:26 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/78644290.shtml)
+- 2026-06-29 21:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/42984.shtml)
+- 2026-06-29 21:26 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/6442651.shtml)
+- 2026-06-29 21:15 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/75520216.shtml)
+- 2026-06-29 21:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/16768378.shtml)
+- 2026-06-29 21:20 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/2229112.shtml)
+- 2026-06-29 21:13 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/741494.shtml)
+- 2026-06-29 21:11 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/4949907.shtml)
+- 2026-06-29 21:27 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/004399.shtml)
+- 2026-06-29 21:20 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/13848164.shtml)
+- 2026-06-29 21:13 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/42499.shtml)

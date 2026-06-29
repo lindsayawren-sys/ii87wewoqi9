@@ -1,57 +1,56 @@
-# 山东青岛：书香伴“六一” 智慧创未来
+# 湖南遭遇入汛以来最强降水过程 电力部门争分夺秒抢修保供电
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！人这一辈子，一定要去一趟“华北明珠”白洋淀！非法从事试管婴儿手术背后：求子路上为何陷阱重重？6月新规来了！事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？厄尔尼诺将如
+中新网长沙5月19日电(彭小桐 李文丹 龙锦涛)连日来，湖南遭遇入汛以来最强降水过程，多地出现暴雨、大暴雨，常德澧县局地小时雨强突破全省历史极值，张家界桑植等地发生山体滑坡等次生灾害，部分电力设施受损。面对严峻汛情，国网湖南电力迅速启动应急响应，抢修人员向险而行，在暴雨洪流中筑起一道坚固的保电防线。 5月18日凌晨，常德石门县遭遇罕见特大暴雨，全县最大降雨量出现在壶瓶山镇，高达
 
 ## 正文
 
-外资加仓中国，对中国市场投下信任票灵隐寺，你变了！
+中新网长沙5月19日电(彭小桐 李文丹 龙锦涛)连日来，湖南遭遇入汛以来最强降水过程，多地出现暴雨、大暴雨，常德澧县局地小时雨强突破全省历史极值，张家界桑植等地发生山体滑坡等次生灾害，部分电力设施受损。
 
-人这一辈子，一定要去一趟“华北明珠”白洋淀！
+面对严峻汛情，国网湖南电力迅速启动应急响应，抢修人员向险而行，在暴雨洪流中筑起一道坚固的保电防线。
 
-非法从事试管婴儿手术背后：求子路上为何陷阱重重？
+5月18日凌晨，常德石门县遭遇罕见特大暴雨，全县最大降雨量出现在壶瓶山镇，高达376.4毫米，刷新历史极值。
 
-6月新规来了！
+极端强降雨引发严重山洪，壶瓶山镇多处道路、桥梁被冲毁，局部交通中断，部分电力设施受损。
 
-事关疲劳驾驶、“开门杀”赔偿等为啥外国人都爱来这里买买买？
+国网常德供电公司迅速成立应急抢险指挥部，科学调配抢修力量，紧急派出193名专业人员深入受灾一线，开展全覆盖、拉网式隐患排查。
 
-从五张面孔读懂中国民营经济的信心与底气中美关系、中东局势、日本动向、南海问题......一文速览“香会”四大看点韩军要收回战时指挥权，美国不再保护韩国了？
+同时，237名抢修人员整装待命，多台应急发电机及抢修物资提前到位。
 
-厄尔尼诺将如何影响我国后续天气形势？
+截至发稿，石门县主电网运行整体平稳。
 
-中国气象局回应“抹黑门”丑闻发酵 “高市泡沫”或将破裂德国汉学家培高德：德国社会如何更好理解当代中国？
+抢修队伍正抢抓天气窗口期，待道路抢通后立即投入作业，用最短时间恢复供电，保障受灾群众基本生活用电需求。
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 21:20 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 21:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-29 21:14 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 21:18 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 20:54 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 21:11 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 21:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 21:12 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 20:58 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 21:13 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 21:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 21:29 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 21:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
+- 2026-06-29 21:16 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 21:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 21:23 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 21:12 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 21:12 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 21:20 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 21:27 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [女生学医适合选什么专业](http://www.share.minike.top/Article/details/383053796.shtml)
-- 2026-06-29 21:02 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/613567303881.shtml)
-- 2026-06-29 21:21 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/353025.shtml)
-- 2026-06-29 21:19 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/476794589318.shtml)
-- 2026-06-29 21:08 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/265986417240.shtml)
-- 2026-06-29 21:08 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/475046.shtml)
-- 2026-06-29 20:58 - [一生一世](http://www.share.minike.top/Article/details/4778746549.shtml)
-- 2026-06-29 21:17 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/613619529.shtml)
-- 2026-06-29 21:07 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/854175898019.shtml)
-- 2026-06-29 21:10 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/29347123411.shtml)
-- 2026-06-29 21:04 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/168451655130.shtml)
-- 2026-06-29 21:15 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/11036086313.shtml)
-- 2026-06-29 20:54 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/17613.shtml)
-- 2026-06-29 20:57 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/9345434594.shtml)
-- 2026-06-29 21:22 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/2649414849.shtml)
+- 2026-06-29 21:25 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/262038112810.shtml)
+- 2026-06-29 21:28 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/273211060.shtml)
+- 2026-06-29 21:13 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/6026277.shtml)
+- 2026-06-29 21:23 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/57215039912.shtml)
+- 2026-06-29 21:00 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/389365.shtml)
+- 2026-06-29 21:26 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/21033.shtml)
+- 2026-06-29 21:08 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/39693155.shtml)
+- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/98231.shtml)
+- 2026-06-29 21:28 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/4616433596.shtml)
+- 2026-06-29 21:19 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/61954.shtml)
+- 2026-06-29 21:25 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/878424413773.shtml)
+- 2026-06-29 21:01 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/915693616.shtml)
+- 2026-06-29 21:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/94577922.shtml)
+- 2026-06-29 21:17 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/239182690048.shtml)
+- 2026-06-29 21:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/2166880284.shtml)

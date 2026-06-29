@@ -1,49 +1,57 @@
-# 大洋集团公布于6月1日上午起复牌
+# 从历史机遇到数字化复原 中国双线推动流散文物“回家”
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-大洋集团（01991）公布公司已向联交所申请，自2026年6月1日上午九时正起恢复公司股份于联交所买卖。责任编辑：卢昱君
+中新网洛阳5月20日电 (阚力 王佳宁)“当前海外文物回归已面临更好的历史机遇。”20日，在河南洛阳持续举行的龙门石窟保护传承传播工作座谈会上，上海大学党委副书记段勇如是说。 据中国文物学会统计，1840年以来，从中国流出的文物约有1000万件。大批海外流散文物回归，一直备受关注。 当地时间5月9日，法国总统马克龙签署关于归还非法所获文物的法律，备受国际舆论广泛关注。 “这为流
 
 ## 正文
 
-大洋集团（01991）公布公司已向联交所申请，自2026年6月1日上午九时正起恢复公司股份于联交所买卖。
+中新网洛阳5月20日电 (阚力 王佳宁)“当前海外文物回归已面临更好的历史机遇。
 
-责任编辑：卢昱君
+”20日，在河南洛阳持续举行的龙门石窟保护传承传播工作座谈会上，上海大学党委副书记段勇如是说。
+
+据中国文物学会统计，1840年以来，从中国流出的文物约有1000万件。
+
+大批海外流散文物回归，一直备受关注。
+
+当地时间5月9日，法国总统马克龙签署关于归还非法所获文物的法律，备受国际舆论广泛关注。
+
+“这为流失在法国的圆明园文物‘回家’打开了新窗口。
+
+”段勇向中新社表示，这也意味着文物归还程序更加便捷高效，是文物追索返还领域的一个重大进步，让部分海外流散的中国文物有了更快“回家”的希望。
+
+近年来，中国通过多种方式积极推动海外流散文物返还。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 21:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 21:18 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 20:56 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 21:09 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 21:06 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 21:15 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 20:55 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 20:54 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-29 21:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 21:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 21:08 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 21:22 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 21:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 21:17 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 21:12 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 21:25 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 21:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 21:27 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 21:06 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 21:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 21:02 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 21:03 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 21:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 21:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 21:03 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:58 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/4098254859.shtml)
-- 2026-06-29 21:18 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/2027265.shtml)
-- 2026-06-29 21:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/6518493.shtml)
-- 2026-06-29 20:59 - [巴西10号球衣是天才传承史](https://www.blog.kurohicncr.top/Article/details/017222.shtml)
-- 2026-06-29 21:22 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/389609.shtml)
-- 2026-06-29 20:58 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/91868.shtml)
-- 2026-06-29 20:59 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/8922184.shtml)
-- 2026-06-29 21:21 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/72453.shtml)
-- 2026-06-29 21:14 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/684040905.shtml)
-- 2026-06-29 21:23 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/551073.shtml)
-- 2026-06-29 21:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/253301.shtml)
-- 2026-06-29 21:08 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/17924353774.shtml)
-- 2026-06-29 21:04 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.kurohicncr.top/Article/details/2659228050.shtml)
-- 2026-06-29 21:13 - [天道](https://www.blog.kurohicncr.top/Article/details/697423795.shtml)
-- 2026-06-29 21:11 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/816600399.shtml)
+- 2026-06-29 21:10 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/980861229353.shtml)
+- 2026-06-29 21:04 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/563225434787.shtml)
+- 2026-06-29 21:23 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/227507.shtml)
+- 2026-06-29 21:00 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/595384739.shtml)
+- 2026-06-29 21:28 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/466872797863.shtml)
+- 2026-06-29 21:19 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/5888217.shtml)
+- 2026-06-29 21:19 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/73262541.shtml)
+- 2026-06-29 21:11 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/7136658.shtml)
+- 2026-06-29 21:24 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/490304.shtml)
+- 2026-06-29 21:05 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/2491363.shtml)
+- 2026-06-29 21:09 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/9464282984.shtml)
+- 2026-06-29 21:28 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/87910.shtml)
+- 2026-06-29 21:01 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/775358058.shtml)
+- 2026-06-29 21:00 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/0044310.shtml)
+- 2026-06-29 21:11 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/00565250.shtml)

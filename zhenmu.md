@@ -1,57 +1,46 @@
-# 留学报国“新”欣向荣——写在欧美同学会第二次全国会员代表大会召开之际
+# 习近平同俄罗斯总统普京共同出席合作文件签字仪式
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-五年来，欧美同学会始终与国家发展同行，将这份光荣使命转化为具体行动，在时代浪潮中探索留学报国“新”路径。 “留学报国人才库”“建言献策智囊团”“民间外交生力军”，这是在欧美同学会成立100周年的历史节点，习近平总书记为其赋予的光荣使命。 新征程上，一份份报国初心如何凝聚成干事创业的强大力量？五年来，欧美同学会始终与国家发展同行，将这份光荣使命转化为具体行动，在时代浪潮中探索留学
+新华社快讯：习近平同俄罗斯总统普京共同出席合作文件签字仪式 新华社快讯：5月20日，国家主席习近平同俄罗斯总统普京在北京人民大会堂共同出席合作文件签字仪式。
 
 ## 正文
 
-五年来，欧美同学会始终与国家发展同行，将这份光荣使命转化为具体行动，在时代浪潮中探索留学报国“新”路径。
-
-“留学报国人才库”“建言献策智囊团”“民间外交生力军”，这是在欧美同学会成立100周年的历史节点，习近平总书记为其赋予的光荣使命。
-
-新征程上，一份份报国初心如何凝聚成干事创业的强大力量？
-
-五年来，欧美同学会始终与国家发展同行，将这份光荣使命转化为具体行动，在时代浪潮中探索留学报国“新”路径。
-
-感知国家“新发展” 行走中坚定报国信念 “做留学报国传统的传承者，将爱国情怀融入国家发展的伟大事业和人民创造历史的伟大进程之中。
-
-”2025年11月，榕城福州，在首届留学报国论坛上，全国人大常委会副委员长、欧美同学会会长丁仲礼对新一代留学人员提出期望。
-
-福州是中国近代留学教育的重要发源地之一，严复等先辈从这里出发，远渡重洋，寻求救国救民的真理。
-
-跨越百余年，进入新时代，留学报国的内涵更加丰富，国家发展为个人成长提供了前所未有的机遇，留学归国的选择成为一种“双向奔赴”。
+新华社快讯：习近平同俄罗斯总统普京共同出席合作文件签字仪式 新华社快讯：5月20日，国家主席习近平同俄罗斯总统普京在北京人民大会堂共同出席合作文件签字仪式。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 20:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 20:58 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 21:16 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-29 21:05 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 21:23 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 21:02 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 21:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 21:06 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 21:18 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 21:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 21:14 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 21:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 21:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 21:22 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 21:11 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 21:28 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 21:04 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 21:13 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 21:12 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 21:14 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 21:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 21:00 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 21:07 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 21:12 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [一生一世](http://www.share.minike.top/Article/details/16364852.shtml)
-- 2026-06-29 20:57 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/005665882691.shtml)
-- 2026-06-29 21:10 - [明星大侦探第四季](http://www.share.minike.top/Article/details/4602875249.shtml)
-- 2026-06-29 21:16 - [恋与深空 巧合](http://www.share.minike.top/Article/details/349379810421.shtml)
-- 2026-06-29 21:16 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/21547252635.shtml)
-- 2026-06-29 21:08 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/06702997.shtml)
-- 2026-06-29 20:59 - [恋与深空 巧合](https://www.share.minike.top/Article/details/229988115813.shtml)
-- 2026-06-29 20:59 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/39388.shtml)
-- 2026-06-29 21:17 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/10235694275.shtml)
-- 2026-06-29 21:15 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/495907729513.shtml)
-- 2026-06-29 20:56 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/5568319908.shtml)
-- 2026-06-29 21:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/53150.shtml)
-- 2026-06-29 21:20 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/40155374.shtml)
-- 2026-06-29 21:18 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/882557762545.shtml)
-- 2026-06-29 21:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/14260.shtml)
+- 2026-06-29 21:09 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/562815305.shtml)
+- 2026-06-29 21:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/87281846425.shtml)
+- 2026-06-29 21:00 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/3108670.shtml)
+- 2026-06-29 21:28 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/629252.shtml)
+- 2026-06-29 21:28 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/14702.shtml)
+- 2026-06-29 21:12 - [爱很美味](http://www.blog.minike.top/Article/details/0876279.shtml)
+- 2026-06-29 21:12 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/28135.shtml)
+- 2026-06-29 21:22 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/29483.shtml)
+- 2026-06-29 21:17 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/09079687071.shtml)
+- 2026-06-29 21:00 - [高质量发展看新疆](https://www.share.minike.top/Article/details/23605.shtml)
+- 2026-06-29 21:12 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/88435949799.shtml)
+- 2026-06-29 21:13 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/1550029.shtml)
+- 2026-06-29 21:24 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/6856447632.shtml)
+- 2026-06-29 21:03 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/32052574.shtml)
+- 2026-06-29 21:19 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/2741946236.shtml)

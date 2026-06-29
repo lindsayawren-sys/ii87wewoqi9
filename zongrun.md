@@ -1,47 +1,50 @@
-# 视频|严打之下还敢顶风作案？富途、老虎要求身份证明，有香港券商却借机大肆揽客 赴港开户的内地客挤爆门店
+# 丁薛祥会见俄罗斯第一副总理曼图罗夫
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：宋雅芳
+新华社北京5月19日电中共中央政治局常委、国务院副总理丁薛祥19日在北京会见俄罗斯第一副总理曼图罗夫。 丁薛祥表示，在习近平主席和普京总统战略引领下，中俄有关方面共同努力，推动两国投资合作保持良好发展态势。今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年，双方要以此为契机，进一步落实好两国元首重要共识，发挥中俄投资合作委员会统筹协调作用，稳步推进重点
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京5月19日电中共中央政治局常委、国务院副总理丁薛祥19日在北京会见俄罗斯第一副总理曼图罗夫。
 
-责任编辑：宋雅芳
+丁薛祥表示，在习近平主席和普京总统战略引领下，中俄有关方面共同努力，推动两国投资合作保持良好发展态势。
+
+今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年，双方要以此为契机，进一步落实好两国元首重要共识，发挥中俄投资合作委员会统筹协调作用，稳步推进重点项目，拓展合作领域，取得更多务实成果，持续为两国关系发展注入强劲动力。
+
+曼图罗夫表示，俄方愿同中方加强战略对接，丰富合作内容，积极解决双方关心的问题，不断提升两国投资合作水平。
+
+（完） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 21:21 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 21:00 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 21:11 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 21:06 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 21:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 21:01 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 20:55 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 21:22 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 21:22 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 20:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 21:14 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 20:54 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 21:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 21:17 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-29 21:17 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 21:13 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 21:21 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 21:14 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 21:27 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 21:25 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 21:28 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 21:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/31377.shtml)
-- 2026-06-29 21:21 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/678078968.shtml)
-- 2026-06-29 21:03 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/30349233.shtml)
-- 2026-06-29 21:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/5559158706.shtml)
-- 2026-06-29 21:03 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/0057605.shtml)
-- 2026-06-29 21:18 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/15150.shtml)
-- 2026-06-29 20:55 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/203107578438.shtml)
-- 2026-06-29 20:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/05978386.shtml)
-- 2026-06-29 21:02 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/50633733245.shtml)
-- 2026-06-29 21:09 - [法生态部长反对装空调却自己吹空调](https://www.share.minike.top/Article/details/2913689003.shtml)
-- 2026-06-29 21:13 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.minike.top/Article/details/63090.shtml)
-- 2026-06-29 21:18 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/18950.shtml)
-- 2026-06-29 21:23 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/50118058171.shtml)
-- 2026-06-29 21:19 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/9109701.shtml)
-- 2026-06-29 21:18 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/176405278.shtml)
+- 2026-06-29 21:08 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/99535.shtml)
+- 2026-06-29 21:25 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/6812707537.shtml)
+- 2026-06-29 21:21 - [如何看待乌空军3架米格-29被摧毁](https://www.share.kurohicncr.top/Article/details/57932630335.shtml)
+- 2026-06-29 21:25 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/56321240.shtml)
+- 2026-06-29 21:10 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/4270371646.shtml)
+- 2026-06-29 21:17 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/2838376403.shtml)
+- 2026-06-29 21:12 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/096171315720.shtml)
+- 2026-06-29 21:12 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/27196941.shtml)
+- 2026-06-29 21:01 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/64959980.shtml)
+- 2026-06-29 21:07 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/365432858.shtml)
+- 2026-06-29 21:14 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/65414450701.shtml)
+- 2026-06-29 21:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/6635613.shtml)
+- 2026-06-29 21:03 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/3933667924.shtml)
+- 2026-06-29 21:02 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/55104.shtml)
+- 2026-06-29 21:06 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/18184470.shtml)

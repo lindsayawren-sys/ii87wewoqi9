@@ -1,57 +1,52 @@
-# 一粒中国“芯” 三代追梦人
+# 人民币兑美元中间价报6.8397，下调22点
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-一粒中国“芯” 三代追梦人 ——记江苏(武进)水稻研究所良种繁育团队先进事迹 小满时节，江苏常州武进区前黄镇的育秧田里，秧苗青翠挺拔，生机勃勃。种粮大户李臣俯身查看长势，“种子出芽率在九成五以上，武进水稻所一直是我们信赖的！” 种子是农业的“芯片”。李臣口中的“武进水稻所”，即江苏(武进)水稻研究所。日前，该所良种繁育团队被江苏省委宣传部授予“江苏时代楷模”称号。60多年来，武
+5月20日，人民币兑美元中间价报6.8397，下调22点。 美联储6月维持利率不变的概率为99% 据CME“美联储观察”：美联储到6月维持利率不变的概率为99%，累计降息25个基点的概率为1%。美联储到7月维持利率不变的概率为84.4%，累计降息25个基点的概率0.8%，累计加息25个基点的概率为14.8%。责任编辑：郭建
 
 ## 正文
 
-一粒中国“芯” 三代追梦人 ——记江苏(武进)水稻研究所良种繁育团队先进事迹 小满时节，江苏常州武进区前黄镇的育秧田里，秧苗青翠挺拔，生机勃勃。
+5月20日，人民币兑美元中间价报6.8397，下调22点。
 
-种粮大户李臣俯身查看长势，“种子出芽率在九成五以上，武进水稻所一直是我们信赖的！
+美联储6月维持利率不变的概率为99% 据CME“美联储观察”：美联储到6月维持利率不变的概率为99%，累计降息25个基点的概率为1%。
 
-” 种子是农业的“芯片”。
+美联储到7月维持利率不变的概率为84.4%，累计降息25个基点的概率0.8%，累计加息25个基点的概率为14.8%。
 
-李臣口中的“武进水稻所”，即江苏(武进)水稻研究所。
-
-日前，该所良种繁育团队被江苏省委宣传部授予“江苏时代楷模”称号。
-
-60多年来，武进水稻所三代育种人接力奋斗，累计育成130个优质高产稻种，推广面积超4.3亿亩，增产130亿公斤粮食，创造经济效益220亿元。
-
-一粒粒水稻良种发于江南水乡，奔赴全国各地，为我国种业自强交出了一份厚重答卷。
-
-禾下追梦，薪火相传 早上7点，副所长朱邦辉带着年轻一代育种人员准时出现在试验田。
+责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-29 21:09 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 21:18 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 21:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 20:57 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 21:06 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 20:54 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 21:08 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 21:19 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-29 21:18 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 21:22 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 21:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 21:08 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 21:08 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 21:24 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 21:06 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 21:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 21:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 21:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 21:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 21:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 21:18 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 21:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 21:28 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:58 - [英法德葡存在什么隐患](https://www.share.kurohicncr.top/Article/details/15197557.shtml)
-- 2026-06-29 20:54 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/0418059.shtml)
-- 2026-06-29 20:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/806411941765.shtml)
-- 2026-06-29 21:23 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/01880617837.shtml)
-- 2026-06-29 21:04 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/57869.shtml)
-- 2026-06-29 21:16 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/287168894476.shtml)
-- 2026-06-29 20:57 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/5689792133.shtml)
-- 2026-06-29 21:08 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/63536027.shtml)
-- 2026-06-29 21:18 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/4539911651.shtml)
-- 2026-06-29 21:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/35582873513.shtml)
-- 2026-06-29 21:10 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/72914.shtml)
-- 2026-06-29 21:23 - [男子40度高温下骑行严重晒伤](http://www.share.kurohicncr.top/Article/details/816219402.shtml)
-- 2026-06-29 21:12 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/1907418.shtml)
-- 2026-06-29 21:06 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/380913428.shtml)
-- 2026-06-29 21:08 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/7157510646.shtml)
+- 2026-06-29 21:06 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/9652575.shtml)
+- 2026-06-29 21:11 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/68449586166.shtml)
+- 2026-06-29 21:04 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/45523.shtml)
+- 2026-06-29 21:23 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/39793527.shtml)
+- 2026-06-29 21:19 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/1390195.shtml)
+- 2026-06-29 21:00 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/9958822475.shtml)
+- 2026-06-29 21:11 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/71733656.shtml)
+- 2026-06-29 21:20 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/3374468.shtml)
+- 2026-06-29 21:27 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/82873669796.shtml)
+- 2026-06-29 21:22 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/022616.shtml)
+- 2026-06-29 21:04 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/12042424.shtml)
+- 2026-06-29 21:14 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/131170152652.shtml)
+- 2026-06-29 21:20 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/9991141.shtml)
+- 2026-06-29 21:30 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/15183.shtml)
+- 2026-06-29 21:02 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/87896771774.shtml)

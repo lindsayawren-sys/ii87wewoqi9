@@ -1,61 +1,57 @@
-# 东京审判开庭80周年：坚守历史定论 守护人间正义
+# 农业农村部：巩固生猪价格回升势头，促进猪肉消费
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-原标题：蓝厅观察丨东京审判开庭80周年：坚守历史定论 守护人间正义 今年是东京审判开庭八十周年。这场载入史册的世纪大审判，以国际法为准绳、以海量铁证为支撑，依法裁定日本军国主义的滔天侵略罪行，构筑战后东亚和平秩序，成为捍卫国际公平正义的核心基石。 这几天，来自中国、俄罗斯、韩国、日本等多国专家学者齐聚上海，出席“纪念东京审判开庭八十周年国际研讨会”。与会中外学者在接受采访时表示
+中新网5月19日电 据农业农村部网站消息，5月18日，农业农村部召开视频会，部署落实新修订的生猪产能综合调控实施方案，分析当前生猪生产形势，进一步压实各方责任，推动生猪产业从数量扩张转向高质量发展。 会议认为，强化生猪产能综合调控关乎生猪稳定供给、农民增收和防范行业金融风险。各地必须提高政治站位，严格落实产能去化措施，推动生猪价格合理回升，促进生猪产业稳定健康发展。 会议要求，
 
 ## 正文
 
-原标题：蓝厅观察丨东京审判开庭80周年：坚守历史定论 守护人间正义 今年是东京审判开庭八十周年。
+中新网5月19日电 据农业农村部网站消息，5月18日，农业农村部召开视频会，部署落实新修订的生猪产能综合调控实施方案，分析当前生猪生产形势，进一步压实各方责任，推动生猪产业从数量扩张转向高质量发展。
 
-这场载入史册的世纪大审判，以国际法为准绳、以海量铁证为支撑，依法裁定日本军国主义的滔天侵略罪行，构筑战后东亚和平秩序，成为捍卫国际公平正义的核心基石。
+会议认为，强化生猪产能综合调控关乎生猪稳定供给、农民增收和防范行业金融风险。
 
-这几天，来自中国、俄罗斯、韩国、日本等多国专家学者齐聚上海，出席“纪念东京审判开庭八十周年国际研讨会”。
+各地必须提高政治站位，严格落实产能去化措施，推动生猪价格合理回升，促进生猪产业稳定健康发展。
 
-与会中外学者在接受采访时表示，时隔八十年的今天，日本右翼势力质疑东京审判合法性、不断歪曲历史、推动修宪扩军，“新型军国主义”成势为患，给地区安全带来严峻风险。
+会议要求，要准确把握现阶段生猪产业发展形势，抓好生猪产能常态化精准化调控，把去产能、促转型各项工作落到实处。
 
-这些危险动向正在冲击东京审判与《联合国宪章》共同确立的战后国际秩序。
+要巩固生猪价格回升势头，促进猪肉消费，引导养殖场户理性看待后市行情，防止盲目压栏和扩产赌行情。
 
-东京审判：筑牢反侵略司法根基 八十年前的东京审判以法律方式清算20世纪30年代以来，日本军国主义在亚太地区发动侵略战争、制造反人类暴行的罪责，明确“侵略有罪、暴行必究”，为中韩等亚太受害国家抚平战争创伤、伸张历史正义提供了坚实法理依据，将日本军国主义的侵略本质与罪恶行径永久钉刻在历史耻辱柱上，筑牢了历史真相不容篡改、侵略罪责不容翻案的司法根基。
+要多措并举压减产能，抓紧修订省级实施方案，强化大型猪企窗口指导和经营风险预警，严控新增产能，引导中小养殖场户差异化发展。
 
-中国社会科学院日本研究所历史研究室主任、研究员金莹指出，当今世界并不太平。
+要强化监测预警引导，督促生产经营主体履行数据报送义务，健全权威信息发布机制，多渠道、多频次发布权威预警信息。
 
-二战结束之后，战争不再出现的愿望到今天远没有实现。
+要抓好生猪疫病防控，进一步筑牢免疫保护屏障，强化监测流调和应急处置。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 21:09 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 21:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 21:00 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 21:19 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:00 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 21:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 21:16 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 21:10 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 20:57 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 21:14 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 21:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 21:11 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 21:21 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 21:00 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 21:26 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 21:25 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-29 21:14 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 21:01 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 21:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 21:00 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 21:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 21:21 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 21:24 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 21:19 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 21:06 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/97417132.shtml)
-- 2026-06-29 21:18 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/95285888.shtml)
-- 2026-06-29 20:56 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/821495933121.shtml)
-- 2026-06-29 21:11 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/31677.shtml)
-- 2026-06-29 21:05 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/59446.shtml)
-- 2026-06-29 21:02 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.share.minike.top/Article/details/386163586857.shtml)
-- 2026-06-29 21:09 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/58456633.shtml)
-- 2026-06-29 21:12 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/268173976.shtml)
-- 2026-06-29 21:23 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/497848120625.shtml)
-- 2026-06-29 20:59 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/930381.shtml)
-- 2026-06-29 21:06 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.kurohicncr.top/Article/details/996883717.shtml)
-- 2026-06-29 20:57 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/438853985.shtml)
-- 2026-06-29 20:57 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/8753915.shtml)
-- 2026-06-29 21:01 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/2352684519.shtml)
-- 2026-06-29 20:54 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/5588484.shtml)
+- 2026-06-29 21:20 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/700135386.shtml)
+- 2026-06-29 21:21 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/841482209779.shtml)
+- 2026-06-29 21:16 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/61251.shtml)
+- 2026-06-29 21:28 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/855868092.shtml)
+- 2026-06-29 21:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/1058066118.shtml)
+- 2026-06-29 21:15 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/8055613.shtml)
+- 2026-06-29 21:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/387229.shtml)
+- 2026-06-29 21:01 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/98983.shtml)
+- 2026-06-29 21:23 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/76743211955.shtml)
+- 2026-06-29 21:20 - [斗破苍穹](http://www.blog.minike.top/Article/details/5818026914.shtml)
+- 2026-06-29 21:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/66006236.shtml)
+- 2026-06-29 21:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/004883061099.shtml)
+- 2026-06-29 21:03 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/4800307.shtml)
+- 2026-06-29 21:19 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/835607.shtml)
+- 2026-06-29 21:05 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/9449427084.shtml)

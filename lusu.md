@@ -1,61 +1,56 @@
-# 金融监管总局迎首位女性“掌门人”，丁向群任党委书记
+# 推动中俄关系向更深层次、更高水平发展（和音）
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 安震 5月29日，金融监管总局官网发布消息，中央组织部有关负责同志出席国家金融监督管理总局领导干部会议，宣布中央决定：丁向群同志任国家金融监督管理总局党委书记。 值得一提的是，丁向群是金融监管总局首位女性一把手，兼有银行和保险管理经验。 公开资料显示，丁向群出生于1965年，曾就读于中国人民大学经济学院。1987年进入银行工作，是从基层一路成长起来的干部，曾任
+《人民日报》(2026年05月20日 第 03 版) 应国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。这是普京总统第二十五次到访中国，也是两国元首今年以来首次面对面会晤。国际社会普遍期待，在中俄两国元首的掌舵领航下，中俄关系继续沿着正确轨道不断向前发展，为维护全球战略稳定和国际公平正义作出新的积极贡献。 回望中俄关系发展历程，元首引领始终是两国关系高
 
 ## 正文
 
-界面新闻记者 | 安震 5月29日，金融监管总局官网发布消息，中央组织部有关负责同志出席国家金融监督管理总局领导干部会议，宣布中央决定：丁向群同志任国家金融监督管理总局党委书记。
+《人民日报》(2026年05月20日 第 03 版) 应国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。
 
-值得一提的是，丁向群是金融监管总局首位女性一把手，兼有银行和保险管理经验。
+这是普京总统第二十五次到访中国，也是两国元首今年以来首次面对面会晤。
 
-公开资料显示，丁向群出生于1965年，曾就读于中国人民大学经济学院。
+国际社会普遍期待，在中俄两国元首的掌舵领航下，中俄关系继续沿着正确轨道不断向前发展，为维护全球战略稳定和国际公平正义作出新的积极贡献。
 
-1987年进入银行工作，是从基层一路成长起来的干部，曾任中国农业银行北京崇文支行信贷科干部。
+回望中俄关系发展历程，元首引领始终是两国关系高水平发展的最大优势和根本保障。
 
-1993年，丁向群进入中国银行，从信贷一部出口信贷处干部做起，在信贷业务部、公司业务部等业务部门均有历练；后历任中国银行公司业务部副总经理、总行人力资源部副总经理、浙江省分行副行长兼宁波市分行行长、总行人力资源部总经理、公司金融业务总裁。
+2013年以来，习近平主席和普京总统在不同场合会面超过40次。
 
-2013年，丁向群离开任职近20年的中国银行，跨界保险业，出任太平保险集团公司担任副总经理、党委委员；两年后，丁向群重回银行业，出任国家开发银行副行长、党委委员。
+从2014年共同签署关于全面战略协作伙伴关系新阶段的联合声明，到2019年共同决定将中俄关系提升为新时代全面战略协作伙伴关系；从2021年正式宣布《中俄睦邻友好合作条约》延期并赋予其新的时代内涵，到2025年共同签署《关于进一步深化中俄新时代全面战略协作伙伴关系的联合声明》……在两国元首共同擘画、亲自推动下，中俄关系日益从容自信、稳定坚韧，树立了新型大国关系的典范，为两国和两国人民带来实实在在的福祉，也为维护全球战略稳定、完善全球治理作出重要贡献。
 
-2017年6月，丁向群从金融业转入地方政府，于2017年6月任广西壮族自治区人民政府党组成员，后又任广西壮族自治区人民政府副主席、党组成员。
+此访期间，两国元首将就双边关系、各领域合作以及共同关心的国际地区问题交换意见，必将推动新时代中俄关系迈向新高度，为世界和平与发展注入正能量。
 
-2018年9月，她调任安徽，出任安徽省委常委、组织部部长。
+永久睦邻友好、全面战略协作、互利合作共赢是中俄关系最本质的特征。
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 21:23 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 21:22 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 21:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 21:09 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 20:54 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-29 21:06 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 21:09 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 21:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 21:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 21:04 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 20:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 21:05 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 21:16 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 21:12 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 21:17 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 21:27 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 21:08 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 21:00 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 21:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 21:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 21:14 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 21:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 21:03 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 21:05 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:10 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/299275183.shtml)
-- 2026-06-29 20:56 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/8222018.shtml)
-- 2026-06-29 20:57 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/45348.shtml)
-- 2026-06-29 21:11 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/8351150433.shtml)
-- 2026-06-29 21:08 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/6985402.shtml)
-- 2026-06-29 21:21 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/40116060474.shtml)
-- 2026-06-29 21:04 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/21436368.shtml)
-- 2026-06-29 21:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/62175.shtml)
-- 2026-06-29 21:11 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/554152432996.shtml)
-- 2026-06-29 21:08 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/87275.shtml)
-- 2026-06-29 21:20 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/54998.shtml)
-- 2026-06-29 21:10 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/74119744354.shtml)
-- 2026-06-29 21:11 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/555979.shtml)
-- 2026-06-29 21:16 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/717834.shtml)
-- 2026-06-29 21:20 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/76647.shtml)
+- 2026-06-29 21:08 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/712839865.shtml)
+- 2026-06-29 21:17 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/090233.shtml)
+- 2026-06-29 21:13 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/601016953.shtml)
+- 2026-06-29 21:21 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/5567151.shtml)
+- 2026-06-29 21:02 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/58622052457.shtml)
+- 2026-06-29 21:05 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/3021900.shtml)
+- 2026-06-29 21:24 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/327721147987.shtml)
+- 2026-06-29 21:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/36719760423.shtml)
+- 2026-06-29 21:12 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/89979402.shtml)
+- 2026-06-29 21:02 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/98735863.shtml)
+- 2026-06-29 21:16 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/801968119830.shtml)
+- 2026-06-29 21:02 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/732728.shtml)
+- 2026-06-29 21:16 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/5572723.shtml)
+- 2026-06-29 21:00 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/736309.shtml)
+- 2026-06-29 21:07 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/39290757820.shtml)

@@ -1,48 +1,58 @@
-# “智”在天津！智博会见证天津的“科技未来”
+# 欧盟就取消美国商品进口关税的立法达成临时协议
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月31日 11:29 来源：中国新闻网 2026世界智能产业博览会于5月28日至31日在天津举办。本届智博会展览规模空前，13万平方米的展区中集结超700家参展企业，全方位展现“全、新、活、实”四大鲜明特色，完整勾勒出智能产业全链条发展图谱。从AI安全到脑机接口，从商业航天到具身智能，在这场全球智能产业的顶级盛宴中，“智汇天津”的科创实力，正被全方位见证
+欧盟周三就一项旨在取消美国商品进口关税的立法达成临时协议。这是去年7月与美国达成的贸易协议的关键部分。 此举有望使欧盟避免美国总统特朗普对其产品征收更高关税。特朗普此前威胁，要把欧洲汽车的关税从15%提高到25%，因欧盟在落实这项近一年前签署的协议方面行动不够迅速。 这使得欧盟与美国的关系跌至冰点。欧盟委员会表示，如果特朗普真的兑现提高关税的威胁，欧盟将保留采取措施保护自身利益
 
 ## 正文
 
-发布时间：2026年05月31日 11:29 来源：中国新闻网 2026世界智能产业博览会于5月28日至31日在天津举办。
+欧盟周三就一项旨在取消美国商品进口关税的立法达成临时协议。
 
-本届智博会展览规模空前，13万平方米的展区中集结超700家参展企业，全方位展现“全、新、活、实”四大鲜明特色，完整勾勒出智能产业全链条发展图谱。
+这是去年7月与美国达成的贸易协议的关键部分。
 
-从AI安全到脑机接口，从商业航天到具身智能，在这场全球智能产业的顶级盛宴中，“智汇天津”的科创实力，正被全方位见证。
+此举有望使欧盟避免美国总统特朗普对其产品征收更高关税。
 
-责任编辑：【任帅】
+特朗普此前威胁，要把欧洲汽车的关税从15%提高到25%，因欧盟在落实这项近一年前签署的协议方面行动不够迅速。
+
+这使得欧盟与美国的关系跌至冰点。
+
+欧盟委员会表示，如果特朗普真的兑现提高关税的威胁，欧盟将保留采取措施保护自身利益的选项。
+
+欧盟议会早些时候批准了该协议，但在法案中增加了多项修订条款。
+
+其中包括协议在美国履行承诺之前不会执行，以及除非双方同意延期，协议将于2028年3月到期。
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 21:13 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 20:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 20:57 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 21:21 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 21:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 21:11 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 21:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 20:55 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 20:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 21:12 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 21:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 21:27 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 21:10 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 21:23 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 21:20 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 21:17 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 21:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 21:08 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 21:11 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 21:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 21:19 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/42948.shtml)
-- 2026-06-29 21:05 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/8212929067.shtml)
-- 2026-06-29 20:55 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/474640.shtml)
-- 2026-06-29 21:11 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/70884122135.shtml)
-- 2026-06-29 21:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/594116253046.shtml)
-- 2026-06-29 21:06 - [《贺子珍》](http://www.blog.minike.top/Article/details/17486.shtml)
-- 2026-06-29 20:57 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/11807.shtml)
-- 2026-06-29 20:55 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/5320525532.shtml)
-- 2026-06-29 21:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/203245028.shtml)
-- 2026-06-29 20:58 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/105414134533.shtml)
-- 2026-06-29 21:20 - [哈兰德吃饭被镜中自己吓到](https://www.share.kurohicncr.top/Article/details/331243031076.shtml)
-- 2026-06-29 21:16 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/2573245.shtml)
-- 2026-06-29 21:19 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/2425805206.shtml)
-- 2026-06-29 21:16 - [高质量发展看新疆](http://www.share.kurohicncr.top/Article/details/6148568786.shtml)
-- 2026-06-29 21:18 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/347337.shtml)
+- 2026-06-29 21:24 - [记者暗访养老机构消防安全](https://www.share.kurohicncr.top/Article/details/65973.shtml)
+- 2026-06-29 21:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/732177910177.shtml)
+- 2026-06-29 21:10 - [流金岁月](https://www.blog.minike.top/Article/details/459689356227.shtml)
+- 2026-06-29 21:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/23640675.shtml)
+- 2026-06-29 21:26 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/6220989.shtml)
+- 2026-06-29 21:12 - [林逸向方筱然求婚了](https://www.share.kurohicncr.top/Article/details/9349850.shtml)
+- 2026-06-29 21:17 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/5674124323.shtml)
+- 2026-06-29 21:16 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/6509413974.shtml)
+- 2026-06-29 21:22 - [济南航空航天全面起势](https://www.blog.kurohicncr.top/Article/details/088934181205.shtml)
+- 2026-06-29 21:10 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/3518109.shtml)
+- 2026-06-29 21:18 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/091975474.shtml)
+- 2026-06-29 21:07 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/7006886.shtml)
+- 2026-06-29 21:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/9930806559.shtml)
+- 2026-06-29 21:00 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/394382577353.shtml)
+- 2026-06-29 21:12 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/61127259302.shtml)

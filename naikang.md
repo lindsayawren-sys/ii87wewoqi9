@@ -1,57 +1,61 @@
-# 中央企业科技成果产业化联合体在京成立
+# Diploma上调业绩预期、盈利大增 股价走高
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月30日电 (陶思阅)5月30日，中央企业科技成果产业化联合体(下称“联合体”)成立大会在北京举行。联合体聚焦国家战略部署，推动科技创新和产业创新深度融合，搭建一站式、全链条的科技成果产业化服务体系。 据悉，联合体由国务院国资委指导、国家能源集团牵头组建、全体中央企业参与共建，并广泛吸纳科研院所、高校、产业链上下游骨干企业、创新型民营企业等多元主体。 中央企业是国家
+专题：聚焦美股2026年第一季度财报 此次上调业绩指引是继 3 月上调后的再度上调 工业用品企业Diploma再度上调 2026 财年业绩预期，叠加上半年营收及核心盈利指标表现亮眼，公司股价应声上涨。 该股伦敦上市标的在欧洲早盘交易中上涨 5.6%，报 69.95 英镑，年内累计涨幅已超 31%。 公司最新上调业绩目标：内生营收增速预期从此前 9% 上调至 12%；已完成收购业
 
 ## 正文
 
-中新网北京5月30日电 (陶思阅)5月30日，中央企业科技成果产业化联合体(下称“联合体”)成立大会在北京举行。
+专题：聚焦美股2026年第一季度财报 此次上调业绩指引是继 3 月上调后的再度上调 工业用品企业Diploma再度上调 2026 财年业绩预期，叠加上半年营收及核心盈利指标表现亮眼，公司股价应声上涨。
 
-联合体聚焦国家战略部署，推动科技创新和产业创新深度融合，搭建一站式、全链条的科技成果产业化服务体系。
+该股伦敦上市标的在欧洲早盘交易中上涨 5.6%，报 69.95 英镑，年内累计涨幅已超 31%。
 
-据悉，联合体由国务院国资委指导、国家能源集团牵头组建、全体中央企业参与共建，并广泛吸纳科研院所、高校、产业链上下游骨干企业、创新型民营企业等多元主体。
+公司最新上调业绩目标：内生营收增速预期从此前 9% 上调至 12%；已完成收购业务带来的营收增速贡献，由原先 3% 上调至 6%；营业利润率维持约 25% 不变。
 
-中央企业是国家战略科技力量的重要组成部分。
+公司表示，调整后营业利润增速预计超 30%，较市场一致预期高出 6%。
 
-“十四五”以来，中央企业研发投入连续四年超万亿元，累计建设国家级研发平台474个，集中攻克了一批关键核心技术，在新一代信息技术、新能源、新材料、高端装备制造等领域打造了一批世界级产业集群，一大批自主创新成果在规模化应用中不断迭代升级。
+截至周一，市场分析师一致预测其全年调整后营业利润为 4.28 亿英镑（折合 5.75 亿美元）。
 
-根据成果产业化关键环节和领域，联合体设立子联合体，实行“成熟一个、推出一项”的滚动机制。
+这也是该公司继今年 3 月之后，第二次上调全年业绩指引。
 
-首批子联合体覆盖科技成果评价、“三首”推广应用、高价值专利运营、中试验证平台开放共享、拓展工程示范、国家级科技奖励培育、标准共建共用、创新成果场景应用、成果转化服务、技术经理人培养、创新型企业培育、科创大赛组织、科技金融赋能、科技成果产业政策研究等14个重点方向。
+截至 3 月 31 日的半年财报显示，公司营收从去年同期 7.285 亿英镑增至 8.511 亿英镑。
 
-国家能源集团党组成员、副总经理闫国春表示，将携手全体中央企业，构建好联合体供需对接、场景开放、转化交易的制度体系和市场化机制。
+旗下生命科学、密封件、控制装置等核心业务板块内生增长势头强劲，推动营收走高。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 20:54 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 21:07 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
-- 2026-06-29 21:03 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 21:10 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 20:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 20:54 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 20:56 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 21:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 21:04 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 20:54 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 21:20 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 21:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 21:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 21:12 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 21:18 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 21:13 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 21:04 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 21:20 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 21:05 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 21:05 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 21:08 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 21:13 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 21:09 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 21:08 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 21:28 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:00 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/77298.shtml)
-- 2026-06-29 21:00 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/14187517.shtml)
-- 2026-06-29 21:18 - [我和我的家乡](https://www.blog.minike.top/Article/details/94338606.shtml)
-- 2026-06-29 20:58 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/32856781358.shtml)
-- 2026-06-29 21:02 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/37643151023.shtml)
-- 2026-06-29 20:54 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/798099106361.shtml)
-- 2026-06-29 20:59 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/40542907655.shtml)
-- 2026-06-29 21:02 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/4181091625.shtml)
-- 2026-06-29 20:56 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/2767317323.shtml)
-- 2026-06-29 21:18 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/31972832.shtml)
-- 2026-06-29 21:15 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/20238026976.shtml)
-- 2026-06-29 21:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/401869.shtml)
-- 2026-06-29 21:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/48400791.shtml)
-- 2026-06-29 21:16 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/005211196245.shtml)
-- 2026-06-29 21:05 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/004828719598.shtml)
+- 2026-06-29 21:27 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/91037.shtml)
+- 2026-06-29 21:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/021682184.shtml)
+- 2026-06-29 21:23 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/9525984.shtml)
+- 2026-06-29 21:27 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/624570.shtml)
+- 2026-06-29 21:26 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/4592449.shtml)
+- 2026-06-29 21:22 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/31338600133.shtml)
+- 2026-06-29 21:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/746637938787.shtml)
+- 2026-06-29 21:27 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/8830261.shtml)
+- 2026-06-29 21:24 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/384554702.shtml)
+- 2026-06-29 21:01 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/50657543015.shtml)
+- 2026-06-29 21:07 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/261285.shtml)
+- 2026-06-29 21:09 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/83344.shtml)
+- 2026-06-29 21:18 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/236609025653.shtml)
+- 2026-06-29 21:15 - [TI2026参赛战队出炉](https://www.blog.kurohicncr.top/Article/details/835564125035.shtml)
+- 2026-06-29 21:28 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/917400972795.shtml)

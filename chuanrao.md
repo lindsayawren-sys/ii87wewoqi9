@@ -1,61 +1,56 @@
-# 近500名粤港澳大湾区骑行爱好者“骑”聚广州从化
+# 不是“拉肚子”那么简单：专家解读炎症性肠病防治
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网广州5月30日电 (记者 张璐)5月30日，由香港赛马会助力支持的“百千万工程”2026年“环南昆山—罗浮山引领区”骑游大会(广州·从化站)(简称“活动”)在从化生态设计小镇举行，吸引了来自粤港澳大湾区的近500名骑行爱好者参加。 据悉，本次活动分为全程挑战组与休闲体验组。全程挑战组全长38公里，途经良平村、联溪森林公园、千泷沟大瀑布景区等节点；体验组全长8.5公里，沿共
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。近年来，炎症性肠病(IBD)在国内发病率持续攀升。近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。其中，克罗恩病对青少年影
 
 ## 正文
 
-中新网广州5月30日电 (记者 张璐)5月30日，由香港赛马会助力支持的“百千万工程”2026年“环南昆山—罗浮山引领区”骑游大会(广州·从化站)(简称“活动”)在从化生态设计小镇举行，吸引了来自粤港澳大湾区的近500名骑行爱好者参加。
+中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。
 
-据悉，本次活动分为全程挑战组与休闲体验组。
+近年来，炎症性肠病(IBD)在国内发病率持续攀升。
 
-全程挑战组全长38公里，途经良平村、联溪森林公园、千泷沟大瀑布景区等节点；体验组全长8.5公里，沿共青路、罗村、水口古寺、鸭洞河泮营地、月湖长堤栈桥，最终抵达鸭洞河驿站(简称“驿站”)。
+近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。
 
-两条路线均穿行于从化已改造提升的最美旅游公路，串联起沿线特色驿站和多个“百千万工程”典型村。
+田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。
 
-活动现场，骑手们穿行于联溪森林公园，驰骋在依山傍水、一步一景的最美旅游公路上。
+其中，克罗恩病对青少年影响尤甚，患者常面临着腹痛、腹泻、消瘦、贫血，严重的营养不良等困境，对工作和生活造成极大困扰。
 
-一位来自深圳的挑战组骑友说：“这条路线有爬坡有风景，难度适中，驿站和补给点都安排得很到位。
+针对IBD发病率攀升的原因，田丰指出，这与国人生活方式变迁密切相关。
 
-” 当日下午，最后一批骑手抵达终点，领取纪念奖牌和证书。
+油炸等过加工食品的普及，都与发病率呈正相关。
 
-一位来自广州的骑手表示：“骑完这38公里，我不仅看遍了从化的山水，更感受到了乡村的变化。
+此外，现代人生活“过度洁净”使儿童肠道免疫系统在发育过程中缺乏必要的病原微生物和寄生虫的刺激从而导致发育异常，是IBD的发生率明显升高的重要原因。
 
 ## 相关推荐
 
-- 2026-06-29 21:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 21:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 21:23 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 20:55 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 21:10 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 21:06 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 21:07 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 21:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 21:22 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 21:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 20:59 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 21:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 20:55 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-29 20:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 21:02 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 21:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 21:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 21:27 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 21:13 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 21:16 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 21:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 21:26 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 21:12 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 21:21 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 21:19 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/472081771.shtml)
-- 2026-06-29 20:57 - [委内瑞拉发生余震](https://www.share.kurohicncr.top/Article/details/3162903.shtml)
-- 2026-06-29 21:09 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/10867954119.shtml)
-- 2026-06-29 21:01 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/96387763.shtml)
-- 2026-06-29 21:01 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/18087764.shtml)
-- 2026-06-29 21:19 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/4493146.shtml)
-- 2026-06-29 21:16 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/101394619.shtml)
-- 2026-06-29 21:04 - [追觅称质量不行终身包修也没意义](https://www.blog.kurohicncr.top/Article/details/492903187584.shtml)
-- 2026-06-29 20:59 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/570103730631.shtml)
-- 2026-06-29 21:04 - [周生如故](http://www.blog.minike.top/Article/details/2870378.shtml)
-- 2026-06-29 20:57 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/97433.shtml)
-- 2026-06-29 21:02 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/676608.shtml)
-- 2026-06-29 21:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/004608607.shtml)
-- 2026-06-29 21:10 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/28327.shtml)
-- 2026-06-29 20:59 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/07461.shtml)
+- 2026-06-29 21:01 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/67228.shtml)
+- 2026-06-29 21:04 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/83997.shtml)
+- 2026-06-29 21:19 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/4805162340.shtml)
+- 2026-06-29 21:03 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/2460716695.shtml)
+- 2026-06-29 21:22 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/9145609.shtml)
+- 2026-06-29 21:13 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/77551713167.shtml)
+- 2026-06-29 21:16 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/62864295830.shtml)
+- 2026-06-29 21:22 - [美人鱼](https://www.share.minike.top/Article/details/485580209063.shtml)
+- 2026-06-29 21:12 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/34403501.shtml)
+- 2026-06-29 21:07 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/718525099.shtml)
+- 2026-06-29 21:24 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/7291851162.shtml)
+- 2026-06-29 21:13 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/58621452.shtml)
+- 2026-06-29 21:25 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/2326948.shtml)
+- 2026-06-29 21:01 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/613169041.shtml)
+- 2026-06-29 21:27 - [媒体评恋与深空用“引狼入室”台词](https://www.share.minike.top/Article/details/227526917.shtml)

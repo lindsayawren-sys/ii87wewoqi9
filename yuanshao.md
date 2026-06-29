@@ -1,57 +1,61 @@
-# 存储器产品出口量稳价升 超级周期助力产业链升级
+# 光大期货：5月19日矿钢煤焦日报
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今年一季度，我国集成电路出口724.7亿美元，同比增长77.5%，其中存储器产品出口459.9亿美元，同比增长174.2%。存储器产品出口高速增长的原因有哪些？ 深圳一家企业专注于存储器产品出口18年，其80%的产品销往海外。海外销售总监龙智圣告诉记者，当前存储器市场已进入“卖方市场”，原来海外一线代理商或
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡下跌，截止日盘螺纹2610合约收盘价格为3206元/吨，较上一交易收盘价格下跌26元/吨，涨幅为0.8%，持仓减少6.68万手。现货价格下跌，成交回落，唐山地区迁安普方坯价格下跌30元/吨至3060元/吨，杭州市场中天螺纹价格下跌20元/ 吨至3280元/吨，全国建材成交量9.
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡下跌，截止日盘螺纹2610合约收盘价格为3206元/吨，较上一交易收盘价格下跌26元/吨，涨幅为0.8%，持仓减少6.68万手。
 
-今年一季度，我国集成电路出口724.7亿美元，同比增长77.5%，其中存储器产品出口459.9亿美元，同比增长174.2%。
+现货价格下跌，成交回落，唐山地区迁安普方坯价格下跌30元/吨至3060元/吨，杭州市场中天螺纹价格下跌20元/ 吨至3280元/吨，全国建材成交量9.2万吨。
 
-存储器产品出口高速增长的原因有哪些？
+据国家统计局数据，1-4月全国固定资产投资同比下降1.6%，其中制造业投资同比增长1.2%、基建投资同比增长4.3%、房地产开发投资同比下降13.7%。
 
-深圳一家企业专注于存储器产品出口18年，其80%的产品销往海外。
+房地产分项中，1-4月房地产开发企业房屋施工面积同比下降12.1%、房屋新开工面积下降22.0%、房屋竣工面积下降24.0%、新建商品房销售面积同比下降10.2%。
 
-海外销售总监龙智圣告诉记者，当前存储器市场已进入“卖方市场”，原来海外一线代理商或系统集成商，商务成交门槛很高，现在他们都是主动上门寻求合作，并且下单数量和金额相当可观，公司一季度出口额也大涨至去年同期的3倍。
+投资数据整体表现偏弱，国内需求承压运行。
 
-存储器产品出口激增也传导至供应链服务环节。
+工信部印发钢铁行业产能置换实施办法的通知，明确全国炼铁、炼钢产能置换比例均不低于1.5：1，兼并重组置换比例提高至不低于1.25：1，后期钢铁供应端仍有一定的收缩预期。
 
-一家物流企业负责人告诉记者，今年以来公司内存出口相关的业务订单量翻了一倍，单笔货值过亿元的大单明显增多。
+预计短期螺纹盘面仍窄幅整理为主。
 
-深圳南冠物流有限公司副总经理 陈家和：从一月份至今，整体的货运订单量增长超20%，其中内存（出口）订单增长100%，单笔大订单货值过亿元的有五六单。
+铁矿石： （柳浠，从业资格号：F03087689；交易咨询资格号：Z0019538） 昨日铁矿石期货主力合约i2609价格有所下跌，收于803元/吨，较前一个交易日收盘价下跌6.5元/吨，跌幅为0.8%，成交22.51万手，减仓0.7万手。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 20:58 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 20:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 21:19 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 21:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 21:06 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 21:17 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 21:03 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 20:55 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 21:10 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 20:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 21:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 21:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 21:00 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 21:29 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 21:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 21:27 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 21:10 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 21:07 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 21:11 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 21:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 21:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 21:29 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 21:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 21:02 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 21:13 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/9538907662.shtml)
-- 2026-06-29 21:17 - [周生如故](https://www.share.kurohicncr.top/Article/details/95382621854.shtml)
-- 2026-06-29 21:22 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/15984156.shtml)
-- 2026-06-29 20:56 - [请回答王牌2019](http://www.blog.minike.top/Article/details/06246525.shtml)
-- 2026-06-29 21:22 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/0257617720.shtml)
-- 2026-06-29 21:14 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/83419.shtml)
-- 2026-06-29 20:59 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/6682764.shtml)
-- 2026-06-29 20:58 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/136213736360.shtml)
-- 2026-06-29 21:11 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/15560350721.shtml)
-- 2026-06-29 20:59 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/760611559.shtml)
-- 2026-06-29 21:12 - [18岁高二体育生训练晕倒后离世](https://www.share.kurohicncr.top/Article/details/0613028.shtml)
-- 2026-06-29 21:10 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/454508111.shtml)
-- 2026-06-29 21:13 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/28364877.shtml)
-- 2026-06-29 20:54 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/91561376.shtml)
-- 2026-06-29 20:55 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/6630418365.shtml)
+- 2026-06-29 21:23 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/4901339.shtml)
+- 2026-06-29 21:28 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/96357.shtml)
+- 2026-06-29 21:13 - [外交部回应中日经贸问题](http://www.blog.kurohicncr.top/Article/details/951379517.shtml)
+- 2026-06-29 21:26 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/08640599.shtml)
+- 2026-06-29 21:04 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/580224.shtml)
+- 2026-06-29 21:27 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/3540564.shtml)
+- 2026-06-29 21:03 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/87818059825.shtml)
+- 2026-06-29 21:16 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/688291402227.shtml)
+- 2026-06-29 21:21 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/898176.shtml)
+- 2026-06-29 21:15 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/82102570.shtml)
+- 2026-06-29 21:11 - [沙丘](http://www.share.minike.top/Article/details/5281382.shtml)
+- 2026-06-29 21:13 - [周生如故](http://www.blog.minike.top/Article/details/7183807.shtml)
+- 2026-06-29 21:10 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/597692.shtml)
+- 2026-06-29 21:20 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/9897276.shtml)
+- 2026-06-29 21:18 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/301048.shtml)

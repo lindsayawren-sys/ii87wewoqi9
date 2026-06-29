@@ -1,50 +1,61 @@
-# 能见度不足百米 黑龙江省发布雷雨大风预警
+# 误传！这家“国有银行关停信用卡APP”并非“首家”
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月31日 21:51 来源：中国新闻网 5月31日下午，哈尔滨出现大风沙尘天气。记者在街头看到，城市能见度明显下降，车辆纷纷减速缓行，路旁树木剧烈摇晃，行人掩面而行。黑龙江省气象台于当日15时10分发布雷雨大风预警，预计5月31日至6月1日白天，黑河、伊春、齐齐哈尔等多地阵风可达8至9级，局地风力10至12级，其他大部地区阵风7至8级。气象部门提醒公众注
+来源：老董聊卡 最近一段时间，网络上对中国银行官宣将于6月底关停信用卡“缤纷生活APP”一事开始了一轮热议，解读也是五花八门，最多的就是把这次关停定义为“首家国有大行”，但是这却是一个“乌龙”！ 中行在去年9月发布公告，将针对信用卡“缤纷生活APP”停止新增注册，后逐步关停，将全部功能和服务迁移至“中国银行APP”中。3月底已经停止新用户注册及绑卡功能，5月13日正式官宣将于6
 
 ## 正文
 
-发布时间：2026年05月31日 21:51 来源：中国新闻网 5月31日下午，哈尔滨出现大风沙尘天气。
+来源：老董聊卡 最近一段时间，网络上对中国银行官宣将于6月底关停信用卡“缤纷生活APP”一事开始了一轮热议，解读也是五花八门，最多的就是把这次关停定义为“首家国有大行”，但是这却是一个“乌龙”！
 
-记者在街头看到，城市能见度明显下降，车辆纷纷减速缓行，路旁树木剧烈摇晃，行人掩面而行。
+中行在去年9月发布公告，将针对信用卡“缤纷生活APP”停止新增注册，后逐步关停，将全部功能和服务迁移至“中国银行APP”中。
 
-黑龙江省气象台于当日15时10分发布雷雨大风预警，预计5月31日至6月1日白天，黑河、伊春、齐齐哈尔等多地阵风可达8至9级，局地风力10至12级，其他大部地区阵风7至8级。
+3月底已经停止新用户注册及绑卡功能，5月13日正式官宣将于6月底关停。
 
-气象部门提醒公众注意防范，确保人身和财产安全。
+看到网络上几乎异口同声地提到这次关停是“国有银行中的首家”，但是这个提法是错的，真正“首家”关停的信用卡APP是建行的“掌上龙卡”，大概是在2017年前后就已经关停，迁移至建行APP中。
 
-(于琨 刘璐 制作 赵宇航) 责任编辑：【胡寒笑】
+网上可以看到当年的痕迹。
+
+目前，在六家国有银行中，建行和农行没有独立运营的信用卡APP，此次随着中行关停信用卡APP后，还有工行、交行和邮储仍在运营中，而被冠以“国有银行首家”都是以讹传讹。
+
+信用卡APP，其实是个“非刚需” 在2010年随着移动互联网浪潮的到来，同时为了适应数字化时代发展趋势，主要银行推出信用卡APP，以招行“掌上生活”为代表的、以延伸用户服务为目的的大批信用卡APP应运而生，完成信用卡业务的服务体系从PC端向移动端的转型。
+
+在增量发展时期，用户通过信用卡APP可以随时随地申请信用卡，并通过所提供的服务和权益，增强了用户的粘性。
 
 ## 相关推荐
 
-- 2026-06-29 21:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 21:16 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-29 21:07 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 21:22 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 21:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 21:03 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 21:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 20:56 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-29 21:14 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 21:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 21:22 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 21:01 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 21:01 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 21:05 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 21:27 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 21:14 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 21:10 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 21:00 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 21:25 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 21:21 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 21:20 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 21:14 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 21:27 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 21:14 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 21:18 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:04 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/48119605640.shtml)
-- 2026-06-29 21:09 - [勇敢的心第二部](http://www.share.minike.top/Article/details/70767933302.shtml)
-- 2026-06-29 21:22 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/540553385501.shtml)
-- 2026-06-29 21:19 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/98044848.shtml)
-- 2026-06-29 20:54 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/870328.shtml)
-- 2026-06-29 20:59 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/5038119.shtml)
-- 2026-06-29 21:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/589285.shtml)
-- 2026-06-29 21:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/75019.shtml)
-- 2026-06-29 20:58 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/619728458.shtml)
-- 2026-06-29 21:11 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/45217719597.shtml)
-- 2026-06-29 21:12 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/55208.shtml)
-- 2026-06-29 21:12 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/9415724916.shtml)
-- 2026-06-29 21:05 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/886855607530.shtml)
-- 2026-06-29 21:19 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/14050254.shtml)
-- 2026-06-29 21:23 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/97394242829.shtml)
+- 2026-06-29 21:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/6434294423.shtml)
+- 2026-06-29 21:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/21673619.shtml)
+- 2026-06-29 21:28 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/602542.shtml)
+- 2026-06-29 21:18 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/432113.shtml)
+- 2026-06-29 21:17 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/900996614586.shtml)
+- 2026-06-29 21:21 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/022918.shtml)
+- 2026-06-29 21:09 - [扫黑风暴](http://www.blog.minike.top/Article/details/6069080.shtml)
+- 2026-06-29 21:08 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/9422229126.shtml)
+- 2026-06-29 21:02 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/4997184532.shtml)
+- 2026-06-29 21:26 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/31137584163.shtml)
+- 2026-06-29 21:09 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.minike.top/Article/details/3093701.shtml)
+- 2026-06-29 21:01 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/588915.shtml)
+- 2026-06-29 21:12 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/0633893.shtml)
+- 2026-06-29 21:28 - [郑钦文谈再战西尼亚科娃](http://www.share.kurohicncr.top/Article/details/1418619409.shtml)
+- 2026-06-29 21:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/68662812644.shtml)

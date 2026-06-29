@@ -1,60 +1,60 @@
-# 第二十届深圳金博会科创产业投资大会举办
+# 2026年云南省社会科学普及宣传周启动 341项重点活动惠及基层
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月29日电 (记者 索有为)第二十届深圳国际金融博览会(简称“金博会”)27日至29日在深圳举办，与金博会同期举办的科创产业投资大会以“AI时代：制造业与服务业协同发展”为主题，打造“政策解读+资本对接+产业落地”的全链条交流平台，汇聚行业精英、金融机构与科创企业，共探科技与产业、资本深度融合新路径。 鲲智投资合伙人谭小平在题为《硬科技产业并购资本赋能技术整合》的主
+中新网昭通5月20日电 (肖弼钰)19日，2026年云南省社会科学普及宣传周(以下简称“科普周”)在昭通市鲁甸县卯家湾安置区幸福广场启动。本次科普周以“奋进‘十五五’增进民生福祉开创美好生活新局面”为主题，由中共云南省委宣传部、云南省社会科学界联合会共同主办，采取全省联动、同步启动模式，从即日起至5月25日将在全省开展341项重点活动。 启动仪式选在鲁甸县卯家湾安置区举行颇具深
 
 ## 正文
 
-中新网深圳5月29日电 (记者 索有为)第二十届深圳国际金融博览会(简称“金博会”)27日至29日在深圳举办，与金博会同期举办的科创产业投资大会以“AI时代：制造业与服务业协同发展”为主题，打造“政策解读+资本对接+产业落地”的全链条交流平台，汇聚行业精英、金融机构与科创企业，共探科技与产业、资本深度融合新路径。
+中新网昭通5月20日电 (肖弼钰)19日，2026年云南省社会科学普及宣传周(以下简称“科普周”)在昭通市鲁甸县卯家湾安置区幸福广场启动。
 
-鲲智投资合伙人谭小平在题为《硬科技产业并购资本赋能技术整合》的主旨演讲中，剖析当前一级市场存量博弈格局与退出渠道结构性变化。
+本次科普周以“奋进‘十五五’增进民生福祉开创美好生活新局面”为主题，由中共云南省委宣传部、云南省社会科学界联合会共同主办，采取全省联动、同步启动模式，从即日起至5月25日将在全省开展341项重点活动。
 
-他表示，IPO退出热度回落、并购退出逆势崛起，“924新规”与“十五五”规划为并购重组提供制度红利，粤港澳大湾区凭借产业生态与资本规模优势，成为硬科技并购核心阵地。
+启动仪式选在鲁甸县卯家湾安置区举行颇具深意。
 
-他从投决考量、投后赋能、生态构建等维度，为投资机构与科创企业布局并购赛道提供实操指引。
+这里是全国跨县安置脱贫人口最多的安置区，承载着来自鲁甸、巧家、彝良等5个县8000余户逾3.5万名民众对美好生活的向往，是社科知识惠民、凝聚发展共识的重要阵地。
 
-中国民生银行深圳分行中小企业金融部负责人杨其海现场推介科创金融服务方案，以“科技金融民生相伴”为理念，推出全周期产品矩阵，覆盖企业初创、成长期、成熟期各阶段，提供股权融资、知识产权贷、厂房贷、并购贷等多元金融服务，并联动1400+战略客户与200+产业联盟资源，助力科创企业对接资本、链接产业。
+云南省社会科学界联合会党组书记、主席海江在讲话中指出，今年是“十五五”开局之年，本次科普周是深化科普惠民的具体行动，他强调，要立足云南发展实际，积极创新社会科学普及模式，把社会科学知识送到基层一线、送到民众身边，凝心聚力推动文化强省建设。
 
-圆桌论坛环节，毕马威、德勤、鹏盛、安永、普华永道五家会计师事务所专家围绕2026年A股、港股IPO市场趋势、A股生态变革、AI与半导体赛道机遇、科创板“1+6”改革申报策略、港股18A与18C上市规则差异等议题展开深度对话。
+启动仪式上，主办方向昭通市图书馆、鲁甸县图书馆、砚池街道新时代文明实践所等多家单位赠送社科普及读物。
 
-他们认为，当前资本市场已进入科技成长驱动新阶段，A股科创板、港股18A/18C等板块精准赋能硬科技企业。
+随后的“科普+文艺”展演将气氛推向高潮，快板《乡村振兴鲁甸美》鲜活展现家乡蝶变，昭通市社科联原创歌曲《昭通印象》唱响地域文化魅力，全国最美家庭代表现场分享家风故事，引得观众掌声不断。
 
-会计师事务所将持续以专业能力护航科创企业合规化、资本化发展，助力企业实现A+H股双向布局，推动科技与资本共生共进。
+“以前觉得社科知识很深奥，今天听着快板、看着舞蹈，不知不觉就记住了不少政策。
 
 ## 相关推荐
 
-- 2026-06-29 21:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 21:19 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 21:07 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 21:07 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 21:09 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 20:57 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 20:58 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 20:56 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 21:23 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 21:12 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:14 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 21:19 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 21:15 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 21:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 21:18 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 21:12 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 21:28 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 21:21 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 21:24 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 21:17 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 21:28 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 21:23 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 21:07 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 21:14 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 21:07 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 21:04 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 21:09 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 21:20 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/4192055.shtml)
-- 2026-06-29 21:04 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/1320116.shtml)
-- 2026-06-29 21:03 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/62952666738.shtml)
-- 2026-06-29 21:20 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/38432730077.shtml)
-- 2026-06-29 20:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/021841.shtml)
-- 2026-06-29 21:22 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/6595761066.shtml)
-- 2026-06-29 21:14 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/156101496057.shtml)
-- 2026-06-29 21:15 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/98257.shtml)
-- 2026-06-29 20:54 - [急先锋](http://www.share.minike.top/Article/details/492432.shtml)
-- 2026-06-29 21:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/6327966851.shtml)
-- 2026-06-29 21:07 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/44378678.shtml)
-- 2026-06-29 21:15 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/276182757293.shtml)
-- 2026-06-29 21:10 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/9883263128.shtml)
-- 2026-06-29 21:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/677755443851.shtml)
-- 2026-06-29 21:11 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/82404898.shtml)
+- 2026-06-29 21:00 - [美人鱼](https://www.blog.minike.top/Article/details/67295063.shtml)
+- 2026-06-29 21:13 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/515223872312.shtml)
+- 2026-06-29 21:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/7958834840.shtml)
+- 2026-06-29 21:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/738905361233.shtml)
+- 2026-06-29 21:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/90828.shtml)
+- 2026-06-29 21:24 - [美人鱼](http://www.share.minike.top/Article/details/324150876635.shtml)
+- 2026-06-29 21:19 - [国际清算银行警告AI投资热潮](http://www.blog.kurohicncr.top/Article/details/55929.shtml)
+- 2026-06-29 21:27 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/90578.shtml)
+- 2026-06-29 21:27 - [85花告别古偶](http://www.blog.minike.top/Article/details/688800.shtml)
+- 2026-06-29 21:29 - [北京发布地质灾害气象风险蓝色预警](http://www.share.minike.top/Article/details/237017704727.shtml)
+- 2026-06-29 21:00 - [一见倾心](https://www.share.kurohicncr.top/Article/details/5184983164.shtml)
+- 2026-06-29 21:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/3259436980.shtml)
+- 2026-06-29 21:13 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/9943061.shtml)
+- 2026-06-29 21:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/44030.shtml)
+- 2026-06-29 21:23 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/774590732820.shtml)

@@ -1,53 +1,61 @@
-# 澳大利亚国民银行：美国经济增长韧性或可限制美元下行空间
+# 数读卫浴制品年报 | 松霖科技、建霖家居靠机器人“翻盘”？ 惠达卫浴存货、应收账款周转天数双高
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-根据澳大利亚国民银行，即使美国和伊朗达成和平协议，美国经济展现出的韧性也可能会限制美元的下跌空间。 “如果达成可信且更持久的和平协议，美元可能会有所下跌，因为全球局势将由此好转，能源价格走低将是一大重要利好，”澳大利亚国民银行高级外汇策略师Rodrigo Catril表示。 “但我们认为，市场初期情绪提振过后，相对增长态势的影响力将会增强”。 “事实证明，美国比其他经济体更具韧
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。这意味着，存
 
 ## 正文
 
-根据澳大利亚国民银行，即使美国和伊朗达成和平协议，美国经济展现出的韧性也可能会限制美元的下跌空间。
+出品：新浪财经上市公司研究院 作者：木予 2025年，国内房地产市场仍处于结构性调整的余波之中。
 
-“如果达成可信且更持久的和平协议，美元可能会有所下跌，因为全球局势将由此好转，能源价格走低将是一大重要利好，”澳大利亚国民银行高级外汇策略师Rodrigo Catril表示。
+国家统计局数据显示，全年新建商品房销售面积和销售额分别同比下降8.7%、12.6%，其中住宅销售面积下降9.2%，住宅销售额下降13.0%。
 
-“但我们认为，市场初期情绪提振过后，相对增长态势的影响力将会增强”。
+与此同时，城镇住宅房龄超20年的住宅占比已达35%，预计2026年存量房翻新市场规模将突破2.5万亿元，年复合增长率保持在8%以上。
 
-“事实证明，美国比其他经济体更具韧性，如果这种情况持续下去，市场预期中的美元下跌幅度将会有限”。
+这意味着，存量房翻新已正式取代新房装修，成为家居消费的主要需求来源。
 
-Catril补充道，新西兰元周五表现优异，主要受新西兰央行延续鹰派立场、当天公布的调查数据较好，以及澳元/新西兰元多头头寸解除的影响。
+另一方面，“以旧换新”政策持续释放红利。
 
-责任编辑：王永生
+2025年，社会消费品零售总额达50.12万亿元，同比增长3.7%。
+
+其中，家具类消费品全年零售额实现同比增长14.6%，较2024年显著提速，智能家居和适老化改造成为新增长极；建筑及装潢材料类受房地产市场转型期影响，零售额同比下降约2.7%，但降幅已明显收窄。
+
+截至4月30日，A股6家卫浴制品（按申万三级行业分类）上市公司均已披露2025年报。
 
 ## 相关推荐
 
-- 2026-06-29 21:15 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 20:56 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 21:04 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 21:18 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 21:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 20:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 21:09 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 21:03 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 21:01 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 21:12 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 20:54 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 21:19 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 21:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 21:11 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 21:13 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 21:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 21:10 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 21:24 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 21:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 21:01 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 21:26 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 21:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 21:21 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 21:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 21:16 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 21:25 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/289062004463.shtml)
-- 2026-06-29 21:05 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/5795578.shtml)
-- 2026-06-29 21:17 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/50606054231.shtml)
-- 2026-06-29 21:16 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/388361402226.shtml)
-- 2026-06-29 21:13 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/4902094428.shtml)
-- 2026-06-29 21:04 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/18595237.shtml)
-- 2026-06-29 21:01 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/136602531.shtml)
-- 2026-06-29 20:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/64624.shtml)
-- 2026-06-29 21:00 - [美人鱼](http://www.share.minike.top/Article/details/710388.shtml)
-- 2026-06-29 21:20 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/800708001562.shtml)
-- 2026-06-29 21:14 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/47806.shtml)
-- 2026-06-29 20:56 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/51649659875.shtml)
-- 2026-06-29 21:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/39709.shtml)
-- 2026-06-29 21:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/39491360297.shtml)
-- 2026-06-29 20:56 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/861486002241.shtml)
+- 2026-06-29 21:09 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/46037028.shtml)
+- 2026-06-29 21:04 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6706869127.shtml)
+- 2026-06-29 21:04 - [女心理师](https://www.share.minike.top/Article/details/29505.shtml)
+- 2026-06-29 21:12 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/22805.shtml)
+- 2026-06-29 21:15 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/62908.shtml)
+- 2026-06-29 21:02 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/821824.shtml)
+- 2026-06-29 21:13 - [法国部长说装空调没用](https://www.share.minike.top/Article/details/300130179.shtml)
+- 2026-06-29 21:14 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/3573690778.shtml)
+- 2026-06-29 21:06 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/15145.shtml)
+- 2026-06-29 21:15 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/5780270897.shtml)
+- 2026-06-29 21:06 - [炽夏](http://www.share.kurohicncr.top/Article/details/0739816584.shtml)
+- 2026-06-29 21:10 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/55911799071.shtml)
+- 2026-06-29 21:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/19423.shtml)
+- 2026-06-29 21:25 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/25862118705.shtml)
+- 2026-06-29 21:17 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/8492316.shtml)

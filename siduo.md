@@ -1,58 +1,56 @@
-# 世界正在寻找上涨的理由
+# 2026重庆国际友好城市合作大会开幕
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-华尔街情报圈 全球市场周五走势愈发谨慎： - 亚太股市涨跌互见，美股期货小幅下跌，金价基本持平； - 油价、10年期美债收益率延续跌势。 市场正在寻找上涨的理由。 周四媒体披露的“谅解备忘录”条款显示，拟议中的协议留下了许多最棘手的问题未解。其中包括海峡的长期状态、伊朗近武器级浓缩铀库存的处置方案，以及潜在制裁缓解措施等具体细节。 聪明钱已经从昨晚的“传言狂欢”中冷静下来，开始
+中新社重庆5月20日电 (梁钦卿)2026重庆国际友好城市合作大会20日在重庆开幕。来自29个国家38个城市的政府代表团和9个国际友好组织，17个国家的驻华使节，部分外国企业和商协会代表等汇聚山城，携手拓展多层次、宽领域、深层次友城务实合作。 本次大会召开前，重庆已与39个国家的59个城市建立友好城市关系，并与137个城市保持友好交流城市关系。开幕式上，重庆市分别与越南老街省、
 
 ## 正文
 
-华尔街情报圈 全球市场周五走势愈发谨慎： - 亚太股市涨跌互见，美股期货小幅下跌，金价基本持平； - 油价、10年期美债收益率延续跌势。
+中新社重庆5月20日电 (梁钦卿)2026重庆国际友好城市合作大会20日在重庆开幕。
 
-市场正在寻找上涨的理由。
+来自29个国家38个城市的政府代表团和9个国际友好组织，17个国家的驻华使节，部分外国企业和商协会代表等汇聚山城，携手拓展多层次、宽领域、深层次友城务实合作。
 
-周四媒体披露的“谅解备忘录”条款显示，拟议中的协议留下了许多最棘手的问题未解。
+本次大会召开前，重庆已与39个国家的59个城市建立友好城市关系，并与137个城市保持友好交流城市关系。
 
-其中包括海峡的长期状态、伊朗近武器级浓缩铀库存的处置方案，以及潜在制裁缓解措施等具体细节。
+开幕式上，重庆市分别与越南老街省、缅甸仰光省、乌兹别克斯坦吉扎克州、斯洛伐克特伦钦州，渝中区分别与匈牙利巴拉顿博格拉尔市、白俄罗斯明斯克州涅斯维日区建立友好交流关系。
 
-聪明钱已经从昨晚的“传言狂欢”中冷静下来，开始咀嚼这份备忘录背后的苦涩与不确定性。
+重庆国际“朋友圈”新增6城，遍布五大洲的伙伴网络日趋完善。
 
-随着油价的下跌，尤其是跌破90美元，伊朗的谈判筹码已经被削弱。
+未来三年，重庆将与白俄罗斯明斯克州围绕工业机器人、医疗器械、农副产品等13个重点项目开展合作；与美国西雅图市开展城市治理、动物保护、园林景观等合作；与蒙古国乌兰巴托市开展教育培训、体育赛事、文旅推广等合作。
 
-历史经验表明，油价越低，“不小心”擦枪走火的概率反而更高。
+此外，中国长安汽车和乌兹别克斯坦ADM集团将合作制造新能源汽车。
 
-特朗普也开始思考一个终极问题“如何结束这场冲突”？
+尼泊尔—中国经贸协会和重庆市进出口商会，白俄罗斯工商会和重庆市贸促会，将开展投资推介、贸易促进等活动。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 20:56 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 21:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 21:16 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 21:05 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 21:04 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 21:22 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 21:22 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 21:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 21:02 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 21:02 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 21:00 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 21:28 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 21:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 21:12 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 21:10 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 21:12 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 21:01 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 21:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 21:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 21:21 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 21:06 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:03 - [TOP Prada](http://www.blog.minike.top/Article/details/327823608778.shtml)
-- 2026-06-29 20:58 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/403120878702.shtml)
-- 2026-06-29 21:23 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/15186866231.shtml)
-- 2026-06-29 20:57 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/67333.shtml)
-- 2026-06-29 21:14 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/80617463531.shtml)
-- 2026-06-29 20:56 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/661450.shtml)
-- 2026-06-29 21:22 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/87307030930.shtml)
-- 2026-06-29 21:02 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/62622167013.shtml)
-- 2026-06-29 21:13 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/3165829174.shtml)
-- 2026-06-29 21:18 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/6491063623.shtml)
-- 2026-06-29 20:55 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/3501823.shtml)
-- 2026-06-29 21:07 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/9753924383.shtml)
-- 2026-06-29 21:05 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/737247.shtml)
-- 2026-06-29 21:16 - [逃狱兄弟](https://www.share.minike.top/Article/details/658072508898.shtml)
-- 2026-06-29 21:01 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/44561.shtml)
+- 2026-06-29 21:19 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/909354430.shtml)
+- 2026-06-29 21:03 - [林逸向方筱然求婚了](http://www.blog.minike.top/Article/details/847910.shtml)
+- 2026-06-29 21:10 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/05652490276.shtml)
+- 2026-06-29 21:01 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/12477267.shtml)
+- 2026-06-29 21:17 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/68585239591.shtml)
+- 2026-06-29 21:04 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/62560942244.shtml)
+- 2026-06-29 21:16 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/244003.shtml)
+- 2026-06-29 21:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/6136652.shtml)
+- 2026-06-29 21:25 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/90322.shtml)
+- 2026-06-29 21:28 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/675365112.shtml)
+- 2026-06-29 21:12 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/551184068041.shtml)
+- 2026-06-29 21:11 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/01375300883.shtml)
+- 2026-06-29 21:11 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/70797.shtml)
+- 2026-06-29 21:07 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/93959734.shtml)
+- 2026-06-29 21:08 - [店员光脚踩入盆中清洗土豆](http://www.share.kurohicncr.top/Article/details/028910791126.shtml)

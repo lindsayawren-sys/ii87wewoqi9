@@ -1,44 +1,60 @@
-# 多位日本学者走进侵华日军南京大屠杀遇难同胞纪念馆
+# 专家：春夏季节甲亢易出现或复发
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月29日 15:12 来源：中国新闻网 5月29日，来华出席东京审判开庭80周年国际研讨会的多位日本学者，走进侵华日军南京大屠杀遇难同胞纪念馆参观。(记者 张素 周昕 泱波 葛勇 制作 刘鹏） 责任编辑：【罗攀】
+中新网5月19日电 国家卫生健康委今天(19日)举行新闻发布会介绍时令节气与健康有关情况。中国医学科学院北京协和医院主任医师李乃适介绍，甲状腺是生产甲状腺激素的“工厂”，它位于脖子的正前方、喉结的下方，如果甲状腺生产甲状腺激素过多，就会出现甲亢的问题。第一，春夏季节容易甲亢出现，或者说原有甲亢缓解以后复发。这个情况是骤冷骤热的气温变化，或者说持续高温会引起免疫系统的调节异常，而
 
 ## 正文
 
-发布时间：2026年05月29日 15:12 来源：中国新闻网 5月29日，来华出席东京审判开庭80周年国际研讨会的多位日本学者，走进侵华日军南京大屠杀遇难同胞纪念馆参观。
+中新网5月19日电 国家卫生健康委今天(19日)举行新闻发布会介绍时令节气与健康有关情况。
 
-(记者 张素 周昕 泱波 葛勇 制作 刘鹏） 责任编辑：【罗攀】
+中国医学科学院北京协和医院主任医师李乃适介绍，甲状腺是生产甲状腺激素的“工厂”，它位于脖子的正前方、喉结的下方，如果甲状腺生产甲状腺激素过多，就会出现甲亢的问题。
+
+第一，春夏季节容易甲亢出现，或者说原有甲亢缓解以后复发。
+
+这个情况是骤冷骤热的气温变化，或者说持续高温会引起免疫系统的调节异常，而甲亢最主要的病因恰恰是免疫系统异常引起甲状腺激素生产过多造成甲亢的问题。
+
+第二，身体出现这些信号要警惕甲亢。
+
+一方面是心跳加快，安静的时候都觉得心慌；二是胃肠道也运动加快，导致大便次数明显增多并且常常变稀；三是神经精神系统的过度兴奋，导致失眠、情绪波动大、容易发脾气；四是代谢加快，往往是食量增加，体重却持续下降。
+
+这几组症状出现得越多，越有可能是出现了甲亢。
+
+第三，甲亢发展往往比较快，不舒服的症状也比较明显，所以患者一般会及时就医。
 
 ## 相关推荐
 
-- 2026-06-29 21:11 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 21:23 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 20:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 21:01 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 21:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 20:59 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 21:11 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 21:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 21:18 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 21:18 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 21:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 21:06 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 21:00 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 21:28 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 21:20 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 21:10 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 21:18 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 21:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 21:14 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 21:15 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 21:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 21:06 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 21:09 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 21:08 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:54 - [扫黑风暴](https://www.share.minike.top/Article/details/7064618.shtml)
-- 2026-06-29 21:08 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/155883.shtml)
-- 2026-06-29 21:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/9101108.shtml)
-- 2026-06-29 21:06 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/751366300683.shtml)
-- 2026-06-29 21:17 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/300642102.shtml)
-- 2026-06-29 21:01 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/84129288.shtml)
-- 2026-06-29 21:10 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/303694732.shtml)
-- 2026-06-29 21:13 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/81750518998.shtml)
-- 2026-06-29 21:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/658715249735.shtml)
-- 2026-06-29 21:22 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/7332578404.shtml)
-- 2026-06-29 21:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/252228564397.shtml)
-- 2026-06-29 21:21 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/18221334.shtml)
-- 2026-06-29 20:56 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/6486660.shtml)
-- 2026-06-29 21:11 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/2238268903.shtml)
-- 2026-06-29 21:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/8808375.shtml)
+- 2026-06-29 21:13 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/269839.shtml)
+- 2026-06-29 21:29 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/389710518056.shtml)
+- 2026-06-29 21:02 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/5316905.shtml)
+- 2026-06-29 21:24 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/9793189.shtml)
+- 2026-06-29 21:09 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/8581493.shtml)
+- 2026-06-29 21:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/561715108.shtml)
+- 2026-06-29 21:15 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/583531327159.shtml)
+- 2026-06-29 21:28 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/742860.shtml)
+- 2026-06-29 21:13 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/57271961061.shtml)
+- 2026-06-29 21:25 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/192750.shtml)
+- 2026-06-29 21:15 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/85346028.shtml)
+- 2026-06-29 21:00 - [黄金也扛不住了](https://www.share.minike.top/Article/details/48458.shtml)
+- 2026-06-29 21:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/454145.shtml)
+- 2026-06-29 21:10 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/630552102816.shtml)
+- 2026-06-29 21:20 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/645011748.shtml)

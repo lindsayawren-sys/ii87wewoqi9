@@ -1,60 +1,57 @@
-# 消息人士：Meta计划于明年启动一款AI吊坠测试
+# 美财长贝森特：若获独立性，日本央行将会采取必要行动
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-Meta公司计划于明年启动一款人工智能吊坠的测试工作。这份可穿戴设备发展蓝图目标宏大，旨在扭转其硬件部门持续巨额亏损的局面。 内部规划备忘录显示，公司计划大幅扩充智能AI眼镜产品线，并推出面向企业的服务项目——“办公可穿戴设备”。该备忘录由Meta可穿戴设备副总裁亚历克斯·希梅尔撰写。他表示，此番战略布局，部分目的是推动旗下人工智能模型与相关产品的普及，包括应用订阅服务，以及公
+美国财政部长贝森特周二表示，他相信日本央行总裁植田和男在获得日本政府足够独立性的情况下，将会“采取必要行动”，这暗示华盛顿希望该央行进一步加息。 贝森特在接受采访时表示：“我认为他是一位出色的央行总裁，如果他们能给予他施展空间去做他需要做、也将会做的事情，我相信他们将拥有非常出色的货币政策。” 上述言论重申了贝森特长期以来对植田和男的信心，同时也表明，日本货币政策的成败在一定程
 
 ## 正文
 
-Meta公司计划于明年启动一款人工智能吊坠的测试工作。
+美国财政部长贝森特周二表示，他相信日本央行总裁植田和男在获得日本政府足够独立性的情况下，将会“采取必要行动”，这暗示华盛顿希望该央行进一步加息。
 
-这份可穿戴设备发展蓝图目标宏大，旨在扭转其硬件部门持续巨额亏损的局面。
+贝森特在接受采访时表示：“我认为他是一位出色的央行总裁，如果他们能给予他施展空间去做他需要做、也将会做的事情，我相信他们将拥有非常出色的货币政策。
 
-内部规划备忘录显示，公司计划大幅扩充智能AI眼镜产品线，并推出面向企业的服务项目——“办公可穿戴设备”。
+” 上述言论重申了贝森特长期以来对植田和男的信心，同时也表明，日本货币政策的成败在一定程度上取决于首相高市早苗政府是否允许央行在利率决策上保持独立性。
 
-该备忘录由Meta可穿戴设备副总裁亚历克斯·希梅尔撰写。
+这也显示出华盛顿正敦促日本在必要时允许政策收紧，尤其是在高市早苗长期偏好宽松货币政策、且过去曾反对日本央行收紧政策的背景下。
 
-他表示，此番战略布局，部分目的是推动旗下人工智能模型与相关产品的普及，包括应用订阅服务，以及公司正在研发的消费级智能助手Hatch。
+贝森特周二在社交媒体上表示，他在巴黎出席七国集团（G7）财长会议期间与植田和男会面，讨论了日本经济和市场前景，并称：“我相信植田和男总裁将成功引导日本的货币政策。
 
-目前，Meta正与OpenAI、谷歌等科技巨头角逐，各家都争相推出新型智能硬件，希望借此带动自身AI服务的使用量。
+” “完全合理” 在被问及贝森特上述言论时，植田和男在G7会议期间的记者会上表示，这“归根结底是要努力实施适当的货币政策，以持续且稳定地实现2%的通胀目标。
 
-除自有团队研发外，Meta也展开相关收购，去年就收购了人工智能吊坠初创企业极限智能。
+” 在同一场记者会上，日本财务大臣片山皋月强调，政府一直尊重《日本央行法》所规定的关系。
 
-长期以来，投资者不断施压，要求Meta改善现实实验室部门的经营状况。
+她表示：“高市早苗首相当然认同这一点，并且她曾表示，政府期望日本央行在这一框架下恰当地实施政策。
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 20:56 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 21:16 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 21:06 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 21:06 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-29 21:24 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 20:59 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 21:06 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 20:58 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 21:09 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 21:04 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 21:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 21:05 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 21:01 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 21:09 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 21:07 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 21:16 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 21:18 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 21:27 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 21:24 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 21:03 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 21:04 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 21:22 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 21:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 21:09 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:59 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/39527820410.shtml)
-- 2026-06-29 21:09 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/113275277204.shtml)
-- 2026-06-29 20:58 - [田曦薇没招了](https://www.share.minike.top/Article/details/0892044437.shtml)
-- 2026-06-29 21:15 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/98990680549.shtml)
-- 2026-06-29 21:13 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/508556.shtml)
-- 2026-06-29 20:55 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/0719682.shtml)
-- 2026-06-29 21:15 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/11766473904.shtml)
-- 2026-06-29 21:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/797583492409.shtml)
-- 2026-06-29 20:59 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/0620254340.shtml)
-- 2026-06-29 21:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/583841.shtml)
-- 2026-06-29 21:13 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/138695.shtml)
-- 2026-06-29 21:12 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/3536980.shtml)
-- 2026-06-29 21:20 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/299539765.shtml)
-- 2026-06-29 21:20 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/917586548728.shtml)
-- 2026-06-29 21:01 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/8263183.shtml)
+- 2026-06-29 21:09 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/8086877103.shtml)
+- 2026-06-29 21:13 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/471292481998.shtml)
+- 2026-06-29 21:12 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/32758765.shtml)
+- 2026-06-29 21:02 - [扬名立万](https://www.share.kurohicncr.top/Article/details/14602856.shtml)
+- 2026-06-29 21:26 - [时光音乐会](https://www.share.minike.top/Article/details/307839204797.shtml)
+- 2026-06-29 21:08 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/391120.shtml)
+- 2026-06-29 21:02 - [恋与深空致歉](https://www.share.minike.top/Article/details/9597349.shtml)
+- 2026-06-29 21:12 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/49104107349.shtml)
+- 2026-06-29 21:10 - [扫黑风暴](https://www.share.minike.top/Article/details/641174.shtml)
+- 2026-06-29 21:12 - [记者暗访养老机构消防安全](https://www.share.minike.top/Article/details/7380774060.shtml)
+- 2026-06-29 21:09 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/1514285.shtml)
+- 2026-06-29 21:24 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/23414.shtml)
+- 2026-06-29 21:11 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/836693.shtml)
+- 2026-06-29 21:20 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/605063739.shtml)
+- 2026-06-29 21:18 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.kurohicncr.top/Article/details/86305743.shtml)

@@ -1,50 +1,56 @@
-# 青海省黄南州人民政府原党组成员、副州长尼玛才仁被“双开”
+# 重庆后堡社区焕新：留住老味道 引来新人气
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网5月30日电 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对黄南州人民政府原党组成员、副州长尼玛才仁严重违纪违法问题进行了立案审查调查。 经查，尼玛才仁丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗，政绩观错位，背离新发展理念和高质量发展要求；无视中央八项规定精神，违规收受礼品；将党和人民赋予的公权力异化为谋取私利的工具，利用职务便利为他人
+9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？黄金白银，为何集体大跌？主任医师谈“网红洗眼液”：非医疗产品，是护理产品普京的“六褶包”：一场中俄文化的指尖对话一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局赖清德，如何走到被弹劾地步
 
 ## 正文
 
-中新网5月30日电 据青海省纪委监委消息：经中共青海省委批准，青海省纪委监委对黄南州人民政府原党组成员、副州长尼玛才仁严重违纪违法问题进行了立案审查调查。
+9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？
 
-经查，尼玛才仁丧失理想信念，背弃初心使命，搞投机钻营，结交政治骗子，“买官”被骗，政绩观错位，背离新发展理念和高质量发展要求；无视中央八项规定精神，违规收受礼品；将党和人民赋予的公权力异化为谋取私利的工具，利用职务便利为他人在工程项目承揽等方面谋利，并非法收受巨额财物。
+黄金白银，为何集体大跌？
 
-尼玛才仁严重违反党的政治纪律和廉洁纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+主任医师谈“网红洗眼液”：非医疗产品，是护理产品普京的“六褶包”：一场中俄文化的指尖对话一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局赖清德，如何走到被弹劾地步？
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中共青海省纪委常委会会议研究并报中共青海省委批准，决定给予尼玛才仁开除党籍处分；由青海省监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+古今“驴友”大PK，谁才是狠人？
+
+低空安全司亮相 万亿级产业“管理双翼”就位港交所上市热潮彰显香港国际金融中心竞争力广西柳州发生5.2级地震 专家分析解读原因与特征大陆对“台独”釜底抽薪，“倚美谋独”的梦该醒了周乾：给故宫“体检”，我闻到了300多年前的灰2025年全国备案博物馆达7188家 免费开放率超91%多方救援力量驰援湖南石门“520”北京婚姻服务场景焕新江苏太仓：“0元租”婚纱小站传递幸福和新风探秘“气象国家队”：从110米/秒风洞到一滴雨的精准度量黑龙江鸡西：走进富有烟火气的北钢大集洋媳妇开拖拉机刨地种玉米圈粉500万蒙曼：今天诗词走红速度古人无法想象5G基站里藏着哪些硬核科技？
+
+北京天坛的奠基土来自山西后土祠？
+
+水下仿生机器鱼展演栩栩如生美国博主“车轮哥”带老外组团“朝圣”中国电车“法拉利大叔”自评走红视频醉驾男子路遇检查假装“路人”，交警一眼识破！
+
+河南南阳上演“沉浸式拆飞机”名场面夜鹭化身耐心“垂钓者” 上演“守株待鱼”今天，为什么不能打孩子？
 
 ## 相关推荐
 
-- 2026-06-29 20:56 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 21:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 21:07 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 21:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 21:12 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 21:01 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 21:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 21:06 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 21:10 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 20:58 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 20:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 21:20 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 21:10 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 21:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 21:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 21:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 21:17 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 21:04 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 21:10 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 21:21 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 21:27 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 21:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:05 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/10647.shtml)
-- 2026-06-29 21:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/17723.shtml)
-- 2026-06-29 21:01 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/61964.shtml)
-- 2026-06-29 20:59 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/566806836253.shtml)
-- 2026-06-29 21:21 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/0863847233.shtml)
-- 2026-06-29 20:57 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/99548.shtml)
-- 2026-06-29 21:23 - [回顾世界杯争议事件](https://www.blog.minike.top/Article/details/60927542988.shtml)
-- 2026-06-29 21:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/19352589872.shtml)
-- 2026-06-29 20:56 - [中方绝不允许日菲侵害我海洋权益](http://www.share.kurohicncr.top/Article/details/8347144.shtml)
-- 2026-06-29 20:56 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/126961654714.shtml)
-- 2026-06-29 21:23 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/943424646.shtml)
-- 2026-06-29 21:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/25561238411.shtml)
-- 2026-06-29 21:16 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/933479.shtml)
-- 2026-06-29 20:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/23870702.shtml)
-- 2026-06-29 21:19 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/40147.shtml)
+- 2026-06-29 21:03 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/1470229.shtml)
+- 2026-06-29 21:04 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/125953723.shtml)
+- 2026-06-29 21:07 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/15232.shtml)
+- 2026-06-29 21:05 - [一生一世](https://www.share.minike.top/Article/details/052714094.shtml)
+- 2026-06-29 21:00 - [2026全国田径冠军赛江苏队4金收官](https://www.blog.minike.top/Article/details/237507257.shtml)
+- 2026-06-29 21:16 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/281431225.shtml)
+- 2026-06-29 21:25 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/270931358619.shtml)
+- 2026-06-29 21:09 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/320538344.shtml)
+- 2026-06-29 21:05 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/293191875280.shtml)
+- 2026-06-29 21:00 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/728315276.shtml)
+- 2026-06-29 21:22 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/8049038385.shtml)
+- 2026-06-29 21:15 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/3647472.shtml)
+- 2026-06-29 21:25 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/9501189477.shtml)
+- 2026-06-29 21:05 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/488568638520.shtml)
+- 2026-06-29 21:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/027978869603.shtml)

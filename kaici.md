@@ -1,54 +1,61 @@
-# 达力普控股公布启动回购计划
+# “生生不息”故宫文创主题展架起中意两国文创设计桥梁
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-达力普控股（01921）发布公告，公司于2026年5月22日举行的股东周年大会上，股东以普通决议案通过授予公司董事会一般授权，回购公司不超过2026年股东周年大会当日已发行股份总数10%的股份（即不超过1.58亿股）。董事会认为，公司当前股价未能充分反映集团的内在价值与发展潜力，故决定启动回购计划。回购计划旨在向市场传递董事会对集团未来前景的信心，并通过优化股本结构提升每股盈利
+中新网北京5月19日电 (记者 应妮)刚刚过去的国际博物馆日主题为“博物馆：联结世界的桥梁”，强调在全球化和多元文明共存的背景下，博物馆应主动担当文化交流的使者，打破隔阂、凝聚共识。5月4日到18日，在意大利林琴国家科学院举行的“生生不息”故宫文创主题展，恰如这一主题的鲜活注脚。 展览现场汇集了近百件故宫文创精品与数字体验展品，分花丝镶嵌、掐丝珐琅、玉雕、木作、漆雕、瓷器、织绣
 
 ## 正文
 
-达力普控股（01921）发布公告，公司于2026年5月22日举行的股东周年大会上，股东以普通决议案通过授予公司董事会一般授权，回购公司不超过2026年股东周年大会当日已发行股份总数10%的股份（即不超过1.58亿股）。
+中新网北京5月19日电 (记者 应妮)刚刚过去的国际博物馆日主题为“博物馆：联结世界的桥梁”，强调在全球化和多元文明共存的背景下，博物馆应主动担当文化交流的使者，打破隔阂、凝聚共识。
 
-董事会认为，公司当前股价未能充分反映集团的内在价值与发展潜力，故决定启动回购计划。
+5月4日到18日，在意大利林琴国家科学院举行的“生生不息”故宫文创主题展，恰如这一主题的鲜活注脚。
 
-回购计划旨在向市场传递董事会对集团未来前景的信心，并通过优化股本结构提升每股盈利及每股资产净值，从而增加股东的长期回报。
+展览现场汇集了近百件故宫文创精品与数字体验展品，分花丝镶嵌、掐丝珐琅、玉雕、木作、漆雕、瓷器、织绣七大板块，将中华匠作之美与千年文化底蕴徐徐铺展。
 
-此外，所回购股份将作为库存股份持有，未来可按需要以注销、出售或用于激励中东发展贡献突出的员工。
+作为故宫博物院对外文化交流的品牌项目，该展是继2025年亮相美国纽约联合国总部后再度落地海外，展览所在地意大利林琴国家科学院是欧洲历史最悠久的科学院之一。
 
-本次股份回购所需资金将来自集团的内部资金（包括现金储备及经营现金流）。
+连日来，展览吸引了众多艺术爱好者、文物爱好者前来参观。
 
-董事会已审慎评估集团的财务状况，确保集团具备充裕的资金及现金流以支持回购活动，且回购计划不会对集团的日常经营、业务发展或资本开支安排造成负面影响。
+北京故宫文化发展有限公司董事、总经理吴迪接受记者采访时介绍，展品挑选标准主要有三条，一是以“燕京八绝”为主，如玉雕、雕漆、花丝镶嵌、景泰蓝等，能代表中国宫廷工艺的最高水准；二是与故宫有标志性关联，比如珍珠吉服从材料到工艺都是故宫原汁原味的传承；三是体现“以古为师”而不刻意复古，在传统技艺基础上进行当代转化。
 
-责任编辑：卢昱君
+选品还特别注重能够激发与意大利的对话，例如脊兽的秩序排列、珍珠的运用等，都能与意大利的建筑装饰、珠宝工艺形成对照。
+
+作为该展策展人之一，林琴国家科学院法尔内西纳博物馆馆长维吉尼亚·拉彭塔对展品品质赞不绝口，他看到参观者们表现出了浓厚的兴趣，“尽管东西方文明各不相同，但都具有对崇高与诗意的深刻感知，这正是连接东西方的纽带”。
 
 ## 相关推荐
 
-- 2026-06-29 21:03 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 20:55 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 21:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 21:06 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 20:57 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 21:19 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 21:07 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 21:18 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 21:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 21:10 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 21:27 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 21:27 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 21:17 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 21:15 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 21:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 21:08 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 21:04 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 21:14 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 21:25 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 21:22 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 21:22 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 21:24 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 21:12 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 21:25 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 21:09 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:01 - [127只股涨停 最大封单资金6.04亿元](https://www.share.minike.top/Article/details/56100013.shtml)
-- 2026-06-29 20:55 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/923842958.shtml)
-- 2026-06-29 20:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9207652895.shtml)
-- 2026-06-29 20:57 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/482576634168.shtml)
-- 2026-06-29 21:21 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/02934695216.shtml)
-- 2026-06-29 21:00 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/39773578795.shtml)
-- 2026-06-29 21:12 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/44643103.shtml)
-- 2026-06-29 21:00 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/95838651297.shtml)
-- 2026-06-29 20:56 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/5585003.shtml)
-- 2026-06-29 21:20 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/30194.shtml)
-- 2026-06-29 20:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/601427795163.shtml)
-- 2026-06-29 21:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/825055038780.shtml)
-- 2026-06-29 21:15 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/833157.shtml)
-- 2026-06-29 20:56 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/876389719128.shtml)
-- 2026-06-29 21:23 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/68967.shtml)
+- 2026-06-29 21:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/161375.shtml)
+- 2026-06-29 21:26 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/0085155004.shtml)
+- 2026-06-29 21:29 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/313912.shtml)
+- 2026-06-29 21:26 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/7174684316.shtml)
+- 2026-06-29 21:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/8848936.shtml)
+- 2026-06-29 21:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/411150.shtml)
+- 2026-06-29 21:23 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/096281.shtml)
+- 2026-06-29 21:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/13383.shtml)
+- 2026-06-29 21:10 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/8400802.shtml)
+- 2026-06-29 21:24 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/9837348.shtml)
+- 2026-06-29 21:23 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/70245720684.shtml)
+- 2026-06-29 21:25 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/012712816945.shtml)
+- 2026-06-29 21:06 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/92073030133.shtml)
+- 2026-06-29 21:29 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/7651136464.shtml)
+- 2026-06-29 21:25 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/64424031.shtml)

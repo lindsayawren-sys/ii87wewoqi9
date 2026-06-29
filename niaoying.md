@@ -1,57 +1,56 @@
-# 贝莱德在美国企业迎来“划时代”财报季后减持股票
+# 罚单不断、业绩双降，江西银行怎么了？
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-在美国企业财报季表现亮眼、美股接连创下历史新高后，全球资管巨头贝莱德下调了其规模达 2200 亿美元的模型组合业务中的股票持仓。 彭博社查阅的一份投资展望报告显示，这家全球最大资管机构将股票超配仓位从 3% 下调至 1%。彭博统计数据显示，此次调仓在周四引发贝莱德旗下多只交易所交易基金出现数十亿美元资金异动。 贝莱德目标配置 ETF 模型组合首席投资组合经理迈克尔・盖茨表示，此
+原标题：罚单不断、业绩双降，这家上市银行怎么了？ 投资时间网、标点财经研究员 田文会 今年以来，江西银行总计被罚款已不低于256万元 江西银行股份有限公司（下称江西银行，1916.HK）近日因贷款违规领到多张罚单。该行近几年持续加大不良贷款处置力度，但贷款业务管理仍需加强。 据国家金融监督管理总局（下称金融监管总局）5月15日发布的监管信息，金融监管部门决定对江西银行和两家分支
 
 ## 正文
 
-在美国企业财报季表现亮眼、美股接连创下历史新高后，全球资管巨头贝莱德下调了其规模达 2200 亿美元的模型组合业务中的股票持仓。
+原标题：罚单不断、业绩双降，这家上市银行怎么了？
 
-彭博社查阅的一份投资展望报告显示，这家全球最大资管机构将股票超配仓位从 3% 下调至 1%。
+投资时间网、标点财经研究员 田文会 今年以来，江西银行总计被罚款已不低于256万元 江西银行股份有限公司（下称江西银行，1916.HK）近日因贷款违规领到多张罚单。
 
-彭博统计数据显示，此次调仓在周四引发贝莱德旗下多只交易所交易基金出现数十亿美元资金异动。
+该行近几年持续加大不良贷款处置力度，但贷款业务管理仍需加强。
 
-贝莱德目标配置 ETF 模型组合首席投资组合经理迈克尔・盖茨表示，此番调整源于美国企业交出了堪称划时代的财报成绩单。
+据国家金融监督管理总局（下称金融监管总局）5月15日发布的监管信息，金融监管部门决定对江西银行和两家分支机构合计罚款115万元，主要因贷款管理不到位及以贷还贷掩盖不良。
 
-他称，亮眼的业绩、大幅提升的生产效率以及稳健的经济环境，推动标普 500 指数近几周屡创新高，抵消了美伊局势以及市场对美联储年内降息预期降温带来的负面影响。
+今年以来，该行因贷款业务违规已被罚款累计不低于215万元，总计被罚款不低于256万元。
 
-但他同时提醒，股市后续想要继续跑赢大盘的难度正在加大。
+江西银行不良贷款率2022年有明显上升，该行实施了资产质量攻坚三年行动方案，近几年不良贷款率持续缓慢下降。
 
-各类利好因素已基本被市场消化，“未来规避潜在风险的空间也愈发有限”。
+该行近三年贷款核销额也明显较以往加大，2023年—2025年核销额总计186.58亿元。
 
-盖茨表示，公司依旧看好股票市场，会继续持有布局企业盈利增长、人工智能以及政府支出相关的标的。
+2025年末，该行不良贷款率为2%，同比下降，但仍高于行业。
 
 ## 相关推荐
 
-- 2026-06-29 21:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 21:10 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 21:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 21:12 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 21:07 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 21:12 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 21:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 21:18 - [郑钦文谈再战西尼亚科娃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 21:13 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 21:07 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 21:02 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 21:26 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 21:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 21:17 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 21:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 21:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 21:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 21:15 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 21:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 21:14 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 21:23 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/36366209336.shtml)
-- 2026-06-29 21:02 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/49132447783.shtml)
-- 2026-06-29 21:02 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/22451433.shtml)
-- 2026-06-29 21:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/384977324264.shtml)
-- 2026-06-29 21:03 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/748494779518.shtml)
-- 2026-06-29 21:07 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/089208.shtml)
-- 2026-06-29 21:09 - [男子40度高温下骑行严重晒伤](http://www.blog.minike.top/Article/details/915501230393.shtml)
-- 2026-06-29 21:16 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/3720129288.shtml)
-- 2026-06-29 21:20 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/541505.shtml)
-- 2026-06-29 21:22 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/68332.shtml)
-- 2026-06-29 21:03 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/7454856.shtml)
-- 2026-06-29 21:07 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/74923711.shtml)
-- 2026-06-29 21:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/12160385266.shtml)
-- 2026-06-29 21:24 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/72878.shtml)
-- 2026-06-29 21:08 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/48281.shtml)
+- 2026-06-29 21:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/5226737.shtml)
+- 2026-06-29 21:06 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/9420346263.shtml)
+- 2026-06-29 21:14 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/15766.shtml)
+- 2026-06-29 21:13 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/4413298.shtml)
+- 2026-06-29 21:17 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.kurohicncr.top/Article/details/49290.shtml)
+- 2026-06-29 21:11 - [天道](http://www.blog.minike.top/Article/details/238788.shtml)
+- 2026-06-29 21:15 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/2772888.shtml)
+- 2026-06-29 21:29 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/8204770.shtml)
+- 2026-06-29 21:08 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/33903351.shtml)
+- 2026-06-29 21:20 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/9895620196.shtml)
+- 2026-06-29 21:27 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/613295560.shtml)
+- 2026-06-29 21:29 - [朱雀三号完成静态点火试验](https://www.share.minike.top/Article/details/07522266489.shtml)
+- 2026-06-29 21:19 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/918287704510.shtml)
+- 2026-06-29 21:09 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/2584381515.shtml)
+- 2026-06-29 21:01 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/02626872146.shtml)

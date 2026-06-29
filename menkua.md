@@ -1,56 +1,58 @@
-# 海上名家走进福建三明 沪明文化交融共促老区发展
+# 首设APEC经济体展区 文博会链动亚太“星汉灿烂”
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网上海5月29日电(范宇斌 陶慕蔡)记者29日从上海市文史研究馆获悉，该馆近日举办“海上名家三明行”活动，邀请多位馆员循着红色足迹、探访绿色生态、观摩城市建设，走进福建省三明市，通过座谈建言、实地采风、文史讲座、创作交流等形式，推动沪明文化交融互鉴，旨在深化沪明对口合作，探索助力新时代革命老区振兴发展新模式，以文化艺术赋能三明城市建设与发展。 在“助力三明文旅融合发展”海上
+首设APEC经济体展区，从“产品展销”到“价值共创” 文博会链动亚太“星汉灿烂” 羊城晚报记者 赵鹏 5月21日-25日，第二十二届中国(深圳)国际文化产业博览交易会(以下简称“文博会”)将在深圳国际会展中心盛大举行。今年11月，亚太经合组织(APEC)第三十三次领导人非正式会议将在深圳举办。值此“APEC中国年”的重要节点，本届文博会迎来重磅升级——首次全新设立APEC经济体
 
 ## 正文
 
-中新网上海5月29日电(范宇斌 陶慕蔡)记者29日从上海市文史研究馆获悉，该馆近日举办“海上名家三明行”活动，邀请多位馆员循着红色足迹、探访绿色生态、观摩城市建设，走进福建省三明市，通过座谈建言、实地采风、文史讲座、创作交流等形式，推动沪明文化交融互鉴，旨在深化沪明对口合作，探索助力新时代革命老区振兴发展新模式，以文化艺术赋能三明城市建设与发展。
+首设APEC经济体展区，从“产品展销”到“价值共创” 文博会链动亚太“星汉灿烂” 羊城晚报记者 赵鹏 5月21日-25日，第二十二届中国(深圳)国际文化产业博览交易会(以下简称“文博会”)将在深圳国际会展中心盛大举行。
 
-在“助力三明文旅融合发展”海上名家座谈会上，来自不同专业领域的馆员结合自身研究与创作经验，围绕革命文化遗产保护活化、本土文艺精品创作、沪明文旅对口合作落地等主题，提出了诸多兼具专业性与可操作性的建议。
+今年11月，亚太经合组织(APEC)第三十三次领导人非正式会议将在深圳举办。
 
-上海市文史研究馆馆员李静建言，可举办书法交流活动，既要“走出去”，也要“请进来”，弘扬中华优秀传统文化，秉持执着深耕的态度、久久为功，让两地文化交流绵绵不息。
+值此“APEC中国年”的重要节点，本届文博会迎来重磅升级——首次全新设立APEC经济体展区。
 
-谈及三明文化建设，上海市文史研究馆馆员陈志宏表示，要汇聚各方合力，走进学校、走进社区传播美学美育，也可走进具有地方特色的村落，让中华优秀传统文化走进老百姓的生活场景，走入大众视野。
+该展区以亚太文化交流为突破口，汇聚亚太多元文化资源、产业力量与贸易渠道，不仅生动呈现亚太地区文旅发展丰硕成果，更搭建起常态化、专业化的国际文化交流合作平台。
 
-上海市文史研究馆馆员吴越深入学习了三明的红色文化和历史，了解到三明子弟为红军长征作出巨大牺牲和贡献后深受触动。
+构建亚太文化共生鲜活图景 被誉为“中国文化产业第一展”的文博会，历经20余年深耕沉淀，早已从本土文化产业展示窗口，成长为链接中国与全球文化市场的核心枢纽。
 
-他表示：“我们要向老一辈红军致敬，他们都是我们心中的丰碑。
+本届展会立足粤港澳大湾区区位优势与深圳对外开放高地优势，紧扣亚太合作时代主题，创新性打造APEC经济体展区，成为全年文化产业对外交流的标志性亮点。
 
-接下来，我会把三明的元素融入我的书画创作中，为今年红军长征胜利90周年献礼。
+作为适配APEC合作机制的特色功能展区，APEC经济体展区精准聚焦亚太文旅产业发展前沿，全方位集中展示各经济体特色文创产品、非物质文化遗产、地域特色美食、智慧文旅成果等优质内容，以多元、鲜活、沉浸式的形式，让亚太各国各地区特色文化资源实现集中亮相、深度交融。
 
-” 在实地采风创作中，馆员们聚焦三明厚重的红色文化，在一幅幅老照片、一件件革命文物前重温中央红军长征的峥嵘岁月，感悟革命先辈的崇高理想与坚定信念。
+该展区将汇聚亚太多个经济体的文旅头部企业，以“文化+旅游”“文化+创意”“文化+美食”为主题，打造一场集展示、交易、交流、合作于一体的文化盛宴。
 
 ## 相关推荐
 
-- 2026-06-29 20:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 21:22 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 20:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 21:10 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 21:06 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 21:07 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 21:12 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 20:58 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 21:16 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 21:13 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 21:13 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 21:02 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 21:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 21:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 21:04 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 21:29 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 21:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 21:28 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 21:02 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 21:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 21:19 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 21:01 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:55 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.minike.top/Article/details/0990227464.shtml)
-- 2026-06-29 21:23 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/07766715.shtml)
-- 2026-06-29 21:22 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/666848.shtml)
-- 2026-06-29 21:16 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/51344.shtml)
-- 2026-06-29 21:09 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/700497413568.shtml)
-- 2026-06-29 20:55 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/53725.shtml)
-- 2026-06-29 20:58 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/86547530.shtml)
-- 2026-06-29 21:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/796798.shtml)
-- 2026-06-29 20:55 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/20027131697.shtml)
-- 2026-06-29 21:10 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/9781994895.shtml)
-- 2026-06-29 21:11 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/7197974901.shtml)
-- 2026-06-29 21:11 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/591750735.shtml)
-- 2026-06-29 21:13 - [金牌调解](https://www.blog.minike.top/Article/details/3181400.shtml)
-- 2026-06-29 21:16 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/19125.shtml)
-- 2026-06-29 21:17 - [炽夏](http://www.share.minike.top/Article/details/3550355771.shtml)
+- 2026-06-29 21:20 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/986775.shtml)
+- 2026-06-29 21:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/13625.shtml)
+- 2026-06-29 21:24 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/43163559.shtml)
+- 2026-06-29 21:03 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/508723533616.shtml)
+- 2026-06-29 21:25 - [韩国队回国欢迎仪式取消](https://www.share.kurohicncr.top/Article/details/21912.shtml)
+- 2026-06-29 21:22 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/592302390381.shtml)
+- 2026-06-29 21:20 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/407310.shtml)
+- 2026-06-29 21:12 - [天道](http://www.blog.minike.top/Article/details/37710255018.shtml)
+- 2026-06-29 21:27 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/216302055450.shtml)
+- 2026-06-29 21:11 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/340137.shtml)
+- 2026-06-29 21:20 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/1762062.shtml)
+- 2026-06-29 21:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/416673.shtml)
+- 2026-06-29 21:12 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/10066204950.shtml)
+- 2026-06-29 21:25 - [沙丘](https://www.blog.kurohicncr.top/Article/details/77100785833.shtml)
+- 2026-06-29 21:23 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/584924665.shtml)

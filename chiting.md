@@ -1,58 +1,58 @@
-# 一夜之间，7家A股公司被点名！财务造假，有公司实控人被起诉，股价重挫90%
+# 两岸百余名青年武汉乐享体育嘉年华
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨崔文静 5月29日，一夜间至少七家上市公司被监管点名。 其中，最受关注的当属红相股份，此前其已因2017年—2022年连续六年年报虚假记载以及欺诈发行，被证监会罚款合计6556万元（含公司及主要涉事人员）。5月29日晚间，红相股份实控人又因欺诈发行、信
+中新网武汉5月19日电 (马芙蓉 邵晓明)“加油，加油！”19日下午，中南民族大学体育馆呐喊声此起彼伏。鄂台青年传统体育嘉年华在此举行，两岸百余名青年体验趣味运动，在协作中增进默契与了解。 本次活动以“打卡集章”形式展开，参与者手持“同心手册”，依次体验毽球、跷旱船、太极柔力球、三人板鞋、高脚马、蹴球、同心鼓、投壶等8个传统体育项目。每个项目展台前，两岸青年或组队竞技、或互助体
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网武汉5月19日电 (马芙蓉 邵晓明)“加油，加油！
 
-记者丨崔文静 5月29日，一夜间至少七家上市公司被监管点名。
+”19日下午，中南民族大学体育馆呐喊声此起彼伏。
 
-其中，最受关注的当属红相股份，此前其已因2017年—2022年连续六年年报虚假记载以及欺诈发行，被证监会罚款合计6556万元（含公司及主要涉事人员）。
+鄂台青年传统体育嘉年华在此举行，两岸百余名青年体验趣味运动，在协作中增进默契与了解。
 
-5月29日晚间，红相股份实控人又因欺诈发行、信披造假被公安移送审查起诉。
+本次活动以“打卡集章”形式展开，参与者手持“同心手册”，依次体验毽球、跷旱船、太极柔力球、三人板鞋、高脚马、蹴球、同心鼓、投壶等8个传统体育项目。
 
-这意味着，其后续可能面临刑事追诉，若罪名成立则有判刑风险。
+每个项目展台前，两岸青年或组队竞技、或互助体验。
 
-另一个颇受关注的信息是：*ST创兴、*ST沪科（维权）、*ST太和（维权）三家公司收到交易所下发的终止上市决定书。
+在“跷旱船”项目中，两岸青年对坐于彼此脚上，模拟划船姿态快速行进；“三人板鞋”讲究团队协作，要求三人同步前行，步伐一致方能稳健快速；“高脚马”则考验参与者平衡力及勇气，两岸青年相互鼓劲，完成一次次挑战。
 
-不过，这并非三家公司首次披露退市情况，在其今年4月底收到终止上市事先告知书时，退市终局即已注定。
+“同心鼓”项目格外引人注目。
 
-与此同时，今年4月24日被证监会启动立案调查的上市公司黑芝麻（维权），已于5月29日收到行政处罚事先告知书。
+两岸10名青年共同牵拉绳索，合力颠动皮球，保证皮球不掉落。
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 21:19 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 21:11 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 21:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 21:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 21:01 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 21:18 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 20:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 21:14 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 21:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 21:17 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 21:14 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 21:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 21:28 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 21:05 - [东方风云榜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 21:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 21:17 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 21:04 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 21:21 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 21:17 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 21:17 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 21:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 21:16 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 21:18 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/47533638.shtml)
-- 2026-06-29 21:20 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/208807392.shtml)
-- 2026-06-29 21:03 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/67764175359.shtml)
-- 2026-06-29 21:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/8457052544.shtml)
-- 2026-06-29 21:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/201604.shtml)
-- 2026-06-29 20:57 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/10083.shtml)
-- 2026-06-29 21:16 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/53093780436.shtml)
-- 2026-06-29 21:11 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/389230817.shtml)
-- 2026-06-29 21:23 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/246803.shtml)
-- 2026-06-29 21:15 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/148797230524.shtml)
-- 2026-06-29 21:11 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/444449902688.shtml)
-- 2026-06-29 21:09 - [沙丘](http://www.blog.minike.top/Article/details/23739553686.shtml)
-- 2026-06-29 21:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/9242449.shtml)
-- 2026-06-29 21:18 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/164519.shtml)
-- 2026-06-29 21:07 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/6307271.shtml)
+- 2026-06-29 21:17 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/628149942.shtml)
+- 2026-06-29 21:19 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/52800367.shtml)
+- 2026-06-29 21:01 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/826419492518.shtml)
+- 2026-06-29 21:19 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.minike.top/Article/details/50373191193.shtml)
+- 2026-06-29 21:19 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/317666358778.shtml)
+- 2026-06-29 21:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/83827537043.shtml)
+- 2026-06-29 21:29 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/1321026219.shtml)
+- 2026-06-29 21:25 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/72102818.shtml)
+- 2026-06-29 21:21 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/250183193108.shtml)
+- 2026-06-29 21:28 - [日美楼市危机复盘：见底顺序曝光](https://www.share.minike.top/Article/details/8561231030.shtml)
+- 2026-06-29 21:27 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/99269942512.shtml)
+- 2026-06-29 21:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/19508.shtml)
+- 2026-06-29 21:28 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/6062619.shtml)
+- 2026-06-29 21:03 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/3854101.shtml)
+- 2026-06-29 21:18 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/64027.shtml)

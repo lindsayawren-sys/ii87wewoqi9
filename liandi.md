@@ -1,50 +1,60 @@
-# 重庆市政府原参事曹清尧严重违纪违法被开除党籍和公职
+# “光”调整，“电”防御！华宝基金电力ETF（159146）收涨3.63%创新高，8股强势涨停！算电协同持续落地
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网5月29日电 据重庆市纪委监委消息，经重庆市委批准，重庆市纪委监委对重庆市政府原参事曹清尧严重违纪违法问题进行了立案审查调查。 经查，曹清尧丧失理想信念，背弃初心使命，对党不忠诚不老实，结交政治骗子，对抗组织审查；罔顾中央八项规定精神，违规收受礼金，接受可能影响公正执行公务的宴请；无视组织原则，在组织函询时不如实说明问题；廉洁底线失守，利用职权为亲属承揽业务谋利；违规干预
+周二（5月19日），电力板块爆发涨停潮，中证全指电力公用事业指数涨超3.5%。成份股全线上扬，涪陵电力、上海电力、建投能源、赣能股份、豫能控股、广西能源、林洋能源、华能蒙电等8股涨停，浙能电力、京能电力、江苏新能、大唐发电、国电电力等多股大涨超5%。 热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）全天走强，场内收涨3.63%，收盘价创上市新高！单日放量
 
 ## 正文
 
-中新网5月29日电 据重庆市纪委监委消息，经重庆市委批准，重庆市纪委监委对重庆市政府原参事曹清尧严重违纪违法问题进行了立案审查调查。
+周二（5月19日），电力板块爆发涨停潮，中证全指电力公用事业指数涨超3.5%。
 
-经查，曹清尧丧失理想信念，背弃初心使命，对党不忠诚不老实，结交政治骗子，对抗组织审查；罔顾中央八项规定精神，违规收受礼金，接受可能影响公正执行公务的宴请；无视组织原则，在组织函询时不如实说明问题；廉洁底线失守，利用职权为亲属承揽业务谋利；违规干预和插手工程项目承发包；贪欲膨胀，公器私用，大搞权钱交易，利用职务上的便利为他人在工程承揽、企业经营等方面谋利，并非法收受巨额财物。
+成份股全线上扬，涪陵电力、上海电力、建投能源、赣能股份、豫能控股、广西能源、林洋能源、华能蒙电等8股涨停，浙能电力、京能电力、江苏新能、大唐发电、国电电力等多股大涨超5%。
 
-曹清尧严重违反党的政治纪律、组织纪律、廉洁纪律和工作纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）全天走强，场内收涨3.63%，收盘价创上市新高！
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经重庆市纪委常委会会议研究并报重庆市委批准，决定给予曹清尧开除党籍处分；由重庆市监委给予其开除公职处分；终止其重庆市第六次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+单日放量成交超4400万元，资金近五日累计增持超4200万元。
+
+与之相对，“光”板块走弱，光模块CPO含量超50%的创业板人工智能ETF华宝（159363）场内跌1%，资金逢跌增持1.4亿份。
+
+市场结构上，A股常围绕“光”与“电”切换：今日光模块板块随外围调整，电力独立走强，既体现电力作为算力内部的防御属性，也揭示了电力不同于传统红利板块的核心逻辑——在AI时代，电还具备确定的成长性。
+
+从消息面来看，今日电力板块爆发涨停潮，其核心驱动是“算电协同”从政策预期迈入实际落地阶段。
+
+直接消息催化或来自两方面：一是国内首次实现大型数据中心以虚拟电厂形式参与电力现货交易，实现“算随电动”，验证了算力与电力双向协同的商业模式；二是上海发布会明确“十五五”算力规模倍增并配套建设四大千万千瓦级绿电基地，强化了需求预期。
 
 ## 相关推荐
 
-- 2026-06-29 21:00 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 21:12 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 21:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 21:16 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 21:09 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 21:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 21:01 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 21:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 21:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 21:15 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 21:10 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-29 21:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 21:04 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 21:26 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 21:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 21:07 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 21:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-29 21:20 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 21:15 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 21:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 21:03 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 21:20 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 21:23 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 21:13 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 21:08 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 20:57 - [白玉兰答谢宴合影](https://www.blog.kurohicncr.top/Article/details/6558457.shtml)
-- 2026-06-29 20:57 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/983330045084.shtml)
-- 2026-06-29 21:06 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/63763.shtml)
-- 2026-06-29 21:05 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/775135182770.shtml)
-- 2026-06-29 21:21 - [我们的少年时代2](https://www.share.minike.top/Article/details/609349768919.shtml)
-- 2026-06-29 21:09 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/90493203640.shtml)
-- 2026-06-29 21:17 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/64472931.shtml)
-- 2026-06-29 21:03 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/1135332453.shtml)
-- 2026-06-29 21:16 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/8716193774.shtml)
-- 2026-06-29 21:22 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/2191173.shtml)
-- 2026-06-29 21:05 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/396738276129.shtml)
-- 2026-06-29 21:19 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/25193601991.shtml)
-- 2026-06-29 20:57 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/79501205.shtml)
-- 2026-06-29 20:58 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/57870.shtml)
-- 2026-06-29 20:55 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/17038.shtml)
+- 2026-06-29 21:17 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/955314189.shtml)
+- 2026-06-29 21:29 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/79369447.shtml)
+- 2026-06-29 21:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/612155.shtml)
+- 2026-06-29 21:22 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/4168653.shtml)
+- 2026-06-29 21:06 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/978675348403.shtml)
+- 2026-06-29 21:09 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.minike.top/Article/details/85531934804.shtml)
+- 2026-06-29 21:05 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/24929179.shtml)
+- 2026-06-29 21:09 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/5389046812.shtml)
+- 2026-06-29 21:20 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/0838153.shtml)
+- 2026-06-29 21:00 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/45272.shtml)
+- 2026-06-29 21:02 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/98304540.shtml)
+- 2026-06-29 21:23 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/4419161.shtml)
+- 2026-06-29 21:09 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/023397.shtml)
+- 2026-06-29 21:15 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/980035.shtml)
+- 2026-06-29 21:24 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/942400.shtml)

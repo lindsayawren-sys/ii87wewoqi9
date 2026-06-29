@@ -1,51 +1,59 @@
-# 上汽集团拟向JSW进一步出售印度合资车企10%股权
+# 大宗商品综述：原油和黄金价格下跌 镍价上涨
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-据媒体引两位知情人士报道，上汽集团将进一步把其印度汽车合资企业JSW MG Motor的10%股权出售给当地合作伙伴JSW。 交易完成后，JSW的持股比例将升至45%，成为第一大股东。 报道称，上汽集团将把这笔交易约60亿卢比的所得重新投入JSW MG Motor，用于推出新车型。 上汽集团、JSW和JSW MG Motor均未回应媒体的置评请求。责任编辑：江学思
+随着投资者权衡伊朗局势，原油价格周二小幅走低。对通胀的担忧拖累金价下滑。受印尼减产以及控制出口消息的影响，镍价上涨。 原油：油价小幅走低 交易员权衡特朗普对伊朗的最新威胁 原油价格周二在震荡中小幅走低，投资者在权衡美国总统特朗普最新发出的要恢复打击伊朗的威胁。自4月初达成停火以来，特朗普已多次发出军事打击威胁，但最后都没有实施。 WTI原油跌至每桶104美元附近。特朗普周二表示
 
 ## 正文
 
-据媒体引两位知情人士报道，上汽集团将进一步把其印度汽车合资企业JSW MG Motor的10%股权出售给当地合作伙伴JSW。
+随着投资者权衡伊朗局势，原油价格周二小幅走低。
 
-交易完成后，JSW的持股比例将升至45%，成为第一大股东。
+对通胀的担忧拖累金价下滑。
 
-报道称，上汽集团将把这笔交易约60亿卢比的所得重新投入JSW MG Motor，用于推出新车型。
+受印尼减产以及控制出口消息的影响，镍价上涨。
 
-上汽集团、JSW和JSW MG Motor均未回应媒体的置评请求。
+原油：油价小幅走低 交易员权衡特朗普对伊朗的最新威胁 原油价格周二在震荡中小幅走低，投资者在权衡美国总统特朗普最新发出的要恢复打击伊朗的威胁。
 
-责任编辑：江学思
+自4月初达成停火以来，特朗普已多次发出军事打击威胁，但最后都没有实施。
+
+WTI原油跌至每桶104美元附近。
+
+特朗普周二表示，如果伊朗不同意美国的和平条件，“我们可能不得不再给他们一次重大打击”。
+
+就在不到一天前，他曾表示自己刚刚取消了一次预定的打击行动。
 
 ## 相关推荐
 
-- 2026-06-29 21:01 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 21:06 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 21:06 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 21:23 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 20:58 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 21:17 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 21:12 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 21:17 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 21:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 21:16 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 21:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 21:18 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 21:16 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 21:23 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 21:15 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 21:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 21:26 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 21:24 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 21:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 21:15 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 21:08 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-29 21:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 21:12 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 21:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:09 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/4066670161.shtml)
-- 2026-06-29 21:16 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/8022856.shtml)
-- 2026-06-29 21:05 - [刘冰任河南南阳市代市长](https://www.share.kurohicncr.top/Article/details/495166026302.shtml)
-- 2026-06-29 21:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/108982.shtml)
-- 2026-06-29 20:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/182428.shtml)
-- 2026-06-29 21:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/8313311.shtml)
-- 2026-06-29 21:04 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.minike.top/Article/details/7393420014.shtml)
-- 2026-06-29 20:55 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/9463849932.shtml)
-- 2026-06-29 21:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/57222070.shtml)
-- 2026-06-29 20:57 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.kurohicncr.top/Article/details/57049606.shtml)
-- 2026-06-29 21:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/560843673.shtml)
-- 2026-06-29 21:16 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/689160952.shtml)
-- 2026-06-29 20:56 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/671331.shtml)
-- 2026-06-29 20:59 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/096234563244.shtml)
-- 2026-06-29 21:23 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/57603.shtml)
+- 2026-06-29 21:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/32728539608.shtml)
+- 2026-06-29 21:15 - [斛珠夫人](https://www.share.minike.top/Article/details/66951.shtml)
+- 2026-06-29 21:08 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/2101610.shtml)
+- 2026-06-29 21:02 - [网警提醒警惕高考查分陷阱](http://www.blog.minike.top/Article/details/198445791449.shtml)
+- 2026-06-29 21:06 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/63571025355.shtml)
+- 2026-06-29 21:13 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.kurohicncr.top/Article/details/935044.shtml)
+- 2026-06-29 21:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/676708283523.shtml)
+- 2026-06-29 21:07 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/008779.shtml)
+- 2026-06-29 21:05 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/50800.shtml)
+- 2026-06-29 21:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/0997137383.shtml)
+- 2026-06-29 21:18 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/33396469.shtml)
+- 2026-06-29 21:19 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/96057.shtml)
+- 2026-06-29 21:24 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/75924219747.shtml)
+- 2026-06-29 21:02 - [炽夏](https://www.share.minike.top/Article/details/343800416525.shtml)
+- 2026-06-29 21:28 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/96191.shtml)

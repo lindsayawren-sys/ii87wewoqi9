@@ -1,56 +1,61 @@
-# 万人夜跑点亮洪州夜 江西南昌文体旅融合激发城市新动能
+# 日化护肤年报|拉芳家化利润转亏、嘉亨家化亏损进一步扩大
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网南昌5月31日电 (熊锦阳)5月30日晚，随着发令枪响，一场盛大的万人夜跑活动在江西南昌举行。一万名跑者伴着晚风和霓虹，在奔跑中感受“英雄城”的夏夜活力。 此次活动由南昌市人民政府主办，南昌市体育局、南昌县人民政府、红谷滩区人民政府、南昌市政公用集团共同承办。以“爱我英雄城 夜跑洪州桥”为主题，旨在落实全民健身战略，充分展现南昌城市建设成果与全市人民“自信、发奋、齐心”的
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经公司研究院 作者：新消费主张/cici 截至2026年4月30日，绝大多数日化护肤上市公司已完成2025年财报的披露，对此我们挑选了13家具有代表性的上市公司进行业绩比对分析。在我们选取的13家日化护肤公司中。在行业整体增速放缓、流量红利见顶的背景下，水羊股份、青松股份、上海家化三家实现营收与
 
 ## 正文
 
-中新网南昌5月31日电 (熊锦阳)5月30日晚，随着发令枪响，一场盛大的万人夜跑活动在江西南昌举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一万名跑者伴着晚风和霓虹，在奔跑中感受“英雄城”的夏夜活力。
+出品：新浪财经公司研究院 作者：新消费主张/cici 截至2026年4月30日，绝大多数日化护肤上市公司已完成2025年财报的披露，对此我们挑选了13家具有代表性的上市公司进行业绩比对分析。
 
-此次活动由南昌市人民政府主办，南昌市体育局、南昌县人民政府、红谷滩区人民政府、南昌市政公用集团共同承办。
+在我们选取的13家日化护肤公司中。
 
-以“爱我英雄城 夜跑洪州桥”为主题，旨在落实全民健身战略，充分展现南昌城市建设成果与全市人民“自信、发奋、齐心”的精神风貌，提升城市形象与影响力。
+在行业整体增速放缓、流量红利见顶的背景下，水羊股份、青松股份、上海家化三家实现营收与净利润双增，成为少数逆势突围的赢家。
 
-据了解，活动采用双向出发模式，南昌县方向从昌南文化中心出发，经洪州大桥至南昌中学折返返回，全程约13公里；红谷滩区方向从南昌中学出发，经洪州大桥至昌南文化中心折返返回，全程约11公里。
+其中，青松股份凭借ODM龙头诺斯贝尔受益于行业复苏，净利润暴增180.21%；上海家化结束了连续四年的下滑，扭亏为盈并实现经营性现金流近五年最佳；水羊股份则依托自有品牌高端化转型，利润增长近35%。
 
-两个方向各5000人，以洪州大桥为纽带，形成独特的跨江夜跑线路，跑者在夜跑过程中可近距离欣赏“一江两岸”的璀璨夜景。
+与此同时，珀莱雅、敷尔佳、福瑞达、科思股份等昔日明星公司却陷入营收净利润双双下滑的窘境——珀莱雅百亿规模微跌已属“受伤最轻”，科思股份净利暴跌超80%遭遇断崖式下跌，敷尔佳净利率被严重压缩，福瑞达转型阵痛持续。
 
-“这是我第三次来南昌参加夜跑活动了，每一次都有新的惊喜。
+双增与双降并存，折射出行业从“普涨时代”进入“存量博弈时代”的残酷现实。
 
-”来自福建的跑者林晓梅说道，“洪州大桥的夜景真的太美了，在这样的环境中跑步，完全不觉得累，反而像是在欣赏一场流动的视觉盛宴。
+更值得警惕的是，丸美生物、锦波生物、创尔生物集体陷入“增收不增利”的陷阱，而贝泰妮则出现上市以来首次营收负增长、利润几乎原地踏步。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 21:22 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 21:04 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 20:59 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 21:21 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 21:00 - [半导体和股市为何没让韩国人起飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 20:58 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 21:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 20:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 21:14 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 21:24 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 21:20 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 21:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 21:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 21:00 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 21:05 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 21:13 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 21:29 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 21:06 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 21:25 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 21:28 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 21:28 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 21:14 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 21:14 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 21:11 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/7866813601.shtml)
-- 2026-06-29 20:56 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/031934.shtml)
-- 2026-06-29 21:06 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/75111989.shtml)
-- 2026-06-29 21:04 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/19534250198.shtml)
-- 2026-06-29 20:54 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/967704487866.shtml)
-- 2026-06-29 21:18 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/17525580792.shtml)
-- 2026-06-29 21:05 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/627032.shtml)
-- 2026-06-29 20:59 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/33682404620.shtml)
-- 2026-06-29 21:05 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/80902136980.shtml)
-- 2026-06-29 21:05 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/08087192.shtml)
-- 2026-06-29 21:17 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/81621751.shtml)
-- 2026-06-29 21:03 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/86635437.shtml)
-- 2026-06-29 21:04 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/2849771.shtml)
-- 2026-06-29 20:56 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/50828755798.shtml)
-- 2026-06-29 21:18 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/92609031536.shtml)
+- 2026-06-29 21:11 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/42943750.shtml)
+- 2026-06-29 21:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7528893558.shtml)
+- 2026-06-29 21:17 - [一见倾心](http://www.share.kurohicncr.top/Article/details/5558613876.shtml)
+- 2026-06-29 21:13 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/62150945858.shtml)
+- 2026-06-29 21:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/45842757.shtml)
+- 2026-06-29 21:08 - [逃狱兄弟](http://www.blog.minike.top/Article/details/14517148511.shtml)
+- 2026-06-29 21:17 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/20051262.shtml)
+- 2026-06-29 21:05 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/833136636.shtml)
+- 2026-06-29 21:21 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/41254736.shtml)
+- 2026-06-29 21:15 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/770111071.shtml)
+- 2026-06-29 21:09 - [青春环游记第三季](http://www.blog.minike.top/Article/details/8675856.shtml)
+- 2026-06-29 21:27 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/64065729.shtml)
+- 2026-06-29 21:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/57313903.shtml)
+- 2026-06-29 21:02 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/599505.shtml)
+- 2026-06-29 21:04 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/76450.shtml)

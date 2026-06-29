@@ -1,61 +1,56 @@
-# 广东省人社厅：619名港澳工程领域专业人才获内地职称
+# 中国有数｜法治护航民营经济当好生力军
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网广州5月29日电 (记者 程景伟)广东省人力资源和社会保障厅副厅长邱璟29日在广州称，近年来，广东携手港澳创新开展工程领域专业人才职称评价试点，目前已在土木建筑、岩土、公路、电机、测控仪器、通信工程、机械工程、工程造价、建筑学和网络空间安全等10个专业开展试点，共619名港澳专业人才取得了内地职称。当天，邱璟在广东省人民政府新闻办公室举行的新闻发布会上称，广东出台专项试点
+发布时间：2026年05月20日 11:05 来源：三里河 一秒钟能干什么？人形机器人能跑10米，人工智能大模型调用词元量超16亿，这背后，都闪耀着民营企业的力量。2026年5月20日，民营经济促进法实施一周年。作为第一部专门关于民营经济发展的基础性法律，它给广大民营企业吃下定心丸。这一年，国家以法治之力为民营经济保驾护航，激发民营企业勃勃生机。(李金磊 黄蕾） 责任编辑：【李
 
 ## 正文
 
-中新网广州5月29日电 (记者 程景伟)广东省人力资源和社会保障厅副厅长邱璟29日在广州称，近年来，广东携手港澳创新开展工程领域专业人才职称评价试点，目前已在土木建筑、岩土、公路、电机、测控仪器、通信工程、机械工程、工程造价、建筑学和网络空间安全等10个专业开展试点，共619名港澳专业人才取得了内地职称。
+发布时间：2026年05月20日 11:05 来源：三里河 一秒钟能干什么？
 
-当天，邱璟在广东省人民政府新闻办公室举行的新闻发布会上称，广东出台专项试点方案，将港澳工程专业人才纳入粤港澳大湾区职称评价体系；联合港澳制定更符合大湾区人才特点的评价标准，实行“代表作”评价，让港澳专业人才的境外业绩“认得出、用得上”；针对港澳工程专业人才的文化背景和职业习惯，进一步优化申报流程、简化评审材料，并安排广东评委专家赴港开展面试答辩工作。
+人形机器人能跑10米，人工智能大模型调用词元量超16亿，这背后，都闪耀着民营企业的力量。
 
-据介绍，广东将推进粤港澳三地人才评价规则衔接、机制对接，进一步新增规划、园林等领域的试点专业，加快发展壮大粤港澳大湾区工程专业人才队伍。
+2026年5月20日，民营经济促进法实施一周年。
 
-拓展粤港澳大湾区技能人才评价“一试三证”范围，对于促进大湾区人才便捷流动具有重要意义。
+作为第一部专门关于民营经济发展的基础性法律，它给广大民营企业吃下定心丸。
 
-“一试三证”，即以国家职业技能标准为基础，将港澳地区和国际先进的行业标准及能力评价方法进行有机整合，考生通过一次考试可同时获得内地职业技能证书和港澳相关技能证书或国际行业权威证书。
+这一年，国家以法治之力为民营经济保驾护航，激发民营企业勃勃生机。
 
-邱璟表示，近年来，广东不断深化粤港澳大湾区技能人才评价“一试三证”，合作范围从传统生活服务、餐饮服务拓展至养老服务、咖啡服务、建筑建造等新领域，目前粤港澳三地已开发9个合作项目、累计6374人次获得相关技能证书，其中2025年新增获证2372人次、同比增长59.3%。
-
-其中，在养老服务领域，广东联合港澳开展养老护理员“一试三证”技能人才评价试点，借鉴港澳地区先进理念和能力评价方法，制定大湾区养老护理员技能培训课程标准和考试标准，推动粤港澳三地养老服务标准衔接、人才流动，目前已有近200人通过考试并获得证书。
-
-(完)
+(李金磊 黄蕾） 责任编辑：【李金磊】
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 20:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 21:10 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 21:20 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 21:22 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 21:10 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 21:09 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 20:55 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 20:57 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 21:04 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 20:55 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 21:19 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 20:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 21:11 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 21:17 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 21:01 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 21:18 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 21:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 21:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 21:03 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 21:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 21:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 21:27 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 21:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 21:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 21:21 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 21:13 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 21:12 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 21:28 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:07 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/172078.shtml)
-- 2026-06-29 21:04 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/4849511047.shtml)
-- 2026-06-29 21:01 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/4862016074.shtml)
-- 2026-06-29 21:02 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/36197376349.shtml)
-- 2026-06-29 21:02 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/4487505307.shtml)
-- 2026-06-29 20:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/8849973.shtml)
-- 2026-06-29 21:03 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/1330197.shtml)
-- 2026-06-29 20:57 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/1834499.shtml)
-- 2026-06-29 21:08 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/63809.shtml)
-- 2026-06-29 20:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/3910218870.shtml)
-- 2026-06-29 21:23 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/8052199.shtml)
-- 2026-06-29 21:06 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/81248.shtml)
-- 2026-06-29 20:57 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/110073.shtml)
-- 2026-06-29 20:55 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/778382120092.shtml)
-- 2026-06-29 21:09 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/274942911227.shtml)
+- 2026-06-29 21:08 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/12611.shtml)
+- 2026-06-29 21:11 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/485773782.shtml)
+- 2026-06-29 21:12 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/75996393.shtml)
+- 2026-06-29 21:05 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/13044724.shtml)
+- 2026-06-29 21:19 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/68805352.shtml)
+- 2026-06-29 21:22 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/613718838648.shtml)
+- 2026-06-29 21:06 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/48821444.shtml)
+- 2026-06-29 21:27 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/805408.shtml)
+- 2026-06-29 21:29 - [记者暗访养老机构消防安全](http://www.blog.minike.top/Article/details/77578.shtml)
+- 2026-06-29 21:20 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/0785981897.shtml)
+- 2026-06-29 21:16 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/788185055922.shtml)
+- 2026-06-29 21:20 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/08214284498.shtml)
+- 2026-06-29 21:05 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/1314821.shtml)
+- 2026-06-29 21:02 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/59181555184.shtml)
+- 2026-06-29 21:27 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/55880329076.shtml)

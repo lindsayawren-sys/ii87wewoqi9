@@ -1,58 +1,56 @@
-# 2026北京智慧康养机器人应用大赛开幕 百支赛队同台比拼
+# Dynamic Active超短期债券ETF宣布月度派息0.049加元
 
-> 更新时间：2026-06-29 21:24:02 UTC+8
+> 更新时间：2026-06-29 21:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月30日电 (记者 陈杭)30日，2026北京智慧康养机器人应用大赛开幕式暨企业展示及路演活动在北京经济技术开发区(简称“北京经开区”，又称“北京亦庄”)太保家园·北京国际颐养社区举办。 本届大赛以“智护银龄，暖享康养”为主题，由北京市发改委、市经信局、市民政局、市卫健委指导，北京经开区管委会、北京市老龄产业协会、国家康复辅具研究中心联合主办。 作为北京亦庄重点打造
+Dynamic Active超短期债券ETF于5月19日宣布，将向持有人派发每股0.049加元的月度现金股息。该股息将于5月29日支付，股权登记日为5月26日，同日为除息交易日。 月度派息保持稳定 该ETF在多伦多证券交易所交易，代码为DXV。此次0.049加元的派息水平与过去四个月保持一致。根据历史派息记录，2026年1月至4月期间，该基金每月均派发每股0.049加元。而在2
 
 ## 正文
 
-中新网北京5月30日电 (记者 陈杭)30日，2026北京智慧康养机器人应用大赛开幕式暨企业展示及路演活动在北京经济技术开发区(简称“北京经开区”，又称“北京亦庄”)太保家园·北京国际颐养社区举办。
+Dynamic Active超短期债券ETF于5月19日宣布，将向持有人派发每股0.049加元的月度现金股息。
 
-本届大赛以“智护银龄，暖享康养”为主题，由北京市发改委、市经信局、市民政局、市卫健委指导，北京经开区管委会、北京市老龄产业协会、国家康复辅具研究中心联合主办。
+该股息将于5月29日支付，股权登记日为5月26日，同日为除息交易日。
 
-作为北京亦庄重点打造的“机器人+养老”赛事IP，本届大赛全国首创“用真实需求定赛道、用养老机构做考场、用系统集训提能力、用全维资源保落地”模式，推动需求端、场景端、技术端、资本端和政策端深度融合。
+月度派息保持稳定 该ETF在多伦多证券交易所交易，代码为DXV。
 
-赛事设置助餐、助医、助洁、助行、助愈、助娱六大赛道，全面覆盖老年人日常起居、健康保障、康复训练、精神慰藉等全场景服务需求，是目前全国同类赛事中场景覆盖最全面的专业赛事。
+此次0.049加元的派息水平与过去四个月保持一致。
 
-经过前期招募，大赛吸引了百支赛队踊跃参与，赛事规模翻倍扩容，既有京东方等作为科技领域行业龙头企业，也有北京软体机器人、小神童等创新企业，展现智慧康养领域前沿技术与创新成果。
+根据历史派息记录，2026年1月至4月期间，该基金每月均派发每股0.049加元。
 
-北京经开区有关负责人在接受采访时表示，经开区依托机器人产业优势与养老服务刚需，已打造全球首个智慧康养机器人养老驿站，落地40余款康养机器人产品。
+而在2025年5月至12月期间，派息水平为每股0.053加元。
 
-今年大赛进一步升级，聚焦真实场景痛点，搭建政产学研用协同创新平台，不仅为企业提供技术比拼的舞台，更推动优秀产品快速迭代、落地应用，助力北京乃至全国智慧康养产业高质量发展。
+按当前约19.74加元的资产净值计算，该基金的年化股息收益率约为3.16%。
 
-企业展示区与路演现场亮点纷呈、人气高涨。
+投资策略与组合构成 该基金由Dynamic Funds主动管理，成立于2018年3月23日，旨在提供与加拿大短期利率挂钩的浮动利率收入，同时通过使用利率衍生品来降低利率波动的影响，并将投资组合久期控制在一年的水平。
 
 ## 相关推荐
 
-- 2026-06-29 21:18 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 21:17 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 20:55 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 21:08 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 21:16 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 21:18 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 21:18 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 20:59 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 21:15 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 20:59 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
-- 2026-06-29 20:58 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 21:21 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 21:12 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 21:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 21:12 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 21:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 21:01 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 21:19 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 21:06 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 21:08 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 21:11 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 21:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [一见倾心](http://www.share.minike.top/Article/details/1023195.shtml)
-- 2026-06-29 20:59 - [高考1357分的同学如何报志愿？](https://www.share.minike.top/Article/details/306893.shtml)
-- 2026-06-29 20:54 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/65734639295.shtml)
-- 2026-06-29 21:14 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/196603.shtml)
-- 2026-06-29 21:11 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/876361363265.shtml)
-- 2026-06-29 21:03 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/219437323347.shtml)
-- 2026-06-29 21:00 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/49521899.shtml)
-- 2026-06-29 21:08 - [明星大侦探第四季](https://www.share.minike.top/Article/details/0371196.shtml)
-- 2026-06-29 21:12 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/8949277.shtml)
-- 2026-06-29 21:04 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/52023.shtml)
-- 2026-06-29 21:08 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/371364.shtml)
-- 2026-06-29 21:19 - [北京市发布雷电黄色预警](http://www.share.kurohicncr.top/Article/details/011594036.shtml)
-- 2026-06-29 21:03 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/00989262277.shtml)
-- 2026-06-29 21:07 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/655281318983.shtml)
-- 2026-06-29 21:03 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/51985.shtml)
+- 2026-06-29 21:20 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/238444968354.shtml)
+- 2026-06-29 21:10 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/291025928.shtml)
+- 2026-06-29 21:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/6127061.shtml)
+- 2026-06-29 21:01 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/24648.shtml)
+- 2026-06-29 21:27 - [王楚钦开门红](https://www.blog.minike.top/Article/details/205714.shtml)
+- 2026-06-29 21:20 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/28045285213.shtml)
+- 2026-06-29 21:07 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/419174219721.shtml)
+- 2026-06-29 21:13 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/68772.shtml)
+- 2026-06-29 21:08 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/576094863.shtml)
+- 2026-06-29 21:23 - [爱很美味](http://www.blog.minike.top/Article/details/10798416079.shtml)
+- 2026-06-29 21:01 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/67033.shtml)
+- 2026-06-29 21:01 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/856293210.shtml)
+- 2026-06-29 21:15 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/94240.shtml)
+- 2026-06-29 21:11 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/829985112620.shtml)
+- 2026-06-29 21:13 - [美以这对亲密盟友要掰了吗](http://www.blog.minike.top/Article/details/10460.shtml)
