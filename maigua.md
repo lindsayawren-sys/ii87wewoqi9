@@ -1,60 +1,54 @@
-# LM Funding公布5至20兆瓦扩建计划，并将Galaxy贷款展期至2026年6月
+# 交银国信新帅浮出水面 于启春拟任公司董事长
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-金融服务公司LM Funding America在周五发布的第一季度财报中重申了其扩建战略。公司董事长兼首席执行官Bruce Rodgers在业绩电话会议上表示，公司正继续评估5至20兆瓦范围内的增值并购机会。这一审慎策略曾指引公司以每兆瓦约35.5万美元的成本成功完成密西西比州的收购。 贷款展期获财务灵活性 为配合产能扩张计划，LM Funding已于4月6日将其与Galax
+上证报中国证券网讯（记者 马嘉悦）近日，记者采访获悉，于启春近期担任交银国际信托有限公司（简称“交银国信”）党委书记，拟任交银国信董事长，待获得监管批复后，于启春将正式担任交银国信董事长一职。 据公开资料，于启春曾在华夏银行、民生银行、渤海银行工作，于2012年进入交通银行，历任交通银行山东省分行党委书记、行长，交通银行北京市分行党委委员、副行长等。在担任交银国信党委书记之前，
 
 ## 正文
 
-金融服务公司LM Funding America在周五发布的第一季度财报中重申了其扩建战略。
+上证报中国证券网讯（记者 马嘉悦）近日，记者采访获悉，于启春近期担任交银国际信托有限公司（简称“交银国信”）党委书记，拟任交银国信董事长，待获得监管批复后，于启春将正式担任交银国信董事长一职。
 
-公司董事长兼首席执行官Bruce Rodgers在业绩电话会议上表示，公司正继续评估5至20兆瓦范围内的增值并购机会。
+据公开资料，于启春曾在华夏银行、民生银行、渤海银行工作，于2012年进入交通银行，历任交通银行山东省分行党委书记、行长，交通银行北京市分行党委委员、副行长等。
 
-这一审慎策略曾指引公司以每兆瓦约35.5万美元的成本成功完成密西西比州的收购。
+在担任交银国信党委书记之前，他担任交通银行总行普惠金融事业部、乡村振兴金融部总经理。
 
-贷款展期获财务灵活性 为配合产能扩张计划，LM Funding已于4月6日将其与Galaxy Digital的1100万美元比特币担保贷款再度展期，新的到期日为2026年6月26日。
+4月23日，据中央纪委国家监委驻交通银行纪检监察组、上海市纪委监委消息，交银国信党委书记、董事长张文涉嫌严重违纪违法，正接受中央纪委国家监委驻交通银行纪检监察组纪律审查和上海市监察委员会监察调查。
 
-该贷款根据双方于2025年10月签订的主数字货币贷款协议执行，本次为第二次展期。
+此后，在4月29日，交银国信便发布《交银国际信托有限公司关于夏华龙代为履行董事长职责的公告》表示，由夏华龙董事代为履行交银国信董事长职责，解聘张文交银国信董事长职务。
 
-首席财务官Richard Russell表示，Galaxy Digital提供的灵活性使公司能够充分利用比特币的任何上涨潜力。
-
-一季度业绩受币价拖累 公司一季度总营收为210万美元，同比下降11.1%。
-
-期间共开采26.1枚比特币，平均成本约为每枚75，700美元。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 17:30 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 17:41 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 17:41 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 17:36 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 17:50 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 17:46 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 17:46 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 17:47 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 17:32 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 17:36 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 17:50 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 17:29 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 17:39 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 17:40 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 17:52 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 17:40 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 17:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 17:59 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-29 17:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 17:32 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 17:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 17:34 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 17:55 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 17:38 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/8470899436.shtml)
-- 2026-06-29 17:28 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/97259.shtml)
-- 2026-06-29 17:36 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/723402155466.shtml)
-- 2026-06-29 17:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/191440476.shtml)
-- 2026-06-29 17:31 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/72622476.shtml)
-- 2026-06-29 17:53 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/70436.shtml)
-- 2026-06-29 17:38 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/211957243.shtml)
-- 2026-06-29 17:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/51039566646.shtml)
-- 2026-06-29 17:33 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/02098198.shtml)
-- 2026-06-29 17:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/465719.shtml)
-- 2026-06-29 17:48 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/170380.shtml)
-- 2026-06-29 17:42 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.kurohicncr.top/Article/details/8934746037.shtml)
-- 2026-06-29 17:28 - [恋与深空道歉就够了吗](http://www.blog.minike.top/Article/details/725156.shtml)
-- 2026-06-29 17:48 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/19523.shtml)
-- 2026-06-29 17:26 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/8005966262.shtml)
+- 2026-06-29 17:47 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/199494106.shtml)
+- 2026-06-29 17:32 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.blog.minike.top/Article/details/1552269473.shtml)
+- 2026-06-29 17:59 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/999868547682.shtml)
+- 2026-06-29 17:46 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/4790198503.shtml)
+- 2026-06-29 17:35 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/23630204004.shtml)
+- 2026-06-29 17:56 - [花万元相亲对象是50元雇的演员](https://www.share.kurohicncr.top/Article/details/661802363.shtml)
+- 2026-06-29 17:47 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/570100349.shtml)
+- 2026-06-29 17:49 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/379555727357.shtml)
+- 2026-06-29 17:45 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/7300688140.shtml)
+- 2026-06-29 17:53 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/390222653727.shtml)
+- 2026-06-29 17:58 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/4821894263.shtml)
+- 2026-06-29 17:31 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/18215.shtml)
+- 2026-06-29 17:51 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/323105.shtml)
+- 2026-06-29 17:42 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/807860945.shtml)
+- 2026-06-29 17:44 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/016113363144.shtml)

@@ -1,58 +1,57 @@
-# 酒价内参5月17日价格发布：精品茅台调价领涨 总价创19天新高
+# 越南考虑将航空公司外资持股上限提高至49%
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月17日整体继续上行。如果主要单品各取一瓶整体打包售卖，今日总售价为9983元，较昨日上涨15元，创下近19天以来的最高纪录，其中12元的涨幅来自昨天i茅台官宣涨价的精品茅台。市场整体延续上攻态势，但核心单品的涨跌分化依然显著。 今日
+越南建设部一份草案文件显示，越南正考虑将国内航空公司的外资持股比例上限从34%提高至49%。 此举旨在帮助航空公司吸引投资、增强财务实力，并从外国合作伙伴那里获得先进技术以及管理和运营方面的专业知识。 草案指出，提高外资持股上限也符合越南根据其签署的自由贸易协定所作出的承诺。 越南目前有七家航空公司，其中越南航空（Vietnam Airlines）和越捷航空（Vietjet）是
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月17日整体继续上行。
+越南建设部一份草案文件显示，越南正考虑将国内航空公司的外资持股比例上限从34%提高至49%。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9983元，较昨日上涨15元，创下近19天以来的最高纪录，其中12元的涨幅来自昨天i茅台官宣涨价的精品茅台。
+此举旨在帮助航空公司吸引投资、增强财务实力，并从外国合作伙伴那里获得先进技术以及管理和运营方面的专业知识。
 
-市场整体延续上攻态势，但核心单品的涨跌分化依然显著。
+草案指出，提高外资持股上限也符合越南根据其签署的自由贸易协定所作出的承诺。
 
-今日白酒市场11大单品五涨六跌，输家占据优势，但跌幅相对温和。
+越南目前有七家航空公司，其中越南航空（Vietnam Airlines）和越捷航空（Vietjet）是越南的旗舰航空公司。
 
-上涨方面，精品茅台涨幅居前，创近一月最大涨幅，上涨12元/瓶至2404元，再破2400元大关，创4月11日以来最高价格记录，昨日i茅台宣布提价（上调至2359元/瓶）的影响力继续向终端市场传导；习酒君品上涨8元/瓶；国窖1573上涨5元/瓶；洋河梦之蓝M6+上涨4元/瓶，实现六连阳，价格攀升至月内高点；水晶剑南春上涨3元/瓶。
+由于伊朗冲突导致航空燃油成本飙升，越南本土航空公司被迫缩减运营规模。
 
-下跌方面，古井贡古20跌幅居前，下跌6元/瓶，该酒品已三连阴；飞天茅台与青花汾20均下跌3元/瓶；五粮液普五八代与五粮液1618均下跌2元/瓶，前者回落至月内价格次低位；青花郎小幅下跌1元/瓶。
+越南政府周三表示，当地航空公司将“进一步调整运营以优化成本”，但未作详细说明。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+越南政府还表示，自2月底冲突爆发以来，航空燃油价格已上涨88%，供应仍然不稳定，成本可能持续高企。
 
-随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 17:39 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 17:43 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 17:52 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 17:35 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 17:31 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 17:51 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 17:43 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 17:37 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 17:38 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 17:34 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 17:50 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 17:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 17:36 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 17:42 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 17:33 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 17:54 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 17:46 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 17:31 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 17:30 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 17:59 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 17:58 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 17:46 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/46377550479.shtml)
-- 2026-06-29 17:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/91989055963.shtml)
-- 2026-06-29 17:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/571334195.shtml)
-- 2026-06-29 17:37 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/293141.shtml)
-- 2026-06-29 17:52 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/937771.shtml)
-- 2026-06-29 17:28 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/574947316237.shtml)
-- 2026-06-29 17:33 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/97951193721.shtml)
-- 2026-06-29 17:46 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/76645513683.shtml)
-- 2026-06-29 17:42 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/657056194484.shtml)
-- 2026-06-29 17:37 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/204178.shtml)
-- 2026-06-29 17:30 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/59923.shtml)
-- 2026-06-29 17:27 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/465541362029.shtml)
-- 2026-06-29 17:29 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/74581183.shtml)
-- 2026-06-29 17:52 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/93365390987.shtml)
-- 2026-06-29 17:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/246648053820.shtml)
+- 2026-06-29 17:38 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/07772.shtml)
+- 2026-06-29 17:48 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/15058457662.shtml)
+- 2026-06-29 17:31 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/022040.shtml)
+- 2026-06-29 17:40 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/4139480.shtml)
+- 2026-06-29 17:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/010500346.shtml)
+- 2026-06-29 17:56 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/152073.shtml)
+- 2026-06-29 17:33 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/57748.shtml)
+- 2026-06-29 17:49 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/61646450573.shtml)
+- 2026-06-29 17:30 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/60430146.shtml)
+- 2026-06-29 17:35 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/662367175.shtml)
+- 2026-06-29 17:55 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/889273.shtml)
+- 2026-06-29 17:53 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/43735453990.shtml)
+- 2026-06-29 17:30 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/638382613.shtml)
+- 2026-06-29 17:52 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/03339434813.shtml)
+- 2026-06-29 17:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/570191.shtml)

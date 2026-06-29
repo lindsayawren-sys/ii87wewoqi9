@@ -1,58 +1,59 @@
-# 多家热门股股东高管高位套现
+# 墨西哥石油公司萨利纳克鲁斯炼油厂火灾已扑灭，6人受伤
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！作者 | 第一财经 魏中原 随着A股市场近期持续回暖，半导体、工业气体等热门板块轮番上涨，多家上市公司重要股东开始密集抛出减持计划。 5月15日晚间，工业气体龙头华特气体（688268.SH）连发两则公告，披露控股股东一致行动人已于5月14日至15日通过大宗交易减持股份，合计减持比例触及1%；同时，公司股东
+墨西哥国家石油公司（Pemex）11日晚间发布声明称，该公司位于瓦哈卡州的萨利纳克鲁斯（Salina Cruz）炼油厂当日发生火灾，目前大火已完全扑灭。事故造成6人受伤，均已送医救治。 声明指出，起火地点位于该炼油厂的Hidros 2装置区。事发时，工作人员正进行冷却塔的投产调试工作。受伤的6人中，包含3名公司员工及3名外部承包商人员。 墨西哥国家石油公司强调，此次火灾未对炼油
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+墨西哥国家石油公司（Pemex）11日晚间发布声明称，该公司位于瓦哈卡州的萨利纳克鲁斯（Salina Cruz）炼油厂当日发生火灾，目前大火已完全扑灭。
 
-作者 | 第一财经 魏中原 随着A股市场近期持续回暖，半导体、工业气体等热门板块轮番上涨，多家上市公司重要股东开始密集抛出减持计划。
+事故造成6人受伤，均已送医救治。
 
-5月15日晚间，工业气体龙头华特气体（688268.SH）连发两则公告，披露控股股东一致行动人已于5月14日至15日通过大宗交易减持股份，合计减持比例触及1%；同时，公司股东及两名高管也发布了新一轮减持计划。
+声明指出，起火地点位于该炼油厂的Hidros 2装置区。
 
-值得注意的是，自4月以来，华特气体股价累计涨幅已达110.1%，年内涨幅更是超过233%，并于近期刷新历史高点。
+事发时，工作人员正进行冷却塔的投产调试工作。
 
-然而与股价暴涨形成鲜明对比的是，公司2025年净利润同比下滑26.75%，2026年一季度净利润进一步同比下滑23.7%。
+受伤的6人中，包含3名公司员工及3名外部承包商人员。
 
-热门股股东减持的现象并非个例，据第一财经记者统计，5月14日~15日晚间就有10多家上市公司披露股东减持计划，其中不乏年内股价翻倍的热门牛股。
+墨西哥国家石油公司强调，此次火灾未对炼油厂周边社区及民众构成安全风险。
 
-大基金一期启动新一轮减持盛科通信（688702.SH）的计划，拟套现近30亿元，该股东刚刚在4月完成上一轮减持，套现约21亿元。
+目前，公司尚未就该事故对炼油厂整体生产经营的影响发表进一步评论。
 
-同花顺（300033.SZ）、奥比中光（688322.SH）等热门股也公告了控股股东或高管的大额减持计划。
+责任编辑：龙运翔
 
 ## 相关推荐
 
-- 2026-06-29 17:29 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 17:24 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 17:43 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 17:36 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 17:32 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 17:27 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 17:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 17:25 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 17:35 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 17:51 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 17:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 17:45 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 17:42 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 17:40 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 17:49 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-29 17:48 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 17:56 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 17:32 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 17:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 17:37 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 17:49 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 17:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 17:49 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 17:38 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 17:59 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/4086523.shtml)
-- 2026-06-29 17:34 - [看大国重器“云端穿针引线”](http://www.share.minike.top/Article/details/978976527526.shtml)
-- 2026-06-29 17:30 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/943658.shtml)
-- 2026-06-29 17:42 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/834643.shtml)
-- 2026-06-29 17:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/47008.shtml)
-- 2026-06-29 17:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/24213979.shtml)
-- 2026-06-29 17:28 - [女心理师](http://www.share.kurohicncr.top/Article/details/731538.shtml)
-- 2026-06-29 17:31 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/54199.shtml)
-- 2026-06-29 17:36 - [AG 宫斗](http://www.share.minike.top/Article/details/13758880204.shtml)
-- 2026-06-29 17:47 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/9873670.shtml)
-- 2026-06-29 17:49 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/38577923835.shtml)
-- 2026-06-29 17:33 - [请回答王牌2019](http://www.share.minike.top/Article/details/084286939696.shtml)
-- 2026-06-29 17:39 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/73970480915.shtml)
-- 2026-06-29 17:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/4208587048.shtml)
-- 2026-06-29 17:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/76892.shtml)
+- 2026-06-29 17:59 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/60758049.shtml)
+- 2026-06-29 17:31 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/683123261294.shtml)
+- 2026-06-29 17:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/606467.shtml)
+- 2026-06-29 17:52 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/87201.shtml)
+- 2026-06-29 17:58 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/914749981383.shtml)
+- 2026-06-29 17:54 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/3885918707.shtml)
+- 2026-06-29 17:40 - [四川地震前夕 街头电线上站满燕子](http://www.share.kurohicncr.top/Article/details/87360701036.shtml)
+- 2026-06-29 17:30 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.kurohicncr.top/Article/details/8295717716.shtml)
+- 2026-06-29 17:48 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/368314991531.shtml)
+- 2026-06-29 17:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/115893.shtml)
+- 2026-06-29 17:50 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/54358.shtml)
+- 2026-06-29 17:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/1666480.shtml)
+- 2026-06-29 17:47 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/37057588766.shtml)
+- 2026-06-29 17:37 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/468812894299.shtml)
+- 2026-06-29 17:48 - [95后小伙突然确诊癌症 医生提醒](https://www.share.kurohicncr.top/Article/details/529437867692.shtml)

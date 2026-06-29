@@ -1,55 +1,57 @@
-# 中美关系是当今世界最重要的双边关系 习主席深刻阐释
+# 涉嫌持股变动信披违法违规 泰格医药两位实控人被立案
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-14日，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。当晚，习近平主席举行宴会，欢迎特朗普总统访华。15日上午，习近平主席在中南海同美国总统特朗普举行小范围会晤。两国元首就事关两国和世界的重大问题深入交换意见，达成一系列重要共识。 监制丨李浙 主编丨王兴栋 潘梦莹 制图丨孟祥龙 毕野
+中新网北京5月13日电(记者 赵方园)5月12日晚，CRO龙头泰格医药披露，因涉嫌持股变动相关信息披露违法违规，公司实际控制人叶小平、曹晓春收到中国证监会的《立案告知书》(证监立案字01120260019号)(证监立案字01120260018号)，证监会决定对叶小平及曹晓春立案。公司称，两位实控人将积极配合中国证监会的相关工作，并严格按照监管要求履行信息披露义务。上述事项与公司
 
 ## 正文
 
-14日，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+中新网北京5月13日电(记者 赵方园)5月12日晚，CRO龙头泰格医药披露，因涉嫌持股变动相关信息披露违法违规，公司实际控制人叶小平、曹晓春收到中国证监会的《立案告知书》(证监立案字01120260019号)(证监立案字01120260018号)，证监会决定对叶小平及曹晓春立案。
 
-当晚，习近平主席举行宴会，欢迎特朗普总统访华。
+公司称，两位实控人将积极配合中国证监会的相关工作，并严格按照监管要求履行信息披露义务。
 
-15日上午，习近平主席在中南海同美国总统特朗普举行小范围会晤。
+上述事项与公司经营无关，不会对公司正常经营造成影响。
 
-两国元首就事关两国和世界的重大问题深入交换意见，达成一系列重要共识。
+泰格医药同日发布简式权益变动报告书，对叶小平及曹晓春自2014年至2025年的权益变动进行披露。
 
-监制丨李浙 主编丨王兴栋 潘梦莹 制图丨孟祥龙 毕野
+报告书显示，两位实控人相关权益变动包括：公司实施股权激励计划，非公开发行股票，回购注销限制性股票，回购公司股票，H股上市，信息披露义务人增持、减持股份等，共同导致持股比例下降。
+
+公告显示，2014年12月1日至2026年5月12日期间，因公司实施股权激励计划、非公开发行股票、回购注销限制性股票、回购公司股票、H股上市及信息披露义务人增持、减持股份等多重原因，公司实控人叶小平、曹晓春合计持股数量由0.20亿股变动至2.29亿股，持股比例则从37.56%减少至26.73%。
+
+其中，叶小平合计持有股份由27.88%变更至20.73%；曹晓春合计持有股份由9.68%变更至6.00%。
+
+在此股份变更公告前，2026年一季报显示，叶小平持股20.58%，曹晓春持股5.96%，两人合计持股26.54%。
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 17:27 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 17:26 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 17:50 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 17:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 17:25 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 17:37 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 17:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 17:34 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 17:25 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 17:49 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-29 17:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 17:26 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 17:45 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 17:36 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 17:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 17:38 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 17:50 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 17:45 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 17:44 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 17:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 17:57 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 17:51 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 17:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 17:49 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 17:39 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/6782324031.shtml)
-- 2026-06-29 17:38 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/401979884636.shtml)
-- 2026-06-29 17:33 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/699334041.shtml)
-- 2026-06-29 17:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/94681247058.shtml)
-- 2026-06-29 17:31 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/150616014.shtml)
-- 2026-06-29 17:49 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/940758008.shtml)
-- 2026-06-29 17:40 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/13926581.shtml)
-- 2026-06-29 17:29 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/537748.shtml)
-- 2026-06-29 17:42 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/3988645668.shtml)
-- 2026-06-29 17:30 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/396964.shtml)
-- 2026-06-29 17:27 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/7079741.shtml)
-- 2026-06-29 17:41 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/264485658.shtml)
-- 2026-06-29 17:48 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/751103426334.shtml)
-- 2026-06-29 17:25 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/72568.shtml)
-- 2026-06-29 17:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/6059852211.shtml)
+- 2026-06-29 17:37 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/43098958621.shtml)
+- 2026-06-29 17:37 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/7622255.shtml)
+- 2026-06-29 17:39 - [AG 宫斗](https://www.share.minike.top/Article/details/218228747909.shtml)
+- 2026-06-29 17:49 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/27029086.shtml)
+- 2026-06-29 17:55 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/85306638534.shtml)
+- 2026-06-29 17:35 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/06340254.shtml)
+- 2026-06-29 17:45 - [人类对空调和其他家电有多双标](http://www.share.kurohicncr.top/Article/details/594225.shtml)
+- 2026-06-29 17:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/730399247363.shtml)
+- 2026-06-29 17:39 - [T1 KC](http://www.blog.minike.top/Article/details/461582509318.shtml)
+- 2026-06-29 17:34 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/010327954.shtml)
+- 2026-06-29 17:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/5904825.shtml)
+- 2026-06-29 17:42 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/14994220.shtml)
+- 2026-06-29 17:46 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/570579540.shtml)
+- 2026-06-29 17:55 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/907061662.shtml)
+- 2026-06-29 17:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/63199571943.shtml)

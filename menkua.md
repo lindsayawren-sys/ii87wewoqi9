@@ -1,61 +1,58 @@
-# 金价走弱暗藏玄机，机构拆解黄金避险逻辑大变局
+# 多空双方都认为当下行情或将重演1999年历史。该顺势入场，还是抛售科技股？
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 伊朗地缘冲突搅动大宗商品全局，国际油价大幅飙升，金价却反向回落。周五（5月15日）亚市，现货黄金一度下跌近1%至4607.30美元/盎司附近。 汇丰首席贵金属分析师认为，黄金当下走势并未偏离基本面，实物需求依旧稳固，尤其亚洲大国机构购金支撑强劲。同时黄金与油价历史联动关系已彻底重构，2026年黄金更呈现风险资产特征，短期承压不改中长期配置价值，在地缘动荡、央
+华尔街当下的核心争论可以概括为： 空头观点：“市场走势开始像 1999 年 —— 赶紧抛售科技股。” 多头反驳：“行情复刻 1999 年 —— 恰恰应该买入科技股。” 市场与上世纪 90 年代末科技主导大牛市末期狂热走势高度相似，投资者对于该拥抱行情还是规避风险产生巨大分歧。分歧加剧的原因，一方面是多项技术指标已走到极端位置，另一方面当下市场氛围与当年全民聚焦科技创新浪潮的局面
 
 ## 正文
 
-文章来源：汇通财经 伊朗地缘冲突搅动大宗商品全局，国际油价大幅飙升，金价却反向回落。
+华尔街当下的核心争论可以概括为： 空头观点：“市场走势开始像 1999 年 —— 赶紧抛售科技股。
 
-周五（5月15日）亚市，现货黄金一度下跌近1%至4607.30美元/盎司附近。
+” 多头反驳：“行情复刻 1999 年 —— 恰恰应该买入科技股。
 
-汇丰首席贵金属分析师认为，黄金当下走势并未偏离基本面，实物需求依旧稳固，尤其亚洲大国机构购金支撑强劲。
+” 市场与上世纪 90 年代末科技主导大牛市末期狂热走势高度相似，投资者对于该拥抱行情还是规避风险产生巨大分歧。
 
-同时黄金与油价历史联动关系已彻底重构，2026年黄金更呈现风险资产特征，短期承压不改中长期配置价值，在地缘动荡、央行购金与资产多元化需求加持下，后市依旧值得看好。
+分歧加剧的原因，一方面是多项技术指标已走到极端位置，另一方面当下市场氛围与当年全民聚焦科技创新浪潮的局面高度重合。
 
-亚洲大国需求托底黄金 机构配置成为主力 汇丰首席贵金属分析师詹姆斯·斯蒂尔（James Steel）表示，尽管金价随局势波动下行，但黄金实际需求保持强劲。
+以费城半导体指数衡量的半导体板块，相对 200 日移动平均线的超买程度，历史上仅出现过两次：一次在 2000 年初，另一次在 1995 年。
 
-亚洲大国市场支撑尤为突出，该国黄金交易所内外盘溢价维持在每盎司20美元左右，折射出国内买盘旺盛，且主力由传统首饰、小额投资转向机构大额金条配置。
+2000 年那次超买，恰逢一代人级别的市场大顶；1995 年则是半导体板块独自走入熊市，而大盘指数仍持续走高。
 
-这一变化源于亚洲大国与印度监管政策调整，该国国内头部保险机构、印度资管机构均被获准增持黄金储备。
+上周之前，标普 500 创下历史新高、同时场内大量个股跌至 52 周新低的情况，仅出现在重要市场顶部附近，包括 90 年代牛市末期。
 
-与此同时，亚洲大国央行上月增持黄金8.1吨，央行持续购金进一步夯实市场底部支撑。
+定制投资集团（Bespoke Investment Group）周一补充表示：“自 1996 年以来，标普 500 创历史新高、且不到 60% 个股站上 50 日和 200 日均线的时段，只出现在 1998 年末至 2000 年初。
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 17:42 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 17:32 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 17:43 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 17:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 17:40 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 17:34 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 17:35 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 17:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 17:25 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 17:34 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 17:43 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 17:44 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 17:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 17:25 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 17:31 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 17:58 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 17:49 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 17:50 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 17:40 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 17:59 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 17:54 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 17:59 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 17:37 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 17:38 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 17:37 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 17:35 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/101055.shtml)
-- 2026-06-29 17:32 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/76092.shtml)
-- 2026-06-29 17:52 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/88152541804.shtml)
-- 2026-06-29 17:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/54886408509.shtml)
-- 2026-06-29 17:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/77373348.shtml)
-- 2026-06-29 17:34 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/612918.shtml)
-- 2026-06-29 17:31 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/0086437033.shtml)
-- 2026-06-29 17:35 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/68637713504.shtml)
-- 2026-06-29 17:29 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/3876136200.shtml)
-- 2026-06-29 17:36 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/41305779.shtml)
-- 2026-06-29 17:53 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/578821408.shtml)
-- 2026-06-29 17:26 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/10636054902.shtml)
-- 2026-06-29 17:47 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/72655.shtml)
-- 2026-06-29 17:37 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/19184654884.shtml)
-- 2026-06-29 17:41 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/337144501388.shtml)
+- 2026-06-29 17:48 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/786635.shtml)
+- 2026-06-29 17:33 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/57992358308.shtml)
+- 2026-06-29 17:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/31819117177.shtml)
+- 2026-06-29 17:44 - [机器人学校开学了](http://www.blog.minike.top/Article/details/5631243.shtml)
+- 2026-06-29 17:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/044099671.shtml)
+- 2026-06-29 17:39 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/0183824302.shtml)
+- 2026-06-29 17:47 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/901502870716.shtml)
+- 2026-06-29 17:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/459503023538.shtml)
+- 2026-06-29 17:46 - [急先锋](https://www.share.kurohicncr.top/Article/details/852245844.shtml)
+- 2026-06-29 17:48 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/6841533716.shtml)
+- 2026-06-29 17:35 - [急先锋](http://www.blog.minike.top/Article/details/171860041518.shtml)
+- 2026-06-29 17:49 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/38290910.shtml)
+- 2026-06-29 17:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/55229893563.shtml)
+- 2026-06-29 17:40 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/396229.shtml)
+- 2026-06-29 17:30 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/32696116360.shtml)

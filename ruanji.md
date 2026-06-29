@@ -1,56 +1,59 @@
-# 外交部发言人就美国总统特朗普访华情况答记者问
+# 【理响中国】践行正确政绩观需处理好五对关系
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。 有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。中方能否进一步介绍相关情况？ 答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。5月14日，习近平主席为特朗普
+政绩观是一个执政党性质、宗旨、理想和胸怀的集中体现，直接影响乃至决定着其执政成效。树立和践行正确政绩观是一项系统工程，要统筹好中心与全面、显绩与潜绩、眼前与长远、局部与全局、现实矛盾与历史遗留之间的关系。统筹好中心与全面的关系。改革开放以后，党扭住经济建设这个中心，领导人民埋头苦干，创造出经济快速发展奇迹。但是以经济建设为中心不能简化为GDP决定一切。经济发展是多维度的，要追求
 
 ## 正文
 
-中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。
+政绩观是一个执政党性质、宗旨、理想和胸怀的集中体现，直接影响乃至决定着其执政成效。
 
-有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。
+树立和践行正确政绩观是一项系统工程，要统筹好中心与全面、显绩与潜绩、眼前与长远、局部与全局、现实矛盾与历史遗留之间的关系。
 
-中方能否进一步介绍相关情况？
+统筹好中心与全面的关系。
 
-答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。
+改革开放以后，党扭住经济建设这个中心，领导人民埋头苦干，创造出经济快速发展奇迹。
 
-这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
+但是以经济建设为中心不能简化为GDP决定一切。
 
-5月14日，习近平主席为特朗普总统举行欢迎仪式和欢迎宴会，同特朗普总统举行会谈，并共同参观天坛。
+经济发展是多维度的，要追求速度、质量和效益的有机统一。
 
-两国元首就事关两国和世界的重大问题深入交换意见，达成一系列新共识。
+GDP增长是衡量经济发展的核心指标，但反映不出增长的方式和成本，仅以GDP增长谈经济发展具有很大局限性。
 
-两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来3年乃至更长时间的中美关系提供战略指引，推动两国关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
+一段时间以来，不少干部对经济发展的认识产生了误区，把经济发展片面地理解为经济增长，引发了诸多社会问题。
 
 ## 相关推荐
 
-- 2026-06-29 17:45 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 17:44 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 17:49 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 17:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 17:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 17:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 17:47 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 17:47 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 17:24 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 17:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 17:34 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 17:31 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-29 17:53 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 17:41 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 17:36 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 17:41 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 17:52 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 17:56 - [机器人学校开学了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 17:40 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 17:45 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 17:35 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 17:40 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 17:30 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/214203994058.shtml)
-- 2026-06-29 17:35 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/396905048.shtml)
-- 2026-06-29 17:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/34485947202.shtml)
-- 2026-06-29 17:29 - [恋与深空 731](https://www.blog.minike.top/Article/details/3040067.shtml)
-- 2026-06-29 17:24 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/959259502934.shtml)
-- 2026-06-29 17:32 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/20351163.shtml)
-- 2026-06-29 17:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/568146050.shtml)
-- 2026-06-29 17:29 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/0728454.shtml)
-- 2026-06-29 17:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/19191002147.shtml)
-- 2026-06-29 17:52 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/480227.shtml)
-- 2026-06-29 17:33 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/451769.shtml)
-- 2026-06-29 17:25 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/30172.shtml)
-- 2026-06-29 17:49 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/7380438270.shtml)
-- 2026-06-29 17:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/876046.shtml)
-- 2026-06-29 17:24 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/305649.shtml)
+- 2026-06-29 17:53 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/54983122502.shtml)
+- 2026-06-29 17:47 - [王曼昱被突如其来的话筒逗笑了](https://www.share.kurohicncr.top/Article/details/530808091855.shtml)
+- 2026-06-29 17:44 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/1594669136.shtml)
+- 2026-06-29 17:44 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/341239599823.shtml)
+- 2026-06-29 17:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/27397167.shtml)
+- 2026-06-29 17:56 - [互助版模拟高考志愿填报](http://www.blog.minike.top/Article/details/71169.shtml)
+- 2026-06-29 17:34 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/5981145.shtml)
+- 2026-06-29 17:36 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/764293.shtml)
+- 2026-06-29 17:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/4314285384.shtml)
+- 2026-06-29 17:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/38830797.shtml)
+- 2026-06-29 17:49 - [急先锋](http://www.blog.kurohicncr.top/Article/details/35998060235.shtml)
+- 2026-06-29 17:35 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/3882645006.shtml)
+- 2026-06-29 17:36 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/32170985390.shtml)
+- 2026-06-29 17:48 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/365687108385.shtml)
+- 2026-06-29 17:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/236638430077.shtml)

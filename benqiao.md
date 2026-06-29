@@ -1,53 +1,51 @@
-# 龙光集团盘中涨近20% 近日已向开曼群岛大法院申请协议安排计划聆讯
+# CRU集团：铝价可能因中东供应趋紧而升至每吨4000美元
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-龙光集团（03380）盘中一度拉升近20%。截至发稿，股价上涨4.72%，现报1.33港元，成交额7843.06万港元。 近日，龙光集团发布公告，公司已向开曼群岛大法院申请协议安排计划聆讯，寻求批准召开计划债权人会议以考虑及批准（不论是否经修改）开曼计划。 公告称，公司已通过交易网站发布与开曼计划有关的“实务声明函”。责任编辑：卢昱君
+CRU集团表示，中东冲突引发的供应中断，料将推动全球铝市场在今年出现约140万吨的供应缺口。 CRU铝产业链负责人Paul Williams在伦敦举行的CRU世界铝业峰会上披露了上述预测。 Paul Williams表示，预计欧洲地区的铝溢价可能升至最高每吨700美元。责任编辑：何云
 
 ## 正文
 
-龙光集团（03380）盘中一度拉升近20%。
+CRU集团表示，中东冲突引发的供应中断，料将推动全球铝市场在今年出现约140万吨的供应缺口。
 
-截至发稿，股价上涨4.72%，现报1.33港元，成交额7843.06万港元。
+CRU铝产业链负责人Paul Williams在伦敦举行的CRU世界铝业峰会上披露了上述预测。
 
-近日，龙光集团发布公告，公司已向开曼群岛大法院申请协议安排计划聆讯，寻求批准召开计划债权人会议以考虑及批准（不论是否经修改）开曼计划。
+Paul Williams表示，预计欧洲地区的铝溢价可能升至最高每吨700美元。
 
-公告称，公司已通过交易网站发布与开曼计划有关的“实务声明函”。
-
-责任编辑：卢昱君
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 17:28 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 17:52 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 17:53 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 17:45 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 17:33 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 17:38 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 17:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 17:34 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 17:38 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 17:42 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 17:29 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 17:39 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 17:52 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 17:52 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 17:33 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 17:50 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 17:55 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 17:38 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 17:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 17:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 17:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 17:45 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 17:46 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-29 17:44 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 17:57 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/37116.shtml)
-- 2026-06-29 17:46 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/50234.shtml)
-- 2026-06-29 17:53 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/49897775526.shtml)
-- 2026-06-29 17:28 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/79717257302.shtml)
-- 2026-06-29 17:28 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/1580921.shtml)
-- 2026-06-29 17:27 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/835530117963.shtml)
-- 2026-06-29 17:33 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/9653646780.shtml)
-- 2026-06-29 17:45 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/182196.shtml)
-- 2026-06-29 17:32 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.minike.top/Article/details/731609.shtml)
-- 2026-06-29 17:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/932392.shtml)
-- 2026-06-29 17:37 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/0327849.shtml)
-- 2026-06-29 17:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/562484042.shtml)
-- 2026-06-29 17:37 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/870692.shtml)
-- 2026-06-29 17:43 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/71511.shtml)
-- 2026-06-29 17:27 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/160948.shtml)
+- 2026-06-29 17:48 - [四川达州发生一起交通事故致2死](http://www.share.minike.top/Article/details/873650213.shtml)
+- 2026-06-29 17:50 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/1843217495.shtml)
+- 2026-06-29 17:34 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/02238.shtml)
+- 2026-06-29 17:56 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/6324180458.shtml)
+- 2026-06-29 17:49 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/220290435.shtml)
+- 2026-06-29 17:35 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/24904.shtml)
+- 2026-06-29 17:55 - [普京介绍前线战事](https://www.share.minike.top/Article/details/6423730063.shtml)
+- 2026-06-29 17:36 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/956143046759.shtml)
+- 2026-06-29 17:45 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/02238.shtml)
+- 2026-06-29 17:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/262528649645.shtml)
+- 2026-06-29 17:32 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/052140117870.shtml)
+- 2026-06-29 17:46 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/8372157.shtml)
+- 2026-06-29 17:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/7683303079.shtml)
+- 2026-06-29 17:40 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/5250249034.shtml)
+- 2026-06-29 17:51 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/86757581.shtml)

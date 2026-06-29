@@ -1,61 +1,58 @@
-# 逐“电”赋能 筑链兴产——建行吉林省分行全力助推新能源汽车产业高质量发展
+# “中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度”
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-来源 新华财经 汽车产业是吉林制造的“金字招牌”，随着奥迪一汽新能源、红旗天工等新车型相继上市，全省新能源汽车产业升级蹄疾步稳。中国建设银行吉林省分行深耕新能源汽车赛道，聚焦产业集群发展，以精准高效的综合金融服务，为新能源汽车产业高质量发展注入强劲金融动能。 金融护航，助力主机厂迭代升级 五月的长春，奥迪一汽新能源超级工厂内一派繁忙。作为奥迪在国内首个基于PPE豪华纯电动平台打
+中新网茂名5月12日电 题：“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度” 作者 梁盛 高干 初夏时节，广东知名侨乡茂名信宜市迎来三华李丰收盛景，35万多亩李园硕果盈枝，清甜果香弥漫山野。当地政府以果为媒，推动三华李产销旺季与夏日文旅旺季消费深度叠加，跑出乡村振兴“加速度”。 11日，记者在信宜钱排镇大马路上看到，悬挂外地号牌的大车辆往来穿梭，路边各三华李收购点的工
 
 ## 正文
 
-来源 新华财经 汽车产业是吉林制造的“金字招牌”，随着奥迪一汽新能源、红旗天工等新车型相继上市，全省新能源汽车产业升级蹄疾步稳。
+中新网茂名5月12日电 题：“中国李乡”广东信宜迎三华李丰收季 跑出乡村振兴“加速度” 作者 梁盛 高干 初夏时节，广东知名侨乡茂名信宜市迎来三华李丰收盛景，35万多亩李园硕果盈枝，清甜果香弥漫山野。
 
-中国建设银行吉林省分行深耕新能源汽车赛道，聚焦产业集群发展，以精准高效的综合金融服务，为新能源汽车产业高质量发展注入强劲金融动能。
+当地政府以果为媒，推动三华李产销旺季与夏日文旅旺季消费深度叠加，跑出乡村振兴“加速度”。
 
-金融护航，助力主机厂迭代升级 五月的长春，奥迪一汽新能源超级工厂内一派繁忙。
+11日，记者在信宜钱排镇大马路上看到，悬挂外地号牌的大车辆往来穿梭，路边各三华李收购点的工人们正忙着分拣、打包、装车，一派繁忙景象。
 
-作为奥迪在国内首个基于PPE豪华纯电动平台打造的生产基地，采用全自动化焊接、数字孪生等先进技术，是奥迪电动化战略的关键布局。
+来自福建的采购商王先生告诉记者，他驻扎信宜收购三华李已有5年多，钱排镇出产的“银妃”三华李果品优质，备受消费者喜爱。
 
-从开工奠基到预批量生产仅用时19个月，这份“中国速度”的背后，离不开建行的强力金融支撑。
+今年，“银妃”三华李收购价小果每千克6元至10元，中果每千克12元至16元，大果每千克20元至30元，市场供不应求。
 
-建行长春一汽支行第一时间组建专业团队，精准对接项目需求、定制综合金融方案，保障厂房建设及智能产线搭建。
+据信宜市农业农村局介绍，信宜是“全国三华李生产龙头县(市)”，享有“中国李乡”美誉，钱排、茶山、平塘等镇均有大面积种植。
 
-“我们量身定制金融方案、开通绿色审批通道，助力企业破解发展瓶颈，陪伴企业从起步到壮大，共同擦亮‘吉林制造’的新能源名片。
+其中，三华李种植核心区钱排镇凭借高海拔、温差大的独特山地气候，全镇三华李的生产面积稳定在10.2万亩左右，年总产量约15万吨，年产值约18亿元。
 
-”建行长春一汽支行相关人员说。
+今年，钱排三华李的批量上市期较往年有所提前，目前日上市量达到了1000吨。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 17:43 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 17:47 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 17:44 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 17:27 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 17:51 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 17:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 17:35 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 17:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 17:34 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 17:49 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 17:31 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 17:38 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 17:52 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 17:30 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 17:44 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 17:56 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 17:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 17:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 17:50 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 17:54 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-29 17:35 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 17:47 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 17:35 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-29 17:36 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 17:38 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 17:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/36553884438.shtml)
-- 2026-06-29 17:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/082942176433.shtml)
-- 2026-06-29 17:43 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/62252.shtml)
-- 2026-06-29 17:35 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/951558070.shtml)
-- 2026-06-29 17:50 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/202658208.shtml)
-- 2026-06-29 17:40 - [一见倾心](https://www.blog.minike.top/Article/details/850021.shtml)
-- 2026-06-29 17:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/02763676134.shtml)
-- 2026-06-29 17:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/6898058617.shtml)
-- 2026-06-29 17:50 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/725690.shtml)
-- 2026-06-29 17:27 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/01233.shtml)
-- 2026-06-29 17:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/02158101.shtml)
-- 2026-06-29 17:25 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/0401928509.shtml)
-- 2026-06-29 17:32 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/847731123.shtml)
-- 2026-06-29 17:32 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/3776529.shtml)
-- 2026-06-29 17:34 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/45293677.shtml)
+- 2026-06-29 17:36 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/24437614.shtml)
+- 2026-06-29 17:58 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/522780452.shtml)
+- 2026-06-29 17:45 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/02631.shtml)
+- 2026-06-29 17:48 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/0324171.shtml)
+- 2026-06-29 17:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/90361173486.shtml)
+- 2026-06-29 17:50 - [一生一世](http://www.blog.minike.top/Article/details/3764587.shtml)
+- 2026-06-29 17:43 - [河南四位大妈景区跳舞爆火](http://www.share.kurohicncr.top/Article/details/25668892853.shtml)
+- 2026-06-29 17:42 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/09665.shtml)
+- 2026-06-29 17:52 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/93454994.shtml)
+- 2026-06-29 17:33 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/56590583.shtml)
+- 2026-06-29 17:55 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/3948635118.shtml)
+- 2026-06-29 17:31 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/36209.shtml)
+- 2026-06-29 17:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/757771.shtml)
+- 2026-06-29 17:51 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/98978883.shtml)
+- 2026-06-29 17:45 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/248084.shtml)

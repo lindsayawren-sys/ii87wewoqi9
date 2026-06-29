@@ -1,56 +1,58 @@
-# 515投资者保护|13部视频927万曝光！兴证全球基金“十年之约·基民剧场”荣获2026年度最具影响力投教项目奖
+# 中央网信办全面部署推进规范短视频内容标注工作
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。兴证全球基金凭借2026“十年之约·基民剧场”，荣获2026年度“最具影响力投教项目奖”。 据悉，2026“十年之约·基民剧场”围绕“内容+工具”双核心，打造全矩阵投教内容体系，核心执行动作分为三大板块： 核心内容打造：策划“基民剧场”系列视频内容，累
+中新社北京5月12日电 (记者 刘亮)记者12日获悉，针对部分短视频内容来源不清、真假难辨、混淆视听等突出问题，中央网信办近日指导各地各网站平台进一步规范短视频内容标注标签，推动实现短视频内容应标尽标。今年以来，中央网信办全面部署推进规范短视频内容标注工作。1月以来，中央网信办指导网站平台深入清理虚假摆拍等违规短视频52万余个，严惩违规账号6.8万余个，并集中曝光典型案例。3月
 
 ## 正文
 
-专题：515投资者保护！
+中新社北京5月12日电 (记者 刘亮)记者12日获悉，针对部分短视频内容来源不清、真假难辨、混淆视听等突出问题，中央网信办近日指导各地各网站平台进一步规范短视频内容标注标签，推动实现短视频内容应标尽标。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+今年以来，中央网信办全面部署推进规范短视频内容标注工作。
 
-兴证全球基金凭借2026“十年之约·基民剧场”，荣获2026年度“最具影响力投教项目奖”。
+1月以来，中央网信办指导网站平台深入清理虚假摆拍等违规短视频52万余个，严惩违规账号6.8万余个，并集中曝光典型案例。
 
-据悉，2026“十年之约·基民剧场”围绕“内容+工具”双核心，打造全矩阵投教内容体系，核心执行动作分为三大板块： 核心内容打造：策划“基民剧场”系列视频内容，累计制作13部视频，含1支预热宣传片、3期完整对话正片、9支嘉宾精华短视频。
+3月，指导抖音、快手、腾讯、小红书、哔哩哔哩、微博、淘宝、京东、拼多多、支付宝、美团、百度等12家平台先行先试，完善内容标注标签，对内容标注功能进行优化和测试。
 
-邀请持有公司产品10年/19年的资深基民作为核心主角，联合基金经理、券商研究所首席、财经自媒体大V、资深媒体人组成嘉宾团，围绕家庭资产配置、权益长期投资、科学投资方法三大核心方向，以真实对话、故事分享的形式输出投教内容，同步形成播客、原创文章等多形态内容。
+近日，中央网信办总结12家平台试行经验，指导各地各网站平台进一步规范短视频内容标注标签，明确网站平台必须为用户提供6类“必选标签”，并可根据自身实际提供其他“可选标签”。
 
-投教工具落地：联合国泰海通证券研究所，共同开发《基金投资必备清单》，梳理投资者投资前、投资中全流程需明确的核心问题并配套专业指引，为投资者提供可直接复用的理性投资工具。
+其中，“必选标签”包括“含有虚构演绎内容”“含有AI生成内容”“含有营销信息”“内容为转载”“内容为个人观点”和“无需标注”。
 
-全平台分发传播：内容覆盖微信公众号、视频号、微博、等主流平台及合作媒体各渠道，实现图文+视频的全渠道触达。
+真实生活记录类短视频可选择“无需标注”标签，该标签不在短视频页面呈现。
 
-其中，《一个普通家庭的资产配置演变史》以普通投资者视角讲述资产配置实践，情感共鸣强；《一位19年老基民，问了基金经理3个问题》兼具故事性与专业度；《基金投资避坑指南（2026最新版）》则工具型内容长效价值凸显。
+中央网信办还提出，将内容标注设为短视频发布必经环节，发布者必须从“必选标签”中选择一项，才能发布短视频。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 17:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 17:43 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 17:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 17:24 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 17:47 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 17:44 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 17:41 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 17:35 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 17:28 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 17:33 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 17:47 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 17:34 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 17:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 17:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 17:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 17:52 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 17:58 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 17:51 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 17:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 17:37 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 17:42 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/814177.shtml)
-- 2026-06-29 17:34 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/932248195.shtml)
-- 2026-06-29 17:29 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/046676.shtml)
-- 2026-06-29 17:46 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/67675.shtml)
-- 2026-06-29 17:28 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/957048478254.shtml)
-- 2026-06-29 17:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/6389358.shtml)
-- 2026-06-29 17:44 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/158916338288.shtml)
-- 2026-06-29 17:33 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/15912.shtml)
-- 2026-06-29 17:34 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/211622461500.shtml)
-- 2026-06-29 17:45 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/622161169938.shtml)
-- 2026-06-29 17:48 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/202627464820.shtml)
-- 2026-06-29 17:51 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/87994.shtml)
-- 2026-06-29 17:32 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/837684988.shtml)
-- 2026-06-29 17:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/2732868804.shtml)
-- 2026-06-29 17:38 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/08929484229.shtml)
+- 2026-06-29 17:37 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/598852828.shtml)
+- 2026-06-29 17:41 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/3353054880.shtml)
+- 2026-06-29 17:35 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/72110.shtml)
+- 2026-06-29 17:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/3388910.shtml)
+- 2026-06-29 17:48 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/1769965.shtml)
+- 2026-06-29 17:42 - [TTG KSG](https://www.share.minike.top/Article/details/155003.shtml)
+- 2026-06-29 17:49 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/0676671.shtml)
+- 2026-06-29 17:50 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/18381102753.shtml)
+- 2026-06-29 17:41 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/3875139038.shtml)
+- 2026-06-29 17:51 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/35915269071.shtml)
+- 2026-06-29 17:52 - [当我回母校教书](http://www.blog.minike.top/Article/details/73948056.shtml)
+- 2026-06-29 17:43 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/13483.shtml)
+- 2026-06-29 17:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/9883409175.shtml)
+- 2026-06-29 17:58 - [谢依霖夸杨幂靠谱](https://www.share.minike.top/Article/details/3281328220.shtml)
+- 2026-06-29 17:44 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/65545.shtml)

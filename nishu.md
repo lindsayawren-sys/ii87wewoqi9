@@ -1,59 +1,55 @@
-# 中国无腿登顶珠峰第一人夏伯渝向重庆体育博物馆捐赠“巅峰记忆”
+# 秘鲁总统候选人被控政党财务造假
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-全网爆火《ENEMY》如何拍出？成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？年轻人的第一台“新家电”，为什么是3D打印机？人这一辈子，一定要去一趟眉山！王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？鸟归巢，人归乡：归
+中新网北京5月13日电 利马消息：据秘鲁媒体当地时间12日报道，该国检察机关指控总统候选人罗伯托·桑切斯涉嫌财务犯罪。 据秘鲁广播电视公司报道，秘鲁检方表示，根据桑切斯所属政党2020年和2021年提交的财务报告，桑切斯被指控“在行政程序中作出虚假陈述并伪造竞选捐款信息”。 检方表示，若罪名成立，桑切斯应被判处5年零4个月监禁，并撤销其总统候选人资格。 据报道，就在该指控被提出
 
 ## 正文
 
-全网爆火《ENEMY》如何拍出？
+中新网北京5月13日电 利马消息：据秘鲁媒体当地时间12日报道，该国检察机关指控总统候选人罗伯托·桑切斯涉嫌财务犯罪。
 
-成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
+据秘鲁广播电视公司报道，秘鲁检方表示，根据桑切斯所属政党2020年和2021年提交的财务报告，桑切斯被指控“在行政程序中作出虚假陈述并伪造竞选捐款信息”。
 
-年轻人的第一台“新家电”，为什么是3D打印机？
+检方表示，若罪名成立，桑切斯应被判处5年零4个月监禁，并撤销其总统候选人资格。
 
-人这一辈子，一定要去一趟眉山！
+据报道，就在该指控被提出数小时之前，首轮总统选举初步计票结果显示，桑切斯有望进入第二轮投票。
 
-王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
+桑切斯的律师驳斥了上述指控，并表示财务报告应当由政党财务主管负责，桑切斯不应对此负有责任。
 
-鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
+秘鲁法官将于27日决定是否对桑切斯进行审判。
 
-告诉你一个你所不知道的天坛天热了车里别放这些东西！
-
-已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 17:33 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 17:32 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 17:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-29 17:31 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 17:29 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 17:38 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 17:31 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 17:42 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 17:42 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 17:26 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 17:32 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 17:28 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-29 17:51 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 17:45 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 17:53 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 17:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 17:40 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 17:33 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 17:48 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 17:35 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 17:48 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 17:40 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 17:56 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/491153264.shtml)
-- 2026-06-29 17:39 - [恋与深空 731](http://www.blog.minike.top/Article/details/9886713996.shtml)
-- 2026-06-29 17:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/7599394.shtml)
-- 2026-06-29 17:45 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/000769596044.shtml)
-- 2026-06-29 17:38 - [港股蓝筹股的落寞才刚刚开始吗](https://www.share.minike.top/Article/details/95532679.shtml)
-- 2026-06-29 17:30 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/4672820818.shtml)
-- 2026-06-29 17:45 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/30935569.shtml)
-- 2026-06-29 17:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/3247937789.shtml)
-- 2026-06-29 17:26 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/726498758000.shtml)
-- 2026-06-29 17:33 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/43333643362.shtml)
-- 2026-06-29 17:42 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/23719.shtml)
-- 2026-06-29 17:43 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/69638230.shtml)
-- 2026-06-29 17:47 - [四川达州发生一起交通事故致2死](https://www.blog.minike.top/Article/details/646642.shtml)
-- 2026-06-29 17:28 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/157623.shtml)
-- 2026-06-29 17:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/186708.shtml)
+- 2026-06-29 17:53 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/44804086312.shtml)
+- 2026-06-29 17:38 - [急先锋](http://www.blog.minike.top/Article/details/6913895.shtml)
+- 2026-06-29 17:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/129165140.shtml)
+- 2026-06-29 17:30 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/2872982.shtml)
+- 2026-06-29 17:49 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/24026564.shtml)
+- 2026-06-29 17:39 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/82218248.shtml)
+- 2026-06-29 17:51 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/31222067206.shtml)
+- 2026-06-29 17:40 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/89066131.shtml)
+- 2026-06-29 17:55 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/65354883.shtml)
+- 2026-06-29 17:59 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/391165813286.shtml)
+- 2026-06-29 17:41 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/655423.shtml)
+- 2026-06-29 17:47 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/1751366.shtml)
+- 2026-06-29 17:50 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/34141935.shtml)
+- 2026-06-29 17:53 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/16474214349.shtml)
+- 2026-06-29 17:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/0856820276.shtml)

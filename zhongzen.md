@@ -1,61 +1,43 @@
-# YouTube和Snap就学区社交媒体成瘾指控达成和解
+# 联合国：若战火重燃将带来灾难性后果
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-Alphabet旗下的YouTube和Snap已在首起预定开庭审理的诉讼案中达成和解。该系列诉讼旨在迫使社交媒体平台承担学区为应对青少年心理健康危机所产生的费用——学区方面指责这些公司助长了该危机。 周五提交至加利福尼亚州奥克兰联邦法院的法庭文件详细披露了这些和解协议，这些协议解决了肯塔基州某学区的索赔诉求——该学区仍将于6月15日就Facebook和Instagram母公司M
+发布时间：2026年05月12日 10:24 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-Alphabet旗下的YouTube和Snap已在首起预定开庭审理的诉讼案中达成和解。
-
-该系列诉讼旨在迫使社交媒体平台承担学区为应对青少年心理健康危机所产生的费用——学区方面指责这些公司助长了该危机。
-
-周五提交至加利福尼亚州奥克兰联邦法院的法庭文件详细披露了这些和解协议，这些协议解决了肯塔基州某学区的索赔诉求——该学区仍将于6月15日就Facebook和Instagram母公司Meta提起诉讼。
-
-与肯塔基州东部农村地区布雷西特县学区达成的和解条款未予披露。
-
-“此事已友好解决，我们的重点仍在于开发符合年龄特点的产品及家长控制功能，以兑现这一承诺，”YouTube发言人在一份声明中表示。
-
-Snapchat母公司Snap未回应置评请求。
-
-目前，加州州法院尚有超过3300起涉及成瘾指控的诉讼悬而未决，被告均为社交媒体公司。
-
-另有2400起由个人、市政当局、各州及学区提起的案件已集中至加州联邦法院审理。
+发布时间：2026年05月12日 10:24 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 17:43 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 17:43 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 17:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 17:48 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-29 17:30 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 17:39 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-29 17:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 17:53 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 17:29 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 17:44 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 17:30 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 17:45 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 17:49 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 17:34 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 17:42 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 17:33 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 17:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 17:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 17:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 17:45 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 17:47 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 17:46 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 17:43 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 17:30 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 17:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/9528201.shtml)
-- 2026-06-29 17:35 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/8297823.shtml)
-- 2026-06-29 17:40 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/3424162891.shtml)
-- 2026-06-29 17:40 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/17356496578.shtml)
-- 2026-06-29 17:28 - [徐昕暂不参加NBA夏季联赛](http://www.blog.minike.top/Article/details/411965548482.shtml)
-- 2026-06-29 17:52 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/79902562.shtml)
-- 2026-06-29 17:35 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/215958708.shtml)
-- 2026-06-29 17:37 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/247737516026.shtml)
-- 2026-06-29 17:31 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/6466365568.shtml)
-- 2026-06-29 17:38 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/287929626.shtml)
-- 2026-06-29 17:42 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/183341615.shtml)
-- 2026-06-29 17:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/864129323975.shtml)
-- 2026-06-29 17:53 - [人形机器人](http://www.blog.minike.top/Article/details/7746074197.shtml)
-- 2026-06-29 17:35 - [NBA交易](http://www.blog.minike.top/Article/details/812349.shtml)
-- 2026-06-29 17:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/54262713.shtml)
+- 2026-06-29 17:54 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/516633.shtml)
+- 2026-06-29 17:48 - [普京承认俄出现燃料危机](https://www.blog.kurohicncr.top/Article/details/125004496785.shtml)
+- 2026-06-29 17:36 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/5809910338.shtml)
+- 2026-06-29 17:45 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/74968.shtml)
+- 2026-06-29 17:32 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/80333914218.shtml)
+- 2026-06-29 17:59 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/3978938.shtml)
+- 2026-06-29 17:36 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/448754.shtml)
+- 2026-06-29 17:50 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/9816849.shtml)
+- 2026-06-29 17:39 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/89810864.shtml)
+- 2026-06-29 17:43 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/095323407.shtml)
+- 2026-06-29 17:31 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/562558500262.shtml)
+- 2026-06-29 17:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/2104293.shtml)
+- 2026-06-29 17:59 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/529320.shtml)
+- 2026-06-29 17:43 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/602614.shtml)
+- 2026-06-29 17:52 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/85170.shtml)

@@ -1,46 +1,58 @@
-# 视频|用微信发暗号！华泰资管前投资经理因“老鼠仓”被判刑5年、罚款2100万
+# 软银愿景基金上财年投资收益460亿美元，对OpenAI投资收益达450亿美元
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-来源：深圳商报 责任编辑：杨赐
+软银集团周三公布，其愿景基金上财年投资收益达460亿美元，主要得益于对OpenAI投资的巨额增值。 这家日本金融巨头已向OpenAI投资超过300亿美元，截至3月底的财年，其在OpenAI的投资收益总计达450亿美元。 在截至3月底的第四财季，愿景基金的收益约为200亿美元，几乎全部来自OpenAI的收益，因为软银在其他投资项目（例如Coupang和Klarna）上均遭遇了亏损
 
 ## 正文
 
-来源：深圳商报 责任编辑：杨赐
+软银集团周三公布，其愿景基金上财年投资收益达460亿美元，主要得益于对OpenAI投资的巨额增值。
+
+这家日本金融巨头已向OpenAI投资超过300亿美元，截至3月底的财年，其在OpenAI的投资收益总计达450亿美元。
+
+在截至3月底的第四财季，愿景基金的收益约为200亿美元，几乎全部来自OpenAI的收益，因为软银在其他投资项目（例如Coupang和Klarna）上均遭遇了亏损。
+
+软银正寻求在人工智能热潮中占据核心地位，投资对象涵盖多家人工智能和芯片公司，其中萨姆·奥特曼的 OpenAI 是其投资的重中之重。
+
+软银在2月份表示，已承诺向OpenAI投资超过600 亿美元，这将使其持有该公司约13%的股份。
+
+其中超过300亿美元已经投入。
+
+今年3月，OpenAI完成了一轮由软银联合领投的融资，估值达到8520亿美元。
+
+虽然OpenAI估值的飙升提振了软银愿景基金，但OpenAI在软银投资组合中的集中度也引发了人们对其债务负担的担忧。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 17:42 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 17:36 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 17:38 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 17:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 17:45 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 17:45 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 17:26 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 17:41 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 17:30 - [T1 KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 17:38 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-29 17:31 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 17:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 17:24 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 17:34 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 17:31 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-29 17:53 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 17:33 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 17:51 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 17:54 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 17:50 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 17:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 17:53 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 17:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 17:49 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 17:30 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/01568227.shtml)
-- 2026-06-29 17:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/4577048542.shtml)
-- 2026-06-29 17:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/46321.shtml)
-- 2026-06-29 17:24 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/009561649.shtml)
-- 2026-06-29 17:46 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/2285989.shtml)
-- 2026-06-29 17:39 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/070539.shtml)
-- 2026-06-29 17:32 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/35078457.shtml)
-- 2026-06-29 17:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/06162709.shtml)
-- 2026-06-29 17:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/227068996.shtml)
-- 2026-06-29 17:30 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/479467.shtml)
-- 2026-06-29 17:32 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/955613046920.shtml)
-- 2026-06-29 17:42 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.kurohicncr.top/Article/details/4348832.shtml)
-- 2026-06-29 17:53 - [恋与深空发放补偿未得到玩家认可](http://www.blog.minike.top/Article/details/7943726475.shtml)
-- 2026-06-29 17:30 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/29268727797.shtml)
-- 2026-06-29 17:31 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/606805.shtml)
+- 2026-06-29 17:44 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/38850019202.shtml)
+- 2026-06-29 17:43 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/5152872148.shtml)
+- 2026-06-29 17:59 - [当我回母校教书](http://www.blog.minike.top/Article/details/9323264046.shtml)
+- 2026-06-29 17:44 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/00898554176.shtml)
+- 2026-06-29 17:46 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/632655374626.shtml)
+- 2026-06-29 17:56 - [一生一世](https://www.blog.minike.top/Article/details/038164715.shtml)
+- 2026-06-29 17:57 - [叠纸](http://www.blog.minike.top/Article/details/73404432767.shtml)
+- 2026-06-29 17:56 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/0401712.shtml)
+- 2026-06-29 17:30 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/69080.shtml)
+- 2026-06-29 17:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/30472631.shtml)
+- 2026-06-29 17:42 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/795182.shtml)
+- 2026-06-29 17:48 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/5571099554.shtml)
+- 2026-06-29 17:32 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/692650447540.shtml)
+- 2026-06-29 17:33 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/8289351671.shtml)
+- 2026-06-29 17:56 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.minike.top/Article/details/18171892.shtml)

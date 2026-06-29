@@ -1,56 +1,49 @@
-# 中东部大范围降雨波及十余省份 专家：华北等地降雨强度同期少见
+# 新疆：“犬”力以赴守护你 警营开放日活动亮点多
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-原标题：贯穿南北！中东部大范围降雨波及十余省份 哪里为强降雨中心？ 中国天气网讯 近期，我国总体呈现南方降雨频繁、北方晴热持续的天气格局。不过今起五天(5月15日至19日)，中东部将迎来一次大范围较强降雨过程，南北方降雨将会连接成片，波及湖北、河南、山东等十余省区市，部分地区雨量同期少见。哪些地方是降雨核心影响区域？常年5月雨带往往在南方，为何此次会贯穿南北？中国天气网一一为你
+发布时间：2026年05月12日 14:40 来源：中国新闻网 近日，新疆出入境边防检查总站昌吉边境管理支队警犬技术复训班邀请北塔山牧场小学60余名师生参加“‘犬’力以赴守护你”警营开放日。活动中，警犬展示了服从、搜毒、扑咬等实战科目，并在互动环节温顺亲近师生。期间，苏吉边境检查站民警开展法治宣讲，将毒品危害、自我防护等知识传递给孩子，播下法治种子。(作者：康恒毅 唐健博) 责
 
 ## 正文
 
-原标题：贯穿南北！
+发布时间：2026年05月12日 14:40 来源：中国新闻网 近日，新疆出入境边防检查总站昌吉边境管理支队警犬技术复训班邀请北塔山牧场小学60余名师生参加“‘犬’力以赴守护你”警营开放日。
 
-中东部大范围降雨波及十余省份 哪里为强降雨中心？
+活动中，警犬展示了服从、搜毒、扑咬等实战科目，并在互动环节温顺亲近师生。
 
-中国天气网讯 近期，我国总体呈现南方降雨频繁、北方晴热持续的天气格局。
+期间，苏吉边境检查站民警开展法治宣讲，将毒品危害、自我防护等知识传递给孩子，播下法治种子。
 
-不过今起五天(5月15日至19日)，中东部将迎来一次大范围较强降雨过程，南北方降雨将会连接成片，波及湖北、河南、山东等十余省区市，部分地区雨量同期少见。
-
-哪些地方是降雨核心影响区域？
-
-常年5月雨带往往在南方，为何此次会贯穿南北？
-
-中国天气网一一为你解答。
-
-中东部大范围雨水铺展 哪些地方是降雨核心影响区域？
+(作者：康恒毅 唐健博) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 17:31 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 17:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 17:46 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 17:29 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 17:38 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 17:40 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 17:25 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 17:48 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 17:41 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 17:57 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 17:30 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 17:58 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 17:40 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 17:59 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 17:47 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 17:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 17:36 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 17:50 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 17:48 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 17:44 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/4244751172.shtml)
-- 2026-06-29 17:45 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/82128612.shtml)
-- 2026-06-29 17:38 - [第一炉香](http://www.share.minike.top/Article/details/337120.shtml)
-- 2026-06-29 17:47 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/07353.shtml)
-- 2026-06-29 17:53 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/919797652614.shtml)
-- 2026-06-29 17:35 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/725146958896.shtml)
-- 2026-06-29 17:44 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/5387717.shtml)
-- 2026-06-29 17:53 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/05520.shtml)
-- 2026-06-29 17:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/174003021981.shtml)
-- 2026-06-29 17:51 - [5万块的威力](https://www.blog.minike.top/Article/details/297262766.shtml)
-- 2026-06-29 17:39 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/358957.shtml)
-- 2026-06-29 17:36 - [青春环游记第三季](https://www.blog.minike.top/Article/details/10273801.shtml)
-- 2026-06-29 17:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/16997695.shtml)
-- 2026-06-29 17:28 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/46222.shtml)
-- 2026-06-29 17:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/47505444386.shtml)
+- 2026-06-29 17:50 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/8173884.shtml)
+- 2026-06-29 17:56 - [周生如故](http://www.share.minike.top/Article/details/596384825432.shtml)
+- 2026-06-29 17:42 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/15278.shtml)
+- 2026-06-29 17:33 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/773997340309.shtml)
+- 2026-06-29 17:33 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/6043769402.shtml)
+- 2026-06-29 17:35 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.minike.top/Article/details/09017211807.shtml)
+- 2026-06-29 17:32 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/8449751612.shtml)
+- 2026-06-29 17:56 - [叠纸客服回应恋与深空新角色争议](https://www.share.minike.top/Article/details/9563709.shtml)
+- 2026-06-29 17:50 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/6399368.shtml)
+- 2026-06-29 17:40 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/93837.shtml)
+- 2026-06-29 17:43 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/409683.shtml)
+- 2026-06-29 17:30 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/35469962304.shtml)
+- 2026-06-29 17:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/05241321420.shtml)
+- 2026-06-29 17:44 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/731986950.shtml)
+- 2026-06-29 17:45 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/015914179382.shtml)

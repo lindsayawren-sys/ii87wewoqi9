@@ -1,56 +1,61 @@
-# 2026年全国帆板冠军赛（青年水翼帆板级）在上合示范区开赛
+# 两融余额突破2.8万亿元，增量资金买什么？
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网青岛5月16日电(王禹)2026年全国帆板冠军赛(青年水翼帆板级)暨2026年U系列全国帆船帆板体校联赛(青岛上合站)16日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)开赛。来自全国各体校、俱乐部的16支专业队伍，共128名参赛选手参与ILCA级、OP级、水翼帆板等多个比赛项目的角逐。 比赛现场，一道道白色身影如离弦之箭般掠过湖面，水翼激起的浪花在空中交织
+本报记者 任世碧 周二（5月12日）早盘，A股市场呈现震荡整理态势，截至上午收盘，上证指数跌幅为0.40%，报4208点，深证成指和创业板指跌幅分别为0.89%和0.37%；A股市场合计成交额21895亿元。总体来看，沪深京三市个股跌多涨少，有1163只个股实现上涨。涨停个股75只，跌停个股23只。 热点方面，从同花顺热门板块看，早盘收盘时，电力、电网设备、青海等板块涨幅居前。
 
 ## 正文
 
-中新网青岛5月16日电(王禹)2026年全国帆板冠军赛(青年水翼帆板级)暨2026年U系列全国帆船帆板体校联赛(青岛上合站)16日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)开赛。
+本报记者 任世碧 周二（5月12日）早盘，A股市场呈现震荡整理态势，截至上午收盘，上证指数跌幅为0.40%，报4208点，深证成指和创业板指跌幅分别为0.89%和0.37%；A股市场合计成交额21895亿元。
 
-来自全国各体校、俱乐部的16支专业队伍，共128名参赛选手参与ILCA级、OP级、水翼帆板等多个比赛项目的角逐。
+总体来看，沪深京三市个股跌多涨少，有1163只个股实现上涨。
 
-比赛现场，一道道白色身影如离弦之箭般掠过湖面，水翼激起的浪花在空中交织成网，青少年帆板选手们在浪尖之上展开一场速度与技巧的青春较量。
+涨停个股75只，跌停个股23只。
 
-“水翼帆板-iQFoil级自巴黎奥运会起成为奥运会正式比赛项目。
+热点方面，从同花顺热门板块看，早盘收盘时，电力、电网设备、青海等板块涨幅居前。
 
-此次比赛不仅将青少年帆板运动员们集聚在一起切磋技艺、展示风采，也有助于我们发现、选拔、培养优秀苗子，为国家队储备优质新生力量。
+另外，能源金属、猪肉概念等板块跌幅居前。
 
-”中国帆船帆板运动协会副主席苏科表示。
+具体来看，截至5月12日上午收盘，电力板块涨幅居首，达1.65%，主力资金净流入达到12.57亿元。
 
-“水翼帆板通过加装水翼装置，达到一定速度后，会脱离水面‘飞行’，对运动员的核心力量、平衡能力和战术意识要求极高。
+个股方面，华电辽能、桂冠电力等9只成份股涨幅均超5%，韶能股份、大连热电、大唐发电、太阳能、晋控电力涨停。
 
-”青岛天瀛体育发展有限公司总经理张正介绍说，上合示范区如意湖稳定的风况、优质的水域条件和完善的赛事设施，为选手们创造了绝佳的竞技环境。
+数据来源：同花顺 值得注意的是，除了早盘表现活跃的电力等周期板块，从更长的时间维度来看，增量资金究竟还买了什么？
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 17:28 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 17:53 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 17:27 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 17:47 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 17:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 17:34 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 17:27 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 17:25 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 17:47 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 17:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 17:31 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 17:52 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 17:40 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 17:51 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 17:35 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 17:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 17:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 17:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 17:45 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 17:43 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 17:30 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 17:46 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 17:57 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 17:53 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/4214130626.shtml)
-- 2026-06-29 17:37 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/356614825.shtml)
-- 2026-06-29 17:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/42461377.shtml)
-- 2026-06-29 17:30 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/86806953.shtml)
-- 2026-06-29 17:50 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/694212.shtml)
-- 2026-06-29 17:44 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/867385.shtml)
-- 2026-06-29 17:34 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/95337908656.shtml)
-- 2026-06-29 17:45 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/51243085.shtml)
-- 2026-06-29 17:43 - [博主：AI泡沫必须破灭](https://www.blog.minike.top/Article/details/63956.shtml)
-- 2026-06-29 17:53 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.minike.top/Article/details/2408313617.shtml)
-- 2026-06-29 17:50 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/02066711.shtml)
-- 2026-06-29 17:29 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/993285438.shtml)
-- 2026-06-29 17:53 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/73122804030.shtml)
-- 2026-06-29 17:46 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/615018.shtml)
-- 2026-06-29 17:24 - [朱必达辞去湖南人大常委会委员职务](http://www.share.kurohicncr.top/Article/details/1855899.shtml)
+- 2026-06-29 17:33 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/937291.shtml)
+- 2026-06-29 17:57 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/964529148330.shtml)
+- 2026-06-29 17:34 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/5716339.shtml)
+- 2026-06-29 17:52 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/474747.shtml)
+- 2026-06-29 17:55 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/26325623929.shtml)
+- 2026-06-29 17:35 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/03619271.shtml)
+- 2026-06-29 17:59 - [青春环游记第三季](https://www.share.minike.top/Article/details/311386065.shtml)
+- 2026-06-29 17:37 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/8564957278.shtml)
+- 2026-06-29 17:44 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/592832556.shtml)
+- 2026-06-29 17:56 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/97671446.shtml)
+- 2026-06-29 17:34 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/71275061849.shtml)
+- 2026-06-29 17:32 - [一生一世](https://www.share.kurohicncr.top/Article/details/1583540.shtml)
+- 2026-06-29 17:53 - [学者：建设性战略稳定重塑中美关系](http://www.share.kurohicncr.top/Article/details/147606169907.shtml)
+- 2026-06-29 17:49 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/0815191.shtml)
+- 2026-06-29 17:45 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/39321742.shtml)

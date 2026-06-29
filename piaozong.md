@@ -1,57 +1,61 @@
-# 多所高校撤销外语专业 外语类高校增加工科专业
+# 光大期货：5月12日矿钢煤焦日报
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-近年来不少高校外语学院、外语类高校都在打造融合式专业，积极打造“外语+” 培养模式。 随着人工智能的发展及多种因素，外语类专业面临着诸多挑战。近年来，多所高校撤销或停招部分外语专业。 此前不久，教育部公布2025年度普通高等学校本科专业备案和审批结果。一些省份也公布了去年新增和撤销专业的情况。在新增151个本科专业点的同时，江苏高校撤销了55个专业点，包括电子商务、旅游管理、动
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面继续上涨，截止日盘螺纹2610合约收盘价格为3286元/吨，较上一交易收盘价格上涨23元/吨，涨幅为0.7%，持仓增加2.66万手。现货价格上涨，成交回升，唐山地区迁安普方坯价格上涨20元/吨至3120元/吨，杭州市场中天螺纹价格上涨20元/吨至3310元/ 吨，全国建材成交量11
 
 ## 正文
 
-近年来不少高校外语学院、外语类高校都在打造融合式专业，积极打造“外语+” 培养模式。
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面继续上涨，截止日盘螺纹2610合约收盘价格为3286元/吨，较上一交易收盘价格上涨23元/吨，涨幅为0.7%，持仓增加2.66万手。
 
-随着人工智能的发展及多种因素，外语类专业面临着诸多挑战。
+现货价格上涨，成交回升，唐山地区迁安普方坯价格上涨20元/吨至3120元/吨，杭州市场中天螺纹价格上涨20元/吨至3310元/ 吨，全国建材成交量11.95万吨。
 
-近年来，多所高校撤销或停招部分外语专业。
+据钢银数据，本周全国建材库存下降2.56%至601.07万吨，热卷库存下降4.09%至275.32万吨，热卷库存下降幅度较大。
 
-此前不久，教育部公布2025年度普通高等学校本科专业备案和审批结果。
+近期钢厂钢坯出口接单情况较好，部分钢厂出口订单排产已到7月份，钢厂加大排产钢坯减少螺纹产量，在很大程度上缓解了市场供应压力，钢厂挺价意愿普遍较强。
 
-一些省份也公布了去年新增和撤销专业的情况。
+同时五一节后中下游用户采购和补库的积极性有所抬升，市场成交好转，对市场信心也形成较强提振。
 
-在新增151个本科专业点的同时，江苏高校撤销了55个专业点，包括电子商务、旅游管理、动画、美术学、市场营销、工商管理、劳动与社会保障、土地资源管理、公共事业管理、广播电视学、保险学、广告学、日语、朝鲜语等。
+预计短期螺纹盘面仍震荡偏强运行为主。
 
-麦可思研究根据高校信息公开网、最新的招生专业目录等，梳理统计了70所本科高校最新公布的停招专业名单，共涉及525个本科专业。
+铁矿石： （柳浠，从业资格号：F03087689；交易咨询资格号：Z0019538） 昨日铁矿石期货主力合约i2609价格有所上涨，收于822.5元/吨，较前一个交易日收盘价上涨8元/吨，涨幅为0.98%，成交26.12万手，增仓1.33万手。
 
-其中，语言类专业调整较为明显。
+港口现货主流品种市场价格，现青岛港PB粉60.8%797涨4，超特粉665涨3。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 17:39 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 17:45 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 17:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 17:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 17:25 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 17:50 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 17:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 17:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 17:49 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 17:52 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 17:49 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 17:35 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 17:43 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 17:36 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 17:57 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 17:31 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 17:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 17:39 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 17:40 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 17:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 17:52 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 17:56 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 17:45 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 17:32 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 17:55 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/207830819811.shtml)
-- 2026-06-29 17:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/2545326.shtml)
-- 2026-06-29 17:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/76613603143.shtml)
-- 2026-06-29 17:38 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/90670.shtml)
-- 2026-06-29 17:25 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/179375.shtml)
-- 2026-06-29 17:27 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/3996322.shtml)
-- 2026-06-29 17:52 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/6934855.shtml)
-- 2026-06-29 17:27 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/19714814872.shtml)
-- 2026-06-29 17:26 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/05854.shtml)
-- 2026-06-29 17:51 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/27020101.shtml)
-- 2026-06-29 17:40 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/26968.shtml)
-- 2026-06-29 17:28 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/52974.shtml)
-- 2026-06-29 17:30 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/157772.shtml)
-- 2026-06-29 17:44 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/732333.shtml)
-- 2026-06-29 17:45 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/1181187033.shtml)
+- 2026-06-29 17:54 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/86968028.shtml)
+- 2026-06-29 17:36 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/9085321.shtml)
+- 2026-06-29 17:55 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/525669390783.shtml)
+- 2026-06-29 17:46 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/48299.shtml)
+- 2026-06-29 17:52 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/686473.shtml)
+- 2026-06-29 17:31 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/30352.shtml)
+- 2026-06-29 17:48 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/452688205.shtml)
+- 2026-06-29 17:35 - [人形机器人](http://www.blog.kurohicncr.top/Article/details/73047124493.shtml)
+- 2026-06-29 17:42 - [逃狱兄弟](https://www.share.minike.top/Article/details/56077300.shtml)
+- 2026-06-29 17:39 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/98123679341.shtml)
+- 2026-06-29 17:36 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/08277749961.shtml)
+- 2026-06-29 17:50 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/51635.shtml)
+- 2026-06-29 17:46 - [美人鱼](https://www.share.minike.top/Article/details/94482.shtml)
+- 2026-06-29 17:49 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/45780263.shtml)
+- 2026-06-29 17:48 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/95027455324.shtml)

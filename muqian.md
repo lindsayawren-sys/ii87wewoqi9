@@ -1,61 +1,56 @@
-# 美债债券抛售风暴 或将终结AI股票狂欢
+# “入境游2.0时代”：外国游客有了新偏好与新需求
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-投资者正在狂热追逐美股科技股和AI股票的火热涨势，同时也普遍承认，不断上升的债券收益率可能会让股市偏离轨道。 有媒体采访了来自美国、亚洲和欧洲的32位投资经理，包括Wells Fargo Investment Institute、东方汇理以及BMO Global Asset Management等机构。受访者整体上明显偏向看多市场。其中，80%的投资者预计，未来三到六个月内，股
+5月10日，在一条关于中国旅行的短视频里，TikTok旅行博主Christian Grossi没有把镜头只对准传统景点，而是记录了自己在桂林一家乡村民宿的体验：山水之间，一杯出人意料的咖啡，成为他理解中国旅行的新入口。这条视频发布一天内就获得了接近2万次点赞。类似内容正在海外社交媒体上不断出现——越来越多外国游客镜头里的中国，不再只是长城、故宫、外滩等传统地标，而是高铁站里的跨
 
 ## 正文
 
-投资者正在狂热追逐美股科技股和AI股票的火热涨势，同时也普遍承认，不断上升的债券收益率可能会让股市偏离轨道。
+5月10日，在一条关于中国旅行的短视频里，TikTok旅行博主Christian Grossi没有把镜头只对准传统景点，而是记录了自己在桂林一家乡村民宿的体验：山水之间，一杯出人意料的咖啡，成为他理解中国旅行的新入口。
 
-有媒体采访了来自美国、亚洲和欧洲的32位投资经理，包括Wells Fargo Investment Institute、东方汇理以及BMO Global Asset Management等机构。
+这条视频发布一天内就获得了接近2万次点赞。
 
-受访者整体上明显偏向看多市场。
+类似内容正在海外社交媒体上不断出现——越来越多外国游客镜头里的中国，不再只是长城、故宫、外滩等传统地标，而是高铁站里的跨城出行、街边小店的扫码点餐、夜市里的烟火气、县城民宿里的生活感，甚至是一杯奶茶、一顿火锅、一次移动支付。
 
-其中，80%的投资者预计，未来三到六个月内，股票表现将优于大宗商品或债券等其他资产类别。
+这种变化折射出入境游的新趋势：外国游客来华的兴趣，正在从“我想看看中国是什么样”，转向“我想像当地人一样体验中国”。
 
-而在这些买方机构专业人士中，大约有一半人最看好的投资方向是大型科技股和人工智能概念股。
+刚刚过去的“五一”假期，则为这种趋势提供了一个观察窗口。
 
-这些股票正是标普500指数连续七周创纪录上涨行情的核心推动力。
+国家移民管理局、文化和旅游部5月6日发布的数据显示，假期5天内，外国人出入境人次达126万，同比增长12.5%，其中免签入境人数同比增长14.7%。
 
-“我们仍然认为，一些超大规模云计算公司存在投资机会。
+热度背后，更值得关注的是游客需求的升级。
 
-这些公司主导了AI基础设施建设，如今也开始从相关投资中产生实实在在的回报，”巴黎Tikehau资本市场策略主管Raphael Thuin表示。
+随着国际游客对中国旅行的关注持续升温，社交媒体不断放大真实体验，中国正从一个曾被认为距离遥远、理解门槛较高的目的地，转变为一个更便利、更具未来感，也更适合深度体验的旅行选择。
 
 ## 相关推荐
 
-- 2026-06-29 17:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 17:51 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 17:25 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 17:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 17:43 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 17:46 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 17:34 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 17:29 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 17:26 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 17:27 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 17:47 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 17:44 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 17:51 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 17:53 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 17:29 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 17:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 17:51 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 17:42 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 17:32 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 17:36 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 17:41 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 17:38 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 17:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 17:56 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 17:32 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/033232.shtml)
-- 2026-06-29 17:35 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/585535082359.shtml)
-- 2026-06-29 17:46 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/7046674.shtml)
-- 2026-06-29 17:25 - [明星大侦探第四季](https://www.share.minike.top/Article/details/728683441.shtml)
-- 2026-06-29 17:48 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/974430474.shtml)
-- 2026-06-29 17:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/450705231.shtml)
-- 2026-06-29 17:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/20121464.shtml)
-- 2026-06-29 17:49 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/286380141914.shtml)
-- 2026-06-29 17:52 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/59263471626.shtml)
-- 2026-06-29 17:50 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/69319582.shtml)
-- 2026-06-29 17:44 - [送你一朵小红花](https://www.share.minike.top/Article/details/450164.shtml)
-- 2026-06-29 17:41 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/19254063824.shtml)
-- 2026-06-29 17:31 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/222071818.shtml)
-- 2026-06-29 17:28 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/5157263.shtml)
-- 2026-06-29 17:28 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/52828331.shtml)
+- 2026-06-29 17:36 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/14181049.shtml)
+- 2026-06-29 17:30 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/022500097.shtml)
+- 2026-06-29 17:43 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/46903618.shtml)
+- 2026-06-29 17:31 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/37405213030.shtml)
+- 2026-06-29 17:48 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/85801612605.shtml)
+- 2026-06-29 17:58 - [T1 KC](http://www.share.kurohicncr.top/Article/details/6673793917.shtml)
+- 2026-06-29 17:46 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/1295492.shtml)
+- 2026-06-29 17:30 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.minike.top/Article/details/1675596731.shtml)
+- 2026-06-29 17:50 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/123357.shtml)
+- 2026-06-29 17:49 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/153424151519.shtml)
+- 2026-06-29 17:47 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/314081269416.shtml)
+- 2026-06-29 17:33 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/3126529.shtml)
+- 2026-06-29 17:34 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/7557020.shtml)
+- 2026-06-29 17:46 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/700925712657.shtml)
+- 2026-06-29 17:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/746859934.shtml)

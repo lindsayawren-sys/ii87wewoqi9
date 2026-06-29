@@ -1,58 +1,61 @@
-# 黎霍高速太岳山隧道贯通 全长11.1千米
+# 期权疯狂看涨+技术面破位！被AI行情遗忘的白银杀回来了？
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网长治5月16日电 (陆祁国 蒋勇)中铁三局5月16日发布消息，由该局参建的山西黎城至霍州高速公路(简称“黎霍高速”)控制性工程——太岳山隧道实现全隧贯通，向全线通车目标迈出了关键一步。 太岳山隧道是山西省目前在建最长的高速公路隧道，全长11.1千米，采用分离式双洞设计。由于隧道围岩以Ⅳ、Ⅴ级为主，需穿越29条断层破碎带及2处大型褶皱，围岩软弱破碎，突泥涌水、岩爆等地质风险
+文章来源：金十数据 今年以来，AI热潮催生出多类市场风口，从半导体板块飙升、ETF创下历史新高，到七大科技巨头股票再度突破，AI相关交易持续占据市场核心。 如今，交易员们将目光投向了此前缺席本轮反弹的AI主题“老标的”——白银，随着其价格大幅飙升、期权市场呈现极端看涨情绪，叠加技术面突破关键压力位，白银再度成为AI行情下的焦点，重新点燃市场做多热情。 周一，白银价格迎来爆发式上
 
 ## 正文
 
-中新网长治5月16日电 (陆祁国 蒋勇)中铁三局5月16日发布消息，由该局参建的山西黎城至霍州高速公路(简称“黎霍高速”)控制性工程——太岳山隧道实现全隧贯通，向全线通车目标迈出了关键一步。
+文章来源：金十数据 今年以来，AI热潮催生出多类市场风口，从半导体板块飙升、ETF创下历史新高，到七大科技巨头股票再度突破，AI相关交易持续占据市场核心。
 
-太岳山隧道是山西省目前在建最长的高速公路隧道，全长11.1千米，采用分离式双洞设计。
+如今，交易员们将目光投向了此前缺席本轮反弹的AI主题“老标的”——白银，随着其价格大幅飙升、期权市场呈现极端看涨情绪，叠加技术面突破关键压力位，白银再度成为AI行情下的焦点，重新点燃市场做多热情。
 
-由于隧道围岩以Ⅳ、Ⅴ级为主，需穿越29条断层破碎带及2处大型褶皱，围岩软弱破碎，突泥涌水、岩爆等地质风险突出。
+周一，白银价格迎来爆发式上涨，单日涨幅达7%，创下今年3月以来的最高水平；铜价也同步走强，上涨3.3%至每磅6.50美元，创下历史新高。
 
-受复杂地形及太岳山国家级自然保护区环保要求限制，项目需攻克单洞单向超长独头掘进难题，掘进距离达到5.32公里，在国内高速公路隧道施工中较为少见，对施工技术、安全管控及环保措施等提出了严苛要求。
+这两种金属之所以受到市场追捧，核心原因在于其独特的物理属性——具备优异的导热性和导电性，是数据中心不可或缺的关键材料，而数据中心正是支撑AI需求爆发的核心基础设施。
 
-面对多重施工挑战，项目部科学谋划，精心组织，多次邀请隧道专家现场勘察、集中“会诊”，对特长隧道通风、排水、物料运输制定专项施工方案。
+与铜相比，白银更受散户投资者青睐，市场参与度更高。
 
-其间，项目部创新应用“巷道式+射流风机多级接力”通风系统，显著改善洞内通风条件与空气质量，优化了超长隧道洞内施工作业环境。
+跟踪白银价格的安硕白银ETF（SLV）交易量同步激增，期权交易呈现一边倒的看涨态势：看涨期权交易量是看跌期权的两倍多，且买入的看涨期权数量远超卖出数量，其中买入看涨期权达9万份，而买入看跌期权仅3.1万份，市场做多情绪极为浓厚。
 
-“建设中，隧道富水断层破碎带突泥涌水风险极为突出，尤其是在穿越S4富水褶皱断层过程中，日均涌水量高达17000立方米，约等同于7个标准游泳池蓄水量，施工难度极大。
+期权市场的异动凸显出机构对白银的强烈看涨预期。
 
-”中铁三局项目部总工程师赵卿政介绍。
+至少有一名交易员采取“卖出看跌+买入看涨”的策略，累计敞口超100万美元，大举押注SLV短期上涨。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 17:33 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 17:52 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 17:49 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 17:40 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 17:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 17:35 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 17:47 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-29 17:36 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 17:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 17:27 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 17:31 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 17:47 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-29 17:39 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 17:30 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 17:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 17:54 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 17:42 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 17:45 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 17:50 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 17:36 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 17:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 17:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 17:45 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 17:48 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 17:43 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 17:39 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/29623058304.shtml)
-- 2026-06-29 17:48 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/5848630507.shtml)
-- 2026-06-29 17:24 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/924320550047.shtml)
-- 2026-06-29 17:50 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/704125.shtml)
-- 2026-06-29 17:30 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/98686331.shtml)
-- 2026-06-29 17:30 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.kurohicncr.top/Article/details/53721.shtml)
-- 2026-06-29 17:39 - [上海小区惊现鳄鱼](https://www.blog.kurohicncr.top/Article/details/22443396.shtml)
-- 2026-06-29 17:42 - [爱很美味](https://www.share.kurohicncr.top/Article/details/7830320767.shtml)
-- 2026-06-29 17:31 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/84309.shtml)
-- 2026-06-29 17:28 - [时光音乐会](https://www.blog.minike.top/Article/details/19811411586.shtml)
-- 2026-06-29 17:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/225737763327.shtml)
-- 2026-06-29 17:43 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/47324.shtml)
-- 2026-06-29 17:38 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/05248941.shtml)
-- 2026-06-29 17:27 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/8016416.shtml)
-- 2026-06-29 17:36 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/09515997509.shtml)
+- 2026-06-29 17:34 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/758378.shtml)
+- 2026-06-29 17:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/56035.shtml)
+- 2026-06-29 17:32 - [起风了](http://www.share.minike.top/Article/details/99700715561.shtml)
+- 2026-06-29 17:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/112777010126.shtml)
+- 2026-06-29 17:32 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/9557551.shtml)
+- 2026-06-29 17:32 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/356892937461.shtml)
+- 2026-06-29 17:55 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/1877505785.shtml)
+- 2026-06-29 17:48 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/80528146027.shtml)
+- 2026-06-29 17:37 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/6021596535.shtml)
+- 2026-06-29 17:58 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/0166354.shtml)
+- 2026-06-29 17:38 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/864782220.shtml)
+- 2026-06-29 17:51 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/472703.shtml)
+- 2026-06-29 17:58 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/895416168.shtml)
+- 2026-06-29 17:48 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/1439619.shtml)
+- 2026-06-29 17:53 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/3899502.shtml)

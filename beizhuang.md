@@ -1,56 +1,56 @@
-# 河南发布农田渍涝和小麦倒伏灾害风险预警
+# 一年少卖近1.68亿杯，国民奶茶老牌巨头净利下滑62%
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网郑州5月16日电 (记者 韩章云)5月16日，河南省农业农村厅、河南省气象局联合发布农田渍涝和小麦倒伏灾害风险预警，建议加强防范。 预计5月16日至19日，河南西部、北部、西南部和南部将先后出现暴雨及强对流天气，南阳、信阳部分地区灾害风险高，全省其他地区灾害风险较高。 河南是我国小麦生产大省。当前，河南全省8500多万亩小麦正处于灌浆中期，是决定千粒重、夯实夏粮产量的关键
+记者丨朱艺艺 编辑丨高梦阳 骆一帆 随着蜜雪冰城、霸王茶姬、古茗等现制茶饮品牌崛起，国内主要的冲泡奶茶经营企业香飘飘（603711.SH），业绩增长面临挑战。 据香飘飘近日披露的2025年年报，公司实现营收29.26亿元，同比下降11%，归母净利润9524.16万元，同比下降62.38%。 这是公司自2017年上市以来，首次出现营收和净利润两个指标双位数下滑的情形。 具体来看，
 
 ## 正文
 
-中新网郑州5月16日电 (记者 韩章云)5月16日，河南省农业农村厅、河南省气象局联合发布农田渍涝和小麦倒伏灾害风险预警，建议加强防范。
+记者丨朱艺艺 编辑丨高梦阳 骆一帆 随着蜜雪冰城、霸王茶姬、古茗等现制茶饮品牌崛起，国内主要的冲泡奶茶经营企业香飘飘（603711.SH），业绩增长面临挑战。
 
-预计5月16日至19日，河南西部、北部、西南部和南部将先后出现暴雨及强对流天气，南阳、信阳部分地区灾害风险高，全省其他地区灾害风险较高。
+据香飘飘近日披露的2025年年报，公司实现营收29.26亿元，同比下降11%，归母净利润9524.16万元，同比下降62.38%。
 
-河南是我国小麦生产大省。
+这是公司自2017年上市以来，首次出现营收和净利润两个指标双位数下滑的情形。
 
-当前，河南全省8500多万亩小麦正处于灌浆中期，是决定千粒重、夯实夏粮产量的关键窗口期。
+具体来看，作为基本盘的冲泡业务营收下降17.2%至18.81亿元，而“第二增长曲线”即饮业务营收增长3.27%至10.05亿元，但无法完全弥补冲泡业务的下滑缺口。
 
-针对此轮降水天气，农业部门建议，及时疏通田间沟渠，加快雨后沥水散墒，做到雨止田干无积水，减轻土壤渍涝危害。
+不过，进入2026年第一季度，香飘飘业绩强势复苏，实现营收8.78亿元，同比增长51.41%，归母净利润9338.93万元，同比由亏转盈。
 
-密切关注天气动态，抢抓晴好天气做好田间管护，根据小麦生育进程科学喷药，预防病害发生蔓延。
+冲泡业务下降17.2% 即饮业务增长3.27% 香飘飘旗下产品可分为冲泡与即饮两大类。
 
-同时，适量喷施叶面肥，延缓根系和叶片衰老，促进籽粒灌浆。
+冲泡业务板块，主要包含“香飘飘”经典系列、好料系列及其他系列等；即饮业务板块，主要包括“Meco”杯装果茶、“兰芳园”港式茶饮、“香飘飘”即饮牛乳茶等产品。
 
-一旦发生小麦倒伏，要以保根、保灌浆为主，避免盲目扶直造成二次损伤。
+其中，作为基本盘的冲泡业务2025年受旺季销售窗口期收窄等影响，营收18.81亿元，同比下降17.2%。
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 17:24 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 17:44 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 17:35 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 17:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 17:24 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 17:42 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-29 17:49 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 17:43 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 17:28 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 17:59 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 17:36 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 17:39 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 17:35 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 17:51 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 17:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 17:51 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 17:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 17:34 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 17:45 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:54 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/2520403.shtml)
-- 2026-06-29 17:51 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/337264.shtml)
-- 2026-06-29 17:35 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/6553406518.shtml)
-- 2026-06-29 17:43 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/61375951419.shtml)
-- 2026-06-29 17:34 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/566145.shtml)
-- 2026-06-29 17:38 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/5522833.shtml)
-- 2026-06-29 17:35 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/104227505.shtml)
-- 2026-06-29 17:39 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/5396757.shtml)
-- 2026-06-29 17:24 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/6475467742.shtml)
-- 2026-06-29 17:47 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/3695467240.shtml)
-- 2026-06-29 17:43 - [蔚来回应车漆洗车时被冲掉](https://www.share.kurohicncr.top/Article/details/922173903107.shtml)
-- 2026-06-29 17:50 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/1032638517.shtml)
-- 2026-06-29 17:50 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/55256037.shtml)
-- 2026-06-29 17:47 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/492434.shtml)
-- 2026-06-29 17:51 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/298278861110.shtml)
+- 2026-06-29 17:44 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/67904.shtml)
+- 2026-06-29 17:32 - [流金岁月](https://www.blog.minike.top/Article/details/11424.shtml)
+- 2026-06-29 17:40 - [起风了](https://www.share.minike.top/Article/details/311296.shtml)
+- 2026-06-29 17:38 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/677573.shtml)
+- 2026-06-29 17:30 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/36208412460.shtml)
+- 2026-06-29 17:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/2350227630.shtml)
+- 2026-06-29 17:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/41720.shtml)
+- 2026-06-29 17:38 - [这一刀 会很帅](http://www.share.minike.top/Article/details/98545922191.shtml)
+- 2026-06-29 17:33 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.minike.top/Article/details/86332050251.shtml)
+- 2026-06-29 17:31 - [机器人学校开学了](http://www.share.kurohicncr.top/Article/details/94543.shtml)
+- 2026-06-29 17:59 - [德国连续三天刷新本国最高气温纪录](http://www.share.minike.top/Article/details/8224831.shtml)
+- 2026-06-29 17:55 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/63709.shtml)
+- 2026-06-29 17:36 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/6711505.shtml)
+- 2026-06-29 17:36 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/92509355097.shtml)
+- 2026-06-29 17:30 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/150401169490.shtml)

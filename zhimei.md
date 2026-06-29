@@ -1,59 +1,50 @@
-# 2.5万名跑者共赴银川马拉松之约
+# 中国新闻社关于第36届中国新闻奖自荐作品的公示
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？台湾用30余年建成的淡江大桥通车即翻车？律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？“超级食物”真有那
+根据《关于开展第36届中国新闻奖评选工作的通知》的规定，我社拟通过自荐方式，分别向南开大学新闻与传播学院、中国新闻出版广电报各报送1件通讯作品，参评第36届中国新闻奖，现予以公示。公示期为2026年5月13日至5月19日，共5个工作日。如有异议，可通过书面、电话方式，于5月19日17时前反映。联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 1
 
 ## 正文
 
-“肯德基指数”回暖释放消费市场积极信号周末看摩托车赛成国人新爱好为一个馆赴一座城，河北小众博物馆频“出圈”美国记者，在北京看到了怎样的中国？
+根据《关于开展第36届中国新闻奖评选工作的通知》的规定，我社拟通过自荐方式，分别向南开大学新闻与传播学院、中国新闻出版广电报各报送1件通讯作品，参评第36届中国新闻奖，现予以公示。
 
-台湾用30余年建成的淡江大桥通车即翻车？
+公示期为2026年5月13日至5月19日，共5个工作日。
 
-律师：女孩盲道被撞摆拍者或构成寻衅滋事罪从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
+如有异议，可通过书面、电话方式，于5月19日17时前反映。
 
-对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
-
-“超级食物”真有那么神奇吗？
-
-专家揭秘真相桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！
-
-北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
-
-“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？
+联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 1.《走访关税战中的“美国粮仓”》 作者：王帆 编辑：集体(谭宏伟、尹宁、王婧、郭金超、苏碧滢、段世炜) 2.《杨振宁的三次告别》 作者：张曦、王昊、任思雨、郎朗、徐洋 编辑：王珊珊、马学玲
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 17:41 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 17:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 17:52 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 17:39 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 17:51 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 17:47 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 17:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 17:46 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 17:38 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 17:42 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 17:40 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 17:42 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 17:31 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 17:58 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 17:53 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 17:31 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 17:40 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 17:55 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 17:53 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 17:46 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 17:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 17:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 17:52 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 17:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/541552405368.shtml)
-- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/46158075190.shtml)
-- 2026-06-29 17:47 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/0250446.shtml)
-- 2026-06-29 17:53 - [请回答王牌2019](http://www.share.minike.top/Article/details/01796489.shtml)
-- 2026-06-29 17:26 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.minike.top/Article/details/21656172484.shtml)
-- 2026-06-29 17:47 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/037775030153.shtml)
-- 2026-06-29 17:41 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/779074312629.shtml)
-- 2026-06-29 17:28 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/284401799.shtml)
-- 2026-06-29 17:43 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/702496195832.shtml)
-- 2026-06-29 17:32 - [TTG KSG](http://www.share.minike.top/Article/details/278337.shtml)
-- 2026-06-29 17:40 - [人形机器人](https://www.blog.minike.top/Article/details/1745934899.shtml)
-- 2026-06-29 17:39 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/27929.shtml)
-- 2026-06-29 17:49 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/48075.shtml)
-- 2026-06-29 17:31 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/338297940837.shtml)
-- 2026-06-29 17:33 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/55066.shtml)
+- 2026-06-29 17:55 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/7743413078.shtml)
+- 2026-06-29 17:35 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/780028446845.shtml)
+- 2026-06-29 17:44 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/12899179238.shtml)
+- 2026-06-29 17:35 - [舒行钢任湖南省交通运输厅厅长](https://www.share.kurohicncr.top/Article/details/08932.shtml)
+- 2026-06-29 17:54 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/36547428148.shtml)
+- 2026-06-29 17:45 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/84653363.shtml)
+- 2026-06-29 17:41 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/28778468002.shtml)
+- 2026-06-29 17:33 - [恋与深空 731](http://www.share.minike.top/Article/details/87810.shtml)
+- 2026-06-29 17:33 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/5691646.shtml)
+- 2026-06-29 17:49 - [普京为何喊话俄乌都别打对方纵深](http://www.share.minike.top/Article/details/58530103.shtml)
+- 2026-06-29 17:40 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/937878.shtml)
+- 2026-06-29 17:45 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/6426050.shtml)
+- 2026-06-29 17:31 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/03577756110.shtml)
+- 2026-06-29 17:31 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/78434258.shtml)
+- 2026-06-29 17:47 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/19197.shtml)

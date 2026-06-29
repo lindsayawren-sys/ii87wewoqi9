@@ -1,57 +1,59 @@
-# 业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元
+# 珠江委西江局全力保障南宁江北中堤水毁段修复
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-四天前，本报刚报道，长鑫科技正在加速冲刺科创板IPO。今天，公司更新了招股书，披露了最新业绩，其业绩远超外界预期。 公司披露，2026年1-3月，受全球算力需求持续增长、主要厂商产能调配等因素影响，全球DRAM产品供不应求，价格自2025年下半年以来持续呈现大幅上涨趋势；叠加公司产销规模的持续增长、产品结构的持续优化，公司营业收入迅速增长，公司营业利润、利润总额、净利润、息税折
+中新网广州5月13日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)13日消息，南宁市江北中堤二坑口水毁段应急抢险工程12日实现堤防封顶，标志着该段水毁堤防基本恢复挡水防洪功能，邕江重点防洪屏障得到有效加固，为主汛期安全度汛筑牢坚实工程基础。 珠江委介绍，去年9月下旬至10月上旬，受台风“博罗依”“麦德姆”叠加影响，广西西部和南部、云南东南部等地遭遇极端强降雨过程，珠
 
 ## 正文
 
-四天前，本报刚报道，长鑫科技正在加速冲刺科创板IPO。
+中新网广州5月13日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)13日消息，南宁市江北中堤二坑口水毁段应急抢险工程12日实现堤防封顶，标志着该段水毁堤防基本恢复挡水防洪功能，邕江重点防洪屏障得到有效加固，为主汛期安全度汛筑牢坚实工程基础。
 
-今天，公司更新了招股书，披露了最新业绩，其业绩远超外界预期。
+珠江委介绍，去年9月下旬至10月上旬，受台风“博罗依”“麦德姆”叠加影响，广西西部和南部、云南东南部等地遭遇极端强降雨过程，珠江流域内44条河流发生超警洪水，在洪水持续多日的冲击和浸泡下，郁江南宁段(邕江)江北中堤北大桥右侧堤外二坑口防洪闸出现侧向渗漏、堤身破损等险情，严重威胁南宁市防洪安全。
 
-公司披露，2026年1-3月，受全球算力需求持续增长、主要厂商产能调配等因素影响，全球DRAM产品供不应求，价格自2025年下半年以来持续呈现大幅上涨趋势；叠加公司产销规模的持续增长、产品结构的持续优化，公司营业收入迅速增长，公司营业利润、利润总额、净利润、息税折旧摊销前利润、归属于母公司所有者的净利润及扣除非经常损益后归属于母公司所有者的净利润均同比大幅增长。
+险情发生后，当地政府高度重视，在水利部统一部署下，珠江委西江局第一时间派出防汛工作组赶赴现场，协助指导险情处置工作，并全程提供专业技术支撑，针对性制定抢险施工方案、攻克现场技术难点，保障抢险施工科学规范、高效有序推进。
 
-财务数据显示，长鑫科技一季度实现营业收入508亿元，同比增长719.13%；实现净利润330.12亿元，同比增长1268.45%；实现归属于母公司所有者的净利润247.62亿元，同比增长1688.30%。
+据介绍，本次水毁抢险工程主要对70米水毁堤段、二坑口防洪闸及箱涵等设施实施拆除重建，同步开展堤防基础防渗灌浆加固等配套工程。
 
-公司预计，2026年1-6月公司实现营业收入1100亿元至1200亿元，同比增长612.53%至677.31%；实现归母净利润500亿元至570亿元，同比增长2244.03%至2544.19%。
+施工期间，珠江委西江局与参建各方紧密配合、协同发力，克服工期紧张、施工条件复杂等诸多难题，如期完成堤防封顶关键节点任务。
 
-作者：李兴彩 责任编辑：宋雅芳
+珠江委表示，下一步，珠江委西江局将按照水利部统一部署，围绕主汛期防汛备汛工作职责，在全力保障水毁修复工程安全稳定投用的同时，全面开展风险隐患排查整治，以扎实有力的举措筑牢防汛安全防线，为地方经济社会高质量发展提供坚实的水安全保障。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 17:29 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 17:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 17:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 17:33 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 17:44 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 17:54 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 17:30 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 17:52 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 17:48 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 17:44 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 17:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 17:42 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 17:30 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 17:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 17:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 17:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 17:46 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 17:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 17:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 17:41 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 17:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 17:51 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 17:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 17:30 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 17:54 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 17:52 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 17:55 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 17:44 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 17:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/537558015853.shtml)
-- 2026-06-29 17:46 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/520304.shtml)
-- 2026-06-29 17:33 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/8454775.shtml)
-- 2026-06-29 17:39 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/09277699607.shtml)
-- 2026-06-29 17:40 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/21386168.shtml)
-- 2026-06-29 17:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/861901.shtml)
-- 2026-06-29 17:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/898836.shtml)
-- 2026-06-29 17:33 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/639967377346.shtml)
-- 2026-06-29 17:25 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/680916805321.shtml)
-- 2026-06-29 17:40 - [沙丘](https://www.share.minike.top/Article/details/3158250.shtml)
-- 2026-06-29 17:24 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/936942.shtml)
-- 2026-06-29 17:27 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/645053013419.shtml)
-- 2026-06-29 17:26 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/345593669.shtml)
-- 2026-06-29 17:29 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/39360.shtml)
-- 2026-06-29 17:33 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/40206394.shtml)
+- 2026-06-29 17:40 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/022901.shtml)
+- 2026-06-29 17:53 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/921149954.shtml)
+- 2026-06-29 17:33 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/96599828.shtml)
+- 2026-06-29 17:35 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/0201488.shtml)
+- 2026-06-29 17:33 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/971072.shtml)
+- 2026-06-29 17:37 - [明星大侦探第四季](http://www.share.minike.top/Article/details/01558633.shtml)
+- 2026-06-29 17:32 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/570329329316.shtml)
+- 2026-06-29 17:55 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/39124102.shtml)
+- 2026-06-29 17:36 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/31333912.shtml)
+- 2026-06-29 17:40 - [苹果ultra2阔折叠已开模测试](http://www.blog.minike.top/Article/details/0923934.shtml)
+- 2026-06-29 17:57 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/0386999611.shtml)
+- 2026-06-29 17:58 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/42980.shtml)
+- 2026-06-29 17:52 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/206889.shtml)
+- 2026-06-29 17:48 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/76747236.shtml)
+- 2026-06-29 17:51 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/174695099721.shtml)

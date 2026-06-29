@@ -1,57 +1,43 @@
-# 埃克森美孚昔日高额股息如今大幅缩水，改善方案来了
+# 中美经贸磋商在韩国开始举行
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-随着股价近期大涨，石油巨头埃克森美孚目前股息率仅为 2.7%，创下 2014 年以来新低，仅略高于婚恋平台 Match 集团向股东派发的股息水平。 一直以来，稳定丰厚的股息都是埃克森美孚吸引普通个人投资者的核心优势。 那么依靠持股赚取收益的投资者如今该如何应对？答案是运用期权策略。 当前埃克森美孚十分适合采用改良式备兑看涨期权策略，也被称作看涨期权价差组合。该策略既能帮助投资者
+当地时间5月13日中午，中美两国经贸团队在韩国首尔仁川国际机场开始举行中美经贸磋商。
 
 ## 正文
 
-随着股价近期大涨，石油巨头埃克森美孚目前股息率仅为 2.7%，创下 2014 年以来新低，仅略高于婚恋平台 Match 集团向股东派发的股息水平。
-
-一直以来，稳定丰厚的股息都是埃克森美孚吸引普通个人投资者的核心优势。
-
-那么依靠持股赚取收益的投资者如今该如何应对？
-
-答案是运用期权策略。
-
-当前埃克森美孚十分适合采用改良式备兑看涨期权策略，也被称作看涨期权价差组合。
-
-该策略既能帮助投资者赚取期权权利金收益，又保留了股价上涨带来资本增值的空间；而现阶段埃克森美孚无论基本面还是技术面走势都十分强劲，保留上涨收益空间尤为重要。
-
-宏观与基本面利好逻辑 埃克森美孚当前处于经营利好窗口期：资金管控稳健，市场环境向好。
-
-全球能源需求预计持续旺盛，公司聚焦高利润率油气产能布局，催生了充裕的自由现金流。
+当地时间5月13日中午，中美两国经贸团队在韩国首尔仁川国际机场开始举行中美经贸磋商。
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 17:29 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 17:53 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 17:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 17:28 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 17:53 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 17:34 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 17:35 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 17:40 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 17:53 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 17:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 17:31 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 17:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 17:33 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 17:46 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 17:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 17:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 17:49 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 17:48 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 17:54 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 17:40 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 17:50 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/95059.shtml)
-- 2026-06-29 17:38 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/7748849765.shtml)
-- 2026-06-29 17:39 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/372010539.shtml)
-- 2026-06-29 17:52 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/61101436.shtml)
-- 2026-06-29 17:43 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/8501799168.shtml)
-- 2026-06-29 17:25 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/08271.shtml)
-- 2026-06-29 17:25 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/004690216.shtml)
-- 2026-06-29 17:32 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/638225.shtml)
-- 2026-06-29 17:33 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/129150228.shtml)
-- 2026-06-29 17:36 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/193618.shtml)
-- 2026-06-29 17:35 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/750446601.shtml)
-- 2026-06-29 17:32 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/8074483880.shtml)
-- 2026-06-29 17:35 - [众星恭喜吴建豪](https://www.share.kurohicncr.top/Article/details/737421165689.shtml)
-- 2026-06-29 17:31 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/54392367959.shtml)
-- 2026-06-29 17:52 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/279058.shtml)
+- 2026-06-29 17:52 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/4056042279.shtml)
+- 2026-06-29 17:46 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/963364.shtml)
+- 2026-06-29 17:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/30809.shtml)
+- 2026-06-29 17:41 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/32752197.shtml)
+- 2026-06-29 17:43 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/435896.shtml)
+- 2026-06-29 17:55 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/287321659393.shtml)
+- 2026-06-29 17:53 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/743791.shtml)
+- 2026-06-29 17:30 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/9794138534.shtml)
+- 2026-06-29 17:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/43176240.shtml)
+- 2026-06-29 17:41 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/681794.shtml)
+- 2026-06-29 17:43 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/92691080.shtml)
+- 2026-06-29 17:39 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/6633692638.shtml)
+- 2026-06-29 17:45 - [叠纸](https://www.share.kurohicncr.top/Article/details/53971381200.shtml)
+- 2026-06-29 17:47 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/953046918.shtml)
+- 2026-06-29 17:56 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/45529392.shtml)

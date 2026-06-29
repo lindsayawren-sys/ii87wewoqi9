@@ -1,61 +1,57 @@
-# 星巴克在美国裁撤 300 名总部岗位员工，并关闭部分地区办事处
+# 外交部：世界上一切爱好和平的国家和日本人民都应共同遏制日本“新型军国主义”成势为患
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-星巴克于周五宣布，将在美国裁撤300名总部职员，力求重回其口中所说的稳健盈利增长轨道。这家咖啡连锁品牌还将关停多处地区办事处，涵盖亚特兰大、伯班克、芝加哥及达拉斯等地。 公司同时正在评估海外后勤团队架构，预计还将在海外市场进一步裁员。 这是星巴克新一轮裁员举措，去年该企业已削减1100个总部岗位。此番人事调整，是首席执行官布莱恩・尼科尔推行转型战略的一部分，其核心重心在于优化到
+5月13日，外交部发言人郭嘉昆主持例行记者会。有记者问：自从高市政府宣布推动修宪以来，日本各界出现大量反对声音，甚至出现几十年来规模最大的反战抗议活动。“恐惧”“担忧”“警惕”“愤怒”成为受访民众的高频词。媒体评论称，修改宪法第9条将撼动日本“和平国家”的自我认同，引发社会撕裂。发言人对此有何评论？郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众目睹自己的国家一步步走向军国
 
 ## 正文
 
-星巴克于周五宣布，将在美国裁撤300名总部职员，力求重回其口中所说的稳健盈利增长轨道。
+5月13日，外交部发言人郭嘉昆主持例行记者会。
 
-这家咖啡连锁品牌还将关停多处地区办事处，涵盖亚特兰大、伯班克、芝加哥及达拉斯等地。
+有记者问：自从高市政府宣布推动修宪以来，日本各界出现大量反对声音，甚至出现几十年来规模最大的反战抗议活动。
 
-公司同时正在评估海外后勤团队架构，预计还将在海外市场进一步裁员。
+“恐惧”“担忧”“警惕”“愤怒”成为受访民众的高频词。
 
-这是星巴克新一轮裁员举措，去年该企业已削减1100个总部岗位。
+媒体评论称，修改宪法第9条将撼动日本“和平国家”的自我认同，引发社会撕裂。
 
-此番人事调整，是首席执行官布莱恩・尼科尔推行转型战略的一部分，其核心重心在于优化到店消费体验。
+发言人对此有何评论？
 
-此次裁员不涉及线下门店，星巴克反而正大力增聘门店咖啡师。
+郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众目睹自己的国家一步步走向军国主义，沦为战争机器，饱尝战争恶果，最懂得日本政府承诺永不再战的意义。
 
-星巴克上月交出了两年多以来表现最佳的季度销售额增速，但自2024年末以来，公司利润率大幅下滑。
+如今高市政府却企图抛弃和平主义，背弃战后国际社会接纳日本的根本前提，撕毁日本民众世代珍视的“和平国家”共识。
 
-依据去年夏天获批的激励方案，若在2027年前顺利达成成本削减目标，星巴克高层管理人员每人最高可获600万美元奖励。
+日本右翼势力推动扩军备武，突破和平宪法和国际法、国内法规制是要打造所谓“战争国家”吗？
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 17:39 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 17:47 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 17:26 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 17:26 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 17:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 17:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-29 17:43 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 17:45 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 17:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-29 17:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 17:34 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 17:28 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 17:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 17:47 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 17:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 17:45 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 17:30 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 17:38 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 18:00 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 17:31 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 17:36 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 17:57 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 17:55 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 17:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 17:46 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/5632072909.shtml)
-- 2026-06-29 17:39 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/9992750.shtml)
-- 2026-06-29 17:49 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/05218576529.shtml)
-- 2026-06-29 17:30 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/674266315.shtml)
-- 2026-06-29 17:39 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/7436491.shtml)
-- 2026-06-29 17:38 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/014933353430.shtml)
-- 2026-06-29 17:33 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/757873580.shtml)
-- 2026-06-29 17:44 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/2418972805.shtml)
-- 2026-06-29 17:49 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/63255728.shtml)
-- 2026-06-29 17:39 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/01982.shtml)
-- 2026-06-29 17:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/89709053.shtml)
-- 2026-06-29 17:53 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/41256059.shtml)
-- 2026-06-29 17:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/5050517014.shtml)
-- 2026-06-29 17:49 - [谢依霖夸杨幂靠谱](https://www.blog.kurohicncr.top/Article/details/135242.shtml)
-- 2026-06-29 17:53 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/9554483.shtml)
+- 2026-06-29 17:58 - [起风了](https://www.share.kurohicncr.top/Article/details/9360269.shtml)
+- 2026-06-29 17:40 - [一见倾心](https://www.share.minike.top/Article/details/16522924.shtml)
+- 2026-06-29 17:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/237016.shtml)
+- 2026-06-29 17:44 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/26712201943.shtml)
+- 2026-06-29 17:52 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/2857856057.shtml)
+- 2026-06-29 17:45 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/161797072354.shtml)
+- 2026-06-29 17:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/67820388258.shtml)
+- 2026-06-29 17:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/803046.shtml)
+- 2026-06-29 17:49 - [绘画区你赢了](http://www.blog.minike.top/Article/details/81381.shtml)
+- 2026-06-29 17:56 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/050398.shtml)
+- 2026-06-29 17:59 - [金牌调解](https://www.share.minike.top/Article/details/711291862.shtml)
+- 2026-06-29 17:35 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/798880134.shtml)
+- 2026-06-29 17:42 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/82532582.shtml)
+- 2026-06-29 17:49 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/16332.shtml)
+- 2026-06-29 17:43 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/9565693729.shtml)

@@ -1,57 +1,60 @@
-# 机构投资者Q1纷纷建仓半导体公司股份
+# 酒价内参5月12日价格发布：洋河梦之蓝M6+上涨3元
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-对约6600家对冲基金、养老基金、大学基金及其他机构向美国证券交易委员会提交的文件进行梳理后发现，机构投资者在今年第一季度建仓了从英特尔到美光等半导体股，从而得以从延续至第二季度的火热行情中获利。 截至上周五下午，在所有已提交季度13-F报告的投资者中，近5000家报告称其买入了媒体追踪的17家半导体公司中的一家或多家。 美光科技是被最积极买入的芯片制造商之一，随着人工智能建设
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月12日整体平稳。如果主要单品各取一瓶整体打包售卖，今日总售价为9954元，较昨日微跌1元，连续两日站稳9950元上方。昨天总酒价创下12天来新高，今日市场在连续走强后进入横盘整理，终端交投情绪保持稳定。 今日白酒市场11大单品七涨四
 
 ## 正文
 
-对约6600家对冲基金、养老基金、大学基金及其他机构向美国证券交易委员会提交的文件进行梳理后发现，机构投资者在今年第一季度建仓了从英特尔到美光等半导体股，从而得以从延续至第二季度的火热行情中获利。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月12日整体平稳。
 
-截至上周五下午，在所有已提交季度13-F报告的投资者中，近5000家报告称其买入了媒体追踪的17家半导体公司中的一家或多家。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9954元，较昨日微跌1元，连续两日站稳9950元上方。
 
-美光科技是被最积极买入的芯片制造商之一，随着人工智能建设热潮推动内存芯片需求激增，该公司股价今年迄今已飙升154%。
+昨天总酒价创下12天来新高，今日市场在连续走强后进入横盘整理，终端交投情绪保持稳定。
 
-共有2，440家机构报告称建仓美光科技，其中包括洛克菲勒资本管理公司和施罗德投资管理公司。
+今日白酒市场11大单品七涨四跌，赢家占据优势。
 
-紧随美光之后的是英特尔，这家正处于转型期的公司今年以来股价已暴涨195%。
+上涨方面，飞天茅台与古井贡古20涨幅居前，均上涨5元/瓶，后者收获三连阳，价格快速上升重回550元月内最高位；国窖1573与洋河梦之蓝M6+均上涨3元/瓶；五粮液普五八代、五粮液1618及水晶剑南春均上涨1元/瓶。
 
-老虎环球管理公司披露， 其 于第一季度建仓英特尔，纽伯格伯曼和美国人寿资产管理公司也同步建仓。
+下跌方面，习酒君品与青花汾20跌幅居前，均下跌6元/瓶，前者失守640元，后者创下近一月最大跌幅，平五月以来最低价位纪录；青花郎下跌5元/瓶；精品茅台下跌3元/瓶。
 
-这些向美国证券交易委员会（SEC）提交的文件，让我们得以一窥从对冲基金到养老基金及捐赠基金等大型机构投资者的投资组合。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-主要机构投资者必须在每个日历季度结束后的45天内，向美国证券交易委员会报告其投资组合及其构成所做的任何变更。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 17:45 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 17:49 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 17:50 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 17:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 17:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 17:36 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 17:32 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 17:28 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 17:28 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 17:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 17:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 17:57 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 17:50 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 17:48 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 17:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 17:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 17:32 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 17:48 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 17:33 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 17:58 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 17:45 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-29 17:33 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 17:53 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 17:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 17:56 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/4329540811.shtml)
-- 2026-06-29 17:50 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/76740898646.shtml)
-- 2026-06-29 17:31 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/156861746687.shtml)
-- 2026-06-29 17:26 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/57226795.shtml)
-- 2026-06-29 17:25 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/0877198716.shtml)
-- 2026-06-29 17:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/009476.shtml)
-- 2026-06-29 17:32 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/516812.shtml)
-- 2026-06-29 17:41 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/23338426.shtml)
-- 2026-06-29 17:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/17909659.shtml)
-- 2026-06-29 17:30 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/96552.shtml)
-- 2026-06-29 17:24 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/8188640.shtml)
-- 2026-06-29 17:49 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/6624199234.shtml)
-- 2026-06-29 17:51 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/722019217647.shtml)
-- 2026-06-29 17:35 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/3337452034.shtml)
-- 2026-06-29 17:42 - [时光音乐会](https://www.share.minike.top/Article/details/421569365733.shtml)
+- 2026-06-29 17:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/57734.shtml)
+- 2026-06-29 17:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/405211.shtml)
+- 2026-06-29 17:39 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/9520766549.shtml)
+- 2026-06-29 17:32 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/709086656.shtml)
+- 2026-06-29 17:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/367115.shtml)
+- 2026-06-29 17:32 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/434972.shtml)
+- 2026-06-29 17:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/69461.shtml)
+- 2026-06-29 17:42 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/85014104.shtml)
+- 2026-06-29 17:43 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/262488.shtml)
+- 2026-06-29 17:55 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/52639923803.shtml)
+- 2026-06-29 17:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/96729698086.shtml)
+- 2026-06-29 17:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/739918571464.shtml)
+- 2026-06-29 17:49 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/26876315.shtml)
+- 2026-06-29 17:58 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/422595.shtml)
+- 2026-06-29 17:52 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/0085979330.shtml)

@@ -1,59 +1,59 @@
-# 广州南沙湾三大泵站项目开工建设
+# 大幅下挫！工业硅会重回跌势吗？
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月15日电 (记者 王坚)广州南沙湾先行启动区国际科创融合发展综合开发项目(首期)——牛孖涌泵站、工业区涌泵站、水牛头涌泵站建设项目开工仪式15日举行。 据介绍，南沙湾先行启动区国际科创融合发展综合开发项目(首期)三个泵站建设项目紧扣《广州南沙深化面向世界的粤港澳全面合作总体方案》战略使命，锚定“全球海洋科创枢纽、国际文旅交往门户、粤港澳未来产业策源地”核心定位，聚
+作者：曾翔/F0307622、Z0003110/ 一德期货分析师 要点速览版 基本面 需求端：多晶硅产量仍处相对低位，仅有机硅开工提升至偏高水平； 库存端：虽持续去化且近期加快，但整体库存仍处于高位； 核心压力：丰水季前夕西南产区复产预期明确，后续供应压力巨大。 关注点 丰水季西南产区提产情况，下游多晶硅大厂6月复产情况。 工业硅五一假期前后放量上行后，一举突破原震荡区间（80
 
 ## 正文
 
-中新网广州5月15日电 (记者 王坚)广州南沙湾先行启动区国际科创融合发展综合开发项目(首期)——牛孖涌泵站、工业区涌泵站、水牛头涌泵站建设项目开工仪式15日举行。
+作者：曾翔/F0307622、Z0003110/ 一德期货分析师 要点速览版 基本面 需求端：多晶硅产量仍处相对低位，仅有机硅开工提升至偏高水平； 库存端：虽持续去化且近期加快，但整体库存仍处于高位； 核心压力：丰水季前夕西南产区复产预期明确，后续供应压力巨大。
 
-据介绍，南沙湾先行启动区国际科创融合发展综合开发项目(首期)三个泵站建设项目紧扣《广州南沙深化面向世界的粤港澳全面合作总体方案》战略使命，锚定“全球海洋科创枢纽、国际文旅交往门户、粤港澳未来产业策源地”核心定位，聚力补齐基础设施补短板、提档升级公共服务能级，打造粤港澳大湾区高水平对外开放门户标杆。
+关注点 丰水季西南产区提产情况，下游多晶硅大厂6月复产情况。
 
-作为片区公共基础设施建设的关键性水务保障工程，牛孖涌泵站、工业区涌泵站、水牛头涌泵站项目总投资约1.5亿元，主要规划新建三座强排泵站，同步配套建设进出水池、内外河海漫、翼墙、设备房等附属设施。
+工业硅五一假期前后放量上行后，一举突破原震荡区间（8000-9000元/吨），最高逼近9300元/吨。
 
-南沙区政府表示，项目建成后，将与片区现有水利工程构建高效联动体系，形成全域防洪排涝水利格局，系统提升区域防洪排涝标准与应急防灾能力。
+资金增仓较多拉动行情，然而基本面并无明显变化。
 
-同时，该项目既是筑牢城市安全屏障、完善水务基础设施的关键民生工程，也将有力守护群众生命财产安全、保障辖区企业平稳生产，为南沙湾片区科创赋能、产城融合、高质量发展筑牢坚实的水务安全根基。
+主要是大厂生产变化带来的供应担忧，其中一厂家节前出现安全事故（但目前了解暂未对生产造成实质影响）；以及大厂东部由于自备电厂检修而导致停炉，但持续时间不长，预计13台停产10天左右，产量减少8500吨左右。
 
-据悉，此次开工标志着南沙湾先行启动区三座泵站建设项目进入全面建设阶段。
+基本面分析 供应变化不大，下游需求有边际改善，其中多晶硅产量有所增加，但仍处在相对偏低水平。
 
-下一步，各参建单位将协同发力、加快推进，推动项目早日建成，为南沙湾先行启动区高质量发展筑牢坚实水安全屏障，为南沙建设立足湾区、协同港澳、面向世界的重大战略性平台提供有力支撑。
+有机硅开工已提升至相对偏高水平。
 
-(完)
+铝合金变化不大。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 17:40 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 17:42 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 17:49 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 17:38 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:29 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 17:44 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 17:37 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 17:25 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 17:53 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 17:49 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 17:43 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 17:49 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 17:58 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 17:52 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 17:43 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 17:33 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 17:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 17:47 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 17:51 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 17:55 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 17:39 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 17:34 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 17:55 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 17:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 17:32 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/25380138.shtml)
-- 2026-06-29 17:46 - [存储三巨头被告了](https://www.share.minike.top/Article/details/9701007388.shtml)
-- 2026-06-29 17:47 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/182101804359.shtml)
-- 2026-06-29 17:36 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/3451566.shtml)
-- 2026-06-29 17:51 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/2309603804.shtml)
-- 2026-06-29 17:40 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/6578802.shtml)
-- 2026-06-29 17:46 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/702588803298.shtml)
-- 2026-06-29 17:37 - [急先锋](https://www.blog.kurohicncr.top/Article/details/52515537.shtml)
-- 2026-06-29 17:42 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/900632500636.shtml)
-- 2026-06-29 17:49 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/381584600.shtml)
-- 2026-06-29 17:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/681787606.shtml)
-- 2026-06-29 17:43 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/4273647.shtml)
-- 2026-06-29 17:43 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/25964412.shtml)
-- 2026-06-29 17:27 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/777044.shtml)
-- 2026-06-29 17:27 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/9182363.shtml)
+- 2026-06-29 17:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/1038381.shtml)
+- 2026-06-29 17:34 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/690618240209.shtml)
+- 2026-06-29 17:48 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/2650376544.shtml)
+- 2026-06-29 17:36 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/4301814596.shtml)
+- 2026-06-29 17:51 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/11547079.shtml)
+- 2026-06-29 17:58 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/38478.shtml)
+- 2026-06-29 17:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/47537742499.shtml)
+- 2026-06-29 17:32 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/6272505867.shtml)
+- 2026-06-29 17:36 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/33510.shtml)
+- 2026-06-29 17:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/0700652095.shtml)
+- 2026-06-29 17:37 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/1802060.shtml)
+- 2026-06-29 17:44 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/839202289.shtml)
+- 2026-06-29 17:46 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/0458478187.shtml)
+- 2026-06-29 17:39 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/859979776.shtml)
+- 2026-06-29 17:40 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/8399742442.shtml)

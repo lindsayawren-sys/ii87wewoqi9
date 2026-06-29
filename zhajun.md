@@ -1,60 +1,59 @@
-# 习言道｜三个维度观察中美元首北京会晤
+# Plug Power第一季度营收超预期，毛利率大幅改善，股价触及年内新高
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网5月17日电 题：三个维度观察中美元首北京会晤 应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。 变乱交织的国际形势下，此次中美元首北京会晤的深远意义，三个维度可以观察。 从釜山到北京 “中美两国能不能跨越‘修昔底德陷阱’，开创大国关系新范式？能不能携手应对全球性挑战，为世界注入更多稳定性？能不能着眼两国人民福祉和人类前途命运，共同开创两国
+Plug Power周一盘后公布2026年第一季度财报，营收同比增长22%至1.635亿美元，远超市场预期，推动股价在周二盘前交易中一度涨逾10%，触及年内新高。 第一季度业绩：营收超预期，毛利率大幅改善 财报显示，公司一季度营收达1.635亿美元，较去年同期的1.337亿美元增长22%，高于市场普遍预期的约1.42亿美元。电解槽业务成为主要增长引擎，收入从去年同期的920万美
 
 ## 正文
 
-中新网5月17日电 题：三个维度观察中美元首北京会晤 应中国国家主席习近平邀请，美国总统特朗普于5月13日至15日对中国进行国事访问。
+Plug Power周一盘后公布2026年第一季度财报，营收同比增长22%至1.635亿美元，远超市场预期，推动股价在周二盘前交易中一度涨逾10%，触及年内新高。
 
-变乱交织的国际形势下，此次中美元首北京会晤的深远意义，三个维度可以观察。
+第一季度业绩：营收超预期，毛利率大幅改善 财报显示，公司一季度营收达1.635亿美元，较去年同期的1.337亿美元增长22%，高于市场普遍预期的约1.42亿美元。
 
-从釜山到北京 “中美两国能不能跨越‘修昔底德陷阱’，开创大国关系新范式？
+电解槽业务成为主要增长引擎，收入从去年同期的920万美元跃升至4080万美元，主要得益于欧洲多个大型项目的里程碑完成。
 
-能不能携手应对全球性挑战，为世界注入更多稳定性？
+物料搬运业务同比增长15%，亚马逊和沃尔玛等主要客户计划从2026年底开始新一轮部署和车队更新。
 
-能不能着眼两国人民福祉和人类前途命运，共同开创两国关系美好未来？
+毛利率方面，GAAP毛利率从去年同期的-55%大幅改善至-13%，提升了42个百分点。
 
-” 5月14日，同特朗普会谈伊始，习近平主席就中美关系提出“三问”。
+公司将此归因于“量子跃迁项目”成本削减措施的逐步见效、氢气燃料采购效率提升以及服务执行的优化。
 
-中美两国如何作答，牵动着世界目光。
+按Non-GAAP计算，每股亏损为0.08美元，优于市场预期的0.10美元亏损。
 
-去年10月的中美元首釜山会晤，在关键时刻为中美关系校准了航向。
+管理层展望：重申第四季度实现EBITDAS转正目标 首席执行官Jose Luis Crespo在财报电话会上表示：“一季度业绩反映了强劲的商业执行力，以及在改善业务基础经济效益方面取得的持续进展，这使我们有望在2026年第四季度实现EBITDAS转正的目标。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 17:27 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 17:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 17:43 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:38 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 17:37 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 17:45 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 17:28 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 17:48 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 17:51 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 17:39 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 17:44 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 17:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 17:32 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 17:51 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 17:38 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 17:38 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 17:52 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 17:54 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 17:43 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 17:52 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 17:38 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 17:41 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 17:35 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 17:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 17:55 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 17:47 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/81568995761.shtml)
-- 2026-06-29 17:28 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/463686.shtml)
-- 2026-06-29 17:28 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/6353792.shtml)
-- 2026-06-29 17:25 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/035877.shtml)
-- 2026-06-29 17:25 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/753486.shtml)
-- 2026-06-29 17:33 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/90918194.shtml)
-- 2026-06-29 17:32 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/07705757.shtml)
-- 2026-06-29 17:51 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/434304.shtml)
-- 2026-06-29 17:40 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/0075066.shtml)
-- 2026-06-29 17:35 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/8253351.shtml)
-- 2026-06-29 17:30 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/21069644.shtml)
-- 2026-06-29 17:26 - [TFING全员黑西装](https://www.share.minike.top/Article/details/710906075.shtml)
-- 2026-06-29 17:46 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/3475038146.shtml)
-- 2026-06-29 17:42 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/69585436.shtml)
-- 2026-06-29 17:51 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/2505860.shtml)
+- 2026-06-29 17:33 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/5770002.shtml)
+- 2026-06-29 17:54 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/399263521.shtml)
+- 2026-06-29 17:55 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/4952398.shtml)
+- 2026-06-29 17:39 - [一见倾心](https://www.share.kurohicncr.top/Article/details/48820.shtml)
+- 2026-06-29 17:44 - [SK集团将投资400万亿韩元建芯片集群](http://www.share.minike.top/Article/details/00115.shtml)
+- 2026-06-29 17:33 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/02955111038.shtml)
+- 2026-06-29 17:36 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/4064265338.shtml)
+- 2026-06-29 17:45 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/781022.shtml)
+- 2026-06-29 17:43 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/84826.shtml)
+- 2026-06-29 17:34 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/1069117145.shtml)
+- 2026-06-29 17:47 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/96854.shtml)
+- 2026-06-29 17:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/135477.shtml)
+- 2026-06-29 17:57 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/8545197693.shtml)
+- 2026-06-29 17:48 - [沙丘](https://www.blog.kurohicncr.top/Article/details/60859222811.shtml)
+- 2026-06-29 17:55 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/5339849.shtml)

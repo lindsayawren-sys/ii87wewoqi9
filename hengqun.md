@@ -1,52 +1,59 @@
-# 金饰价格上涨 金价却跌了
+# 前4个月粤港澳大湾区内地9市外贸连续保持两位数增长
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电(记者 左雨晴)5月15日，国际黄金、白银价格大幅下跌。其中，国际黄金价格跌破4600美元，至逾一周低点，COMEX黄金收跌3.02%，报4543.6美元/盎司；伦敦现货黄金收跌2.37%，报4539.39美元/盎司。国际白银价格跌破77美元，COMEX白银收跌10.59%，报76.295美元/盎司；伦敦现货白银收跌9.03%，报75.894美元/盎司。
+据海关统计，今年前4个月，粤港澳大湾区内地9市进出口3.37万亿元，同比增长18.4%，占全国进出口总值的比重较去年同期提升0.6个百分点至20.7%，对全国增长的贡献度达24.9%。其中，出口2万亿元，增长11.4%；进口1.37亿元，增长30.4%。主要有以下5方面的特点：一是连续4个月保持两位数增长。单4月，大湾区内地9市进出口9118.6亿元，增长15.3%，今年以来保
 
 ## 正文
 
-中新网北京5月16日电(记者 左雨晴)5月15日，国际黄金、白银价格大幅下跌。
+据海关统计，今年前4个月，粤港澳大湾区内地9市进出口3.37万亿元，同比增长18.4%，占全国进出口总值的比重较去年同期提升0.6个百分点至20.7%，对全国增长的贡献度达24.9%。
 
-其中，国际黄金价格跌破4600美元，至逾一周低点，COMEX黄金收跌3.02%，报4543.6美元/盎司；伦敦现货黄金收跌2.37%，报4539.39美元/盎司。
+其中，出口2万亿元，增长11.4%；进口1.37亿元，增长30.4%。
 
-国际白银价格跌破77美元，COMEX白银收跌10.59%，报76.295美元/盎司；伦敦现货白银收跌9.03%，报75.894美元/盎司。
+主要有以下5方面的特点：一是连续4个月保持两位数增长。
 
-就在同日，部分国内金店上调一口价金饰价格。
+单4月，大湾区内地9市进出口9118.6亿元，增长15.3%，今年以来保持连续4个月两位数增长。
 
-5月15日，周大福一口价金饰正式执行新一轮调价，部分款涨幅在10%—15%。
+二是民营企业是增长“主引擎”。
 
-(完)
+前4个月，大湾区内地9市民营企业进出口2.26万亿元，增长24.2%，占67.1%，对同期大湾区内地9市整体进出口增长的贡献度达84%。
+
+外商投资企业延续增长趋势，进出口1万亿元，增长12.4%，占29.8%。
+
+三是多元化市场拓展成效显著。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 17:30 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 17:51 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 17:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 17:39 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:50 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 17:47 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 17:36 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 17:29 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 17:25 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 17:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 17:53 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 17:40 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 17:57 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 17:52 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 17:57 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 17:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 17:46 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 17:55 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 17:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 17:43 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 17:48 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 17:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:41 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/02474576652.shtml)
-- 2026-06-29 17:41 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/3589079786.shtml)
-- 2026-06-29 17:41 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/703217624012.shtml)
-- 2026-06-29 17:33 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/77557742051.shtml)
-- 2026-06-29 17:50 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/5211418.shtml)
-- 2026-06-29 17:35 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/24203.shtml)
-- 2026-06-29 17:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/242105902.shtml)
-- 2026-06-29 17:24 - [一生一世](https://www.blog.kurohicncr.top/Article/details/41535464.shtml)
-- 2026-06-29 17:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/242026772.shtml)
-- 2026-06-29 17:44 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/1759758.shtml)
-- 2026-06-29 17:42 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/3393198.shtml)
-- 2026-06-29 17:31 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/846232.shtml)
-- 2026-06-29 17:51 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/7620863556.shtml)
-- 2026-06-29 17:24 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/10322.shtml)
-- 2026-06-29 17:42 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/12755654925.shtml)
+- 2026-06-29 17:40 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/48413232552.shtml)
+- 2026-06-29 17:46 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/8579178.shtml)
+- 2026-06-29 17:53 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.minike.top/Article/details/267612665995.shtml)
+- 2026-06-29 17:47 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/87799817958.shtml)
+- 2026-06-29 17:46 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/9281560.shtml)
+- 2026-06-29 17:46 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.kurohicncr.top/Article/details/70015528.shtml)
+- 2026-06-29 17:32 - [李连杰否认不管前妻两女儿](https://www.share.minike.top/Article/details/21279712.shtml)
+- 2026-06-29 17:39 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.kurohicncr.top/Article/details/3285228170.shtml)
+- 2026-06-29 17:38 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/231959520.shtml)
+- 2026-06-29 17:56 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/443629090997.shtml)
+- 2026-06-29 17:51 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/534688.shtml)
+- 2026-06-29 17:39 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/76281906.shtml)
+- 2026-06-29 17:35 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/92604206.shtml)
+- 2026-06-29 17:37 - [T1 KC](https://www.blog.minike.top/Article/details/703901.shtml)
+- 2026-06-29 17:57 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/03112085132.shtml)

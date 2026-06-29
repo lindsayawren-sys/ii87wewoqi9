@@ -1,59 +1,51 @@
-# 荀玉根：4万亿成交额会突破吗？
+# 日元兑美元大幅走强 一度升至156.78
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：首席经济学家论坛 荀玉根系国信证券首席经济学家、经济研究所所长，中国首席经济学家论坛理事 3/23以来A股市场逐渐转暖，各大指数纷纷创新高，不过成交额未能突破今年1月3.99万亿的高点，5/11成交额一度超过3.5万亿，近两日又有所缩量。量价往往相关，牛市运行过程中成交能放量是投资者关注的焦点之一。本
+周二日元兑美元汇率一度升至156.78。 当前，美国财政部长贝森特正在访问日本。责任编辑：江学思
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+周二日元兑美元汇率一度升至156.78。
 
-来源：首席经济学家论坛 荀玉根系国信证券首席经济学家、经济研究所所长，中国首席经济学家论坛理事 3/23以来A股市场逐渐转暖，各大指数纷纷创新高，不过成交额未能突破今年1月3.99万亿的高点，5/11成交额一度超过3.5万亿，近两日又有所缩量。
+当前，美国财政部长贝森特正在访问日本。
 
-量价往往相关，牛市运行过程中成交能放量是投资者关注的焦点之一。
-
-本文借鉴过去牛市规律，运用牛市三段论，分析推演本轮牛市的成交趋势。
-
-历史数据显示，牛市三个阶段成交额逐级放大。
-
-《荀玉根讲策略：少即是多》第5章通过对A股历史分析，提出牛市三段论概念：第一阶段孕育期，对应波浪理论中的1浪上涨和2浪回调，政策宽松驱动估值修复；第二阶段爆发期，即3浪上涨和4浪回调，盈利改善带来戴维斯双击；第三阶段泡沫期，即5浪冲顶，资金入场推高市场情绪。
-
-回顾05/6-07/10、12/12-15/6、19/1-21/12三轮A股牛市历史，牛市三阶段市场日均成交额逐级放大。
-
-牛市第二阶段日均成交额是第一阶段的1.4-3.3倍，第三阶段是第二阶段的1.2-4.9倍。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 17:43 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-29 17:50 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 17:47 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 17:52 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 17:42 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 17:29 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 17:27 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 17:32 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 17:41 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-29 17:33 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 17:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 17:51 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 17:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 17:39 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 17:55 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 17:35 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 17:55 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 17:41 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 17:58 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 17:55 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 17:43 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 17:38 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 17:46 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 17:32 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 17:50 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 17:36 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 17:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 17:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/9126856.shtml)
-- 2026-06-29 17:53 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/679994.shtml)
-- 2026-06-29 17:53 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/579700151504.shtml)
-- 2026-06-29 17:48 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/995353.shtml)
-- 2026-06-29 17:32 - [东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/40477555451.shtml)
-- 2026-06-29 17:49 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/05335569.shtml)
-- 2026-06-29 17:35 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/1884627686.shtml)
-- 2026-06-29 17:47 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/144069022.shtml)
-- 2026-06-29 17:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/21625480.shtml)
-- 2026-06-29 17:53 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/44278412.shtml)
-- 2026-06-29 17:27 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/605299.shtml)
-- 2026-06-29 17:38 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/51245192529.shtml)
-- 2026-06-29 17:38 - [美人鱼](http://www.share.minike.top/Article/details/69275.shtml)
-- 2026-06-29 17:33 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/05479411651.shtml)
-- 2026-06-29 17:53 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/5536320.shtml)
+- 2026-06-29 17:41 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/16163.shtml)
+- 2026-06-29 17:42 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/3559907750.shtml)
+- 2026-06-29 17:33 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/72805117415.shtml)
+- 2026-06-29 17:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/110197.shtml)
+- 2026-06-29 17:59 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/43608.shtml)
+- 2026-06-29 17:39 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/74911.shtml)
+- 2026-06-29 17:32 - [韩国小学生都来吐槽了](http://www.share.minike.top/Article/details/3452942.shtml)
+- 2026-06-29 17:44 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/7478648.shtml)
+- 2026-06-29 17:30 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/421058.shtml)
+- 2026-06-29 17:36 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/939277322096.shtml)
+- 2026-06-29 17:34 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/76332.shtml)
+- 2026-06-29 17:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/8374412546.shtml)
+- 2026-06-29 17:36 - [《贺子珍》](http://www.blog.minike.top/Article/details/110868886139.shtml)
+- 2026-06-29 17:40 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/2109085.shtml)
+- 2026-06-29 17:58 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/497724429144.shtml)

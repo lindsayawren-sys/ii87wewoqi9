@@ -1,56 +1,60 @@
-# 四川991支中小学队伍齐聚成都 科创实践点亮青春梦想
+# 一季度私人银行成绩单出炉，招行新晋“20万户俱乐部”
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 19:21 来源：中国新闻网 5月16日，2026年四川省学生数字素养提升实践现场交流展示活动在成都锦城学院启幕。来自全省21个市(州)的991支队伍、近2000名优秀中小学生齐聚一堂，在3D创意设计、智能机器人、创意编程等26个项目中展示交流，用数字技术展现青少年的创新活力与实践能力。 据悉，四川省学生数字素养提升实践活动经过二十余年的发展，
+随着国内财富管理市场的持续扩容，高净值人群作为核心群体，其资产配置需求与服务体验备受市场关注。 目前，42家上市银行已经全部披露一季报，多家机构亮出私人银行业务“成绩单”。 数据显示，私行客户规模呈现稳步增长态势，在今年一季度，招商银行私人银行客户突破20万户大关，至此“20万户俱乐部”的会员增至6家，其他5家分别是工商银行、建设银行、中国银行、农业银行和交通银行。 8家银行进
 
 ## 正文
 
-发布时间：2026年05月16日 19:21 来源：中国新闻网 5月16日，2026年四川省学生数字素养提升实践现场交流展示活动在成都锦城学院启幕。
+随着国内财富管理市场的持续扩容，高净值人群作为核心群体，其资产配置需求与服务体验备受市场关注。
 
-来自全省21个市(州)的991支队伍、近2000名优秀中小学生齐聚一堂，在3D创意设计、智能机器人、创意编程等26个项目中展示交流，用数字技术展现青少年的创新活力与实践能力。
+目前，42家上市银行已经全部披露一季报，多家机构亮出私人银行业务“成绩单”。
 
-据悉，四川省学生数字素养提升实践活动经过二十余年的发展，已成为省内最具影响力的青少年科技活动之一。
+数据显示，私行客户规模呈现稳步增长态势，在今年一季度，招商银行私人银行客户突破20万户大关，至此“20万户俱乐部”的会员增至6家，其他5家分别是工商银行、建设银行、中国银行、农业银行和交通银行。
 
-通过参与此类活动，学生们不仅能够提升专业技能，更能培养团队协作精神、创新思维和解决实际问题的能力。
+8家银行进入“10万户”俱乐部 近期，42家上市银行相继发布了2026年一季度报告。
 
-这些能力的培养对于学生未来的学业发展和职业规划都具有重要意义。
+经梳理发现，多家银行披露了私人银行最新数据，主要分布在股份行及地方银行之中。
 
-(记者 何浠） 责任编辑：【吉翔】
+招商银行的私人银行业务在今年一季度“更上一层楼”。
+
+截至2026年3月末，该行金葵花及以上客户（月日均全折人民币总资产50万元及以上的零售客户）达621.61万户，较上年末增长4.80%。
+
+其中，私人银行客户（月日均全折人民币总资产1000万元及以上的零售客户）数量达207492户，较上年末增长4.1%，首次突破20万户大关。
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 17:44 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 17:28 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 17:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 17:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 17:25 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 17:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 17:30 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 17:41 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 17:53 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 17:44 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 17:52 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 17:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 17:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 17:35 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 17:47 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 17:49 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-29 17:35 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 17:45 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 17:31 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 17:51 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 17:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 17:43 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 17:38 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 17:43 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 17:38 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 17:55 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 17:59 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/992210095330.shtml)
-- 2026-06-29 17:31 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/36613910610.shtml)
-- 2026-06-29 17:40 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/24089.shtml)
-- 2026-06-29 17:42 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/633615.shtml)
-- 2026-06-29 17:29 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/300218388.shtml)
-- 2026-06-29 17:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/89175.shtml)
-- 2026-06-29 17:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/483465.shtml)
-- 2026-06-29 17:33 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/271033766478.shtml)
-- 2026-06-29 17:49 - [毒液2](http://www.blog.kurohicncr.top/Article/details/73154.shtml)
-- 2026-06-29 17:45 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/19813930.shtml)
-- 2026-06-29 17:40 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/8889306.shtml)
-- 2026-06-29 17:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/573238101.shtml)
-- 2026-06-29 17:25 - [沙丘](https://www.blog.kurohicncr.top/Article/details/0043474.shtml)
-- 2026-06-29 17:50 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/482712029.shtml)
-- 2026-06-29 17:38 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/94397605904.shtml)
+- 2026-06-29 17:47 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/005036091.shtml)
+- 2026-06-29 17:55 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/3744205.shtml)
+- 2026-06-29 17:31 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/6020419.shtml)
+- 2026-06-29 17:41 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/341348769755.shtml)
+- 2026-06-29 17:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/93304.shtml)
+- 2026-06-29 17:58 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/174053121.shtml)
+- 2026-06-29 17:40 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/09579319.shtml)
+- 2026-06-29 17:57 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/5386310858.shtml)
+- 2026-06-29 17:41 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/6999273405.shtml)
+- 2026-06-29 17:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/001266.shtml)
+- 2026-06-29 17:41 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/2468008.shtml)
+- 2026-06-29 17:33 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/176857390.shtml)
+- 2026-06-29 17:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/51559126124.shtml)
+- 2026-06-29 17:42 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/18149373033.shtml)
+- 2026-06-29 17:50 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/367491.shtml)

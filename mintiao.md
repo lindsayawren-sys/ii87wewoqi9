@@ -1,44 +1,57 @@
-# 马修·威尔当选所罗门群岛新总理
+# 美国4月CPI同比上涨3.8% 创近三年最高水平
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据澳大利亚广播公司报道，当地时间15日上午，所罗门群岛议会投票结果出炉，马修·威尔胜选，成为该国新任总理。
+中新社华盛顿5月12日电 (记者 陈孟统)美国劳工部12日发布数据称，美国4月消费者价格指数(CPI)同比上涨3.8%，为2023年6月以来的最高水平。 自2022年6月同比涨幅达到9.1%的峰值以来，美国通胀总体上一直在稳步回落，但始终高于美联储设定的2%目标。随着今年2月伊朗战事爆发，霍尔木兹海峡航运受阻，国际油价大幅飙升也推高美国国内油价。 数据显示，美国4月能源价格指数
 
 ## 正文
 
-中新网5月15日电 据澳大利亚广播公司报道，当地时间15日上午，所罗门群岛议会投票结果出炉，马修·威尔胜选，成为该国新任总理。
+中新社华盛顿5月12日电 (记者 陈孟统)美国劳工部12日发布数据称，美国4月消费者价格指数(CPI)同比上涨3.8%，为2023年6月以来的最高水平。
+
+自2022年6月同比涨幅达到9.1%的峰值以来，美国通胀总体上一直在稳步回落，但始终高于美联储设定的2%目标。
+
+随着今年2月伊朗战事爆发，霍尔木兹海峡航运受阻，国际油价大幅飙升也推高美国国内油价。
+
+数据显示，美国4月能源价格指数同比上涨17.9%，环比上涨3.8%，占当月整体物价涨幅的40%以上。
+
+其中汽油价格同比上涨28.4%，环比上涨5.4%。
+
+另据美国汽车协会(AAA)12日的数据，全美普通汽油平均价格已超每加仑4.50美元，比去年同期高出约44%。
+
+此外，美国的住房价格指数也在4月上涨，环比升0.6%。
+
+食品价格指数当月环比上涨0.5%。
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 17:49 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 17:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 17:50 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 17:29 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 17:34 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 17:48 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 17:35 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 17:25 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 17:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 17:35 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 17:49 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 17:46 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 17:53 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 17:46 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 17:53 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 17:51 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 17:56 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 17:32 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 17:54 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 17:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 17:37 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 17:54 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/636840390505.shtml)
-- 2026-06-29 17:45 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/198000663.shtml)
-- 2026-06-29 17:26 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/54689247658.shtml)
-- 2026-06-29 17:51 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/48072332375.shtml)
-- 2026-06-29 17:51 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/215441778979.shtml)
-- 2026-06-29 17:33 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/61903306.shtml)
-- 2026-06-29 17:53 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/432141.shtml)
-- 2026-06-29 17:44 - [A股割裂行情有变化了吗](https://www.share.minike.top/Article/details/56095.shtml)
-- 2026-06-29 17:40 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/8210000710.shtml)
-- 2026-06-29 17:30 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/72288129429.shtml)
-- 2026-06-29 17:24 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/52574556831.shtml)
-- 2026-06-29 17:32 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/58412747.shtml)
-- 2026-06-29 17:45 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/46123.shtml)
-- 2026-06-29 17:53 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/2827164591.shtml)
-- 2026-06-29 17:46 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/39412.shtml)
+- 2026-06-29 17:44 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/64963.shtml)
+- 2026-06-29 17:49 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/53180922.shtml)
+- 2026-06-29 17:34 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/760312060.shtml)
+- 2026-06-29 17:51 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/98151868562.shtml)
+- 2026-06-29 17:48 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/0730483858.shtml)
+- 2026-06-29 17:33 - [起风了](https://www.blog.kurohicncr.top/Article/details/35772.shtml)
+- 2026-06-29 17:52 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/728739042921.shtml)
+- 2026-06-29 17:31 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/59848840753.shtml)
+- 2026-06-29 17:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/68942609123.shtml)
+- 2026-06-29 17:48 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/58588785375.shtml)
+- 2026-06-29 17:51 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/08225.shtml)
+- 2026-06-29 17:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/275281931782.shtml)
+- 2026-06-29 17:45 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/179834254162.shtml)
+- 2026-06-29 17:58 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/99176.shtml)
+- 2026-06-29 17:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/109556059.shtml)

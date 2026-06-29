@@ -1,58 +1,60 @@
-# （滇藏公路50年）勇士之路：不止是穿越 还有坚守
+# 韩国生物制药公司Celltrion收购法国Gifrer
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网西藏察隅5月17日电 题：勇士之路：不止是穿越 还有坚守——记扎根滇藏公路6年的云南夫妻 作者 陈静 赵朗 伴着幽蓝的夜色，滇藏交界处的群峰还在沉睡。不到6点，张玉芳夫妇已在自家开的“美味小吃”店忙活开来，这是他们落脚察瓦龙乡的第6个年头。 扎根“勇士之路” 46岁的张玉芳是云南省怒江州丙中洛镇人，15岁初中毕业后在家种地，婚后跟着老乡外出打工。丈夫冯明安是云南省保山市白
+韩国生物技术巨头Celltrion公司周二表示，已收购法国医疗保健公司Gifrer的全部股份，旨在扩大其在欧盟的业务。 Celltrion未披露交易的财务细节，但表示计划在本月底前完成与收购相关的行政手续。 Celltrion表示，希望将Gifrer作为一家独立实体运营，并已同意保留这家法国公司约70名员工的职位。 Gifrer成立于1912年，销售约140种非处方药品，包括生
 
 ## 正文
 
-中新网西藏察隅5月17日电 题：勇士之路：不止是穿越 还有坚守——记扎根滇藏公路6年的云南夫妻 作者 陈静 赵朗 伴着幽蓝的夜色，滇藏交界处的群峰还在沉睡。
+韩国生物技术巨头Celltrion公司周二表示，已收购法国医疗保健公司Gifrer的全部股份，旨在扩大其在欧盟的业务。
 
-不到6点，张玉芳夫妇已在自家开的“美味小吃”店忙活开来，这是他们落脚察瓦龙乡的第6个年头。
+Celltrion未披露交易的财务细节，但表示计划在本月底前完成与收购相关的行政手续。
 
-扎根“勇士之路” 46岁的张玉芳是云南省怒江州丙中洛镇人，15岁初中毕业后在家种地，婚后跟着老乡外出打工。
+Celltrion表示，希望将Gifrer作为一家独立实体运营，并已同意保留这家法国公司约70名员工的职位。
 
-丈夫冯明安是云南省保山市白族，干过建筑、进过电子厂、开过快餐店，夫妻俩奔波忙碌数十年，将两个儿子养育长大。
+Gifrer成立于1912年，销售约140种非处方药品，包括生理盐水、牙齿漂白剂以及保健品。
 
-2019年秋天，张玉芳因身体不适住院近一个月，不能再做重活，两人便攥着打工攒下的积蓄回了老家。
+其在法国的销售网络覆盖超过9000家药店和约800家医院。
 
-“我一直想开个小吃店，不用到处奔波，生活能安定下来。
+Celltrion表示，此次收购正值法国医疗保险体系近期进行改革之际，改革允许药剂师在特定条件下用生物类似药替代处方药。
 
-”张玉芳说，返乡后，夫妇两人自驾到察瓦龙乡游玩时，看见沿街店铺正在转让，两人一拍即合，当场缴纳5000元定金，2019年10月1日正式开业，勇敢地开启新生活。
+该公司还表示，预计未来五年内，这笔交易将为其带来约2500亿韩元（约合1.69亿美元）的额外收入。
 
-“在我们云南，很多人想去西藏，都要走这条路。
+Celltrion表示，计划重新评估通过其海外销售渠道销售Gifrer产品的方式，同时继续推进对其他知名国际公司的并购。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 17:34 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 17:39 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 17:40 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 17:45 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:37 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 17:30 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 17:35 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 17:33 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-29 17:49 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 17:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 17:43 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 17:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 17:53 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 17:31 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 17:48 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 17:35 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 17:38 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 17:32 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 17:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-29 17:51 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 17:49 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 17:45 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 17:58 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 17:38 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 17:45 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/50367222.shtml)
-- 2026-06-29 17:33 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/812917010487.shtml)
-- 2026-06-29 17:44 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/542990.shtml)
-- 2026-06-29 17:28 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/473831992092.shtml)
-- 2026-06-29 17:34 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/42005508850.shtml)
-- 2026-06-29 17:47 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/95160104352.shtml)
-- 2026-06-29 17:38 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/584055.shtml)
-- 2026-06-29 17:30 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/15375720.shtml)
-- 2026-06-29 17:37 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/9545075065.shtml)
-- 2026-06-29 17:42 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/121225.shtml)
-- 2026-06-29 17:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/5222275694.shtml)
-- 2026-06-29 17:43 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/677570246.shtml)
-- 2026-06-29 17:28 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/01960599.shtml)
-- 2026-06-29 17:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/20650102032.shtml)
-- 2026-06-29 17:43 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/5631436621.shtml)
+- 2026-06-29 17:37 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/44783510314.shtml)
+- 2026-06-29 17:57 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/095226037.shtml)
+- 2026-06-29 17:58 - [CORTIS登机迟到致航班延误](http://www.share.kurohicncr.top/Article/details/73882301780.shtml)
+- 2026-06-29 17:45 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/0069403430.shtml)
+- 2026-06-29 17:49 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/97475.shtml)
+- 2026-06-29 17:38 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/165095.shtml)
+- 2026-06-29 17:55 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.kurohicncr.top/Article/details/30340834.shtml)
+- 2026-06-29 17:42 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/32603.shtml)
+- 2026-06-29 17:32 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/2267688.shtml)
+- 2026-06-29 17:57 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/32775205.shtml)
+- 2026-06-29 17:48 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/16715305.shtml)
+- 2026-06-29 17:52 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/9874276020.shtml)
+- 2026-06-29 17:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/9277738903.shtml)
+- 2026-06-29 17:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/697636.shtml)
+- 2026-06-29 17:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/24779.shtml)

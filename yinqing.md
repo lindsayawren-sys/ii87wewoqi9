@@ -1,59 +1,60 @@
-# 净利增长555.24%！揭秘A股“超节点”超级赛道，这5家公司已翻倍
+# 长江有色：资源瓶颈凸显，12日碳酸锂价或涨
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-文丨李壮 编辑丨承承 “超节点”算力集群为人工智能应用快速落地提供了重要支撑，同时相关龙头公司业绩也水涨船高。 伴随2025年年报和2026年一季度财报季落幕，以超节点（SuperNode）为代表的国产算力产业链业绩表现突出。其中，上游核心器件环节率先实现全面高速增长，而中游整机集成环节的盈利能力也正在被重塑。 财报数据显示，超节点产业链的利润增长趋势已初步成形。一方面，寒武纪
+长江有色金属网 2026年5月12日早盘，广州期货交易所碳酸锂主力合约延续强势，继续刷新两年多来的价格高点。截至上午9点12分，合约最新报206，840元/吨，较前一交易日结算价（202，140元/吨）上涨4，700元，日涨幅达2.33%。盘面呈现高位震荡格局，开盘于208，000元/吨，盘中最高触及208，800元/吨，最低下探至205，900元/吨，当前买价206，840元
 
 ## 正文
 
-文丨李壮 编辑丨承承 “超节点”算力集群为人工智能应用快速落地提供了重要支撑，同时相关龙头公司业绩也水涨船高。
+长江有色金属网 2026年5月12日早盘，广州期货交易所碳酸锂主力合约延续强势，继续刷新两年多来的价格高点。
 
-伴随2025年年报和2026年一季度财报季落幕，以超节点（SuperNode）为代表的国产算力产业链业绩表现突出。
+截至上午9点12分，合约最新报206，840元/吨，较前一交易日结算价（202，140元/吨）上涨4，700元，日涨幅达2.33%。
 
-其中，上游核心器件环节率先实现全面高速增长，而中游整机集成环节的盈利能力也正在被重塑。
+盘面呈现高位震荡格局，开盘于208，000元/吨，盘中最高触及208，800元/吨，最低下探至205，900元/吨，当前买价206，840元/吨，卖价206，860元/吨，成交量42，109手，持仓量增至545，083手，仓差4，417手。
 
-财报数据显示，超节点产业链的利润增长趋势已初步成形。
+这标志着碳酸锂期货价格自年初以来累计涨幅已超40%，正式站稳20万元/吨的关键心理关口。
 
-一方面，寒武纪等上游芯片及光互联厂商凭借极高的技术壁垒，实现了业绩翻倍增长；另一方面，紫光股份、工业富联、华勤技术等整机集成商凭借全栈交付优势，在今年一季度也展现出强劲的利润提升加速态势。
+从供给端审视，国内外多重扰动因素正共同收紧锂资源的有效供应，构成了本轮价格上涨最坚实的底部支撑。
 
-特别是华勤技术前瞻布局的超节点产品已开启小批量发货，预计全年将贡献超百亿元收入。
+根据行业统计数据，碳酸锂周度产量已出现小幅下降，而社会库存则连续数周去化，正式进入去库周期。
 
-随着万卡乃至十万卡智算集群的升级迭代，超节点产业链正迎来从核心部件到系统集成的多元化发展机遇。
+这种供给端的刚性收缩与库存拐点的出现，为价格提供了强劲的上行动力。
 
-“超节点”概念业绩井喷 2025年以来，国产人工智能（AI）基础设施建设进入‌系统化、规模化与自主可控并重‌的新阶段。
+具体来看，非洲某重要锂资源国自前期实施的锂精矿出口禁令虽已部分松动，但出口配额落地后发运仍需时间，预计大规模到港将推迟至下个季度，直接影响国内近期的原料供给。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 17:30 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 17:54 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 17:30 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 17:40 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 17:27 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 17:53 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 17:48 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-29 17:46 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 17:36 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 17:33 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 17:40 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 17:52 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 17:43 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 17:40 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 17:55 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 17:33 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 17:45 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 17:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-29 17:31 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 17:58 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 17:55 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 17:44 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 17:51 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 17:37 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 17:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 17:55 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/746368215.shtml)
-- 2026-06-29 17:43 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/77344.shtml)
-- 2026-06-29 17:49 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/52486.shtml)
-- 2026-06-29 17:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/70982984.shtml)
-- 2026-06-29 17:47 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/42221.shtml)
-- 2026-06-29 17:48 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/056559064.shtml)
-- 2026-06-29 17:49 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/913795674.shtml)
-- 2026-06-29 17:40 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/4922107.shtml)
-- 2026-06-29 17:41 - [倪春青跨市履新苏州市委组织部部长](https://www.share.minike.top/Article/details/19494887.shtml)
-- 2026-06-29 17:25 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/160252179727.shtml)
-- 2026-06-29 17:24 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/26100913310.shtml)
-- 2026-06-29 17:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/432376250866.shtml)
-- 2026-06-29 17:45 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/5113575664.shtml)
-- 2026-06-29 17:27 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/03820468396.shtml)
-- 2026-06-29 17:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/099352.shtml)
+- 2026-06-29 17:38 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/436322.shtml)
+- 2026-06-29 17:33 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/4679635.shtml)
+- 2026-06-29 17:40 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/90671215794.shtml)
+- 2026-06-29 17:32 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/57801.shtml)
+- 2026-06-29 17:50 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/066010900.shtml)
+- 2026-06-29 17:52 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/8515807.shtml)
+- 2026-06-29 17:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/984045983344.shtml)
+- 2026-06-29 17:50 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/077902.shtml)
+- 2026-06-29 17:33 - [挪威王储妃长子两次强奸获刑](http://www.blog.minike.top/Article/details/81413.shtml)
+- 2026-06-29 17:39 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/776062739877.shtml)
+- 2026-06-29 17:39 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/8938393773.shtml)
+- 2026-06-29 17:31 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/3064275.shtml)
+- 2026-06-29 17:31 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/705784.shtml)
+- 2026-06-29 17:34 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/2027211303.shtml)
+- 2026-06-29 17:37 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/3885785017.shtml)

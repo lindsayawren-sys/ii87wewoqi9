@@ -1,43 +1,57 @@
-# 日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模
+# 天降钢管砸中男子头部缝8针 事发数日肇事者尚未找到
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 09:29 来源：央视新闻 责任编辑：【王祎】
+原标题：天降钢管 砸中男子头部缝8针 事发数日伤者仍在住院治疗，肇事者一直未找到 “如果钢管的位置稍微偏一点，自己命都没有了，想想都后怕。”5月7日晚，成都某小区，一根钢管从天而降，出门接娃的杜先生被砸倒在地，送医后头部缝合了8针。 事发数日，伤者仍在医院接受治疗，肇事者也一直未找到。5月11日，华西都市报、封面新闻记者前往事发小区走访，目前该小区单元门上方已装上防护棚，墙上贴
 
 ## 正文
 
-发布时间：2026年05月15日 09:29 来源：央视新闻 责任编辑：【王祎】
+原标题：天降钢管 砸中男子头部缝8针 事发数日伤者仍在住院治疗，肇事者一直未找到 “如果钢管的位置稍微偏一点，自己命都没有了，想想都后怕。
+
+”5月7日晚，成都某小区，一根钢管从天而降，出门接娃的杜先生被砸倒在地，送医后头部缝合了8针。
+
+事发数日，伤者仍在医院接受治疗，肇事者也一直未找到。
+
+5月11日，华西都市报、封面新闻记者前往事发小区走访，目前该小区单元门上方已装上防护棚，墙上贴着“禁止高空抛物”的提示。
+
+男子出门接娃 天降钢管将其砸倒在地 杜先生住在该小区21楼。
+
+5月7日晚7点40分左右，他下楼出门接孩子回家，刚走出单元门没几步，一根从天而降的钢管砸在杜先生头上。
+
+“我当场被砸倒在地，头上的血不停往外冒，脑袋感觉嗡嗡响。
+
+”杜先生说，当时自己躺在地上，一手捂着伤口，一手给家人打电话求救，事发时周围还有不少业主经过。
 
 ## 相关推荐
 
-- 2026-06-29 17:51 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 17:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 17:31 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 17:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 17:31 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 17:34 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 17:53 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-29 17:26 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 17:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 17:39 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 17:40 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 17:31 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 17:38 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 17:43 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 17:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 17:43 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 17:36 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 17:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 17:57 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 17:32 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 17:52 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 17:48 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/75268026880.shtml)
-- 2026-06-29 17:30 - [绘画区你赢了](https://www.share.minike.top/Article/details/6106727.shtml)
-- 2026-06-29 17:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/53635154.shtml)
-- 2026-06-29 17:47 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/837490201.shtml)
-- 2026-06-29 17:27 - [王楚钦开门红](http://www.share.minike.top/Article/details/3326286.shtml)
-- 2026-06-29 17:52 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/758902688147.shtml)
-- 2026-06-29 17:29 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/15829961812.shtml)
-- 2026-06-29 17:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/92398422.shtml)
-- 2026-06-29 17:53 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/04834402.shtml)
-- 2026-06-29 17:28 - [扬名立万](https://www.blog.minike.top/Article/details/1854641.shtml)
-- 2026-06-29 17:37 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/7694464286.shtml)
-- 2026-06-29 17:29 - [这一刀 会很帅](https://www.share.minike.top/Article/details/3212885.shtml)
-- 2026-06-29 17:41 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/080823146411.shtml)
-- 2026-06-29 17:34 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/253492108.shtml)
-- 2026-06-29 17:50 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/146450.shtml)
+- 2026-06-29 17:54 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/565520978400.shtml)
+- 2026-06-29 17:53 - [爱很美味](https://www.share.minike.top/Article/details/7858825.shtml)
+- 2026-06-29 17:51 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/97911366308.shtml)
+- 2026-06-29 17:49 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/27473390.shtml)
+- 2026-06-29 17:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/91110.shtml)
+- 2026-06-29 17:52 - [T1 KC](https://www.blog.minike.top/Article/details/057099262.shtml)
+- 2026-06-29 17:42 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.kurohicncr.top/Article/details/007769107.shtml)
+- 2026-06-29 17:58 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/18604595208.shtml)
+- 2026-06-29 17:32 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/528713.shtml)
+- 2026-06-29 17:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/185803605459.shtml)
+- 2026-06-29 17:37 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/244894361482.shtml)
+- 2026-06-29 17:56 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/367339153181.shtml)
+- 2026-06-29 17:55 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/73294.shtml)
+- 2026-06-29 17:38 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/28952421.shtml)
+- 2026-06-29 17:55 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/220028655719.shtml)

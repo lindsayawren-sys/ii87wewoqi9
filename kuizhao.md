@@ -1,56 +1,57 @@
-# 515投资者保护 | 用“方格”丈量时间！华泰柏瑞“红利时间格子计划”荣获2026年度最佳投资者教育创新奖
+# 国际能源署：4月俄原油产量下滑但出口回升
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。华泰柏瑞基金凭借“红利时间格子计划”，荣获2026年度“最佳投资者教育创新奖”。 2026年开年，成长赛道行情火热，资金阶段性倾斜，红利低波等红利类策略短期承压，红利低波指数一度跌破250日均线。面对市场波动，大量红利基金投资者陷入焦虑，普遍担忧策略长
+国际能源署（IEA）周三发布的月度石油市场报告显示，受乌克兰无人机袭击及中东局势动荡等复合因素影响，4月份俄罗斯原油生产与出口呈现结构性波动：原油产量同比出现下滑，但受地缘冲突引发的供需调整影响，原油出口规模逆势回升。 产量及成品油出口显著承压 报告指出，4月份俄罗斯原油日均产量约为880万桶，较去年同期减少46万桶。与此同时，受炼油设施受损影响，俄罗斯石油成品油出口量环比减少
 
 ## 正文
 
-专题：515投资者保护！
+国际能源署（IEA）周三发布的月度石油市场报告显示，受乌克兰无人机袭击及中东局势动荡等复合因素影响，4月份俄罗斯原油生产与出口呈现结构性波动：原油产量同比出现下滑，但受地缘冲突引发的供需调整影响，原油出口规模逆势回升。
 
-新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+产量及成品油出口显著承压 报告指出，4月份俄罗斯原油日均产量约为880万桶，较去年同期减少46万桶。
 
-华泰柏瑞基金凭借“红利时间格子计划”，荣获2026年度“最佳投资者教育创新奖”。
+与此同时，受炼油设施受损影响，俄罗斯石油成品油出口量环比减少34万桶/日，降至220万桶/日，创下国际能源署有记录以来的最低水平。
 
-2026年开年，成长赛道行情火热，资金阶段性倾斜，红利低波等红利类策略短期承压，红利低波指数一度跌破250日均线。
+地缘政治风险驱动原油出口激增 尽管生产端承压，但俄罗斯原油出口在4月份实现了逆势增长。
 
-面对市场波动，大量红利基金投资者陷入焦虑，普遍担忧策略长期逻辑失效、调整周期过长。
+数据显示，俄原油日均出口量环比增加25万桶/日，达到490万桶/日。
 
-与此同时，公募行业传统投教内容多以文字科普、单向宣讲、产品推介为主，形式较为生硬，无法有效承接市场波动下的投资者情绪，缺少可视化、共情化的陪伴式引导。
+以乌拉尔原油（Urals）为例，4月份该品种吸引了包括埃及在内的新买家，其对埃日均出口量达20万桶，峰值曾一度达到38万桶。
 
-在此背景下，华泰柏瑞基金依托自身深耕红利赛道十余年的投研积淀，于2026年1月创新推出“红利时间格子互动计划”，跳出传统投教“说教式”模式，以可视化数据工具为载体，联动行业专业力量开展陪伴式投教，帮助投资者理性区分短期市场波动与红利策略长期趋势，实现从产品供给向投资认知赋能、情绪陪伴的深度延伸。
+目前，乌拉尔原油出口规模已接近190万桶/日，基本恢复至乌克兰危机爆发前的水平。
 
-三大核心维度：打造沉浸式、互动式、共情式投教体系 第一，创新可视化投教工具，用“方格丈量时间”重塑投资认知。
+物流通道与输油管线动态 在出口物流方面，波罗的海海上运输量环比增加19万桶/日，支撑了出口总量的复苏。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 17:27 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 17:41 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 17:24 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 17:30 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 17:48 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 17:48 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 17:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-29 17:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-29 17:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 17:30 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 17:50 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 17:42 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 17:44 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 17:30 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 17:57 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 17:38 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 17:57 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 17:53 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 17:33 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 17:33 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/17202023.shtml)
-- 2026-06-29 17:33 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/12903.shtml)
-- 2026-06-29 17:51 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/0953638.shtml)
-- 2026-06-29 17:39 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/18291587.shtml)
-- 2026-06-29 17:24 - [众星恭喜吴建豪](https://www.blog.kurohicncr.top/Article/details/92083567038.shtml)
-- 2026-06-29 17:25 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/11646.shtml)
-- 2026-06-29 17:25 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/44633044.shtml)
-- 2026-06-29 17:32 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/399709319419.shtml)
-- 2026-06-29 17:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/83937458.shtml)
-- 2026-06-29 17:48 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/115584545011.shtml)
-- 2026-06-29 17:51 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.minike.top/Article/details/6534783623.shtml)
-- 2026-06-29 17:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/1290301.shtml)
-- 2026-06-29 17:49 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/6583948294.shtml)
-- 2026-06-29 17:33 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/6583592959.shtml)
-- 2026-06-29 17:35 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/130460302.shtml)
+- 2026-06-29 17:44 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/168507.shtml)
+- 2026-06-29 17:38 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/499469.shtml)
+- 2026-06-29 17:40 - [叠纸](http://www.share.kurohicncr.top/Article/details/758534911465.shtml)
+- 2026-06-29 17:37 - [TFING全员黑西装](https://www.share.minike.top/Article/details/1670798.shtml)
+- 2026-06-29 17:52 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/53413875.shtml)
+- 2026-06-29 17:54 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/673988675163.shtml)
+- 2026-06-29 17:49 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/045314.shtml)
+- 2026-06-29 17:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/95576.shtml)
+- 2026-06-29 17:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/51849613.shtml)
+- 2026-06-29 17:46 - [周生如故](https://www.blog.minike.top/Article/details/38799761503.shtml)
+- 2026-06-29 17:57 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/4936744.shtml)
+- 2026-06-29 17:49 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/3265333.shtml)
+- 2026-06-29 17:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/023764.shtml)
+- 2026-06-29 17:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/3243582.shtml)
+- 2026-06-29 17:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/6238724.shtml)

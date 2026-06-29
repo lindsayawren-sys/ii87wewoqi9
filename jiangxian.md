@@ -1,59 +1,59 @@
-# 公安部公布10起依法打击跨境销售可制毒物品及新精神活性物质违法犯罪典型案例
+# 沃什即将接掌美联储：直面通胀回潮与特朗普的降息施压
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据“中国禁毒”微信公众号消息，近年来，国家禁毒办多次发布通告提醒相关企业和个人谨慎向境外销售可制毒物品及新精神活性物质，防范境外法律风险。然而，国内仍有部分不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品，并逐渐形成化工“黑灰”产业链，造成重大涉毒风险。公安部对此高度重视，多轮次部署开展打击管控专项行动，破获一批重点案件、整治一批问题企业
+凯文·沃什预计将于本周晚些时候正式接替杰罗姆·鲍威尔出任美联储主席。这位前美联储理事在就职时将面临严峻考验：一边是卷土重来的通胀压力，另一边是来自白宫要求大幅降息的巨大政治压力。 通胀回潮挤压降息空间 最新数据显示，美国4月消费者价格指数同比上涨3.8%，创下2023年5月以来新高。能源价格持续高企——汽油价格同比上涨28.4%——成为拉动通胀的主要推手。与此同时，食品价格环比
 
 ## 正文
 
-中新网5月15日电 据“中国禁毒”微信公众号消息，近年来，国家禁毒办多次发布通告提醒相关企业和个人谨慎向境外销售可制毒物品及新精神活性物质，防范境外法律风险。
+凯文·沃什预计将于本周晚些时候正式接替杰罗姆·鲍威尔出任美联储主席。
 
-然而，国内仍有部分不法分子向境外贩运列管或非列管前体化学品及新精神活性物质等敏感化学品，并逐渐形成化工“黑灰”产业链，造成重大涉毒风险。
+这位前美联储理事在就职时将面临严峻考验：一边是卷土重来的通胀压力，另一边是来自白宫要求大幅降息的巨大政治压力。
 
-公安部对此高度重视，多轮次部署开展打击管控专项行动，破获一批重点案件、整治一批问题企业、惩处一批犯罪分子，全力消除涉毒风险隐患，整治网络营商环境，保障我国化工行业健康发展。
+通胀回潮挤压降息空间 最新数据显示，美国4月消费者价格指数同比上涨3.8%，创下2023年5月以来新高。
 
-2025年以来，共破获相关刑事案件29起，抓获犯罪嫌疑人157名，缴获毒品720公斤、新精神活性物质1.3吨、兴奋剂0.9公斤，查扣非列管前体化学品27.7吨。
+能源价格持续高企——汽油价格同比上涨28.4%——成为拉动通胀的主要推手。
 
-为充分发挥警示教育作用，公安部15日公布近年来公安机关侦办的典型案例。
+与此同时，食品价格环比上涨0.5%，住房成本环比上涨0.6%，显示出通胀压力的广泛性。
 
-一、汤某某等走私制贩新精神活性物质案 2025年12月，公安机关侦破汤某某走私制贩新精神活性物质案，抓获犯罪嫌疑人21名，缴获毒品31.89公斤、新精神活性物质1.01吨，查扣各类制毒原料15.4吨，捣毁制毒窝点和前体生产窝点各1处，冻结涉案资金692万元，行政处罚化工企业3家。
+高盛等投行已推迟了对美联储降息的预期时间点，认为沃什上任后将立即面临如何调整利率以应对潜在滞胀风险的难题。
 
-经查，汤某某通过搭建2个网站向境外发布化学品广告，待境外客户下单后，在国内多地委托研制客户订购化学品，通过国际货代公司向境外国家走私贩运，收取境外买家虚拟货币货款。
+白宫施压与独立性的博弈 特朗普已多次公开要求美联储大幅降低利率。
 
-2026年1月，汤某某、陈某某因涉嫌走私、贩卖、运输、制造毒品罪，被依法批准逮捕；于某某、张某某因涉嫌非法生产、买卖、运输制毒物品罪，被依法批准逮捕；另有8名涉案人员因涉嫌污染环境罪，被公安机关依法采取刑事强制措施。
+在鲍威尔任内，美联储一直将基准利率维持在4.25%至4.5%的区间。
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 17:42 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 17:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 17:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 17:33 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:44 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:43 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 17:42 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 17:40 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 17:26 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 17:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 17:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 17:26 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 17:53 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 17:58 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 17:35 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 17:44 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 17:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 17:35 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 17:57 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 17:39 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 17:50 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 17:48 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 17:52 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 17:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [叠纸客服回应恋与深空新角色争议](http://www.blog.kurohicncr.top/Article/details/7751359439.shtml)
-- 2026-06-29 17:24 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/407234118.shtml)
-- 2026-06-29 17:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/6277093.shtml)
-- 2026-06-29 17:48 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/47206386.shtml)
-- 2026-06-29 17:53 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/08220251.shtml)
-- 2026-06-29 17:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/094237802503.shtml)
-- 2026-06-29 17:30 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/575416.shtml)
-- 2026-06-29 17:26 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/164251242988.shtml)
-- 2026-06-29 17:33 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/68780.shtml)
-- 2026-06-29 17:30 - [人形机器人](https://www.share.kurohicncr.top/Article/details/5257066822.shtml)
-- 2026-06-29 17:33 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/24933300635.shtml)
-- 2026-06-29 17:43 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/14896378146.shtml)
-- 2026-06-29 17:28 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/901742358568.shtml)
-- 2026-06-29 17:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/84817.shtml)
-- 2026-06-29 17:48 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/77752.shtml)
+- 2026-06-29 17:54 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/08504203.shtml)
+- 2026-06-29 17:57 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/654519056942.shtml)
+- 2026-06-29 17:34 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/64142.shtml)
+- 2026-06-29 17:41 - [女心理师](https://www.blog.minike.top/Article/details/4444995185.shtml)
+- 2026-06-29 17:39 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/985329091950.shtml)
+- 2026-06-29 17:49 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/72682310887.shtml)
+- 2026-06-29 17:38 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/452956586789.shtml)
+- 2026-06-29 17:55 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/629625.shtml)
+- 2026-06-29 17:36 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/1820926.shtml)
+- 2026-06-29 17:48 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/778101888.shtml)
+- 2026-06-29 17:56 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/9118635558.shtml)
+- 2026-06-29 17:58 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/443427797541.shtml)
+- 2026-06-29 17:52 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/041617877.shtml)
+- 2026-06-29 17:55 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/275253.shtml)
+- 2026-06-29 17:46 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/522451105.shtml)

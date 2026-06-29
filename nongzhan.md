@@ -1,57 +1,60 @@
-# ETF日报：短期来看，市场或将持续一段时间的高位震荡整理格局
+# 东部候鸟迁飞通道：中国多省联动织密跨国生态保护网
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-今日A股延续调整，避险情绪浓厚。截止收盘，上证指数继续收中阴线，报4135.39点，下跌1.02%，深证成指下跌1.17%，创业板指下跌0.56%。个股层面跌多涨少，约1800家上涨，3500余家下跌。成交方面，沪深两市成交额约3.4万亿，较昨日几乎持平。 板块层面多数下跌，仅半导体设备、机器人、煤炭等板块相对抗跌。受贵金属价格波动加剧影响，黄金股票、矿业、有色等板块跌幅靠前。
+中新网哈尔滨5月12日电 (记者 史轶夫)作为全球最繁忙的候鸟迁徙路线之一，东亚——澳大利西亚迁飞通道的保护正进入中国多省协同新阶段。 “2026年东部候鸟迁徙监测与迁飞通道保护研讨会”12日在东北林业大学举办，中国13个省份林草局、保护区及科研机构40名代表参加。东部候鸟迁徙路线沿线省份首次以跨区域联防、科技赋能、栖息地修复等内容进行研讨，为每年数千万只候鸟筑牢“空中生命走廊
 
 ## 正文
 
-今日A股延续调整，避险情绪浓厚。
+中新网哈尔滨5月12日电 (记者 史轶夫)作为全球最繁忙的候鸟迁徙路线之一，东亚——澳大利西亚迁飞通道的保护正进入中国多省协同新阶段。
 
-截止收盘，上证指数继续收中阴线，报4135.39点，下跌1.02%，深证成指下跌1.17%，创业板指下跌0.56%。
+“2026年东部候鸟迁徙监测与迁飞通道保护研讨会”12日在东北林业大学举办，中国13个省份林草局、保护区及科研机构40名代表参加。
 
-个股层面跌多涨少，约1800家上涨，3500余家下跌。
+东部候鸟迁徙路线沿线省份首次以跨区域联防、科技赋能、栖息地修复等内容进行研讨，为每年数千万只候鸟筑牢“空中生命走廊”。
 
-成交方面，沪深两市成交额约3.4万亿，较昨日几乎持平。
+黑龙江、安徽、辽宁、山西、吉林等省份均地处这条跨国通道关键节点，是候鸟北归南徙的必经停歇地与能量补给站。
 
-板块层面多数下跌，仅半导体设备、机器人、煤炭等板块相对抗跌。
+各地依托自然保护地体系，已建成覆盖湿地、森林、草原的候鸟栖息地网络，中华秋沙鸭、青头潜鸭、东方白鹳等珍稀物种种群数量持续回升。
 
-受贵金属价格波动加剧影响，黄金股票、矿业、有色等板块跌幅靠前。
+跨区域协同成为本次会议核心。
 
-本周，市场呈现扩张三角走势，在大开大合中多次尝试选择方向，颇具看点。
+多地提出建立省际信息共享、联合巡护、协同执法机制，破解候鸟迁徙无界与保护分治难题。
 
-周一，沪指在外围市场高涨的刺激下，再次跳空高开于4200点上方，短暂回落后继续拉升。
+安徽探索毗邻省份联防联控，辽宁与多国保护区开展跨国协作，吉林倡议共建迁徙档案与应急响应机制，推动“途中停歇有保障、跨区飞行无盲区”。
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 17:50 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 17:48 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 17:27 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:28 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 17:40 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 17:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 17:47 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 17:39 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 17:44 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 17:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 17:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 17:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-29 17:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-29 17:51 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 17:52 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 17:56 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 17:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 17:39 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 17:31 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 17:48 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 17:42 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
+- 2026-06-29 17:55 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 17:44 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 17:53 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/320988213.shtml)
-- 2026-06-29 17:43 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/257619402.shtml)
-- 2026-06-29 17:38 - [一见倾心](https://www.blog.minike.top/Article/details/8363948.shtml)
-- 2026-06-29 17:41 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/7078630.shtml)
-- 2026-06-29 17:45 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/82052.shtml)
-- 2026-06-29 17:53 - [黄金也扛不住了](http://www.blog.kurohicncr.top/Article/details/042462.shtml)
-- 2026-06-29 17:36 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/2751971.shtml)
-- 2026-06-29 17:38 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/4913365276.shtml)
-- 2026-06-29 17:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/1648001.shtml)
-- 2026-06-29 17:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/96670313.shtml)
-- 2026-06-29 17:50 - [抓特务票房破亿](https://www.blog.minike.top/Article/details/86489.shtml)
-- 2026-06-29 17:39 - [NBA交易](http://www.share.minike.top/Article/details/18148.shtml)
-- 2026-06-29 17:41 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/1498754678.shtml)
-- 2026-06-29 17:40 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/31069009365.shtml)
-- 2026-06-29 17:35 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/274105353035.shtml)
+- 2026-06-29 17:47 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/70703771.shtml)
+- 2026-06-29 17:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/415974579392.shtml)
+- 2026-06-29 17:46 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/90634978780.shtml)
+- 2026-06-29 17:37 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/8170751816.shtml)
+- 2026-06-29 17:32 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/266580.shtml)
+- 2026-06-29 17:49 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/6416339.shtml)
+- 2026-06-29 17:58 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/5851983440.shtml)
+- 2026-06-29 17:57 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/2456695.shtml)
+- 2026-06-29 17:33 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/432207078.shtml)
+- 2026-06-29 18:00 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/34403.shtml)
+- 2026-06-29 17:30 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/44814.shtml)
+- 2026-06-29 17:52 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/76843380685.shtml)
+- 2026-06-29 17:42 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/3180131422.shtml)
+- 2026-06-29 17:49 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/622325.shtml)
+- 2026-06-29 17:45 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/1665338209.shtml)

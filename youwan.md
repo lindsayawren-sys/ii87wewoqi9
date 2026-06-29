@@ -1,51 +1,59 @@
-# 时政画说丨跨越太平洋的握手
+# 台湾民众对“一国两制”认同逐步上升 国台办回应
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 会谈前，习近平主席在人民大会堂东门外广场为特朗普总统举行欢迎仪式。 当天，两国元首参观天坛，在祈年殿广场合影。 总监制丨申勇 监制丨龚雪辉 全宇虹 摄影丨李晋 制作丨陈括 张晶 谢薇婧 王海涵 李璐 来源：央视新闻客户端
+5月13日，国务院台办举行例行新闻发布会。有记者问，近日岛内有民调显示，近四分之一民众接受“和平统一、一国两制”。有评论称，这表明岛内民众对“一国两制”的认同在逐步上升，期盼和平统一的呼声越来越高。请问对此有何评论？ 发言人张晗答问表示，统一是不可阻挡的历史大势，“和平统一、一国两制”是我们解决台湾问题的基本方针，是实现祖国统一的最佳方式，对两岸同胞和中华民族最有利。越来越多台
 
 ## 正文
 
-5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
+5月13日，国务院台办举行例行新闻发布会。
 
-会谈前，习近平主席在人民大会堂东门外广场为特朗普总统举行欢迎仪式。
+有记者问，近日岛内有民调显示，近四分之一民众接受“和平统一、一国两制”。
 
-当天，两国元首参观天坛，在祈年殿广场合影。
+有评论称，这表明岛内民众对“一国两制”的认同在逐步上升，期盼和平统一的呼声越来越高。
 
-总监制丨申勇 监制丨龚雪辉 全宇虹 摄影丨李晋 制作丨陈括 张晶 谢薇婧 王海涵 李璐 来源：央视新闻客户端
+请问对此有何评论？
+
+发言人张晗答问表示，统一是不可阻挡的历史大势，“和平统一、一国两制”是我们解决台湾问题的基本方针，是实现祖国统一的最佳方式，对两岸同胞和中华民族最有利。
+
+越来越多台湾同胞开始讨论“一国两制”台湾方案的具体内容，畅想统一后台湾的前景，认识到和平统一将给台湾经济社会发展创造巨大机遇，将给广大台湾同胞带来实实在在的好处。
+
+我们将同广大台湾同胞一道共创祖国统一、民族复兴的伟业。
+
+(记者赵博、李妍)
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 17:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-29 17:52 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 17:33 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 17:27 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 17:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 17:49 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 17:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 17:31 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 17:30 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 17:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 17:53 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 17:43 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 17:37 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 17:46 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 17:36 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 17:39 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 17:46 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 17:56 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 17:36 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 17:40 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 17:55 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 17:34 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 17:48 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 17:58 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 17:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/474141.shtml)
-- 2026-06-29 17:37 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/01533097.shtml)
-- 2026-06-29 17:36 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/3167900939.shtml)
-- 2026-06-29 17:36 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/9177706.shtml)
-- 2026-06-29 17:43 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/79528801.shtml)
-- 2026-06-29 17:48 - [明星大侦探第一季](http://www.share.minike.top/Article/details/802206801.shtml)
-- 2026-06-29 17:40 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/5061171714.shtml)
-- 2026-06-29 17:44 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/035608441.shtml)
-- 2026-06-29 17:32 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/979814.shtml)
-- 2026-06-29 17:36 - [小娘惹](http://www.blog.minike.top/Article/details/594675.shtml)
-- 2026-06-29 17:25 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/62391225.shtml)
-- 2026-06-29 17:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/7714611.shtml)
-- 2026-06-29 17:27 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/533918.shtml)
-- 2026-06-29 17:46 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/456253.shtml)
-- 2026-06-29 17:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/375840633.shtml)
+- 2026-06-29 17:57 - [存储三巨头被告了](https://www.share.minike.top/Article/details/589578475.shtml)
+- 2026-06-29 17:51 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/8408569.shtml)
+- 2026-06-29 17:59 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/79894790.shtml)
+- 2026-06-29 17:30 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.minike.top/Article/details/564280.shtml)
+- 2026-06-29 17:46 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/11676.shtml)
+- 2026-06-29 17:57 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/4383816200.shtml)
+- 2026-06-29 17:47 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/26616.shtml)
+- 2026-06-29 17:31 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/07877655.shtml)
+- 2026-06-29 17:46 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/806526238595.shtml)
+- 2026-06-29 17:59 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/947324863.shtml)
+- 2026-06-29 17:48 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/794611730.shtml)
+- 2026-06-29 17:37 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/2001470.shtml)
+- 2026-06-29 17:37 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/0300414.shtml)
+- 2026-06-29 17:44 - [叠纸](http://www.share.kurohicncr.top/Article/details/77804388.shtml)
+- 2026-06-29 17:40 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/81973.shtml)

@@ -1,60 +1,60 @@
-# 海南自贸港封关运作成绩单：实现高标准开局 红利加快释放
+# On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网海口5月15日电 (记者 王子谦)海南自贸港全岛封关运作已接近5个月。自封关以来，海南自贸港政策红利加快释放，封关运作实现高标准开局，自贸港建设呈现出蹄疾步稳、欣欣向荣的良好态势。 在15日举行的“高标准建设海南自由贸易港”重庆市专场新闻发布会上，中共海南省委常委、宣传部部长，省委新闻发言人王斌作上述介绍。 2025年12月18日，海南自贸港正式启动全岛封关运作。近5个月
+尽管On Holding周二盘前交出了一份超预期的一季报，并同步上调了全年盈利指引，但公司股价却重挫逾5%，上演“业绩涨股价跌”的戏码。 财报显示，这家瑞士跑鞋制造商业绩全面飘红。在截至3月31日的季度内，净销售额同比增长14.5%至8.319亿瑞士法郎，超出市场预期的8.185亿瑞士法郎；调整后每股收益达0.37瑞士法郎，远高于分析师平均预期的0.27瑞士法郎。公司毛利率从5
 
 ## 正文
 
-中新网海口5月15日电 (记者 王子谦)海南自贸港全岛封关运作已接近5个月。
+尽管On Holding周二盘前交出了一份超预期的一季报，并同步上调了全年盈利指引，但公司股价却重挫逾5%，上演“业绩涨股价跌”的戏码。
 
-自封关以来，海南自贸港政策红利加快释放，封关运作实现高标准开局，自贸港建设呈现出蹄疾步稳、欣欣向荣的良好态势。
+财报显示，这家瑞士跑鞋制造商业绩全面飘红。
 
-在15日举行的“高标准建设海南自由贸易港”重庆市专场新闻发布会上，中共海南省委常委、宣传部部长，省委新闻发言人王斌作上述介绍。
+在截至3月31日的季度内，净销售额同比增长14.5%至8.319亿瑞士法郎，超出市场预期的8.185亿瑞士法郎；调整后每股收益达0.37瑞士法郎，远高于分析师平均预期的0.27瑞士法郎。
 
-2025年12月18日，海南自贸港正式启动全岛封关运作。
+公司毛利率从59.9%大幅提升至64.2%，净利润同比飙升82.2%至1.033亿瑞士法郎。
 
-近5个月来，政策红利从“纸面”落到“地面”，“零关税”、加工增值免关税、禁限清单等政策全面实施，享惠主体快速扩容，实际业务保持稳定增长，市场主体和老百姓“真金白银”的获得感不断增强。
+分地区看，亚太市场表现尤为亮眼，销售额同比大增44.4%；欧洲、中东及非洲市场增长22.8%；美洲市场仅微增3.1%。
 
-数据显示，2025年12月18日至2026年4月30日，海南自贸港“零关税”政策进口货值22.6亿元、同比增长99.6%；加工增值免关税政策内销货值5.1亿元，减免关税2457.3万元；禁限清单政策完成15票业务，货值350.3万元。
+鞋类业务仍是收入支柱，贡献7.637亿瑞士法郎，而服装及配饰业务分别实现45%和71%的高速增长。
 
-放宽贸易管理政策措施取得新突破，6家企业获批保税维修资质，3家企业开展“两头在外”保税维修。
+展望未来，On Holding将全年净销售额增长预期维持在至少23%（按固定汇率计），同时将毛利率指引从63%上调至至少64.5%，调整后EBITDA利润率预计在19.5%至20.0%之间。
 
-政策叠加发力，不仅让企业实现了“低成本运营+高附加值收入”，也进一步延伸了产业链条，推动产业向价值链高端攀升，政策红利加速转化为发展动能。
+分析人士指出，股价逆势下跌主要反映了市场对关税风险的担忧。
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 17:48 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 17:28 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 17:40 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 17:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 17:30 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 17:52 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 17:49 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 17:51 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 17:40 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 17:41 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 17:37 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 17:51 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 17:40 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 17:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 17:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 17:39 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 17:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 17:45 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 17:54 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 17:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 17:31 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 17:33 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 17:52 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 17:48 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 17:45 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 17:52 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 17:44 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/2231507026.shtml)
-- 2026-06-29 17:44 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/5846342499.shtml)
-- 2026-06-29 17:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/7344921.shtml)
-- 2026-06-29 17:29 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/7978486354.shtml)
-- 2026-06-29 17:45 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/09476.shtml)
-- 2026-06-29 17:26 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/577903258.shtml)
-- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/6156797061.shtml)
-- 2026-06-29 17:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/6455317.shtml)
-- 2026-06-29 17:42 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/36664915.shtml)
-- 2026-06-29 17:49 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/8772131.shtml)
-- 2026-06-29 17:51 - [叠纸](http://www.share.minike.top/Article/details/048654455990.shtml)
-- 2026-06-29 17:50 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/963472.shtml)
-- 2026-06-29 17:44 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/90245061197.shtml)
-- 2026-06-29 17:46 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/28733183.shtml)
-- 2026-06-29 17:27 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/26995846.shtml)
+- 2026-06-29 17:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/6091766146.shtml)
+- 2026-06-29 17:49 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/8084695.shtml)
+- 2026-06-29 17:51 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/374086.shtml)
+- 2026-06-29 17:35 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/410133.shtml)
+- 2026-06-29 17:48 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/2685283394.shtml)
+- 2026-06-29 17:42 - [教育部发布预警 事关高招录取](https://www.share.minike.top/Article/details/245120682881.shtml)
+- 2026-06-29 17:36 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/72993607783.shtml)
+- 2026-06-29 17:32 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/481790.shtml)
+- 2026-06-29 17:54 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/06772486837.shtml)
+- 2026-06-29 17:39 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/058640.shtml)
+- 2026-06-29 17:40 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/177841739.shtml)
+- 2026-06-29 17:47 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/294013.shtml)
+- 2026-06-29 17:52 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/720794122.shtml)
+- 2026-06-29 17:43 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/547989243.shtml)
+- 2026-06-29 17:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/0836138489.shtml)

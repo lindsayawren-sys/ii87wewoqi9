@@ -1,58 +1,59 @@
-# “海峡两岸同心光明行”慈善活动走进贵州
+# ATFX:美国CPI数据发布 美元何去何从
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网贵州晴隆5月15日电 (曾琪男)“海峡两岸同心光明行”慈善活动第三十六站15日在贵州省黔西南布依族苗族自治州晴隆县宣告启动。活动还计划前往毕节市赫章县，将为贵州100余名白内障患者实施免费复明手术。 活动集结北京与台湾眼科专家团队，全程开展术前筛查、手术施治、术后康复等一站式医疗服务，两岸医师同台诊疗、交流技术经验，为基层民众送去高质量眼科医疗服务，切实减轻困难民众就医经
+专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。 ▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间
 
 ## 正文
 
-中新网贵州晴隆5月15日电 (曾琪男)“海峡两岸同心光明行”慈善活动第三十六站15日在贵州省黔西南布依族苗族自治州晴隆县宣告启动。
+专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。
 
-活动还计划前往毕节市赫章县，将为贵州100余名白内障患者实施免费复明手术。
+4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。
 
-活动集结北京与台湾眼科专家团队，全程开展术前筛查、手术施治、术后康复等一站式医疗服务，两岸医师同台诊疗、交流技术经验，为基层民众送去高质量眼科医疗服务，切实减轻困难民众就医经济负担。
+通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。
 
-台湾眼视光医学会理事长陈德照说：“这15年来，我看过无数双康复的眼睛、病人的惊喜与感动，我们用专业架构起桥梁，让爱跨越了距离。
+▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间，但整体涨幅有限。
 
-我今年已经92岁了，在眼科服务了一辈子，我深信眼科医生的天职就是守护光明。
+CPI数据衡量的是价格增量，在国际油价温和波动的前提下，四月份环比数据极可能出现下降。
 
-” 活动是由中国和平统一促进会第八届、第九届理事张小玲发起，两岸医师共同参与，旨在加强两岸眼科医卫交流，为生活困难民众送去温暖的公益事业。
+短期CPI数据影响短期美元走势，如果市场主流观点认为下降的环比数据会降低美联储加息的紧迫性，美元可能遭受冲击。
 
-自2011年立项以来，已成功举办35站，为7500余名白内障患者实施了免费复明手术，为8000余名中小学生免费进行了验光、配镜，受到了两岸各界广泛赞誉。
+▲ATFX图 核心CPI年率，前值为2.6%，预期值为2.7%，预期增幅不明显。
 
-“活动让三代人受益，复明患者可操持家务，子女可工作建设家乡，孙儿们更加受到教育关爱。
+核心CPI月率，前值为0.2%，预期值为0.4%，预期增幅中等。
 
 ## 相关推荐
 
-- 2026-06-29 17:50 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 17:34 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-29 17:42 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-29 17:34 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 17:35 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 17:27 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 17:42 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 17:24 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 17:27 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 17:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 17:49 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 17:26 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 17:43 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 17:38 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 17:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 17:39 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 17:58 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 17:43 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 17:47 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 17:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 17:52 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 17:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 17:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 17:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 17:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/027970814.shtml)
-- 2026-06-29 17:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/87301004.shtml)
-- 2026-06-29 17:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/8096104208.shtml)
-- 2026-06-29 17:38 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/56192.shtml)
-- 2026-06-29 17:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/35050871.shtml)
-- 2026-06-29 17:31 - [一生一世](http://www.share.minike.top/Article/details/758991.shtml)
-- 2026-06-29 17:25 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/43367696884.shtml)
-- 2026-06-29 17:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/579543313182.shtml)
-- 2026-06-29 17:39 - [恋与深空失控领地](http://www.share.minike.top/Article/details/661144466115.shtml)
-- 2026-06-29 17:44 - [人类对空调和其他家电有多双标](http://www.share.minike.top/Article/details/754066.shtml)
-- 2026-06-29 17:32 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/462632611.shtml)
-- 2026-06-29 17:29 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/53359.shtml)
-- 2026-06-29 17:46 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/911521.shtml)
-- 2026-06-29 17:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/18528338496.shtml)
-- 2026-06-29 17:52 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/21100783025.shtml)
+- 2026-06-29 17:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/5846976.shtml)
+- 2026-06-29 17:49 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/641294417153.shtml)
+- 2026-06-29 17:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/98979392232.shtml)
+- 2026-06-29 17:40 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/370979398.shtml)
+- 2026-06-29 17:53 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/673102.shtml)
+- 2026-06-29 17:51 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/223973426.shtml)
+- 2026-06-29 17:46 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/32882694984.shtml)
+- 2026-06-29 17:34 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/085808629474.shtml)
+- 2026-06-29 17:49 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/572490.shtml)
+- 2026-06-29 17:43 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/78422.shtml)
+- 2026-06-29 17:37 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/88924532.shtml)
+- 2026-06-29 17:30 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/135752706.shtml)
+- 2026-06-29 17:42 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/42375831035.shtml)
+- 2026-06-29 17:45 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/67838336171.shtml)
+- 2026-06-29 17:57 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/5724567388.shtml)

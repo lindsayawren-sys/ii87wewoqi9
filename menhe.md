@@ -1,60 +1,58 @@
-# 重庆：每20.99万人拥有一家博物馆
+# 光大期货：5月12日软商品日报
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月16日电 (记者 钟旖)“5·18国际博物馆日”将至，记者16日从重庆市文化旅游委获悉，截至2025年底，该市备案博物馆总数达152家，区县博物馆覆盖率100%，每20.99万人即拥有一家博物馆，基本达到全国平均水平。 据介绍，重庆以巴渝文化、三峡文化、革命文化、抗战文化、统战文化、移民文化为核心，构建起历史、革命、抗战、工业、自然“五大博物馆群”，形成覆盖城乡、
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2025/26榨季截至5月5日，泰国累计甘蔗入榨量为10586.1823万吨；甘蔗含糖分12.94%；产糖率为11.333%；产糖量为1199.69万吨。其中，白糖产量235.85万吨，原糖产量916.45万吨，精制糖产量47.39万吨。现货报价方面，广西制糖集团报价区间5380~54
 
 ## 正文
 
-中新网重庆5月16日电 (记者 钟旖)“5·18国际博物馆日”将至，记者16日从重庆市文化旅游委获悉，截至2025年底，该市备案博物馆总数达152家，区县博物馆覆盖率100%，每20.99万人即拥有一家博物馆，基本达到全国平均水平。
+白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，2025/26榨季截至5月5日，泰国累计甘蔗入榨量为10586.1823万吨；甘蔗含糖分12.94%；产糖率为11.333%；产糖量为1199.69万吨。
 
-据介绍，重庆以巴渝文化、三峡文化、革命文化、抗战文化、统战文化、移民文化为核心，构建起历史、革命、抗战、工业、自然“五大博物馆群”，形成覆盖城乡、特色鲜明、开放普惠的博物馆体系。
+其中，白糖产量235.85万吨，原糖产量916.45万吨，精制糖产量47.39万吨。
 
-152家博物馆中，按类型划分，综合地志类34家、革命纪念类39家、历史文化类37家、考古遗址类8家、艺术类8家、自然科技类11家、其他类15家。
+现货报价方面，广西制糖集团报价区间5380~5470元/吨，部分上调10~20元/吨；云南制糖集团报价5190~5250元/吨，上调10元/吨；加工糖厂主流报价区间为5740~5920元/吨，部分上调10~80元/吨。
 
-按区域划分，主城都市区有108家、渝东北三峡库区有30家、渝东南武陵山区有14家。
+原糖方面，近期宏观扰动依旧，停火协议极为脆弱，原油价格波动较大，原糖价格小幅上行，未来短期宏观影响仍大于基本面，中期关注巴西压榨进度及天气情况。
 
-数据显示，博物馆已成为重庆城市文化地标和文旅融合的重要引擎。
+国内方面，纯去库阶段，未来关注销售进度，盘面分歧较大，弱现实与强预期并存，预计震荡行情延续短期略偏强。
 
-2025年，重庆全市博物馆全面取消参观预约，实行“随到随入”免预约制度，极大提升了观众入馆便利度和观展热情。
+棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周一，ICE美棉上涨4.08%，报收88.19美分/磅，郑棉主力合约环比下降0.82%，报收16335元/吨，主力合约持仓环比下降7714手至80.93万手，棉花3128B现货价格指数1748元/吨，较前一日下降5元/吨。
 
-全市博物馆2025年度共举办陈列展览1062个，同比增长14.32%；开展社会教育活动16977场次，同比增长19.88%；共接待观众4505.79万人次，同比增长7.22%。
+国际市场方面，近期原油价格波动较大，对美棉期价仍有一定影响。
 
-另有数据显示，“十四五”期间，重庆市博物馆事业取得跨越式发展，文博服务体系持续健全，公共服务质效稳步提升。
+消息方面，特朗普将于13-15日访华，双方经贸团队也将在韩国进行磋商，关注谈判进展。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 17:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 17:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 17:35 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 17:35 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 17:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 17:24 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 17:37 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 17:37 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 17:28 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 17:51 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 17:35 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 17:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 17:43 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 17:51 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 17:32 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 17:35 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 17:57 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-29 17:35 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 17:52 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 17:44 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 17:56 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 17:51 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:35 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 17:55 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 17:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/4019176336.shtml)
-- 2026-06-29 17:33 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/415840.shtml)
-- 2026-06-29 17:24 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/3227113872.shtml)
-- 2026-06-29 17:49 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/489154.shtml)
-- 2026-06-29 17:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/802771030114.shtml)
-- 2026-06-29 17:38 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/44217.shtml)
-- 2026-06-29 17:32 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/99612271.shtml)
-- 2026-06-29 17:39 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/95723.shtml)
-- 2026-06-29 17:42 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/44393236404.shtml)
-- 2026-06-29 17:43 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/0600266.shtml)
-- 2026-06-29 17:41 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/622512397.shtml)
-- 2026-06-29 17:34 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/88008134.shtml)
-- 2026-06-29 17:24 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/8158277516.shtml)
-- 2026-06-29 17:43 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/137156982.shtml)
-- 2026-06-29 17:45 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/515360.shtml)
+- 2026-06-29 17:57 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/33692.shtml)
+- 2026-06-29 17:47 - [中国空间站为什么要升级扩容](http://www.blog.kurohicncr.top/Article/details/88305957769.shtml)
+- 2026-06-29 17:51 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/122768131.shtml)
+- 2026-06-29 17:35 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/332802107.shtml)
+- 2026-06-29 17:34 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6519407136.shtml)
+- 2026-06-29 17:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/1515833754.shtml)
+- 2026-06-29 17:33 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/0662058.shtml)
+- 2026-06-29 17:56 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/388395716.shtml)
+- 2026-06-29 17:57 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/5698845.shtml)
+- 2026-06-29 18:00 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/7226945451.shtml)
+- 2026-06-29 17:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/101383.shtml)
+- 2026-06-29 17:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/449172.shtml)
+- 2026-06-29 17:51 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/40738588054.shtml)
+- 2026-06-29 17:33 - [众星恭喜吴建豪](http://www.blog.minike.top/Article/details/08901.shtml)
+- 2026-06-29 17:57 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/00032447408.shtml)

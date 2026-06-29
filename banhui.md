@@ -1,57 +1,60 @@
-# 船进港、网入库、人上岸 松花江全线进入77天禁渔期
+# 东方园林（东方新能，002310）索赔倒计时两个月，园城黄金（600766）索赔案已有胜诉
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网佳木斯5月17日电(缪海月 鲁春光 徐志强)16日12时起，松花江全线进入77天禁渔期，同江市渔业行政执法大队组织开展专项执法行动，让禁渔制度落到实处，守护松花江流域的生态平衡。 松花江是中俄界江黑龙江右岸最大支流，涵盖黑龙江、吉林、辽宁、内蒙古四省区。 据同江市渔业行政执法大队执法一中队中队长吴兴华介绍，黑龙江省农业农村厅发布的2026年禁渔期通告中明确，自5月16日1
+上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2024年1月31日晚，东方园林公告收
 
 ## 正文
 
-中新网佳木斯5月17日电(缪海月 鲁春光 徐志强)16日12时起，松花江全线进入77天禁渔期，同江市渔业行政执法大队组织开展专项执法行动，让禁渔制度落到实处，守护松花江流域的生态平衡。
+上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。
 
-松花江是中俄界江黑龙江右岸最大支流，涵盖黑龙江、吉林、辽宁、内蒙古四省区。
+（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-据同江市渔业行政执法大队执法一中队中队长吴兴华介绍，黑龙江省农业农村厅发布的2026年禁渔期通告中明确，自5月16日12时起，松花江全流域进入禁渔期，为期77天。
+2024年1月31日晚，东方园林公告收到证监会北京监管局出具的《行政处罚决定书》，经查明，东方园林违法事实如下： 2018年6月，东方园林及其子公司组成联合体，中标广西贵港市覃塘区全域旅游PPP项目。
 
-通告要求，所有渔船必须撤出作业滩地，船要上锁，网要入库。
+2019年12月，东方园林根据与供应商成本扣减结算情况，调减广西贵港项目相关成本2，232.19万元，但未在2019年相应调减营业收入3，541.84万元，直到2022年才进行调整。
 
-另外，新版《中华人民共和国渔业法》于5月1日刚刚开始施行。
+该情况导致公司2019年度虚增收入、利润及资产各3，541.84万元，2020年度、2021年度虛增资产各3，541.84万元，2022年度虚减收入、利润各3，541.84万元。
 
-在新渔业法中，对各类违法违规捕捞的处罚力度更大，渔政执法大队会加大巡查力度，严厉打击违法违规捕捞，以实际行动维护法律的权威。
+“20东林G1”公司债券募集说明书使用了2019年年度报告相关财务数据。
 
-近年来，同江市持续加大松花江流域渔业生态保护力度，坚持“人防+技防”相结合，不断完善禁渔期管理制度。
+上述事项导致东方园林2019年至2022年年度报告及“20东林G1”公司债券募集说明书存在错报。
 
-每到禁渔期，执法部门提前部署，通过水上巡查、岸线管控、视频监控等多种手段，确保禁渔水域“船进港、网入库、人上岸”。
+许峰律师认为，在2020年4月30日到2023年7月13日之间买入东方园林股票，并且在2023年7月13日后卖出或继续持有股票的投资者，在最后两个月诉讼时效内还可发起索赔。
 
 ## 相关推荐
 
-- 2026-06-29 17:27 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 17:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 17:52 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 17:34 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 17:45 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 17:35 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 17:46 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 17:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 17:31 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 17:43 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 17:36 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 17:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 17:32 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 17:49 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:37 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 17:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 17:37 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 17:31 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 17:34 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 17:36 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 17:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 17:36 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 17:34 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 17:38 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 17:32 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.kurohicncr.top/Article/details/99989.shtml)
-- 2026-06-29 17:27 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/9924255186.shtml)
-- 2026-06-29 17:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/357562.shtml)
-- 2026-06-29 17:34 - [小鹏MONAL03预售定档7月2日](https://www.share.kurohicncr.top/Article/details/28622.shtml)
-- 2026-06-29 17:44 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/099357965.shtml)
-- 2026-06-29 17:28 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/93032.shtml)
-- 2026-06-29 17:37 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/28240.shtml)
-- 2026-06-29 17:34 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/871537917.shtml)
-- 2026-06-29 17:35 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/92165326970.shtml)
-- 2026-06-29 17:34 - [爱很美味](http://www.share.minike.top/Article/details/66419832518.shtml)
-- 2026-06-29 17:39 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/822102835.shtml)
-- 2026-06-29 17:28 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/27844302365.shtml)
-- 2026-06-29 17:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/500692869347.shtml)
-- 2026-06-29 17:42 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/587057369993.shtml)
-- 2026-06-29 17:29 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/93128861995.shtml)
+- 2026-06-29 17:38 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/9304332290.shtml)
+- 2026-06-29 17:33 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/6794806769.shtml)
+- 2026-06-29 17:34 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/31967861923.shtml)
+- 2026-06-29 17:49 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/000036089.shtml)
+- 2026-06-29 17:32 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/275012711.shtml)
+- 2026-06-29 17:38 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/624468671362.shtml)
+- 2026-06-29 17:53 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/306074059.shtml)
+- 2026-06-29 17:56 - [王楚钦开门红](http://www.share.minike.top/Article/details/85328.shtml)
+- 2026-06-29 17:52 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/9120163.shtml)
+- 2026-06-29 17:56 - [众星恭喜吴建豪](http://www.share.kurohicncr.top/Article/details/17645.shtml)
+- 2026-06-29 17:44 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/167880258957.shtml)
+- 2026-06-29 17:57 - [评论员：日菲勾连各有盘算](http://www.share.minike.top/Article/details/434900797.shtml)
+- 2026-06-29 17:46 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/81096753.shtml)
+- 2026-06-29 17:41 - [东方风云榜](http://www.share.minike.top/Article/details/818862.shtml)
+- 2026-06-29 17:43 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/7472642.shtml)

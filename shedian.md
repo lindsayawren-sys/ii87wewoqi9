@@ -1,48 +1,46 @@
-# 宁波余姚农村商业银行被罚227.25万元：违反账户管理规定等
+# 外交部：中美经贸关系的本质是互利共赢
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-5月15日金融一线消息，中国人民银行宁波市分行行政处罚决定信息公示表显示，宁波余姚农村商业银行因违反账户管理规定；违反网络安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；未按照规定开展客户尽职调查；未按照规定报告可疑交易，被中国人民银行宁波市分行警告，没收违法所得4456.17元，罚款227.25万元。 序号 当事人名称 行政处罚 决定书文号 违法行为类型 行政
+5月12日，外交部发言人郭嘉昆主持例行记者会。在回答有关中美经贸关系的问题时，郭嘉昆表示，中美经贸关系的本质是互利共赢，双方应该共同落实好两国元首达成的重要共识，为中美经贸合作和世界经济注入更多的稳定性，具体问题建议向中方主管部门进行询问。 （总台央视记者 赵晶 张雪松）责任编辑：刘万里 SF014
 
 ## 正文
 
-5月15日金融一线消息，中国人民银行宁波市分行行政处罚决定信息公示表显示，宁波余姚农村商业银行因违反账户管理规定；违反网络安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；未按照规定开展客户尽职调查；未按照规定报告可疑交易，被中国人民银行宁波市分行警告，没收违法所得4456.17元，罚款227.25万元。
+5月12日，外交部发言人郭嘉昆主持例行记者会。
 
-序号 当事人名称 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚 决定机关名称 作出行政处罚 决定日期 公示期限 备注 1 宁波余姚农村商业银行股份有限公司 甬银罚决字〔2026〕1号 1.违反账户管理规定； 2.违反网络安全管理规定； 3.违反人民币流通管理规定； 4.违反反假货币业务管理规定； 5.未按照规定开展客户尽职调查； 6.未按照规定报告可疑交易。
+在回答有关中美经贸关系的问题时，郭嘉昆表示，中美经贸关系的本质是互利共赢，双方应该共同落实好两国元首达成的重要共识，为中美经贸合作和世界经济注入更多的稳定性，具体问题建议向中方主管部门进行询问。
 
-警告，没收违法所得4456.17元，罚款227.25万元 中国人民银行 宁波市分行 2026年5月9日 三年 责任编辑：李琳琳
+（总台央视记者 赵晶 张雪松）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 17:48 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 17:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 17:50 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 17:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-29 17:30 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 17:46 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 17:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 17:46 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 17:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 17:32 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 17:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 17:34 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-29 17:49 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 17:54 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 17:59 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 17:50 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 17:47 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 17:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 17:45 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 17:59 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 17:58 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/933406.shtml)
-- 2026-06-29 17:49 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/3170463.shtml)
-- 2026-06-29 17:37 - [小娘惹](https://www.share.minike.top/Article/details/25178.shtml)
-- 2026-06-29 17:40 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/630445.shtml)
-- 2026-06-29 17:42 - [逆天祖国人](https://www.blog.minike.top/Article/details/72453254803.shtml)
-- 2026-06-29 17:46 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/5375239.shtml)
-- 2026-06-29 17:51 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/362151775173.shtml)
-- 2026-06-29 17:45 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/387514202.shtml)
-- 2026-06-29 17:43 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/389904.shtml)
-- 2026-06-29 17:42 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/966902.shtml)
-- 2026-06-29 17:48 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/196856.shtml)
-- 2026-06-29 17:34 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/5506010563.shtml)
-- 2026-06-29 17:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/0997507.shtml)
-- 2026-06-29 17:32 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/72589129938.shtml)
-- 2026-06-29 17:26 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/34153582.shtml)
+- 2026-06-29 17:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/307473340.shtml)
+- 2026-06-29 17:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/106249869.shtml)
+- 2026-06-29 17:31 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/9770856831.shtml)
+- 2026-06-29 17:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/45205943297.shtml)
+- 2026-06-29 17:56 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/4862786.shtml)
+- 2026-06-29 17:43 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/000733578629.shtml)
+- 2026-06-29 17:44 - [沉睡花园](https://www.blog.minike.top/Article/details/1742332.shtml)
+- 2026-06-29 17:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/902053180.shtml)
+- 2026-06-29 17:56 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/542631691217.shtml)
+- 2026-06-29 17:43 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/839121246.shtml)
+- 2026-06-29 17:54 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/5853637.shtml)
+- 2026-06-29 17:32 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/340129.shtml)
+- 2026-06-29 17:31 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/2926641754.shtml)
+- 2026-06-29 17:36 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/3162515.shtml)
+- 2026-06-29 17:49 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/3612076386.shtml)

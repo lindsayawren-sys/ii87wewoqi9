@@ -1,58 +1,60 @@
-# （乡村行·看振兴）贵州遵义：辣椒移栽正当时 科研育种助增收
+# 赖亚文当选新一届中国排球协会主席
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网贵州遵义5月15日电 (陈海东 张伟)初夏时节，在贵州省遵义市汇川区团泽镇和平村，遵义市农科院科研基地内田垄上，十几位村民在科研人员指导下手持特制木棍，弯腰、打孔、放苗、拢土……动作一气呵成。这里是遵义市农科院辣椒研究所的种质资源创新与利用核心基地，也是该院辣椒新品种选育的“心脏”。 “这可不是普通的移栽。”辣椒研究所副所长任朝辉蹲在地头，手里拿着一根前端削尖的木棍，向记
+中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。 会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。 赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会
 
 ## 正文
 
-中新网贵州遵义5月15日电 (陈海东 张伟)初夏时节，在贵州省遵义市汇川区团泽镇和平村，遵义市农科院科研基地内田垄上，十几位村民在科研人员指导下手持特制木棍，弯腰、打孔、放苗、拢土……动作一气呵成。
+中新社北京5月12日电 中国排球协会第八届会员大会12日在北京举行，赖亚文当选新一届中国排球协会主席。
 
-这里是遵义市农科院辣椒研究所的种质资源创新与利用核心基地，也是该院辣椒新品种选育的“心脏”。
+会议完成了协会换届选举工作，按照国家有关社会团体管理相关规定，赖亚文当选中国排协主席，薛辉、陈少军、乔云萍、张欣、陈东升、盖洋当选副主席，袁磊当选副主席兼秘书长。
 
-“这可不是普通的移栽。
+赖亚文总结了第七届委员会工作，代表中国排协对为中国排球作出杰出贡献的前辈和第七届委员会成员表示衷心感谢，并对协会下一步工作进行了展望。
 
-”辣椒研究所副所长任朝辉蹲在地头，手里拿着一根前端削尖的木棍，向记者演示起来，“这叫辣椒井窖式移栽方法。
+公开资料显示，赖亚文出生于1970年，是中国女排的功勋球员和教练员。
 
-” 只见他利落地用木棍在覆膜的土地上戳出一个深约10厘米的洞，旁边的科研人员迅速将一株辣椒苗放入洞中，随手从四周拢过土来轻轻围住苗茎。
+运动员时期，她曾担任中国女排队长，1996年帮助中国女排拿到亚特兰大奥运会银牌。
 
-“你看，这样移栽速度快，天气好的时候，一天能栽好几亩。
+退役后，赖亚文从1999年开始转型为中国女排助理教练，经历胡进、陈忠和、蔡斌、俞觉敏、郎平等主教练，协助中国女排夺得2003年、2015年两届世界杯冠军以及2004年、2016年两届奥运会冠军。
 
-封土的环节可以往后放，把集中操作拆成几个步骤，效率一下就上来了。
+2017年，赖亚文被任命为国家体育总局排球运动管理中心副主任，2023年出任国家体育总局排球运动管理中心主任。
 
-” 不远处，几位科研人员正在另一垄地里忙碌。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 17:29 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 17:42 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 17:46 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 17:28 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 17:53 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 17:25 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 17:30 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 17:29 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 17:49 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 17:36 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 17:24 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 17:35 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 17:53 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 17:59 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 17:45 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 17:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 17:48 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 17:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 17:59 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 17:40 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-29 17:48 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 17:58 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 17:40 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 17:56 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 17:50 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/4604188.shtml)
-- 2026-06-29 17:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/1156789360.shtml)
-- 2026-06-29 17:34 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/659059949.shtml)
-- 2026-06-29 17:47 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/81132881.shtml)
-- 2026-06-29 17:45 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/6427765715.shtml)
-- 2026-06-29 17:33 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/875748396.shtml)
-- 2026-06-29 17:33 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/423999.shtml)
-- 2026-06-29 17:40 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/44928437.shtml)
-- 2026-06-29 17:40 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/206450341.shtml)
-- 2026-06-29 17:46 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/15219140.shtml)
-- 2026-06-29 17:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/906561.shtml)
-- 2026-06-29 17:32 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/08558.shtml)
-- 2026-06-29 17:37 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/5640130248.shtml)
-- 2026-06-29 17:38 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/41592600058.shtml)
-- 2026-06-29 17:42 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/6077035407.shtml)
+- 2026-06-29 17:49 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/144848787.shtml)
+- 2026-06-29 17:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/137368497150.shtml)
+- 2026-06-29 17:52 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/779941.shtml)
+- 2026-06-29 17:32 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/33332127.shtml)
+- 2026-06-29 17:37 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/373700.shtml)
+- 2026-06-29 17:40 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/48078.shtml)
+- 2026-06-29 17:58 - [天道](https://www.share.kurohicncr.top/Article/details/793095.shtml)
+- 2026-06-29 17:40 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/174188.shtml)
+- 2026-06-29 17:40 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/6402584.shtml)
+- 2026-06-29 17:51 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/875343.shtml)
+- 2026-06-29 17:41 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/567589465499.shtml)
+- 2026-06-29 17:58 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/789572533428.shtml)
+- 2026-06-29 17:56 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/294462055789.shtml)
+- 2026-06-29 17:39 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/728133.shtml)
+- 2026-06-29 17:51 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/895827454904.shtml)

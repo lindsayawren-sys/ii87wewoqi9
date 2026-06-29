@@ -1,50 +1,44 @@
-# 宁夏银川发布城市暴雨积涝预警
+# 谭德塞：没有任何迹象显示汉坦病毒正出现大规模暴发
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网银川5月15日电 (记者 杨迪)气象部门预报显示，5月15日傍晚至16日上午，银川市有一次中到大雨天气过程。其中，贺兰山沿山、兴庆区、贺兰县、灵武市东南部累积降雨量达25毫米～40毫米，其他地区为10毫米～25毫米。 为此，银川市城市管理局与银川市气象局15日联合发布城市暴雨积涝气象风险Ⅳ级预警(蓝色)：预计5月15日23时到16日08时，银川市兴庆区、金凤区、西夏区易涝
+当地时间12日，总台记者获悉，世界卫生组织总干事谭德塞表示，没有任何迹象显示汉坦病毒正出现更大规模的暴发。 （总台记者 薛婧萌） 责任编辑：刘万里 SF014
 
 ## 正文
 
-中新网银川5月15日电 (记者 杨迪)气象部门预报显示，5月15日傍晚至16日上午，银川市有一次中到大雨天气过程。
+当地时间12日，总台记者获悉，世界卫生组织总干事谭德塞表示，没有任何迹象显示汉坦病毒正出现更大规模的暴发。
 
-其中，贺兰山沿山、兴庆区、贺兰县、灵武市东南部累积降雨量达25毫米～40毫米，其他地区为10毫米～25毫米。
-
-为此，银川市城市管理局与银川市气象局15日联合发布城市暴雨积涝气象风险Ⅳ级预警(蓝色)：预计5月15日23时到16日08时，银川市兴庆区、金凤区、西夏区易涝路段、立交涵洞、地下商场与车库等地势较低地段有积水风险，请注意防范。
-
-(完)
+（总台记者 薛婧萌） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 17:25 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 17:34 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 17:44 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 17:31 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 17:29 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 17:40 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 17:40 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 17:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 17:34 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 17:38 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 17:33 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 17:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 17:54 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 17:44 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 17:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 17:37 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 17:59 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 17:49 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 17:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 17:54 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 17:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [极限挑战第一季](http://www.blog.minike.top/Article/details/833854192515.shtml)
-- 2026-06-29 17:44 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/86054976648.shtml)
-- 2026-06-29 17:46 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/831725368.shtml)
-- 2026-06-29 17:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/74399548676.shtml)
-- 2026-06-29 17:45 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/956584.shtml)
-- 2026-06-29 17:28 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/9888183308.shtml)
-- 2026-06-29 17:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/51323879046.shtml)
-- 2026-06-29 17:47 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/31949.shtml)
-- 2026-06-29 17:44 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/62517723.shtml)
-- 2026-06-29 17:34 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/5600510.shtml)
-- 2026-06-29 17:43 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/861270088.shtml)
-- 2026-06-29 17:37 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/66290.shtml)
-- 2026-06-29 17:26 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/3813943827.shtml)
-- 2026-06-29 17:29 - [天柱山回应网红打卡树枝被砍](https://www.share.kurohicncr.top/Article/details/2774230.shtml)
-- 2026-06-29 17:51 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/34056.shtml)
+- 2026-06-29 17:49 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/52386862.shtml)
+- 2026-06-29 17:42 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/383889.shtml)
+- 2026-06-29 17:33 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/18047.shtml)
+- 2026-06-29 17:44 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/055876.shtml)
+- 2026-06-29 17:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/45543303031.shtml)
+- 2026-06-29 17:51 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/147687047111.shtml)
+- 2026-06-29 17:53 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/13905462170.shtml)
+- 2026-06-29 17:47 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/88440151858.shtml)
+- 2026-06-29 17:44 - [东方风云榜红毯](http://www.share.minike.top/Article/details/75130312.shtml)
+- 2026-06-29 17:43 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/542562799.shtml)
+- 2026-06-29 17:59 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/70902579498.shtml)
+- 2026-06-29 17:59 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/7997299.shtml)
+- 2026-06-29 17:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/781842928.shtml)
+- 2026-06-29 17:31 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/097788188.shtml)
+- 2026-06-29 17:55 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/64631505777.shtml)

@@ -1,59 +1,56 @@
-# 世界超级摩托车锦标赛捷克站：“张雪机车”首回合正赛夺冠
+# 溯源南岛语族 共续海洋文脉：2026两岸海洋文化交流平台走进平潭
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新社北京5月16日电 当地时间5月16日，在2026世界超级摩托车锦标赛(WSBK)捷克站World SSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。这也是他与“张雪机车”的赛季第四冠。德比斯在15日进行的本站超级杆位赛中位列第三名，但因在自由练习中慢速行驶受到处罚，正赛以第六位发车。“张雪机车”的另一名车手卡里卡苏洛从第10位发车。
+中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。 全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中
 
 ## 正文
 
-中新社北京5月16日电 当地时间5月16日，在2026世界超级摩托车锦标赛(WSBK)捷克站World SSP组别第一回合正赛中，中国摩托车制造商“张雪机车”的法国车手瓦伦丁·德比斯夺得冠军。
+中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。
 
-这也是他与“张雪机车”的赛季第四冠。
+活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。
 
-德比斯在15日进行的本站超级杆位赛中位列第三名，但因在自由练习中慢速行驶受到处罚，正赛以第六位发车。
+全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。
 
-“张雪机车”的另一名车手卡里卡苏洛从第10位发车。
+2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中华海洋文化传承等议题开展交流，有助于两岸同胞把握潮流大势、坚守民族大义、厚植历史自信。
 
-比赛开始后，德比斯并未立即进入最佳状态，稳定在第五位。
+台盟坚持继承和弘扬台湾同胞爱国爱乡光荣传统，矢志推动两岸关系和平发展、推进祖国统一大业，通过搭建海洋文化交流平台等举措，促进两岸交流交往交融。
 
-第七圈，德比斯先完成一次超车，随后连续超越前方对手，在第八圈来到第一位。
+她期盼本次活动助力平潭建设两岸共同市场先行区域，加快建成经济发展、社会和谐、环境优美、独具特色的两岸同胞共同家园。
 
-此后他成功守住头名位置，最后率先冲线，斩获本回合赛事冠军，并在最后一圈跑出1分34秒336的全场最快圈速。
+全国政协常委、港澳台侨委员会主任刘赐贵表示，全国政协港澳台侨委员会始终把深化两岸各领域交流合作、促进两岸同胞心灵契合作为重要履职方向。
 
-驾驶雅马哈赛车的恩居、阿雷纳斯分获第二、三名。
+委员会坚定支持台盟等民主党派发挥特色优势，开展形式多样的对台交流活动，为两岸同胞交流交往交融搭建更多平台、创造更好条件。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 17:37 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 17:30 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 17:48 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 17:47 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 17:52 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 17:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 17:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 17:50 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-29 17:36 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 17:48 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 17:46 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 17:27 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 17:40 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 17:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 17:39 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 17:36 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 17:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 17:46 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 17:49 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 17:44 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 17:55 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 17:59 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [存储三巨头被告了](https://www.share.minike.top/Article/details/2409395.shtml)
-- 2026-06-29 17:37 - [小鹏MONAL03预售定档7月2日](http://www.share.kurohicncr.top/Article/details/92071.shtml)
-- 2026-06-29 17:38 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.kurohicncr.top/Article/details/762483.shtml)
-- 2026-06-29 17:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/469058767.shtml)
-- 2026-06-29 17:35 - [巴西球员：日本队有点傲慢了](http://www.share.minike.top/Article/details/48057.shtml)
-- 2026-06-29 17:44 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/513616241214.shtml)
-- 2026-06-29 17:49 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/759998.shtml)
-- 2026-06-29 17:38 - [娜扎搂着我的腰和我合照](http://www.blog.kurohicncr.top/Article/details/37664847.shtml)
-- 2026-06-29 17:46 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/350989564.shtml)
-- 2026-06-29 17:42 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/740707299.shtml)
-- 2026-06-29 17:40 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/334570174453.shtml)
-- 2026-06-29 17:39 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/076785345.shtml)
-- 2026-06-29 17:44 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/101375.shtml)
-- 2026-06-29 17:52 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/320982.shtml)
-- 2026-06-29 17:35 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/20327370622.shtml)
+- 2026-06-29 17:46 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/679192.shtml)
+- 2026-06-29 17:44 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/4455626934.shtml)
+- 2026-06-29 17:37 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/35030.shtml)
+- 2026-06-29 17:51 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/40994795749.shtml)
+- 2026-06-29 17:42 - [我和我的家乡](http://www.share.minike.top/Article/details/08374.shtml)
+- 2026-06-29 17:47 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/8465050.shtml)
+- 2026-06-29 17:58 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/02716362.shtml)
+- 2026-06-29 17:36 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/6909220.shtml)
+- 2026-06-29 17:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/741614375638.shtml)
+- 2026-06-29 17:47 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/9873214213.shtml)
+- 2026-06-29 17:57 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/83053567.shtml)
+- 2026-06-29 17:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/31393459.shtml)
+- 2026-06-29 17:53 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/45909477288.shtml)
+- 2026-06-29 17:39 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/8949598.shtml)
+- 2026-06-29 17:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/359215.shtml)

@@ -1,56 +1,56 @@
-# 警护“青绿”赋能全域 浙江德清探索生态守护新范式
+# 你的AI求职“搭子”靠谱吗？
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网湖州5月16日电(黄彦君)“绿水青山”如何守护、生态价值如何转化？在浙江湖州，当地于2020年首创生态警务特色警务品牌。以该市德清县为例，公安机关以警务力量守好生态环境，实现生态保护与富民兴业“双向奔赴”。 莫干山深处，层峦叠嶂、林海苍翠，随处可见外籍游客的身影。据了解，当地是中国“洋家乐”民宿产业发源地之一。这里聚集了来自法国、英国、荷兰等18个国家的投资者，形成国际文
+一项面向2040名2026届毕业生发起的问卷调查显示，超过86%的受访毕业生在今年春招中使用过生成式AI工具。越来越多毕业生用AI改简历、为面试“押题”甚至“反向背调”企业，提升效率的同时，简历同质化、过度依赖AI、“赛博小抄”等问题却也无法忽视。AI写简历、辅导面试到底靠不靠谱？哪些场景适合用AI提效，哪些必须自己把关？希望网友和专业人士以及智能软件的回答，能给大家提供一些思
 
 ## 正文
 
-中新网湖州5月16日电(黄彦君)“绿水青山”如何守护、生态价值如何转化？
+一项面向2040名2026届毕业生发起的问卷调查显示，超过86%的受访毕业生在今年春招中使用过生成式AI工具。
 
-在浙江湖州，当地于2020年首创生态警务特色警务品牌。
+越来越多毕业生用AI改简历、为面试“押题”甚至“反向背调”企业，提升效率的同时，简历同质化、过度依赖AI、“赛博小抄”等问题却也无法忽视。
 
-以该市德清县为例，公安机关以警务力量守好生态环境，实现生态保护与富民兴业“双向奔赴”。
+AI写简历、辅导面试到底靠不靠谱？
 
-莫干山深处，层峦叠嶂、林海苍翠，随处可见外籍游客的身影。
+哪些场景适合用AI提效，哪些必须自己把关？
 
-据了解，当地是中国“洋家乐”民宿产业发源地之一。
+希望网友和专业人士以及智能软件的回答，能给大家提供一些思路和帮助。
 
-这里聚集了来自法国、英国、荷兰等18个国家的投资者，形成国际文化与中国乡村风情融合的乡村旅游模式。
+欢迎到《中国青年报》知乎账号或者邮箱(qnsxyjb@163.com)留下你的问题。
 
-面对日益国际化的社区，公安机关的守护也在悄然升级。
+知乎网友@唐安妮：春招竞争激烈，毕业生要准备简历、投递岗位、准备面试，时间紧、任务重，AI可以帮你梳理逻辑、修正语病，提高效率，节省时间。
 
-当地一位生态警长介绍，许多外国朋友刚来到中国时，对本地的生态保护政策并不了解，容易造成误会。
+但问题的关键在于，很多同学把AI当成了“万能神器”，完全依赖AI，自己不思考、不核对，甚至连AI写的内容是什么意思都不清楚，这就本末倒置了。
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 17:40 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 17:32 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 17:45 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 17:42 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 17:40 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 17:39 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 17:50 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 17:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 17:24 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 17:45 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 17:35 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 17:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 17:37 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 17:37 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 17:38 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 17:48 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 17:53 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 17:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 17:52 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/4643217134.shtml)
-- 2026-06-29 17:48 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/88432.shtml)
-- 2026-06-29 17:49 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/497009563.shtml)
-- 2026-06-29 17:43 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/00023186.shtml)
-- 2026-06-29 17:24 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/0869487.shtml)
-- 2026-06-29 17:33 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/19410706589.shtml)
-- 2026-06-29 17:38 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/18970.shtml)
-- 2026-06-29 17:31 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/6287066451.shtml)
-- 2026-06-29 17:41 - [逆天祖国人](http://www.share.minike.top/Article/details/40611189839.shtml)
-- 2026-06-29 17:35 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/34874020431.shtml)
-- 2026-06-29 17:46 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/876974.shtml)
-- 2026-06-29 17:45 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/24893032.shtml)
-- 2026-06-29 17:34 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/1066981.shtml)
-- 2026-06-29 17:41 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/083819.shtml)
-- 2026-06-29 17:32 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/9307079129.shtml)
+- 2026-06-29 17:50 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/499671314.shtml)
+- 2026-06-29 17:39 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/94339802919.shtml)
+- 2026-06-29 17:59 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.kurohicncr.top/Article/details/255503.shtml)
+- 2026-06-29 17:54 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/91905.shtml)
+- 2026-06-29 17:34 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/225748530.shtml)
+- 2026-06-29 17:59 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/501769.shtml)
+- 2026-06-29 17:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/670604.shtml)
+- 2026-06-29 17:37 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/51034415080.shtml)
+- 2026-06-29 17:44 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/408396895.shtml)
+- 2026-06-29 17:52 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/986357604.shtml)
+- 2026-06-29 17:42 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/2265624.shtml)
+- 2026-06-29 17:54 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/88944911508.shtml)
+- 2026-06-29 17:56 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/20996718.shtml)
+- 2026-06-29 17:59 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/7717836.shtml)
+- 2026-06-29 17:52 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/8224883.shtml)

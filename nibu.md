@@ -1,59 +1,57 @@
-# 九连板牛股，提示风险！实控人无注入算力资产计划
+# 一场“无电视”的发布会，揭开海信视像第二增长曲线
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 *ST准油（维权）（002207）称公司、控股股东和实控人并无注入算力资产计划。 在二级市场斩获九连板的*ST准油，于5月17日发布了股票交易异常波动暨风险提示性公告，其中提到，近期公司关注到，东方财富股吧有投资者发帖称公司有“可能注入算力资产”的计划，公司澄清，公司、控股股东和实际控制人并
+5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。 50余年，海信沉淀了最硬核的显示底色。2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。正是循着这个战略，海信开始了全场景生态的探索。 “未来的智能硬件，屏幕
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。
 
-来源：资本秘闻 *ST准油（维权）（002207）称公司、控股股东和实控人并无注入算力资产计划。
+这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。
 
-在二级市场斩获九连板的*ST准油，于5月17日发布了股票交易异常波动暨风险提示性公告，其中提到，近期公司关注到，东方财富股吧有投资者发帖称公司有“可能注入算力资产”的计划，公司澄清，公司、控股股东和实际控制人并无注入算力资产的计划。
+50余年，海信沉淀了最硬核的显示底色。
 
-截至目前，公司不存在应披露而未披露的重大事项，或处于筹划阶段的重大事项。
+2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。
 
-公告显示，*ST准油连续2个交易日（5月14日、5月15日）日收盘价格涨幅偏离值累计达到12%。
+正是循着这个战略，海信开始了全场景生态的探索。
 
-根据规定，属于股票交易异常波动情形。
+“未来的智能硬件，屏幕不再是配件，而是感知的核⼼入口。
 
-交易行情显示，4月30日—5月15日这9个交易日内，*ST准油接连斩获了九个涨停板，公司股价区间累计涨幅达55.2%。
+既然技术走到了这里，海信作为显示龙头，就必须出现在这里！
 
-截至5月15日收盘，*ST准油收于涨停价10.15元/股，总市值26.6亿元。
+”海信视像科技总裁李炜在发布会上公开了海信的发展逻辑：不是海信进⼊了3C，而是3C终于进⼊了“显示智能”时代。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 17:42 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 17:26 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 17:36 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 17:46 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 17:34 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-29 17:25 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 17:31 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 17:43 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 17:29 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 17:41 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 17:39 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 17:41 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 17:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 17:54 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 17:57 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-29 17:36 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 17:41 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 17:31 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 17:56 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 17:53 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 17:45 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 17:55 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 17:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/65794.shtml)
-- 2026-06-29 17:52 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.blog.kurohicncr.top/Article/details/6846192192.shtml)
-- 2026-06-29 17:27 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/6467352.shtml)
-- 2026-06-29 17:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/36318.shtml)
-- 2026-06-29 17:41 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/5686873.shtml)
-- 2026-06-29 17:53 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/54597379.shtml)
-- 2026-06-29 17:31 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/1014714.shtml)
-- 2026-06-29 17:42 - [2026世界杯谁能一黑到底](https://www.share.kurohicncr.top/Article/details/6177371.shtml)
-- 2026-06-29 17:48 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/2675927.shtml)
-- 2026-06-29 17:53 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/47814.shtml)
-- 2026-06-29 17:29 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/714854.shtml)
-- 2026-06-29 17:24 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/701265422.shtml)
-- 2026-06-29 17:39 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/59854672.shtml)
-- 2026-06-29 17:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/355633805478.shtml)
-- 2026-06-29 17:25 - [王楚钦开门红](http://www.blog.minike.top/Article/details/5451657417.shtml)
+- 2026-06-29 17:48 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/5224947557.shtml)
+- 2026-06-29 17:47 - [东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/833493985939.shtml)
+- 2026-06-29 17:52 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/5711769.shtml)
+- 2026-06-29 17:57 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/6884456496.shtml)
+- 2026-06-29 17:36 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/37072.shtml)
+- 2026-06-29 17:57 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/500854.shtml)
+- 2026-06-29 17:43 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/573634132.shtml)
+- 2026-06-29 17:54 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/23211494.shtml)
+- 2026-06-29 17:36 - [2026世界杯谁能一黑到底](https://www.blog.kurohicncr.top/Article/details/412331202549.shtml)
+- 2026-06-29 17:51 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/8078722.shtml)
+- 2026-06-29 17:30 - [王安宇尊重田曦薇的一切选择](http://www.share.kurohicncr.top/Article/details/7353152.shtml)
+- 2026-06-29 17:36 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/16878.shtml)
+- 2026-06-29 17:51 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/9269154076.shtml)
+- 2026-06-29 17:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/97162.shtml)
+- 2026-06-29 17:32 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/27469.shtml)

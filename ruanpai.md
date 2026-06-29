@@ -1,55 +1,59 @@
-# 世行预计越南今年经济增速放缓至6.8%
+# 2025年末广州常住人口1910.10万人
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。 世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。 世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。” 越南的目标是今年及未来十年每年GDP增速至少达到10%。 受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的
+中新网广州5月12日电 (记者 许青青)据广州市统计局12日消息，该局公布的2025年广州市国民经济和社会发展统计公报显示，2025年末，广州常住人口1910.10万人，城镇化率为87.56%。 其中白云区、番禺区、天河区常住人口居前三，分别为373.19万人、287.23万人、225.60万人。随后是海珠区177.07万人，花都区176.67万人，增城区162.13万人，黄埔
 
 ## 正文
 
-世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。
+中新网广州5月12日电 (记者 许青青)据广州市统计局12日消息，该局公布的2025年广州市国民经济和社会发展统计公报显示，2025年末，广州常住人口1910.10万人，城镇化率为87.56%。
 
-世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。
+其中白云区、番禺区、天河区常住人口居前三，分别为373.19万人、287.23万人、225.60万人。
 
-世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。
+随后是海珠区177.07万人，花都区176.67万人，增城区162.13万人，黄埔区125.08万人，荔湾区112.90万人，南沙区99.32万人，越秀区97.16万人，从化区73.75万人。
 
-” 越南的目标是今年及未来十年每年GDP增速至少达到10%。
+2025年末，广州户籍人口1091.14万人，城镇化率为83.76%。
 
-受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的目标。
+其中白云区、番禺区、增城区户籍人口居全市前三，分别为129.04万人、126.66万人、116.82万人。
 
-责任编辑：于健 SF069
+随后为越秀区115.77万人，海珠区112.01万人，天河区111.45万人，花都区93.94万人，荔湾区82.21万人，黄埔区76.59万人，从化区67.01万人，南沙区59.64万人。
+
+全年户籍出生人口10.80万人，出生率9.97‰；死亡人口5.56万人，死亡率5.14‰；自然增长人口5.24万人，自然增长率4.83‰。
+
+户籍迁入人口15.06万人，迁出人口4.08万人，机械增长人口10.98万人。
 
 ## 相关推荐
 
-- 2026-06-29 17:48 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 17:29 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-29 17:53 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 17:28 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 17:34 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 17:25 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 17:41 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 17:37 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 17:45 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 17:52 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 17:40 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 17:38 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-29 17:36 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 17:57 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 17:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 17:36 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 17:44 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 17:40 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 17:43 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 17:49 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 17:35 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 17:43 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 17:57 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 17:51 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 17:44 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 17:43 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/06432463757.shtml)
-- 2026-06-29 17:35 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/28557107654.shtml)
-- 2026-06-29 17:32 - [5万块的威力](http://www.blog.minike.top/Article/details/3335981285.shtml)
-- 2026-06-29 17:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/3641510758.shtml)
-- 2026-06-29 17:34 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/263525548210.shtml)
-- 2026-06-29 17:42 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/2620556596.shtml)
-- 2026-06-29 17:33 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/899832902.shtml)
-- 2026-06-29 17:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/64145.shtml)
-- 2026-06-29 17:25 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/60174705225.shtml)
-- 2026-06-29 17:47 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/922475.shtml)
-- 2026-06-29 17:25 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/049952.shtml)
-- 2026-06-29 17:42 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/824859.shtml)
-- 2026-06-29 17:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/04706589.shtml)
-- 2026-06-29 17:32 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/66962278.shtml)
-- 2026-06-29 17:38 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/3566127123.shtml)
+- 2026-06-29 17:36 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/07095.shtml)
+- 2026-06-29 17:59 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/2262431388.shtml)
+- 2026-06-29 17:37 - [王楚钦开门红](http://www.share.minike.top/Article/details/86753661.shtml)
+- 2026-06-29 17:51 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/767299.shtml)
+- 2026-06-29 17:41 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/188235365926.shtml)
+- 2026-06-29 17:52 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/038342558826.shtml)
+- 2026-06-29 17:57 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/3143638055.shtml)
+- 2026-06-29 17:43 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/4161676.shtml)
+- 2026-06-29 17:41 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/504558358782.shtml)
+- 2026-06-29 17:48 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/13759221.shtml)
+- 2026-06-29 17:46 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.kurohicncr.top/Article/details/779161.shtml)
+- 2026-06-29 17:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/32875822027.shtml)
+- 2026-06-29 17:58 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/1304876787.shtml)
+- 2026-06-29 17:49 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/12713725.shtml)
+- 2026-06-29 17:35 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/10390.shtml)

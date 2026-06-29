@@ -1,58 +1,56 @@
-# 岛内舆论：特朗普警告“台独”给赖清德重重一击
+# 伊朗停火岌岌可危、油价小幅回落
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网5月17日电(燕新台)当地时间15日，美国总统特朗普在结束访华之行后，接受美媒专访时就台湾问题明确表态称，“我不希望看到(台湾)有人走向独立。” 岛内舆论指出，特朗普的警告是对赖清德当局重重一击，“台独”是破坏台海和平稳定的根源，只会给台湾带来灾难。 中国国民党主席郑丽文在岛内政论节目中表示，“台独”是走不通的死胡同，这次中美元首会晤彻底粉碎民进党对于国际情势的幻想。反对
+周三，国际油价下跌，终结三日连涨走势。市场投资者关注中东脆弱停火的后续进展。 格林尼治标准时间 08：09，布伦特原油期货下跌 86 美分，跌幅 0.8%，报每桶 106.91 美元；美国西德克萨斯轻质原油（WTI）期货下跌 1.04 美元，跌幅 1%，报每桶 101.14 美元。 自 2 月底美以联军对伊朗开战、伊朗实际封锁霍尔木兹海峡以来，两大原油基准价格基本维持在每桶 1
 
 ## 正文
 
-中新网5月17日电(燕新台)当地时间15日，美国总统特朗普在结束访华之行后，接受美媒专访时就台湾问题明确表态称，“我不希望看到(台湾)有人走向独立。
+周三，国际油价下跌，终结三日连涨走势。
 
-” 岛内舆论指出，特朗普的警告是对赖清德当局重重一击，“台独”是破坏台海和平稳定的根源，只会给台湾带来灾难。
+市场投资者关注中东脆弱停火的后续进展。
 
-中国国民党主席郑丽文在岛内政论节目中表示，“台独”是走不通的死胡同，这次中美元首会晤彻底粉碎民进党对于国际情势的幻想。
+格林尼治标准时间 08：09，布伦特原油期货下跌 86 美分，跌幅 0.8%，报每桶 106.91 美元；美国西德克萨斯轻质原油（WTI）期货下跌 1.04 美元，跌幅 1%，报每桶 101.14 美元。
 
-反对“台独”才能有效管控风险，维护台海和平稳定。
+自 2 月底美以联军对伊朗开战、伊朗实际封锁霍尔木兹海峡以来，两大原油基准价格基本维持在每桶 100 美元关口或上方。
 
-中国国民党副主席萧旭岑接受中新网“燕新台”工作室采访时表示，特朗普明确表达“不希望台湾推动‘独立’”，美国也不会容许“台独”势力视美国为靠山，这对民进党与赖清德是极大打击。
+菲利普・诺瓦公司高级市场分析师普里扬卡・萨赫德瓦表示：“尽管交易商难以明确油价走向，但对供应中断的担忧及中东局势的不确定性，为油价提供了强劲支撑。
 
-岛内资深媒体人赵少康接受台湾媒体采访时指出，美国不会为“台独”打仗，“台独”只会为台湾带来灾难。
+” “市场对该地区的每一条消息都高度敏感，意味着油价大概率延续剧烈波动。
 
-“民进党真的明智，就应该从现在开始放弃‘台独党纲’。
+若冲突进一步升级或供应通道遭遇直接威胁，布伦特与 WTI 原油价格或将迅速重启强势上涨动能。
 
-” 台湾《中国时报》引述国民党民意代表许宇甄批评，赖清德偏激的“台独”路线，显然已被视为可能升高台海风险的重要变数。
+” 周二，美伊持久停火希望破灭，油价上涨超 3%，延续此前涨势。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 17:37 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 17:51 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 17:53 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 17:40 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 17:40 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 17:42 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 17:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 17:37 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 17:52 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 17:24 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 17:35 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 17:40 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 17:46 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 17:31 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 17:45 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 17:34 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 17:33 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 17:55 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 17:38 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 17:45 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 17:47 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/33416074.shtml)
-- 2026-06-29 17:28 - [看大国重器“云端穿针引线”](https://www.share.kurohicncr.top/Article/details/55249937.shtml)
-- 2026-06-29 17:41 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/47639134.shtml)
-- 2026-06-29 17:27 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/9111870.shtml)
-- 2026-06-29 17:41 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/7119067.shtml)
-- 2026-06-29 17:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/65860950.shtml)
-- 2026-06-29 17:29 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/55744521004.shtml)
-- 2026-06-29 17:38 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/994060221805.shtml)
-- 2026-06-29 17:28 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/636169413.shtml)
-- 2026-06-29 17:51 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/361443964437.shtml)
-- 2026-06-29 17:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/82812264503.shtml)
-- 2026-06-29 17:41 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/451885.shtml)
-- 2026-06-29 17:45 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/0150466.shtml)
-- 2026-06-29 17:29 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/532028071515.shtml)
-- 2026-06-29 17:31 - [TTG KSG](https://www.blog.minike.top/Article/details/838064670358.shtml)
+- 2026-06-29 17:50 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/73705.shtml)
+- 2026-06-29 17:42 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/8948397622.shtml)
+- 2026-06-29 17:44 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/526348694.shtml)
+- 2026-06-29 17:38 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/45988492.shtml)
+- 2026-06-29 17:49 - [曝屠颖去世和酒店失责有关](http://www.share.kurohicncr.top/Article/details/514482002.shtml)
+- 2026-06-29 17:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/748610775954.shtml)
+- 2026-06-29 17:55 - [中国空间站为什么要升级扩容](http://www.share.kurohicncr.top/Article/details/869407436.shtml)
+- 2026-06-29 17:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/008092049880.shtml)
+- 2026-06-29 17:54 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.minike.top/Article/details/244806436.shtml)
+- 2026-06-29 17:47 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/647513769439.shtml)
+- 2026-06-29 17:35 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/42225768.shtml)
+- 2026-06-29 17:30 - [T1 KC](https://www.share.kurohicncr.top/Article/details/02527.shtml)
+- 2026-06-29 17:39 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/11931493930.shtml)
+- 2026-06-29 17:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/1350469.shtml)
+- 2026-06-29 17:38 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/028960966455.shtml)

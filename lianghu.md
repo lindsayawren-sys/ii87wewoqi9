@@ -1,57 +1,57 @@
-# 珠江流域贝岭水入选全国首例跨省河流幸福河湖建设项目
+# 豆粕价格震荡格局不改 棕榈油调整不改韧性
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网广州5月16日电 (记者 王坚)水利部珠江水利委员会(下称“珠江委”)16日消息，珠江流域贝岭水入选全国首例跨省河流幸福河湖建设项目。 跨省河流幸福河湖建设项目由水利部、财政部首次组织，七大流域管理机构推荐，相关省份组织申报，通过竞争性遴选产生。 珠江委介绍，该委坚持流域观念、流域思维、流域立场，加强流域综合治理、系统治理、源头治理，协同地方以流域视角筛选自然禀赋优越、基
+（来源：市场资讯） 研报正文 【豆粕】 周二，豆粕 09 合约收涨 0.33%，报 3033 元/吨；广东豆粕现货涨 20 收于 2910 元/吨；菜粕 09 合约收跌 0.63%，报 2376 元/吨；广西菜粕现货跌 10 收于 2310 元/吨；CBOT 美豆 7 月合约涨 14.25 收于 1225.25 美分/蒲式耳。新季作物 USDA 报告发布，2026/27 年度美
 
 ## 正文
 
-中新网广州5月16日电 (记者 王坚)水利部珠江水利委员会(下称“珠江委”)16日消息，珠江流域贝岭水入选全国首例跨省河流幸福河湖建设项目。
+（来源：市场资讯） 研报正文 【豆粕】 周二，豆粕 09 合约收涨 0.33%，报 3033 元/吨；广东豆粕现货涨 20 收于 2910 元/吨；菜粕 09 合约收跌 0.63%，报 2376 元/吨；广西菜粕现货跌 10 收于 2310 元/吨；CBOT 美豆 7 月合约涨 14.25 收于 1225.25 美分/蒲式耳。
 
-跨省河流幸福河湖建设项目由水利部、财政部首次组织，七大流域管理机构推荐，相关省份组织申报，通过竞争性遴选产生。
+新季作物 USDA 报告发布，2026/27 年度美豆产量为 44.35 亿蒲式耳，上一年度为 42.62 亿蒲式耳；压榨需求为 27.5 亿蒲，上一年度为 26.3 亿蒲，出口需求为 16.3 亿蒲，上一年度为 15.3 亿蒲；期末库存为 3.1 亿蒲式耳，上一年度为 3.5 亿蒲；2026/27 年度巴西大豆产量预估为 1.86 亿吨，阿根廷大豆产量预估为 5000 万吨，上一年度为 4800 万吨。
 
-珠江委介绍，该委坚持流域观念、流域思维、流域立场，加强流域综合治理、系统治理、源头治理，协同地方以流域视角筛选自然禀赋优越、基础条件好的跨省河流，最终选定贝岭水参与全国遴选。
+巴西全国谷物出口商协会（Anec）预计，巴西 5 月大豆出口量料达 1，600 万吨，上周预估值为 1，453 万吨。
 
-据了解，贝岭水跨赣粤两省，是东江上游的一级支流，流经革命老区，红色文化底蕴深厚，肩负着为粤港澳大湾区供水的重要使命，是支撑香港繁荣稳定的重要水源。
+美国与伊朗在结束中东战争的提议上存在巨大分歧，这引发了市场担忧，即扰乱全球石油市场的供应中断可能将持续更长时间；由于霍尔木兹海峡关闭，燃料和化肥价格攀升，增加了美国农户的生产成本，给那些已因美国关税战引发的贸易扰动而受到冲击的种植户带来更大压力。
 
-珠江委表示，该委充分发挥对跨省河流幸福河湖建设的统筹协调作用，指导赣粤两省成立工作专班，深挖贝岭水亮点特色，因“河”制宜编制实施方案，助力项目在全国遴选中脱颖而出。
+天气预报显示，未来 15 天，美豆产区累计降水量略高于均值。
 
-值得一提的是，贝岭水幸福河湖建设项目紧紧围绕保障香港供水安全这一核心使命，串联上游水源涵养、中游产业融合、下游生态缓冲三大功能区，着力构建生态人文廊道，系统推进水源保护、文化赋能、绿色发展三大任务，完善流域统筹、区域协调、部门联动工作机制，助力革命老区振兴发展，努力建设造福人民的幸福河。
+新季作物 USDA 报告发布，2026/27 年度美豆产量 44.35 亿蒲，压榨需求为 27.5 亿蒲，出口需求为 16.3 亿蒲，期末库存为 3.1 亿蒲，较上年度下滑；巴西大豆产量预估 1.86 亿吨，阿根廷预估为 5000 万吨； 整体来看，报告影响偏利多。
 
-珠江委透露，下一步，该委将指导赣粤两省深入优化实施方案，突出跨省河流联防联控联治，高质量推进项目建设，保障明年在香港回归30周年之际建成发挥效益，确保一泓清水向南流，持续保障对港供水安全，让革命老区人民共享幸福河湖建设成果，打造跨省河流幸福河湖建设样板。
+油价高位震荡，化肥燃料成本价格抬升逐步传导，同时近端大豆供应充足，基差承压。
 
-(完)
+预计短期连粕区间震荡运行。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 17:45 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 17:40 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 17:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 17:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 17:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 17:50 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 17:32 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 17:30 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 17:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 17:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 17:39 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 17:33 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 17:34 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 17:57 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 17:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 17:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 17:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 17:32 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 17:55 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 17:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 17:48 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/7912166.shtml)
-- 2026-06-29 17:52 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/101232097.shtml)
-- 2026-06-29 17:30 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/96206622807.shtml)
-- 2026-06-29 17:25 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/91656.shtml)
-- 2026-06-29 17:44 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/0998586.shtml)
-- 2026-06-29 17:27 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/9900192.shtml)
-- 2026-06-29 17:47 - [周生如故](https://www.blog.kurohicncr.top/Article/details/540354911.shtml)
-- 2026-06-29 17:44 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/631429.shtml)
-- 2026-06-29 17:41 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/83825150.shtml)
-- 2026-06-29 17:30 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/673286130654.shtml)
-- 2026-06-29 17:29 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/06480.shtml)
-- 2026-06-29 17:45 - [笔记本电脑一年涨价近一倍](http://www.share.kurohicncr.top/Article/details/8670181.shtml)
-- 2026-06-29 17:35 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/244255.shtml)
-- 2026-06-29 17:26 - [流金岁月](http://www.share.minike.top/Article/details/57151992000.shtml)
-- 2026-06-29 17:24 - [沉睡花园](http://www.blog.minike.top/Article/details/2017709.shtml)
+- 2026-06-29 17:49 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/489173772.shtml)
+- 2026-06-29 17:42 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/107274.shtml)
+- 2026-06-29 17:56 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/3392021.shtml)
+- 2026-06-29 17:58 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/10126.shtml)
+- 2026-06-29 17:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/78949440.shtml)
+- 2026-06-29 17:32 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/39579.shtml)
+- 2026-06-29 17:30 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/506984.shtml)
+- 2026-06-29 17:52 - [西十高铁让“朝秦暮楚”之地活了](http://www.share.kurohicncr.top/Article/details/49171595.shtml)
+- 2026-06-29 17:32 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/875429025911.shtml)
+- 2026-06-29 17:48 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/2139899.shtml)
+- 2026-06-29 17:38 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/685982.shtml)
+- 2026-06-29 17:52 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/28432899271.shtml)
+- 2026-06-29 17:56 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/67900828.shtml)
+- 2026-06-29 17:55 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/2398199.shtml)
+- 2026-06-29 17:44 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/868086.shtml)

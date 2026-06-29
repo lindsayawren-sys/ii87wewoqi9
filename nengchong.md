@@ -1,58 +1,61 @@
-# 华泰期货：产销数据好转，钢价震荡运行
+# “浙江村拍”在杭州之江村启动
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-市场分析 期现货方面：昨日螺纹钢期货主力合约收于3255元/吨，热卷主力合约收于3478元/吨。现货方面，昨日钢材现货成交整体一般偏弱，螺纹成交略弱于热卷，上午成交偏弱，反弹过程中低价成交好转，基差持稳或微扩。昨日，全国建材成交9.28万吨。 供需与逻辑：本周钢联数据显示，全国钢材市场产销均有所好转，其中建材数据强于板材，去库速度明显加快。目前建材产销矛盾不足，消费持续性有待验
+中新网杭州5月12日电(林波 蓝珊华)人人可参与、人人可创造，正在浙江乡村变为现实。5月12日，“浙江村拍——人文乡村摄影马拉松影像赋能活动”启动仪式在杭州建德市下涯镇之江村举行。来自浙江全省各地的摄影师、摄影驻地村代表齐聚新安江畔，以镜头为媒，开启一场为期半年的田野影像对话。 作为“浙江村拍——人文乡村摄影马拉松影像赋能活动”起跑地，之江村本身就是“村拍”理念最生动的注脚。
 
 ## 正文
 
-市场分析 期现货方面：昨日螺纹钢期货主力合约收于3255元/吨，热卷主力合约收于3478元/吨。
+中新网杭州5月12日电(林波 蓝珊华)人人可参与、人人可创造，正在浙江乡村变为现实。
 
-现货方面，昨日钢材现货成交整体一般偏弱，螺纹成交略弱于热卷，上午成交偏弱，反弹过程中低价成交好转，基差持稳或微扩。
+5月12日，“浙江村拍——人文乡村摄影马拉松影像赋能活动”启动仪式在杭州建德市下涯镇之江村举行。
 
-昨日，全国建材成交9.28万吨。
+来自浙江全省各地的摄影师、摄影驻地村代表齐聚新安江畔，以镜头为媒，开启一场为期半年的田野影像对话。
 
-供需与逻辑：本周钢联数据显示，全国钢材市场产销均有所好转，其中建材数据强于板材，去库速度明显加快。
+作为“浙江村拍——人文乡村摄影马拉松影像赋能活动”起跑地，之江村本身就是“村拍”理念最生动的注脚。
 
-目前建材产销矛盾不足，消费持续性有待验证。
+2025年以来，在文化特派员的牵头协调下，之江村启动了“会拍照的村庄”培育计划。
 
-板材产量变化不大，受出口接单回落预期影响，短期钢材价格上下空间均较为有限，关注后续消费韧性、去库斜率及出口接单情况。
+在这片“浙江省摄影之乡”的土地上，越来越多的村民学会了用镜头记录生活。
 
-策略 单边：震荡 跨期：无 跨品种：无 期现：无 期权：无 风险 宏观政策、成材供需、钢材出口、钢厂利润、成本支撑等。
+这片坐落在新安江“之”字湾畔的土地，被江雾浸润、被烟火滋养，既是水墨诗意的栖居地，也是享誉圈内的摄影之乡、艺术乡建标杆。
 
-投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
+一帧云雾、一寸乡土，都在无声呼唤着镜头向下、人人创作。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 17:47 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 17:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 17:39 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 17:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 17:52 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 17:38 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 17:51 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 17:39 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 17:33 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 17:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 17:31 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-29 17:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 17:40 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 17:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 17:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 17:48 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 17:59 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 17:50 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-29 17:57 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 17:48 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 17:40 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 17:36 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 17:35 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 17:38 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 17:49 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [小娘惹](http://www.share.kurohicncr.top/Article/details/11524888.shtml)
-- 2026-06-29 17:34 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/3922163650.shtml)
-- 2026-06-29 17:32 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/585789942912.shtml)
-- 2026-06-29 17:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/1836062.shtml)
-- 2026-06-29 17:46 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/97564635255.shtml)
-- 2026-06-29 17:43 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/05473668142.shtml)
-- 2026-06-29 17:38 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/2277710581.shtml)
-- 2026-06-29 17:52 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/6065291815.shtml)
-- 2026-06-29 17:28 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/921446252312.shtml)
-- 2026-06-29 17:27 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/157723.shtml)
-- 2026-06-29 17:36 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/4705153727.shtml)
-- 2026-06-29 17:40 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/919244587.shtml)
-- 2026-06-29 17:29 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/4893535.shtml)
-- 2026-06-29 17:43 - [黄金也扛不住了](http://www.share.minike.top/Article/details/774934.shtml)
-- 2026-06-29 17:45 - [急先锋](http://www.blog.minike.top/Article/details/355727.shtml)
+- 2026-06-29 17:44 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/69468725515.shtml)
+- 2026-06-29 17:52 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/39334.shtml)
+- 2026-06-29 17:43 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/8340075.shtml)
+- 2026-06-29 17:51 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/085022763.shtml)
+- 2026-06-29 17:33 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/37487154993.shtml)
+- 2026-06-29 17:59 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/6158852877.shtml)
+- 2026-06-29 17:38 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/22731208.shtml)
+- 2026-06-29 17:54 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/7572480008.shtml)
+- 2026-06-29 17:30 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/8054349.shtml)
+- 2026-06-29 17:53 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/2446533699.shtml)
+- 2026-06-29 17:56 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/6718835780.shtml)
+- 2026-06-29 17:32 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/28336588672.shtml)
+- 2026-06-29 17:56 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/778822723.shtml)
+- 2026-06-29 17:39 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/80393.shtml)
+- 2026-06-29 17:52 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/64042293619.shtml)

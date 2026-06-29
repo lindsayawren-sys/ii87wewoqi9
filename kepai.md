@@ -1,61 +1,59 @@
-# 从“三个问题”出发 21国驻澳（港）领事在云南解码中国发展活力
+# 东兴海关关于开展2026年5月份“关领导接待日”的通知
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月16日电 题：从“三个问题”出发 21国驻澳(港)领事在云南解码中国发展活力 作者 罗婕 近日，来自21个国家的驻澳门(香港)领事官员走进云南昆明、大理等地，探访了解产业发展、民族文化、乡村振兴与绿色发展实践等内容。 从昆明斗南的缤纷花海，到喜洲古镇的白墙黛瓦；从云南民族村景区的欢歌热舞，到洱海畔的田园风光，各国领事官员一路走、一路看，也一路发问，试图从中国西南边
+为了了解社会各界的建议和意见，并切实解决实际问题和困难，现就东兴海关2026年5月份关领导接待日有关事项通知如下： 一、接待时间：2026年5月19日(星期二上午上班时间)。 二、当值领导：彭震副关长。 三、接待地点：东兴海关办公楼。需预约的企业和社会公众请按照有关要求提前预约，可致电0770-7666661或填写《东兴海关关领导接待日预约登记表》发送至东兴海关办公邮箱dxhg
 
 ## 正文
 
-中新网昆明5月16日电 题：从“三个问题”出发 21国驻澳(港)领事在云南解码中国发展活力 作者 罗婕 近日，来自21个国家的驻澳门(香港)领事官员走进云南昆明、大理等地，探访了解产业发展、民族文化、乡村振兴与绿色发展实践等内容。
+为了了解社会各界的建议和意见，并切实解决实际问题和困难，现就东兴海关2026年5月份关领导接待日有关事项通知如下： 一、接待时间：2026年5月19日(星期二上午上班时间)。
 
-从昆明斗南的缤纷花海，到喜洲古镇的白墙黛瓦；从云南民族村景区的欢歌热舞，到洱海畔的田园风光，各国领事官员一路走、一路看，也一路发问，试图从中国西南边疆的发展脉络中，读懂中国式现代化的生动实践。
+二、当值领导：彭震副关长。
 
-“云南如何让各民族紧紧团结在一起？
+三、接待地点：东兴海关办公楼。
 
-” 云南地处中国西南边陲，26个民族在此和睦共居，多民族文化在交往交流交融中共生共荣。
+需预约的企业和社会公众请按照有关要求提前预约，可致电0770-7666661或填写《东兴海关关领导接待日预约登记表》发送至东兴海关办公邮箱dxhgbgs0601@163.com。
 
-探访过程中，莫桑比克驻澳门总领事姆艾贝惊叹于云南多民族和谐共居的社会氛围，并好奇询问：“云南是如何让各民族团结在一起的？
+截止时间：2026年5月15日(星期五)上午下班前。
 
-” 走进云南民族村景区，铓锣声起，各国领事官员踏入景颇族目瑙纵歌队伍，挥刀摇扇、踏歌而行；在傣族村寨，感受泼水节的热烈氛围；围坐火塘边，聆听拉祜族欢乐悠扬的民歌。
+特此通知。
 
-多彩的民族文化在欢声笑语中交融，也让远道而来的客人沉浸其中。
-
-姆艾贝说，云南秀美的自然风光、多彩的民族文化和热情友善的人们，让他印象深刻。
+东兴海关关领导接待日预约表.docx
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 17:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-29 17:37 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-29 17:28 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 17:48 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 17:40 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 17:45 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 17:45 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 17:53 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 17:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 17:45 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 17:53 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 17:49 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 17:31 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 17:49 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 17:52 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 17:34 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 17:30 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 17:34 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 17:37 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 17:43 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 17:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 17:53 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 17:34 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 17:42 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 17:42 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 17:51 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 17:34 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 17:51 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 17:42 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/51433289463.shtml)
-- 2026-06-29 17:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/41444556.shtml)
-- 2026-06-29 17:25 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/377000962173.shtml)
-- 2026-06-29 17:26 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/48165.shtml)
-- 2026-06-29 17:25 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/031161955527.shtml)
-- 2026-06-29 17:34 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/84333443112.shtml)
-- 2026-06-29 17:49 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/59032.shtml)
-- 2026-06-29 17:29 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/7382264.shtml)
-- 2026-06-29 17:44 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/94455923655.shtml)
-- 2026-06-29 17:25 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/540498.shtml)
-- 2026-06-29 17:33 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/9369020.shtml)
-- 2026-06-29 17:49 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/330458.shtml)
-- 2026-06-29 17:28 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/558948.shtml)
-- 2026-06-29 17:46 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/6496128.shtml)
-- 2026-06-29 17:36 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/9368769.shtml)
+- 2026-06-29 17:32 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/6587090.shtml)
+- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/597650721903.shtml)
+- 2026-06-29 17:41 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/46320360.shtml)
+- 2026-06-29 17:48 - [大六座SUV进入黄金时代](http://www.share.minike.top/Article/details/253444841850.shtml)
+- 2026-06-29 17:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/074670684179.shtml)
+- 2026-06-29 17:57 - [叠纸](http://www.share.kurohicncr.top/Article/details/706231005.shtml)
+- 2026-06-29 17:35 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/53257034.shtml)
+- 2026-06-29 17:38 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/90860674.shtml)
+- 2026-06-29 17:55 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/13802457.shtml)
+- 2026-06-29 17:54 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/707992.shtml)
+- 2026-06-29 17:56 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/642563.shtml)
+- 2026-06-29 17:31 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/40480.shtml)
+- 2026-06-29 17:55 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/4738339.shtml)
+- 2026-06-29 17:35 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/78247601.shtml)
+- 2026-06-29 17:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/962881.shtml)

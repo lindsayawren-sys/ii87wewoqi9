@@ -1,60 +1,59 @@
-# 利比亚发生大规模球迷骚乱 总理府遭纵火
+# 共拓“十五五”新格局 共创出海新生态 2026沪港企业家圆桌会举行
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-新华社突尼斯5月14日电(记者周昊瑾)的黎波里消息：据利比亚媒体14日报道，利首都的黎波里附近当晚发生大规模球迷骚乱，利总理府部分建筑遭纵火。 稍早时候，的黎波里东南部方向塔尔胡纳市举行的一场足球比赛因争议判罚引发球迷骚乱。据利媒报道，有球员遭袭，多辆安保车辆遭纵火焚烧。隶属利国防部的444旅介入维持秩序，与一些不明身份的枪手发生冲突。交火中，444旅一名士兵死亡，另有7人受伤
+5月9日，上海市总商会与香港中华总商会在香港共同举办以“共拓‘十五五’新格局 共创出海新生态”为主题的2026沪港企业家圆桌会。上海市委常委、统战部部长、上海海外联谊会会长陈通出席圆桌会并讲话。 会议指出，沪港两地血脉相连、人文相通、经济相融，拥有共同的历史记忆、城市品格，也共同承担着国家重要使命。在金融、贸易、航运、科创等领域，沪港两城功能互补、相互成就。过去一年，沪港合作取
 
 ## 正文
 
-新华社突尼斯5月14日电(记者周昊瑾)的黎波里消息：据利比亚媒体14日报道，利首都的黎波里附近当晚发生大规模球迷骚乱，利总理府部分建筑遭纵火。
+5月9日，上海市总商会与香港中华总商会在香港共同举办以“共拓‘十五五’新格局 共创出海新生态”为主题的2026沪港企业家圆桌会。
 
-稍早时候，的黎波里东南部方向塔尔胡纳市举行的一场足球比赛因争议判罚引发球迷骚乱。
+上海市委常委、统战部部长、上海海外联谊会会长陈通出席圆桌会并讲话。
 
-据利媒报道，有球员遭袭，多辆安保车辆遭纵火焚烧。
+会议指出，沪港两地血脉相连、人文相通、经济相融，拥有共同的历史记忆、城市品格，也共同承担着国家重要使命。
 
-隶属利国防部的444旅介入维持秩序，与一些不明身份的枪手发生冲突。
+在金融、贸易、航运、科创等领域，沪港两城功能互补、相互成就。
 
-交火中，444旅一名士兵死亡，另有7人受伤。
+过去一年，沪港合作取得务实成果，金融协同更加紧密、携手出海更具合力、科创融合更为深化、人文交流更显温情。
 
-随后，骚乱蔓延至的黎波里多个地区，媒体说传出枪声。
+会议强调，展望未来，沪港合作机遇更加多样，前景催人奋进。
 
-一些抗议者纵火焚烧总理府部分建筑。
+按照习近平总书记对上海发展作出的战略擘画，上海正锚定加快建成具有世界影响力的社会主义现代化国际大都市目标，坚定不移建设“五个中心”，坚定不移培育发展新质生产力，坚定不移实施高水平改革开放。
 
-利比亚民族统一政府已在政府机构和主要路口部署安保人员，以控制局势。
+希望香港各界朋友凝聚爱国爱港合力，以香港首个五年规划为契机，坚定不移维护和促进香港长期繁荣稳定。
 
 ## 相关推荐
 
-- 2026-06-29 17:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 17:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 17:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 17:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 17:51 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 17:52 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 17:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 17:32 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 17:49 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 17:48 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 17:36 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 17:36 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 17:27 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 17:39 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 17:46 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 17:42 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 17:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 17:50 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 17:55 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 17:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 17:34 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 17:59 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 17:44 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 17:45 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 17:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 17:32 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 17:47 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/8642963.shtml)
-- 2026-06-29 17:43 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/75129095.shtml)
-- 2026-06-29 17:26 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/713816875018.shtml)
-- 2026-06-29 17:38 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/11817630021.shtml)
-- 2026-06-29 17:47 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/989011120.shtml)
-- 2026-06-29 17:26 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/50443872.shtml)
-- 2026-06-29 17:26 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/048950812.shtml)
-- 2026-06-29 17:47 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/099529000.shtml)
-- 2026-06-29 17:44 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/499663.shtml)
-- 2026-06-29 17:32 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/25638198.shtml)
-- 2026-06-29 17:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/59290114365.shtml)
-- 2026-06-29 17:41 - [一见倾心](http://www.blog.minike.top/Article/details/834771.shtml)
-- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/7543351.shtml)
-- 2026-06-29 17:48 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/071793879170.shtml)
-- 2026-06-29 17:25 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/902847123411.shtml)
+- 2026-06-29 17:43 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/16181.shtml)
+- 2026-06-29 17:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/789811335.shtml)
+- 2026-06-29 17:58 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/499775460545.shtml)
+- 2026-06-29 17:57 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/75037791371.shtml)
+- 2026-06-29 17:32 - [一见倾心](https://www.blog.minike.top/Article/details/0841892656.shtml)
+- 2026-06-29 17:32 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/252526515401.shtml)
+- 2026-06-29 17:48 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/0252698896.shtml)
+- 2026-06-29 17:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/36086.shtml)
+- 2026-06-29 17:52 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/726209.shtml)
+- 2026-06-29 17:41 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/17495504954.shtml)
+- 2026-06-29 17:32 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/06577791.shtml)
+- 2026-06-29 17:46 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/08555.shtml)
+- 2026-06-29 17:53 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/9669979360.shtml)
+- 2026-06-29 17:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/247653.shtml)
+- 2026-06-29 17:49 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/0615620487.shtml)

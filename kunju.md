@@ -1,59 +1,43 @@
-# 世界市长对话都江堰：千年古堰“因势利导”启迪现代城市治理
+# 江苏盐城：伏季休渔期 海警边检联合查处违规渔船
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网成都5月16日电 (袁牟知博)“2026世界市长对话·成都”系列活动之“古堰流芳·世界共鉴”情景对话15日下午在都江堰举行。来自哥伦比亚、马来西亚等国的城市代表与专家学者等，围绕都江堰治水智慧与现代城市治理展开对话。 都江堰市政府副市长曾滢茜在对话中表示，都江堰水利工程的珍贵，不仅在于工程本身，更在于因势利导、顺势而为的治理理念。曾滢茜介绍，李冰父子当年通过读懂山势、水势
+发布时间：2026年05月13日 10:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网成都5月16日电 (袁牟知博)“2026世界市长对话·成都”系列活动之“古堰流芳·世界共鉴”情景对话15日下午在都江堰举行。
-
-来自哥伦比亚、马来西亚等国的城市代表与专家学者等，围绕都江堰治水智慧与现代城市治理展开对话。
-
-都江堰市政府副市长曾滢茜在对话中表示，都江堰水利工程的珍贵，不仅在于工程本身，更在于因势利导、顺势而为的治理理念。
-
-曾滢茜介绍，李冰父子当年通过读懂山势、水势、地势，将岷江水引入成都平原，实现了自流灌溉。
-
-都江堰灌溉面积已从建成之初的70余万亩扩大到近2000万亩，惠及人口达3200万。
-
-“因势利导不仅是工程智慧，更是面向未来的生态柔性、文明哲学。
-
-”巴蜀文化专家赵文侨说，都江堰水利工程的低成本在于利用水流规律作为动力，高适应在于为洪水预留出路而非阻拦。
-
-“都江堰水利工程告诉我们，真正成熟的城市治理，不在于极致的控制，而在于在适度中找出弹性，在秩序中找到出口。
+发布时间：2026年05月13日 10:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 17:35 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 17:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 17:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 17:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 17:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 17:47 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 17:43 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 17:27 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 17:52 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 17:24 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 17:36 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 17:49 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 17:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 17:59 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 17:49 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 17:42 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 17:54 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 17:48 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 17:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 17:48 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 17:32 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 17:45 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 17:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/7062360597.shtml)
-- 2026-06-29 17:27 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/33899.shtml)
-- 2026-06-29 17:47 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/4435782888.shtml)
-- 2026-06-29 17:30 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/73085774994.shtml)
-- 2026-06-29 17:41 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/90944.shtml)
-- 2026-06-29 17:36 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/24726148884.shtml)
-- 2026-06-29 17:36 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/50013.shtml)
-- 2026-06-29 17:29 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/96707214953.shtml)
-- 2026-06-29 17:26 - [起风了](https://www.share.minike.top/Article/details/669509413.shtml)
-- 2026-06-29 17:33 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/16836.shtml)
-- 2026-06-29 17:25 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/510307.shtml)
-- 2026-06-29 17:26 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/657018.shtml)
-- 2026-06-29 17:47 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/5757760.shtml)
-- 2026-06-29 17:34 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/51836263.shtml)
-- 2026-06-29 17:30 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/68441.shtml)
+- 2026-06-29 17:55 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/245736.shtml)
+- 2026-06-29 17:40 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/418834.shtml)
+- 2026-06-29 17:33 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/83508395.shtml)
+- 2026-06-29 17:39 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/9113313.shtml)
+- 2026-06-29 17:32 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/879469.shtml)
+- 2026-06-29 17:31 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/5563834818.shtml)
+- 2026-06-29 17:37 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.minike.top/Article/details/66436433361.shtml)
+- 2026-06-29 17:30 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/945007918907.shtml)
+- 2026-06-29 17:55 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/745740.shtml)
+- 2026-06-29 17:59 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/56986.shtml)
+- 2026-06-29 17:40 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/582504.shtml)
+- 2026-06-29 17:59 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/0399030.shtml)
+- 2026-06-29 17:35 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/45523.shtml)
+- 2026-06-29 17:38 - [金刚川](https://www.blog.kurohicncr.top/Article/details/151747.shtml)
+- 2026-06-29 17:38 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/827102822.shtml)

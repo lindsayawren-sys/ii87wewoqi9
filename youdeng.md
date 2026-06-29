@@ -1,57 +1,54 @@
-# 民生调查局｜被立案调查后，携程在改吗？
+# 广州供电技术标准落地秘鲁
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网北京5月16日电(赵方园 梁小燕 左雨晴)评分、流量、佣金、调价算法——在携程上经营的酒店民宿商家发现，自己被困在一套连环规则里。 2026年1月，市场监管总局根据前期核查，依据《中华人民共和国反垄断法》，对携程集团有限公司涉嫌滥用市场支配地位实施垄断行为立案调查。3月，北京市市场监管局等三部门联合约谈携程等平台企业，通报的典型事例中直指携程“侵害商家自主经营权”“设置不
+中新网广州5月13日电 (王华 龚甸)南方电网广东广州供电局12日消息，该局与秘鲁博路兹公司联合编制的《城市中压配电网供电安全能力标准及风险评估方法》企业标准已在秘鲁正式发布，全面助力秘鲁提升供电可靠性与电网安全运行水平，成为中秘能源领域技术标准互通的里程碑。据介绍，该标准聚焦供电安全能力量化评价、网架风险精准评估、故障恢复能力提升三大方向，构建起一套可量化评估配电网网架的技术
 
 ## 正文
 
-中新网北京5月16日电(赵方园 梁小燕 左雨晴)评分、流量、佣金、调价算法——在携程上经营的酒店民宿商家发现，自己被困在一套连环规则里。
+中新网广州5月13日电 (王华 龚甸)南方电网广东广州供电局12日消息，该局与秘鲁博路兹公司联合编制的《城市中压配电网供电安全能力标准及风险评估方法》企业标准已在秘鲁正式发布，全面助力秘鲁提升供电可靠性与电网安全运行水平，成为中秘能源领域技术标准互通的里程碑。
 
-2026年1月，市场监管总局根据前期核查，依据《中华人民共和国反垄断法》，对携程集团有限公司涉嫌滥用市场支配地位实施垄断行为立案调查。
+据介绍，该标准聚焦供电安全能力量化评价、网架风险精准评估、故障恢复能力提升三大方向，构建起一套可量化评估配电网网架的技术体系，成功填补秘鲁当地配电网供电安全标准空白，在提升供电可靠性、优化投资精确性等方面优势显著。
 
-3月，北京市市场监管局等三部门联合约谈携程等平台企业，通报的典型事例中直指携程“侵害商家自主经营权”“设置不合理规则”“特金牌标识误导消费者”。
+预计2026年，该标准将帮助博路兹公司节省97%的提升供电可靠类设备改造投资，全年平均停电时长缩短25分钟，明显减少当地监管机构的停电罚款，为秘鲁电网提供了提升供电可靠性的技术方案。
 
-面对监管，携程宣布：取消酒店特金牌标识，下线调价助手。
+该标准源于广州供电局的配电网供电安全标准，在广州的实践过程中，已解决各类网架问题2600余项，累计节约投资超4亿元(人民币，下同)，助力广州客户平均停电时间迈入10分钟以内。
 
-然而，广东、浙江、云南、福建、陕西等地部分商户向中国新闻网《民生调查局》记者反馈：携程此前被点名误导消费者的特牌、金牌酒店名称之后的“大拇指”标识虽从页面上撤下，但对应的排序规则仍藏在后台，还需要通过广告投放来稳固排名和流量；调价助手官宣下线，但调价指导却从未停止。
+此次跨国联合编制标准发布，标志着广州电网技术体系实现海外标准化输出。
 
-记者多次联系携程，截至发稿，携程未就上述商户反馈的具体问题作出回应。
+广州供电局表示，双方将在调度系统、自动化装备等领域深化合作，持续提升秘鲁电网的供电可靠性。
 
-特牌的代价：高佣金与“二选一” “携程将合作酒店分为三个等级——特牌、金牌和银牌，并在用户端作标识区分。
-
-等级越高，曝光度越高。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:53 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 17:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 17:38 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 17:45 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 17:42 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 17:45 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 17:51 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 17:34 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 17:29 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 17:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 17:24 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 17:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 17:30 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 17:34 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 17:59 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 17:49 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 17:51 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 17:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 17:30 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 17:45 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 17:33 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:52 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/96063553.shtml)
-- 2026-06-29 17:42 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/69063518.shtml)
-- 2026-06-29 17:43 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/85884466441.shtml)
-- 2026-06-29 17:50 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/02711703.shtml)
-- 2026-06-29 17:42 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/1408343.shtml)
-- 2026-06-29 17:37 - [货车司机雨中帮交警挪树获表扬](https://www.share.kurohicncr.top/Article/details/58011.shtml)
-- 2026-06-29 17:50 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/660334982.shtml)
-- 2026-06-29 17:38 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/73575.shtml)
-- 2026-06-29 17:28 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/860674742.shtml)
-- 2026-06-29 17:42 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/584201217726.shtml)
-- 2026-06-29 17:45 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/056063.shtml)
-- 2026-06-29 17:37 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/04461838.shtml)
-- 2026-06-29 17:30 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/904739644640.shtml)
-- 2026-06-29 17:36 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/630338.shtml)
-- 2026-06-29 17:41 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/675441913.shtml)
+- 2026-06-29 17:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/9373351.shtml)
+- 2026-06-29 17:47 - [12所大学更正招生目录](http://www.share.kurohicncr.top/Article/details/255626523779.shtml)
+- 2026-06-29 17:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/9755671.shtml)
+- 2026-06-29 17:53 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/163029.shtml)
+- 2026-06-29 17:39 - [《贺子珍》](http://www.share.minike.top/Article/details/9037305977.shtml)
+- 2026-06-29 17:45 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/953063.shtml)
+- 2026-06-29 17:45 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/6109830154.shtml)
+- 2026-06-29 17:47 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/31615.shtml)
+- 2026-06-29 17:31 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/020959386591.shtml)
+- 2026-06-29 17:47 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/834786646.shtml)
+- 2026-06-29 17:30 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/3234219.shtml)
+- 2026-06-29 17:36 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/027951902.shtml)
+- 2026-06-29 17:31 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/4597047108.shtml)
+- 2026-06-29 17:47 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/566765013680.shtml)
+- 2026-06-29 17:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/151389979.shtml)

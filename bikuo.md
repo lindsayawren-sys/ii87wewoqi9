@@ -1,59 +1,48 @@
-# 通讯：探访莫斯科“地下印刷所”
+# 陆庆娱乐收到联交所复牌指引
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科5月17日电 题：探访莫斯科“地下印刷所” 中新社记者 田冰 莫斯科“森林街”有一栋典型的19世纪末俄式三层红砖公寓楼，外墙挂着招牌“卡兰达泽高加索水果批发”，但店铺从未营业。 这里曾是俄国第一次革命时期莫斯科地下印刷所所在地，如今已复原为隶属于俄罗斯现代历史博物馆的“1905年--1906年地下印刷所博物馆”，成为俄国早期革命历史的见证。 在国际博物馆日到来之际，
+陆庆娱乐（08052）发布公告，于2026年5月7日，公司收到联交所的函件，当中载列有关股份恢复于联交所买卖的指引。根据恢复买卖指引，公司须：（i）刊发GEM上市规则规定的所有尚未刊发的财务业绩，并处理任何审核修订；（ii）证明公司已遵守GEM上市规则第17.26条；（iii）向市场告知所有重大信息，以使公司股东及其他投资者可评估公司的状况。责任编辑：卢昱君
 
 ## 正文
 
-中新社莫斯科5月17日电 题：探访莫斯科“地下印刷所” 中新社记者 田冰 莫斯科“森林街”有一栋典型的19世纪末俄式三层红砖公寓楼，外墙挂着招牌“卡兰达泽高加索水果批发”，但店铺从未营业。
+陆庆娱乐（08052）发布公告，于2026年5月7日，公司收到联交所的函件，当中载列有关股份恢复于联交所买卖的指引。
 
-这里曾是俄国第一次革命时期莫斯科地下印刷所所在地，如今已复原为隶属于俄罗斯现代历史博物馆的“1905年--1906年地下印刷所博物馆”，成为俄国早期革命历史的见证。
+根据恢复买卖指引，公司须：（i）刊发GEM上市规则规定的所有尚未刊发的财务业绩，并处理任何审核修订；（ii）证明公司已遵守GEM上市规则第17.26条；（iii）向市场告知所有重大信息，以使公司股东及其他投资者可评估公司的状况。
 
-在国际博物馆日到来之际，记者探访了这家当时全俄唯一一间未被破获的“地下印刷所”。
-
-1905年，根据形势需要，俄国社会民主工党决定在莫斯科秘密开设印刷所来宣传革命，并选址于此，以“卡兰达泽高加索水果批发店”为掩护，临近布特尔卡监狱和警察局。
-
-博物馆的厨房和起居室内摆有俄式壁炉、炊具、绣花餐巾和桌布、家庭照片及其他家居用品，呈现当年莫斯科普通商人的生活图景。
-
-穿过起居室是临街的水果店，柜台上有印章、签字笔、账簿和算盘等用具，柜台前摆着各式水果和干果。
-
-秘密就在柜台后楼梯下储存水果的地下室中。
-
-当年警探常来突击搜查，只能看到成堆的麻袋、水果箱和一个排水井。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 17:44 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 17:46 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 17:25 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 17:28 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 17:24 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 17:41 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 17:40 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 17:33 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 17:28 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 17:52 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 17:32 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 17:26 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 17:56 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 17:46 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 17:57 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 17:56 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 17:36 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 17:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 17:45 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 17:41 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 17:35 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 17:31 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 17:36 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 17:48 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:50 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/436616.shtml)
-- 2026-06-29 17:34 - [李在镕：计划将光州作为芯片生产基地](https://www.share.minike.top/Article/details/2373060.shtml)
-- 2026-06-29 17:28 - [机器人学校开学了](https://www.share.minike.top/Article/details/279040435316.shtml)
-- 2026-06-29 17:24 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/315193283.shtml)
-- 2026-06-29 17:32 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.kurohicncr.top/Article/details/21571.shtml)
-- 2026-06-29 17:44 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.share.minike.top/Article/details/3750966804.shtml)
-- 2026-06-29 17:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/70888678.shtml)
-- 2026-06-29 17:43 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/18517709609.shtml)
-- 2026-06-29 17:45 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/91191722911.shtml)
-- 2026-06-29 17:28 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/0832693.shtml)
-- 2026-06-29 17:26 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/99547386.shtml)
-- 2026-06-29 17:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/2697866470.shtml)
-- 2026-06-29 17:37 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/14414350895.shtml)
-- 2026-06-29 17:39 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.minike.top/Article/details/079690104.shtml)
-- 2026-06-29 17:53 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/0267873.shtml)
+- 2026-06-29 17:53 - [南昌市委书记调整](http://www.share.kurohicncr.top/Article/details/216247668.shtml)
+- 2026-06-29 17:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/4195092.shtml)
+- 2026-06-29 17:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/643331143.shtml)
+- 2026-06-29 17:33 - [挪威王储妃长子2次强奸被判4年](https://www.blog.minike.top/Article/details/6359765916.shtml)
+- 2026-06-29 17:33 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/980396.shtml)
+- 2026-06-29 17:32 - [叠纸](https://www.share.kurohicncr.top/Article/details/71073289149.shtml)
+- 2026-06-29 17:33 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/8228658.shtml)
+- 2026-06-29 17:48 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/435063967.shtml)
+- 2026-06-29 17:37 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/1129266.shtml)
+- 2026-06-29 17:55 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/54452327122.shtml)
+- 2026-06-29 17:42 - [四川达州发生一起交通事故致2死](http://www.blog.minike.top/Article/details/93083588167.shtml)
+- 2026-06-29 17:46 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/737706046.shtml)
+- 2026-06-29 17:54 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/995459831.shtml)
+- 2026-06-29 17:35 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/20332304027.shtml)
+- 2026-06-29 17:50 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/980606.shtml)

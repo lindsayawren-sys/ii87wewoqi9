@@ -1,56 +1,56 @@
-# 学习手记｜巩固壮大实体经济根基
+# 美丽中国行丨我的家园，越来越美——美丽中国建设成效观察
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-5月16日出版的《求是》杂志发表习近平总书记重要文章《做强做优做大实体经济》。 实体经济是一国经济的立身之本。没有坚实的物质技术基础，就不可能全面建成社会主义现代化强国。迈入“十五五”，加快构建现代化产业体系处在关键阶段，《求是》刊登这一重要文章，更加凸显发展实体经济的战略意义。 “不论经济发展到什么时候，实体经济都是我国经济发展、我们在国际经济竞争中赢得主动的根基。”习近平总
+新华社北京5月11日电 题：我的家园，越来越美——美丽中国建设成效观察 开栏的话： 建设美丽中国，是全面建设社会主义现代化国家的重要目标，更关系着亿万人民群众的获得感幸福感安全感。习近平总书记强调，我们必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。 “十五五”开局之年，美丽中国建设提质扩面、有声有色。新华社即日起推出“美丽中
 
 ## 正文
 
-5月16日出版的《求是》杂志发表习近平总书记重要文章《做强做优做大实体经济》。
+新华社北京5月11日电 题：我的家园，越来越美——美丽中国建设成效观察 开栏的话： 建设美丽中国，是全面建设社会主义现代化国家的重要目标，更关系着亿万人民群众的获得感幸福感安全感。
 
-实体经济是一国经济的立身之本。
+习近平总书记强调，我们必须以更高站位、更宽视野、更大力度来谋划和推进新征程生态环境保护工作，谱写新时代生态文明建设新篇章。
 
-没有坚实的物质技术基础，就不可能全面建成社会主义现代化强国。
+“十五五”开局之年，美丽中国建设提质扩面、有声有色。
 
-迈入“十五五”，加快构建现代化产业体系处在关键阶段，《求是》刊登这一重要文章，更加凸显发展实体经济的战略意义。
+新华社即日起推出“美丽中国行”系列报道，展现各地践行习近平生态文明思想的生动实践，建设美丽家园取得的突出成效，反映人民群众实实在在的生态环境获得感，讲好中国的绿色发展故事。
 
-“不论经济发展到什么时候，实体经济都是我国经济发展、我们在国际经济竞争中赢得主动的根基。
+新华社记者 环境就是民生，青山就是美丽，蓝天也是幸福。
 
-”习近平总书记的话，道出了强国之基与制胜之道。
+习近平总书记指出，必须牢固树立和践行绿水青山就是金山银山的理念，站在人与自然和谐共生的高度谋划发展。
 
-当前，国际格局深刻调整，各类风险隐患交织叠加。
+立夏过后，芳菲正盛，草木葱茏。
 
-在复杂国内外形势下推进高质量发展，经济增长需要保持适当速度，维护国家安全需要厚植发展韧性，科技创新需要乘势而上……这些都要求我们坚持把发展经济的着力点放在实体经济上。
+记者在采访调研中看到，近年来，各地努力建设望得见山、看得见水、记得住乡愁的美丽中国，让自然生态美景永驻人间。
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 17:37 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 17:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 17:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 17:30 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 17:42 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 17:41 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 17:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 17:32 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 17:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 17:40 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 17:32 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 17:54 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 17:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 17:52 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 17:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 17:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 17:54 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 17:56 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 17:55 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/2605882.shtml)
-- 2026-06-29 17:34 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/0302499.shtml)
-- 2026-06-29 17:45 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/551068174.shtml)
-- 2026-06-29 17:36 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/47623.shtml)
-- 2026-06-29 17:50 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/4857763288.shtml)
-- 2026-06-29 17:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/35031991.shtml)
-- 2026-06-29 17:48 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/0934943534.shtml)
-- 2026-06-29 17:44 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/0287717.shtml)
-- 2026-06-29 17:27 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/1321601401.shtml)
-- 2026-06-29 17:26 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/912939222.shtml)
-- 2026-06-29 17:53 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/854838.shtml)
-- 2026-06-29 17:52 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/049882549.shtml)
-- 2026-06-29 17:36 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/18163129.shtml)
-- 2026-06-29 17:27 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/25246.shtml)
-- 2026-06-29 17:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/33357043824.shtml)
+- 2026-06-29 17:30 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/99033150.shtml)
+- 2026-06-29 17:36 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/368310504791.shtml)
+- 2026-06-29 17:44 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/0508880816.shtml)
+- 2026-06-29 17:58 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/0751080.shtml)
+- 2026-06-29 17:38 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.share.kurohicncr.top/Article/details/7773237476.shtml)
+- 2026-06-29 17:37 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/6812045.shtml)
+- 2026-06-29 17:33 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/849667.shtml)
+- 2026-06-29 17:58 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/155294.shtml)
+- 2026-06-29 17:31 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/56027733655.shtml)
+- 2026-06-29 17:43 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/32837770685.shtml)
+- 2026-06-29 17:39 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/10270430867.shtml)
+- 2026-06-29 17:50 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/3180113.shtml)
+- 2026-06-29 17:55 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/09162613853.shtml)
+- 2026-06-29 17:46 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/056711.shtml)
+- 2026-06-29 17:53 - [起风了](https://www.blog.minike.top/Article/details/824735947.shtml)

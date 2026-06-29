@@ -1,58 +1,46 @@
-# 110件/套汉代中山国诸侯王墓出土文物亮相江西
+# 日本北海道发生4.8级地震
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新社南昌5月15日电 (记者 李韵涵)“王畿中山——汉代中山王国历史与文化展”15日在南昌汉代海昏侯国遗址博物馆开幕，110件/套文物集中亮相，实现了“王”与“侯”的跨时空对话。 据了解，本次展览由南昌汉代海昏侯国遗址博物馆与河北博物院、河北省文物考古研究院联合举办，共展出汉代中山国诸侯王墓出土文物110件/套，并配合展出2组海昏侯墓出土文物。 据南昌汉代海昏侯国遗址管理局党
+中新网5月13日电 据日本TBS新闻网报道，当地时间13日11时24分，日本北海道发生4.8级地震，震源深度10千米。 据报道，此次地震的震中位于北海道以东近海，北海道多地都有震感，地震没有引发海啸。
 
 ## 正文
 
-中新社南昌5月15日电 (记者 李韵涵)“王畿中山——汉代中山王国历史与文化展”15日在南昌汉代海昏侯国遗址博物馆开幕，110件/套文物集中亮相，实现了“王”与“侯”的跨时空对话。
+中新网5月13日电 据日本TBS新闻网报道，当地时间13日11时24分，日本北海道发生4.8级地震，震源深度10千米。
 
-据了解，本次展览由南昌汉代海昏侯国遗址博物馆与河北博物院、河北省文物考古研究院联合举办，共展出汉代中山国诸侯王墓出土文物110件/套，并配合展出2组海昏侯墓出土文物。
-
-据南昌汉代海昏侯国遗址管理局党工委书记夏清平介绍，汉代中山王墓和海昏侯墓，同属汉代大一统格局下诸侯国历史的典型缩影，也是汉代文明的珍贵载体。
-
-一北一南、跨越千里，两大汉文化地标遥相呼应、同脉同源，共同诠释了中华文明多元一体、兼容并蓄的鲜明特质。
-
-河北博物院副院长王然表示，本次展览展品以错金银鸟篆文铜壶、骑兽人物博山炉、中山简王刘焉铜缕玉衣等文物重器为核心，涵盖了西汉中山靖王刘胜夫妇、中山怀王刘修及东汉中山简王刘焉等多处王陵出土的精品文物，全景展现大汉王朝的礼乐制度、工艺技术与生活图景。
-
-据了解，此次展览的一大亮点在于实现了“王”与“侯”的跨时空对话。
-
-汉代中山国与海昏侯国，同属汉代宗室分封体系，墓葬出土的文物在器型、功能、礼制内涵上既有一致性，又各具地域特色。
-
-例如，展览第二单元“王的世界”中，展示了中山靖王刘胜墓出土的饼金，可与海昏侯墓出土的饼金、褭蹏金等形成直观对比，是研究汉代黄金货币与酎金制度的重要材料。
+据报道，此次地震的震中位于北海道以东近海，北海道多地都有震感，地震没有引发海啸。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 17:28 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 17:37 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 17:25 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 17:36 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 17:47 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 17:49 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 17:24 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 17:40 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 17:26 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 17:44 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 17:31 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 17:43 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 17:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 17:36 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 17:43 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 17:51 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 17:53 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 17:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 17:43 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 17:46 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 17:56 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 17:33 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 17:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:49 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/773573834.shtml)
-- 2026-06-29 17:32 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/9996081.shtml)
-- 2026-06-29 17:37 - [流金岁月](http://www.share.minike.top/Article/details/9191212924.shtml)
-- 2026-06-29 17:37 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/485802.shtml)
-- 2026-06-29 17:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/11781127950.shtml)
-- 2026-06-29 17:33 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/570821750.shtml)
-- 2026-06-29 17:53 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/6747751441.shtml)
-- 2026-06-29 17:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/4674615609.shtml)
-- 2026-06-29 17:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/3948461860.shtml)
-- 2026-06-29 17:26 - [逆天祖国人](http://www.share.minike.top/Article/details/8585003.shtml)
-- 2026-06-29 17:29 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/9996210592.shtml)
-- 2026-06-29 17:51 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/8488702404.shtml)
-- 2026-06-29 17:31 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/81885266552.shtml)
-- 2026-06-29 17:47 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/64522279.shtml)
-- 2026-06-29 17:29 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/7368579690.shtml)
+- 2026-06-29 18:00 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/948493.shtml)
+- 2026-06-29 17:46 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/154319576.shtml)
+- 2026-06-29 17:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/173252.shtml)
+- 2026-06-29 17:38 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/8035910188.shtml)
+- 2026-06-29 17:31 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/4640480271.shtml)
+- 2026-06-29 17:53 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/299194.shtml)
+- 2026-06-29 17:50 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/49008982197.shtml)
+- 2026-06-29 17:36 - [媒体：中国田径压力与期待并存](https://www.share.kurohicncr.top/Article/details/88448454.shtml)
+- 2026-06-29 17:50 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/153050.shtml)
+- 2026-06-29 17:33 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/823857.shtml)
+- 2026-06-29 17:54 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/17136.shtml)
+- 2026-06-29 17:37 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/00556073629.shtml)
+- 2026-06-29 17:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/519595694387.shtml)
+- 2026-06-29 17:56 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/291799288.shtml)
+- 2026-06-29 17:38 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/458478118.shtml)

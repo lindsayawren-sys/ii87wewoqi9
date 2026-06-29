@@ -1,51 +1,57 @@
-# 广州港南沙港区五期工程全面开工
+# 上海居民何时能去台湾本岛个人游？国台办回应
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 18:26 来源：中国新闻网 5月15日，广州港南沙港区五期工程全面开工，项目设计年集装箱通过能力670万标准箱，建成后南沙港区集装箱通过能力将超过3500万标准箱，位于世界单一港区前列。 此次开工的广州港南沙港区五期工程项目位于广州市南沙区龙穴岛南端，地处粤港澳大湾区几何中心，项目总投资概算144.47亿元人民币，将建设4个20万吨级集装箱海
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。有记者问：近日，上海市文旅局发布公告，宣布上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖团队游和个人游。请问目前相关情况进展如何？何时可实现上海居民赴台湾本岛旅游？ 国台办发言人张晗表示，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。近期两岸旅游
 
 ## 正文
 
-发布时间：2026年05月15日 18:26 来源：中国新闻网 5月15日，广州港南沙港区五期工程全面开工，项目设计年集装箱通过能力670万标准箱，建成后南沙港区集装箱通过能力将超过3500万标准箱，位于世界单一港区前列。
+中新网5月13日电 5月13日，国台办举行例行新闻发布会。
 
-此次开工的广州港南沙港区五期工程项目位于广州市南沙区龙穴岛南端，地处粤港澳大湾区几何中心，项目总投资概算144.47亿元人民币，将建设4个20万吨级集装箱海轮泊位，同步配套建设15个5000吨级集装箱驳船泊位、5个工作船泊位，总岸线长度超过3800米，可全天候靠泊全球超大型的集装箱船舶，适配远洋干线航运发展需求。
+有记者问：近日，上海市文旅局发布公告，宣布上海居民可通过上海市、福建省具备相关资质的旅行社报名赴金门、马祖团队游和个人游。
 
-广州港南沙港区五期工程建成后，将与南沙港区现有20个集装箱深水泊位和国际通用码头4个深水泊位高效联动、协同运营，集装箱年通过能力将超过3500万标准箱。
+请问目前相关情况进展如何？
 
-(记者 蔡敏婕 制作 乐小敏 视频来源 广州港集团) 责任编辑：【刘湃】
+何时可实现上海居民赴台湾本岛旅游？
+
+国台办发言人张晗表示，4月29日，上海市文旅局就上海居民赴金门、马祖旅游作出安排，这是今年2月国共两党智库论坛成果的具体落实。
+
+近期两岸旅游业界已经开始互访考察，为后续两岸旅游交流合作铺路。
+
+我们已经宣布推动恢复上海市及福建省居民赴台(本岛)个人游试点，希望台湾有关方面顺应民意，尽早开放，为实现两岸人员往来交流正常化和各领域交流常态化创造条件。
+
+(中新网“燕新台”工作室)
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 17:32 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 17:51 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 17:52 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 17:35 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 17:49 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 17:50 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 17:42 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 17:36 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 17:34 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 17:32 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 17:40 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 17:27 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 17:53 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 17:37 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 17:58 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 17:37 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-29 17:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 17:46 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 17:46 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 17:34 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 17:34 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 17:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 17:49 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:41 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/921309.shtml)
-- 2026-06-29 17:51 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/568039661.shtml)
-- 2026-06-29 17:50 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/085453834491.shtml)
-- 2026-06-29 17:30 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/061542097.shtml)
-- 2026-06-29 17:37 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/2254849.shtml)
-- 2026-06-29 17:52 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/87031149.shtml)
-- 2026-06-29 17:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/0370998.shtml)
-- 2026-06-29 17:39 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/42197261772.shtml)
-- 2026-06-29 17:24 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/36050211.shtml)
-- 2026-06-29 17:45 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/21113755.shtml)
-- 2026-06-29 17:44 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/952827585942.shtml)
-- 2026-06-29 17:24 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/6371031530.shtml)
-- 2026-06-29 17:46 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/760479320.shtml)
-- 2026-06-29 17:27 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/29246024236.shtml)
-- 2026-06-29 17:25 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/336305681.shtml)
+- 2026-06-29 17:52 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/5390848.shtml)
+- 2026-06-29 17:55 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/23289794319.shtml)
+- 2026-06-29 17:50 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/20734896.shtml)
+- 2026-06-29 17:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/24139.shtml)
+- 2026-06-29 17:52 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/4027226876.shtml)
+- 2026-06-29 17:35 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/93023.shtml)
+- 2026-06-29 17:50 - [东方风云榜红毯](http://www.share.minike.top/Article/details/62668921.shtml)
+- 2026-06-29 17:53 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/029235.shtml)
+- 2026-06-29 17:31 - [流金岁月](https://www.share.minike.top/Article/details/165394432064.shtml)
+- 2026-06-29 17:44 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/33100.shtml)
+- 2026-06-29 17:30 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/7608164.shtml)
+- 2026-06-29 17:48 - [极限挑战第一季](https://www.blog.minike.top/Article/details/65687437.shtml)
+- 2026-06-29 17:40 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/5276502.shtml)
+- 2026-06-29 17:54 - [千与千寻](http://www.blog.minike.top/Article/details/851964537.shtml)
+- 2026-06-29 17:39 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/6970331251.shtml)

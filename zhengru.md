@@ -1,60 +1,57 @@
-# LanzaTech提交200万股直接发行申请，拟募资约2000万美元
+# 澳门与韩国旅游机构签署友好协议 深化文旅联动
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-发行详情 碳捕集技术公司LanzaTech Global近日向美国证券交易委员会提交文件，计划通过注册直接发行方式向机构投资者出售200万股普通股。预计此次发行将带来约2000万美元的总收益，扣除配售代理费用及其他发行开支后，所得款项将用于一般公司用途。 市场反应与股价表现 受股东权益稀释担忧影响，LanzaTech股价在发行消息公布后出现下跌。该公司股价在过去一年已累计下跌5
+中新网澳门5月12日电 (记者 郑嘉伟)澳门旅游商会、澳门酒店旅业商会与韩国济州特别自治道观光协会12日在澳门举行交流座谈会暨友好合作协议签署仪式，共同推动两地文旅深度联动。 在澳门特区政府旅游局代局长程卫东、横琴粤澳深度合作区经济发展局文旅会展商贸处处长林衍杰的见证下，澳门旅游商会、澳门酒店旅业商会分别与济州特别自治道观光协会签署合作协议，内容涵盖产业合作、联合营销推广、资源
 
 ## 正文
 
-发行详情 碳捕集技术公司LanzaTech Global近日向美国证券交易委员会提交文件，计划通过注册直接发行方式向机构投资者出售200万股普通股。
+中新网澳门5月12日电 (记者 郑嘉伟)澳门旅游商会、澳门酒店旅业商会与韩国济州特别自治道观光协会12日在澳门举行交流座谈会暨友好合作协议签署仪式，共同推动两地文旅深度联动。
 
-预计此次发行将带来约2000万美元的总收益，扣除配售代理费用及其他发行开支后，所得款项将用于一般公司用途。
+在澳门特区政府旅游局代局长程卫东、横琴粤澳深度合作区经济发展局文旅会展商贸处处长林衍杰的见证下，澳门旅游商会、澳门酒店旅业商会分别与济州特别自治道观光协会签署合作协议，内容涵盖产业合作、联合营销推广、资源联动等多个领域，并将建立常态化联络机制，为两地客源互送、研学旅游的发展奠定良好基础。
 
-市场反应与股价表现 受股东权益稀释担忧影响，LanzaTech股价在发行消息公布后出现下跌。
+济州特别自治道观光协会会长姜东勋表示，济州作为韩国知名旅游胜地，向来重视与澳门的文旅交流。
 
-该公司股价在过去一年已累计下跌55%，今年以来跌幅达33%。
+希望双方以协议为基础，加强旅游市场信息交流，推进民间互访机制建设，联合开展市场宣传推广，强化产业合作，让更多澳门市民走进济州领略自然生态之美，也让更多韩国游客来澳感受中西交融的人文魅力。
 
-D． Boral Capital LLC担任此次发行的独家配售代理。
+交流座谈会上，来自澳门与济州的旅游业界代表亲切交流，共同探讨文旅合作发展机遇，积极缔结友好合作关系。
 
-公司背景与最新进展 LanzaTech利用专有的气体发酵平台将废碳转化为可持续航空燃料和化学品等高价值产品。
+澳门酒店旅业商会会长、澳门旅游发展智库会长张健中说，澳门与济州文旅资源互补性强，民众旅游互访基础坚实。
 
-公司仍处于亏损状态，最新财报显示一季度净亏损1470万美元，但较去年同期的1920万美元有所收窄。
+随着澳门与横琴文旅融合加速推进，建议依托澳琴深度合作，共同构建“一程多站”黄金旅游目的地，丰富澳门文旅内容，拓展国际文旅合作新空间，推动澳门世界旅游休闲中心建设。
 
-公司此前已完成多轮融资，包括1月向包括SiteGround在内的投资者募集2000万美元，以及5月从现有投资者处获得1000万美元注资。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 17:51 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 17:53 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 17:40 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 17:46 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 17:51 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 17:33 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 17:34 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 17:49 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 17:46 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 17:28 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 17:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 17:47 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 17:36 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 17:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-29 17:31 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 17:33 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 17:50 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 17:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 17:59 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 17:43 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 17:59 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 17:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 17:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 17:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/73594214662.shtml)
-- 2026-06-29 17:48 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/7801826540.shtml)
-- 2026-06-29 17:52 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/387661940.shtml)
-- 2026-06-29 17:28 - [叠纸](https://www.share.minike.top/Article/details/658756.shtml)
-- 2026-06-29 17:32 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/458361.shtml)
-- 2026-06-29 17:53 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/470529817127.shtml)
-- 2026-06-29 17:27 - [天道](http://www.share.minike.top/Article/details/157184572.shtml)
-- 2026-06-29 17:45 - [7款高价创新药有望降价](http://www.blog.minike.top/Article/details/81354930978.shtml)
-- 2026-06-29 17:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/77489.shtml)
-- 2026-06-29 17:41 - [美人鱼](http://www.share.minike.top/Article/details/8347480.shtml)
-- 2026-06-29 17:35 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/207004.shtml)
-- 2026-06-29 17:53 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/02815646731.shtml)
-- 2026-06-29 17:53 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/34286691.shtml)
-- 2026-06-29 17:36 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/981616433.shtml)
-- 2026-06-29 17:44 - [天道](http://www.blog.kurohicncr.top/Article/details/979955237120.shtml)
+- 2026-06-29 17:45 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/544789.shtml)
+- 2026-06-29 17:42 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/9653020394.shtml)
+- 2026-06-29 17:53 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/125823852499.shtml)
+- 2026-06-29 17:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/81672817.shtml)
+- 2026-06-29 17:58 - [流金岁月](http://www.blog.minike.top/Article/details/47043864733.shtml)
+- 2026-06-29 17:34 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/911778740.shtml)
+- 2026-06-29 17:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/68696300637.shtml)
+- 2026-06-29 17:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/87017145.shtml)
+- 2026-06-29 17:56 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/779725.shtml)
+- 2026-06-29 17:40 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/157475814558.shtml)
+- 2026-06-29 17:42 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/45209266.shtml)
+- 2026-06-29 17:40 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/69907678464.shtml)
+- 2026-06-29 17:47 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/01074417012.shtml)
+- 2026-06-29 17:54 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/9748809.shtml)
+- 2026-06-29 17:53 - [谢依霖夸杨幂靠谱](https://www.share.kurohicncr.top/Article/details/3336500.shtml)

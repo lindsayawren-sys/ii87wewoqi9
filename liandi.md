@@ -1,48 +1,54 @@
-# 中国银行辽宁省分行原党委书记、行长贾天兵被“双开”
+# 湖北巴东：珍禽白冠长尾雉受伤 警民联手救助
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中新网5月15日电 据中央纪委国家监委驻中国银行纪检监察组、黑龙江省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国银行纪检监察组、黑龙江省齐齐哈尔市监委对中国银行辽宁省分行原党委书记、行长贾天兵严重违纪违法问题进行了立案审查调查。经查，贾天兵身为党员领导干部，丧失理想信念，背弃初心使命，漠视党纪国法，对抗组织审查，搞迷信活动；违反中央八项规定精神，收受可能影
+发布时间：2026年05月12日 22:21 来源：中国新闻网 近日，湖北省巴东县清太坪镇派出所民警在辖区山林周边巡逻时，发现一只外形独特、羽毛艳丽的野生鸟类，该鸟行动迟缓、无法正常飞行。民警随即对其进行妥善保护，并连夜送往巴东县林业局进行专业处置。 经林业野生动物保护工作人员现场辨认，确认这只鸟为国家一级重点保护野生动物白冠长尾雉。经检查，该鸟左眼存在明显外伤，行动能力受限，
 
 ## 正文
 
-中新网5月15日电 据中央纪委国家监委驻中国银行纪检监察组、黑龙江省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国银行纪检监察组、黑龙江省齐齐哈尔市监委对中国银行辽宁省分行原党委书记、行长贾天兵严重违纪违法问题进行了立案审查调查。
+发布时间：2026年05月12日 22:21 来源：中国新闻网 近日，湖北省巴东县清太坪镇派出所民警在辖区山林周边巡逻时，发现一只外形独特、羽毛艳丽的野生鸟类，该鸟行动迟缓、无法正常飞行。
 
-经查，贾天兵身为党员领导干部，丧失理想信念，背弃初心使命，漠视党纪国法，对抗组织审查，搞迷信活动；违反中央八项规定精神，收受可能影响公正执行公务的礼品、消费卡，公款购买高档酒水；违反组织原则，不按规定报告个人有关事项，违规为他人谋取人事利益；廉洁底线失守，利用职权为亲属谋取利益，公款报销个人费用，将应由本人支付的费用交由他人支付，违规收受大额钱款、股权；利用职务便利，非法占有公共财物；在授信审批、项目承揽等方面为他人谋取利益，并非法收受巨额财物。
+民警随即对其进行妥善保护，并连夜送往巴东县林业局进行专业处置。
 
-贾天兵严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌贪污、受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+经林业野生动物保护工作人员现场辨认，确认这只鸟为国家一级重点保护野生动物白冠长尾雉。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中国银行党委研究，决定给予贾天兵开除党籍处分；经中央纪委国家监委驻中国银行纪检监察组研究，决定给予其开除公职处分；收缴其违纪违法所得；黑龙江省齐齐哈尔市监委将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+经检查，该鸟左眼存在明显外伤，行动能力受限，急需专业救治。
+
+工作人员第一时间对伤口进行初步处理，同时投喂食物补充体力。
+
+目前，这只受伤的白冠长尾雉已由专人专车安全送达湖北省野生动物救护研究开发中心，接受全面、专业的治疗，待其身体康复、具备野外生存能力后，将被放归适宜的自然栖息地。
+
+(焦国斌 制作 董晓斌 视频来源 巴东县融媒体中心) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 17:29 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 17:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-29 17:53 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 17:48 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 17:53 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 17:29 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 17:29 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 17:50 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 17:34 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 17:36 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 17:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 17:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 17:42 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 17:39 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 17:54 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 17:41 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 17:47 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 17:53 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 17:42 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:32 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/9363744278.shtml)
-- 2026-06-29 17:52 - [NBA交易](https://www.share.kurohicncr.top/Article/details/3899056698.shtml)
-- 2026-06-29 17:52 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/09337030.shtml)
-- 2026-06-29 17:51 - [毒液2](https://www.share.kurohicncr.top/Article/details/36988568.shtml)
-- 2026-06-29 17:34 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/55584705.shtml)
-- 2026-06-29 17:40 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/15765949279.shtml)
-- 2026-06-29 17:48 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/75547.shtml)
-- 2026-06-29 17:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/3219818.shtml)
-- 2026-06-29 17:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/75616259.shtml)
-- 2026-06-29 17:40 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/87801142839.shtml)
-- 2026-06-29 17:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/98716210.shtml)
-- 2026-06-29 17:33 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/88932961856.shtml)
-- 2026-06-29 17:29 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/67721325.shtml)
-- 2026-06-29 17:51 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/9731718353.shtml)
-- 2026-06-29 17:26 - [黄金也扛不住了](http://www.share.minike.top/Article/details/160144256.shtml)
+- 2026-06-29 17:34 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/065872636584.shtml)
+- 2026-06-29 17:37 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6016119346.shtml)
+- 2026-06-29 17:31 - [胡光宇一审获刑13年](http://www.blog.minike.top/Article/details/996556510.shtml)
+- 2026-06-29 17:38 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/3523324.shtml)
+- 2026-06-29 17:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/922697081.shtml)
+- 2026-06-29 17:53 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/532130938.shtml)
+- 2026-06-29 17:35 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/73772.shtml)
+- 2026-06-29 17:47 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/044061799.shtml)
+- 2026-06-29 17:37 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.minike.top/Article/details/64443.shtml)
+- 2026-06-29 17:47 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/73103.shtml)
+- 2026-06-29 17:32 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/070626.shtml)
+- 2026-06-29 17:32 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/8855561170.shtml)
+- 2026-06-29 17:37 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/467160777843.shtml)
+- 2026-06-29 17:55 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/487192.shtml)
+- 2026-06-29 17:47 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/394697249297.shtml)

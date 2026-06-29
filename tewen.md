@@ -1,61 +1,58 @@
-# 美债收益率持续走高 实际利率飙升压制股市
+# 成绩退步超100分发“证明”，这样的惩戒合适吗？
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-美国国债收益率已连续数周走高，而周五此番大幅攀升，愈发令股市投资者倍感不安。 此番收益率上行，不单源于市场通胀预期升温，实际收益率也同步大幅走高，这一走势往往对股市冲击更大。 据债券交易平台Tradeweb数据，近期交易中，10年期通胀保值国债（TIPS）收益率报2.05%，较周四的1.973%继续上行。 今年3月伊朗冲突爆发初期，10年期通胀保值国债收益率冲高，同期股市应声下
+据纵览新闻报道，5月11日，针对向部分学生发放“退步快学生”纸质证明进行惩戒一事，湖南省永州市江永二中相关负责人表示，此举确实不合适，已要求向学生发放该证明的九年级组进行收回，并安排心理咨询师对相关学生开展心理辅导。 此前，网传涉事学校在2026年上学期期中考试后，将成绩退步超过100分的学生评为“退步快学生”，甚至发放“证明”以作惩戒。不少网民质疑这种做法的合理性，认为即便要
 
 ## 正文
 
-美国国债收益率已连续数周走高，而周五此番大幅攀升，愈发令股市投资者倍感不安。
+据纵览新闻报道，5月11日，针对向部分学生发放“退步快学生”纸质证明进行惩戒一事，湖南省永州市江永二中相关负责人表示，此举确实不合适，已要求向学生发放该证明的九年级组进行收回，并安排心理咨询师对相关学生开展心理辅导。
 
-此番收益率上行，不单源于市场通胀预期升温，实际收益率也同步大幅走高，这一走势往往对股市冲击更大。
+此前，网传涉事学校在2026年上学期期中考试后，将成绩退步超过100分的学生评为“退步快学生”，甚至发放“证明”以作惩戒。
 
-据债券交易平台Tradeweb数据，近期交易中，10年期通胀保值国债（TIPS）收益率报2.05%，较周四的1.973%继续上行。
+不少网民质疑这种做法的合理性，认为即便要对学生进行督促惩戒，也不能采用这种方式，否则会损害学生的自尊心。
 
-今年3月伊朗冲突爆发初期，10年期通胀保值国债收益率冲高，同期股市应声下跌；而随着该收益率回落，股市随即迎来反弹。
+对于很多成绩有待提高的学生而言，老师若缺乏必要的督促，确实难以推动其成绩进步；但如果批评过度，甚至损害学生的自信与自尊，则会本末倒置，违背教书育人的本来目的。
 
-自4月末以来，美国名义国债收益率持续上行，但通胀保值国债收益率直到一周前才开始正式发力上涨，周五更是创下阶段性最大涨幅。
+因此，教学中的惩戒行为，既要帮助学生找准学习难点、改正不足，又要帮助他们树立学习信心、激发学习热情。
 
-众所周知，10年期名义美债收益率是全美各类借贷成本的核心基准；而10年期通胀保值国债收益率，代表剔除通胀后的实际融资成本，企业在制定借贷与开支规划时，这一指标参考价值更高。
+早在2021年3月，教育部发布的《中小学教育惩戒规则(试行)》就已经在全国施行。
 
-因此相比单纯的名义收益率上涨，实际收益率走高对经济的压制作用更为显著。
+这份规则明确指出：“实施教育惩戒应当符合教育规律，注重育人效果；遵循法治原则，做到客观公正；选择适当措施，与学生过错程度相适应。
 
-责任编辑：陈钰嘉
+” 结合上述事件深入分析，以育人为导向的教育惩戒，首先应遵循教育规律，充分考虑学生的心理承受能力与成长节奏。
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 17:25 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 17:36 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 17:44 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-29 17:28 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 17:29 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 17:44 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 17:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 17:41 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 17:31 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 17:39 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 17:48 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 17:35 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 17:27 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 17:38 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 17:30 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 17:49 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 17:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 17:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 17:50 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 17:30 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 17:31 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 17:51 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 17:30 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 17:53 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 17:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 17:58 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/994002791.shtml)
-- 2026-06-29 17:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/64836.shtml)
-- 2026-06-29 17:51 - [流金岁月](https://www.share.minike.top/Article/details/1512602.shtml)
-- 2026-06-29 17:30 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/875330117.shtml)
-- 2026-06-29 17:31 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/251454903.shtml)
-- 2026-06-29 17:48 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/690369464.shtml)
-- 2026-06-29 17:37 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/7042537361.shtml)
-- 2026-06-29 17:29 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/50342.shtml)
-- 2026-06-29 17:43 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/494018115.shtml)
-- 2026-06-29 17:46 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/606737221.shtml)
-- 2026-06-29 17:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/64866410492.shtml)
-- 2026-06-29 17:40 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/759381791393.shtml)
-- 2026-06-29 17:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/8812419.shtml)
-- 2026-06-29 17:30 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/09380784468.shtml)
-- 2026-06-29 17:45 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/292910105.shtml)
+- 2026-06-29 17:54 - [斗破苍穹](http://www.share.minike.top/Article/details/41862.shtml)
+- 2026-06-29 17:57 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/44768454378.shtml)
+- 2026-06-29 17:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/24203.shtml)
+- 2026-06-29 17:32 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/6851762.shtml)
+- 2026-06-29 17:44 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/30118.shtml)
+- 2026-06-29 17:52 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/1030255054.shtml)
+- 2026-06-29 17:49 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/56974166682.shtml)
+- 2026-06-29 17:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/589430088.shtml)
+- 2026-06-29 17:41 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/047296088.shtml)
+- 2026-06-29 17:48 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/3047984.shtml)
+- 2026-06-29 17:53 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/236068347.shtml)
+- 2026-06-29 17:49 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/549440921.shtml)
+- 2026-06-29 17:54 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/873680818.shtml)
+- 2026-06-29 17:59 - [省市招考专家解读山西高考志愿政策](https://www.share.minike.top/Article/details/76881139736.shtml)
+- 2026-06-29 17:51 - [流金岁月](http://www.blog.minike.top/Article/details/3201861.shtml)

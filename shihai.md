@@ -1,48 +1,56 @@
-# 宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观
+# 长江有色：美股科技股集体走强叠加供需缺口 12日锡价或大涨
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月16日 22:27 来源：中国新闻网 5月16日，随着宁夏全区降雨天气结束，雨霁天晴，巍峨的贺兰山上空惊现梦幻双彩虹奇观，为塞上大地增添了一抹绚丽的色彩。 雨后的贺兰山空气清新，澄澈的蓝天、青翠的山峦与横跨天际的双彩虹光晕相映成趣，勾勒出一幅宁静而壮美的塞上自然画卷。此次双彩虹景观出现在天气转晴之后，阳光透过残留雨滴折射出两道清晰可见的彩虹，两道彩虹层
+长江有色金属网 期货市场：美股科技股集体走强叠加供需缺口，隔夜伦锡收涨2.31%；最新收盘报55250美元/吨，上涨1250美元，涨幅为2.31%，成交量为868手，持仓量22088万手；国内市场，夜盘沪锡最新收报431530元/吨，上涨7620元，涨幅为1.8%。 伦敦金属交易所（LME）5月11日伦锡库存量8360吨，较前一交易日库存量减少90吨。长江锡业网讯：今日沪锡期货
 
 ## 正文
 
-发布时间：2026年05月16日 22:27 来源：中国新闻网 5月16日，随着宁夏全区降雨天气结束，雨霁天晴，巍峨的贺兰山上空惊现梦幻双彩虹奇观，为塞上大地增添了一抹绚丽的色彩。
+长江有色金属网 期货市场：美股科技股集体走强叠加供需缺口，隔夜伦锡收涨2.31%；最新收盘报55250美元/吨，上涨1250美元，涨幅为2.31%，成交量为868手，持仓量22088万手；国内市场，夜盘沪锡最新收报431530元/吨，上涨7620元，涨幅为1.8%。
 
-雨后的贺兰山空气清新，澄澈的蓝天、青翠的山峦与横跨天际的双彩虹光晕相映成趣，勾勒出一幅宁静而壮美的塞上自然画卷。
+伦敦金属交易所（LME）5月11日伦锡库存量8360吨，较前一交易日库存量减少90吨。
 
-此次双彩虹景观出现在天气转晴之后，阳光透过残留雨滴折射出两道清晰可见的彩虹，两道彩虹层叠交错，宛如七彩天桥悬挂于山巅，吸引了众多游客驻足仰望、拍照留念。
+长江锡业网讯：今日沪锡期货全线低开为主，主力月2606合约开盘报429500元/吨较前一日收盘涨5590元/吨，9：20分沪锡主力2606合约报437950元/吨，上涨14040元，涨幅为3.31%，沪期锡高开高走，盘面维持高位运行；宏观面：美伊局势骤然恶化推升国际油价，不仅抬高了基本金属的冶炼成本，更引发了全球金属贸易航线与区域产能的中断担忧。
 
-(记者 谢宇 视频来源 宁夏贺兰山国家森林公园） 责任编辑：【李骏】
+与此同时，全球科技股强势上涨，AI 和半导体行业景气度持续攀升，为金属市场注入了强劲的需求动力。
+
+精炼锡供需现状：供给刚性收缩，库存历史低位 供给端持续收紧是本轮锡价上涨的核心支撑。
+
+缅甸佤邦复产进度远低于市场预期，产能恢复程度有限，进入 5 月传统雨季后，当地矿山开采和原料运输环节进一步受阻。
+
+印尼作为全球最大精炼锡出口国，今年严格执行开采配额管控，同时正在酝酿出台出口暴利税政策，近期出口量较正常水平出现大幅下滑。
+
+全球锡显性库存已降至历史极低区间，仅能满足极短时间的市场消费，现货市场供应紧张格局持续加剧。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 17:32 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 17:25 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 17:38 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 17:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 17:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 17:44 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 17:45 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 17:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 17:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:59 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 17:53 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 17:58 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 17:39 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 17:54 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 17:54 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 17:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 17:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 17:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 17:33 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/5512356779.shtml)
-- 2026-06-29 17:30 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/45779.shtml)
-- 2026-06-29 17:31 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/3103204.shtml)
-- 2026-06-29 17:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/612318026707.shtml)
-- 2026-06-29 17:40 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/335011768552.shtml)
-- 2026-06-29 17:48 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/064217737.shtml)
-- 2026-06-29 17:30 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/588981748786.shtml)
-- 2026-06-29 17:26 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/62678563.shtml)
-- 2026-06-29 17:27 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/68477832729.shtml)
-- 2026-06-29 17:31 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/176308524956.shtml)
-- 2026-06-29 17:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/6737696867.shtml)
-- 2026-06-29 17:42 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/429909899.shtml)
-- 2026-06-29 17:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/257705183941.shtml)
-- 2026-06-29 17:34 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/2099398.shtml)
-- 2026-06-29 17:28 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/06166484.shtml)
+- 2026-06-29 17:40 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/39576890.shtml)
+- 2026-06-29 17:57 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/977503898281.shtml)
+- 2026-06-29 17:43 - [业内：全球市场迎来结构性投资窗口](http://www.share.kurohicncr.top/Article/details/5228348911.shtml)
+- 2026-06-29 17:51 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/130673973.shtml)
+- 2026-06-29 17:57 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/412056.shtml)
+- 2026-06-29 17:56 - [爱很美味](http://www.blog.minike.top/Article/details/122474.shtml)
+- 2026-06-29 17:49 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/2035444.shtml)
+- 2026-06-29 17:41 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/462396263184.shtml)
+- 2026-06-29 17:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/701211.shtml)
+- 2026-06-29 17:38 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/453836.shtml)
+- 2026-06-29 17:31 - [爱很美味](http://www.share.kurohicncr.top/Article/details/514893981017.shtml)
+- 2026-06-29 17:46 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/18950003405.shtml)
+- 2026-06-29 17:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/00224.shtml)
+- 2026-06-29 17:46 - [速度与激情9](https://www.share.minike.top/Article/details/2198593.shtml)
+- 2026-06-29 17:48 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/04682606.shtml)

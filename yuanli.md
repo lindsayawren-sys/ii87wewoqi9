@@ -1,47 +1,57 @@
-# 巴基斯坦：伊美停火协议仍然有效
+# “九华山因有人露营失温去世导致封山”系谣言（2026·05·13）
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月15日 09:59 来源：央视新闻 责任编辑：【王祎】
+辟谣 “九华山因有人露营失温去世导致封山”系谣言 详情：近日，有网民在某视频评论区留言“九华山因大雨有人露营失温去世，所以封了”，相关言论引发关注。经属地公安局核实，该信息为谣言。经查，系当地一名网民为博取眼球、吸引流量，在视频评论区蓄意编造并擅自发布不实内容。目前，安徽省池州市青阳县公安机关已依法对该造谣网民作出行政处罚。(来源：“安徽网络举报”微信公众号) 科普 夏季开空调
 
 ## 正文
 
-发布时间：2026年05月15日 09:59 来源：央视新闻 责任编辑：【王祎】
+辟谣 “九华山因有人露营失温去世导致封山”系谣言 详情：近日，有网民在某视频评论区留言“九华山因大雨有人露营失温去世，所以封了”，相关言论引发关注。
+
+经属地公安局核实，该信息为谣言。
+
+经查，系当地一名网民为博取眼球、吸引流量，在视频评论区蓄意编造并擅自发布不实内容。
+
+目前，安徽省池州市青阳县公安机关已依法对该造谣网民作出行政处罚。
+
+(来源：“安徽网络举报”微信公众号) 科普 夏季开空调前必须做好这一步 详情：近日，中东部气温持续走高，华北多地将冲击今年首个35℃，高温季就此拉开帷幕。
+
+然而，闲置数月的空调，很可能吹出暗藏病菌的“脏风”。
+
+中国环境科学学会室内环境与健康分会对北京、深圳两座城市的家用空调开展入户调研。
+
+结果显示，88%的家用空调散热片上细菌总数超标，平均值超过标准约40倍(标准为每平方厘米细菌数≤100个)；除细菌外，84%的空调散热片上霉菌总数同样超标。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 17:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 17:29 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 17:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 17:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 17:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 17:35 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 17:29 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 17:43 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-29 17:30 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 17:33 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 17:49 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 17:31 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 17:53 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 17:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 17:30 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 17:35 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 17:56 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 17:33 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 17:53 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 17:39 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 17:41 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 17:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 17:50 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 17:59 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 17:42 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/1378523363.shtml)
-- 2026-06-29 17:48 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/45044046.shtml)
-- 2026-06-29 17:32 - [世界杯1/16决赛对阵出炉](https://www.blog.kurohicncr.top/Article/details/79570772.shtml)
-- 2026-06-29 17:44 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/5247312.shtml)
-- 2026-06-29 17:28 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/59440367260.shtml)
-- 2026-06-29 17:42 - [送你一朵小红花](https://www.share.minike.top/Article/details/7892518878.shtml)
-- 2026-06-29 17:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/6018303.shtml)
-- 2026-06-29 17:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/623673293.shtml)
-- 2026-06-29 17:40 - [王俊凯命名方式](http://www.share.minike.top/Article/details/91909375.shtml)
-- 2026-06-29 17:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/2342664.shtml)
-- 2026-06-29 17:40 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/882631641810.shtml)
-- 2026-06-29 17:49 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/03413.shtml)
-- 2026-06-29 17:34 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/0340759825.shtml)
-- 2026-06-29 17:37 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/513003867395.shtml)
-- 2026-06-29 17:44 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/70889.shtml)
+- 2026-06-29 17:43 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/360435822.shtml)
+- 2026-06-29 17:41 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/78084285.shtml)
+- 2026-06-29 17:30 - [我和我的家乡](http://www.blog.minike.top/Article/details/75231845.shtml)
+- 2026-06-29 17:46 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/3047117598.shtml)
+- 2026-06-29 17:40 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/082256969.shtml)
+- 2026-06-29 17:39 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/68677.shtml)
+- 2026-06-29 17:54 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/5634508733.shtml)
+- 2026-06-29 17:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/91733.shtml)
+- 2026-06-29 17:39 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/09125475.shtml)
+- 2026-06-29 17:38 - [斗破苍穹](http://www.blog.minike.top/Article/details/5605260.shtml)
+- 2026-06-29 17:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/5820705606.shtml)
+- 2026-06-29 17:46 - [斛珠夫人](https://www.blog.minike.top/Article/details/06643116.shtml)
+- 2026-06-29 17:53 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/151059.shtml)
+- 2026-06-29 17:44 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/25765123.shtml)
+- 2026-06-29 17:57 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/14382130210.shtml)

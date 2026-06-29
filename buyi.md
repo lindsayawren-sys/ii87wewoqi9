@@ -1,49 +1,61 @@
-# 中国宏桥于5月14日斥资3.1亿港元回购925.15万股
+# 铭记百年工运历史 谱写广州工运华章
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-中国宏桥（01378）发布公告，于2026年5月14日，该公司斥资3.1亿港元回购925.15万股。责任编辑：卢昱君
+中新网广州5月12日电 (记者 张璐)在第三次全国劳动大会召开100周年之际，由广州市总工会主办，广东革命历史博物馆、广州市第二工人文化宫、广州工人运动学会承办的系列纪念活动(简称“活动”)12日在中华全国总工会旧址纪念馆、广东咨议局旧址(第三次全国劳动大会旧址)举行。 活动采取瞻仰纪念、旧址参观、专题座谈、图书首发相结合的形式进行。当日上午，全体活动参加人员在中华全国总工会旧
 
 ## 正文
 
-中国宏桥（01378）发布公告，于2026年5月14日，该公司斥资3.1亿港元回购925.15万股。
+中新网广州5月12日电 (记者 张璐)在第三次全国劳动大会召开100周年之际，由广州市总工会主办，广东革命历史博物馆、广州市第二工人文化宫、广州工人运动学会承办的系列纪念活动(简称“活动”)12日在中华全国总工会旧址纪念馆、广东咨议局旧址(第三次全国劳动大会旧址)举行。
 
-责任编辑：卢昱君
+活动采取瞻仰纪念、旧址参观、专题座谈、图书首发相结合的形式进行。
+
+当日上午，全体活动参加人员在中华全国总工会旧址纪念馆瞻仰“工农运动死难烈士纪念碑”，深切缅怀革命先烈，致敬工运先驱。
+
+随后，参加人员前往广东咨议局旧址，实地参观第三次全国劳动大会会场，在历史现场感悟革命先辈的奋斗精神。
+
+参观结束后，纪念第三次全国劳动大会100周年座谈会在广东咨议局旧址召开。
+
+座谈会上，两位工运史专家先后作主题分享。
+
+广东叶剑英研究会会长林雄辉以《“三劳大”：中国工运史上具有标志性意义的盛会》为题，深入阐释了第三次全国劳动大会在公开支援北伐、明确工运斗争策略等方面的里程碑意义。
+
+广州市中共党史学会副会长陈穗雄以《感悟与擦亮第三次全国劳动大会百年工运史名片的三重逻辑》为题，从历史、理论、实践三个维度，深入解读第三次全国劳动大会的历史价值、精神内涵与当代启示。
 
 ## 相关推荐
 
-- 2026-06-29 17:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 17:43 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 17:30 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 17:46 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 17:26 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 17:42 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 17:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 17:26 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 17:48 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 17:27 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 17:52 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 17:32 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 17:33 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 17:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 17:45 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 17:37 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 17:45 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 17:36 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 17:44 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 17:58 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 17:30 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 17:38 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 17:49 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 17:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 17:53 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 17:46 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 17:49 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 17:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 17:48 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 17:39 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:31 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/42564083.shtml)
-- 2026-06-29 17:41 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/602966004678.shtml)
-- 2026-06-29 17:32 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/513191213.shtml)
-- 2026-06-29 17:38 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/8692472601.shtml)
-- 2026-06-29 17:40 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/509866219.shtml)
-- 2026-06-29 17:54 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/00108.shtml)
-- 2026-06-29 17:48 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/577269343772.shtml)
-- 2026-06-29 17:35 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/280087.shtml)
-- 2026-06-29 17:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/122404897136.shtml)
-- 2026-06-29 17:25 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/389895.shtml)
-- 2026-06-29 17:24 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/13771904789.shtml)
-- 2026-06-29 17:50 - [逆天祖国人](http://www.share.minike.top/Article/details/979059288910.shtml)
-- 2026-06-29 17:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/8653810234.shtml)
-- 2026-06-29 17:27 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/7648486515.shtml)
-- 2026-06-29 17:43 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/0768020.shtml)
+- 2026-06-29 17:52 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/4610227.shtml)
+- 2026-06-29 17:35 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/190560968.shtml)
+- 2026-06-29 17:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/89524601.shtml)
+- 2026-06-29 17:56 - [央视曝光涉黄App诈骗陷阱](https://www.share.kurohicncr.top/Article/details/237406365.shtml)
+- 2026-06-29 17:38 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/13577.shtml)
+- 2026-06-29 17:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/780566.shtml)
+- 2026-06-29 17:45 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/6629457508.shtml)
+- 2026-06-29 17:45 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/021312.shtml)
+- 2026-06-29 17:46 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/94416122.shtml)
+- 2026-06-29 17:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/32304534.shtml)
+- 2026-06-29 17:36 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/4874393554.shtml)
+- 2026-06-29 17:51 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/001194824.shtml)
+- 2026-06-29 17:40 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/3018542564.shtml)
+- 2026-06-29 17:55 - [博主：黄金和原油回落不等于风险消失](http://www.share.minike.top/Article/details/8854051.shtml)
+- 2026-06-29 17:37 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/96705716360.shtml)

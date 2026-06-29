@@ -1,57 +1,54 @@
-# 特朗普过去24小时都忙了什么？（2026-05-17）
+# 中央网信办：继续深化推进短视频内容标注工作
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 再度对伊朗发出威胁——特朗普警告伊朗，如果不尽快达成和平协议，伊朗将面临“非常糟糕的处境”。特朗普在接受法国广播公司BFMTV电话采访时表示：“他们有兴趣达成协议。 2． 暗示伊朗局势是“风暴前的平静”——特朗普在社交媒体上发布一张AI生成的图片，在图中，特朗普和一名将军站在军舰上，而
+人民财讯5月12日电，中央网信办网络综合治理局负责同志就规范短视频内容标注答记者问时表示，规范短视频内容标注是一项长期工作，不仅要标注，更要“标得准”。下一步，中央网信办将继续推动以下工作：一是对网站平台工作落实情况进行检查，督促指导网站平台切实履行主体责任，严格落实各项工作要求，确保工作进度和工作效果。二是指导网站平台加强对短视频发布者教育引导，采取平台公告、站内信、培训等多
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+人民财讯5月12日电，中央网信办网络综合治理局负责同志就规范短视频内容标注答记者问时表示，规范短视频内容标注是一项长期工作，不仅要标注，更要“标得准”。
 
-来源：金十数据 1． 再度对伊朗发出威胁——特朗普警告伊朗，如果不尽快达成和平协议，伊朗将面临“非常糟糕的处境”。
+下一步，中央网信办将继续推动以下工作：一是对网站平台工作落实情况进行检查，督促指导网站平台切实履行主体责任，严格落实各项工作要求，确保工作进度和工作效果。
 
-特朗普在接受法国广播公司BFMTV电话采访时表示：“他们有兴趣达成协议。
+二是指导网站平台加强对短视频发布者教育引导，采取平台公告、站内信、培训等多种方式，帮助发布者尽快熟悉标注要求，规范进行标注。
 
-2． 暗示伊朗局势是“风暴前的平静”——特朗普在社交媒体上发布一张AI生成的图片，在图中，特朗普和一名将军站在军舰上，而旁边则有插着伊朗国旗的小艇和舰艇，还有一段文字称“这是风暴前的平静”。
+三是加大巡查处置力度，依法严惩未按要求进行标注的账号和主体责任落实不力的网站平台，并向社会公开曝光。
 
-3． 政敌参议员在共和党初选中落败——据外媒报道，美国总统特朗普与卫生部长小罗伯特·F·肯尼迪成功推动击败路易斯安那州共和党初选中的参议员比尔·卡西迪，显示尽管面临不受欢迎的战争以及飙升的汽油价格，特朗普对共和党的掌控力依然稳固。
+此外，还将根据工作推进情况，指导网站平台不断完善标签体系，优化功能设计，健全内部规则，建立规范短视频内容标注的长效制度机制。
 
-4． 发文批评卡西迪“背叛”——特朗普：比尔·卡西迪在其政治生涯中一直虚假利用他与我的“关系”，并因此赢得选举，但随后却以荒谬的指控投票支持弹劾我。
-
-这些指控当时是假的，现在看更是疯狂至极！
-
-看到他的政治生涯结束，实在令人欣慰！
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 17:49 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 17:38 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 17:24 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 17:40 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 17:51 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 17:51 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 17:39 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 17:53 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 17:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:27 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 17:52 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 17:56 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 17:35 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 17:55 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 17:54 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 17:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 17:33 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 17:35 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 17:39 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 17:38 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 17:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 17:35 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 17:52 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/926403.shtml)
-- 2026-06-29 17:32 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/804425108884.shtml)
-- 2026-06-29 17:37 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/64688184.shtml)
-- 2026-06-29 17:31 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/860787297712.shtml)
-- 2026-06-29 17:46 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/264316.shtml)
-- 2026-06-29 17:32 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/04385896.shtml)
-- 2026-06-29 17:24 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/883895.shtml)
-- 2026-06-29 17:29 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/9022355.shtml)
-- 2026-06-29 17:27 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/4771969.shtml)
-- 2026-06-29 17:39 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/522258.shtml)
-- 2026-06-29 17:38 - [NBA交易](https://www.share.kurohicncr.top/Article/details/421973219822.shtml)
-- 2026-06-29 17:40 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/292105375.shtml)
-- 2026-06-29 17:43 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/10242.shtml)
-- 2026-06-29 17:42 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/00585729.shtml)
-- 2026-06-29 17:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/100354932014.shtml)
+- 2026-06-29 17:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/660871360467.shtml)
+- 2026-06-29 17:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/683962.shtml)
+- 2026-06-29 17:40 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/04826110.shtml)
+- 2026-06-29 17:39 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/367650283165.shtml)
+- 2026-06-29 17:52 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/415769520976.shtml)
+- 2026-06-29 17:41 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/69286273.shtml)
+- 2026-06-29 17:37 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/4247523.shtml)
+- 2026-06-29 17:34 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/548588094267.shtml)
+- 2026-06-29 17:47 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/624087.shtml)
+- 2026-06-29 17:40 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/996157.shtml)
+- 2026-06-29 17:30 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/79955490963.shtml)
+- 2026-06-29 17:39 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.blog.kurohicncr.top/Article/details/458712.shtml)
+- 2026-06-29 17:44 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/007754.shtml)
+- 2026-06-29 17:38 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/3086571.shtml)
+- 2026-06-29 17:58 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/16895106954.shtml)

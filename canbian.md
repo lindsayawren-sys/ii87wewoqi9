@@ -1,60 +1,60 @@
-# 沃尔玛希望Flipkart放慢节奏并实现盈利
+# Anthropic警示：多家平台无权交易其股票
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-据报道，沃尔玛正告知Flipkart放慢其IPO的步伐，转而专注于一个远不那么光鲜亮丽的目标：盈利能力。 据Moneycontrol报道，沃尔玛已要求这家总部位于印度的电商巨头暂缓其上市计划，并优先在2027财年结束前实现EBITDA盈亏平衡。据报道，这一决定是在沃尔玛首席执行官约翰·弗纳最近访问班加罗尔期间讨论的。这是他今年早些时候接任该职位以来首次访问印度。 Flipkar
+眼下各类投资者都争相抢购各行各业人工智能企业的股份，Anthropic本周在官网发布警示：一大批私募及二级市场投资平台号称可交易该公司股份，但实际上均未获得官方授权。 Anthropic点名列出以下无权经手其股份买卖的平台：Open Doors Partners、Unicorns Exchange、Pachamama Capital、Lionheart Ventures、Hii
 
 ## 正文
 
-据报道，沃尔玛正告知Flipkart放慢其IPO的步伐，转而专注于一个远不那么光鲜亮丽的目标：盈利能力。
+眼下各类投资者都争相抢购各行各业人工智能企业的股份，Anthropic本周在官网发布警示：一大批私募及二级市场投资平台号称可交易该公司股份，但实际上均未获得官方授权。
 
-据Moneycontrol报道，沃尔玛已要求这家总部位于印度的电商巨头暂缓其上市计划，并优先在2027财年结束前实现EBITDA盈亏平衡。
+Anthropic点名列出以下无权经手其股份买卖的平台：Open Doors Partners、Unicorns Exchange、Pachamama Capital、Lionheart Ventures、Hiive（新发份额）、Forge Global（新发份额）、Sydecar、Upmarket。
 
-据报道，这一决定是在沃尔玛首席执行官约翰·弗纳最近访问班加罗尔期间讨论的。
+公司官方支持页面写道：“由上述机构发起的任何Anthropic股票、股权权益的出售或转让均属无效，公司股东名册将不予认可、不予登记。
 
-这是他今年早些时候接任该职位以来首次访问印度。
+” Forge Global称自己属于被错误列入名单。
 
-Flipkart此前被广泛视为印度最受期待的未来IPO候选者之一，但沃尔玛现在似乎更专注于在测试公开市场接受度之前，先夯实该公司的财务基础。
+该平台表示：“我们正与Anthropic沟通，将从警示名单中移除Forge。
 
-报道中引用的消息人士称，Flipkart已在内部设定目标，在进行IPO甚至IPO前融资轮次之前，先实现EBITDA盈亏平衡。
+在未获得企业明确许可前，Forge从不协助任何非上市公司股份交易。
 
-此举也反映出全球投资者对成长型公司情绪的变化。
+” Sydecar则表示自身仅承担行政服务角色。
 
-过去几年，公开市场对盈利能力和现金流的要求变得越来越高，尤其是对于那些过去优先考虑快速扩张而非盈利的大型电商和科技企业而言。
+该公司在邮件声明中称：“本公司不买卖证券，也不招揽任何非上市公司交易。
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 17:51 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 17:41 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 17:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 17:48 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 17:26 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 17:28 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 17:48 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 17:34 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 17:33 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 17:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 17:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 17:43 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 17:49 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 17:53 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 17:46 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 17:33 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 17:58 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 17:39 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 17:35 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 17:30 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 17:53 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
+- 2026-06-29 17:49 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 17:32 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-29 17:50 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 17:59 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 17:36 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 17:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/288453.shtml)
-- 2026-06-29 17:42 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/86671.shtml)
-- 2026-06-29 17:40 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.share.minike.top/Article/details/039637.shtml)
-- 2026-06-29 17:31 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/4633571.shtml)
-- 2026-06-29 17:32 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/356692926.shtml)
-- 2026-06-29 17:42 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/12032008451.shtml)
-- 2026-06-29 17:28 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/05568487965.shtml)
-- 2026-06-29 17:33 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/04411406.shtml)
-- 2026-06-29 17:41 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/4278409.shtml)
-- 2026-06-29 17:32 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/06078587521.shtml)
-- 2026-06-29 17:38 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/274749.shtml)
-- 2026-06-29 17:41 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/8231562.shtml)
-- 2026-06-29 17:44 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/491268039805.shtml)
-- 2026-06-29 17:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/981774382527.shtml)
-- 2026-06-29 17:38 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/533323903014.shtml)
+- 2026-06-29 17:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/041928.shtml)
+- 2026-06-29 17:46 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/485366995.shtml)
+- 2026-06-29 17:47 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/570975.shtml)
+- 2026-06-29 17:31 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/971276474060.shtml)
+- 2026-06-29 17:37 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/475804979.shtml)
+- 2026-06-29 17:30 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/463859.shtml)
+- 2026-06-29 17:38 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/175837.shtml)
+- 2026-06-29 17:55 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/187295456998.shtml)
+- 2026-06-29 17:53 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9062616.shtml)
+- 2026-06-29 17:35 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/420692.shtml)
+- 2026-06-29 17:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/70607611268.shtml)
+- 2026-06-29 17:59 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/8542390981.shtml)
+- 2026-06-29 17:44 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/82750.shtml)
+- 2026-06-29 17:49 - [斛珠夫人](https://www.share.minike.top/Article/details/058927143.shtml)
+- 2026-06-29 17:42 - [叠纸](http://www.share.kurohicncr.top/Article/details/90460740.shtml)

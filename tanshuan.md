@@ -1,57 +1,60 @@
-# Figma一季度业绩超预期，AI战略驱动强劲反弹
+# 国台办回应刘世芳外甥被台企解职：依法惩“独”利剑高悬
 
-> 更新时间：2026-06-29 17:54:03 UTC+8
+> 更新时间：2026-06-29 18:00:02 UTC+8
 
 ## 摘要
 
-Figma公布2026年第一季度财报，营收同比增长46%至3.334亿美元，连续第二个季度实现营收增速加快，高于市场预期的3.132亿美元。调整后每股收益为0.10美元，同样超出华尔街预期的0.06美元。 AI产品成为核心增长引擎 付费客户总数同比增长54%至约69万名，其中年经常性收入超过10万美元的大型客户增长48%，超10万美元客户增长37%。值得注意的是，新转用Pro
+发布时间：2026年05月13日 12:55 来源：中国新闻网 5月13日，国务院台办举行例行新闻发布会。有记者问，对于“台独”顽固分子刘世芳外甥颜文群被所在台企解职，刘世芳称，“台湾民众前往大陆务必慎思，否则人身安全、财产安全都会受到威胁”；台陆委会称“将研议反制做法”，海基会也提醒台湾民众“赴大陆投资有风险”。请问对此有何评论？ 发言人张晗在答问时表示，刘世芳搞“台独”是分
 
 ## 正文
 
-Figma公布2026年第一季度财报，营收同比增长46%至3.334亿美元，连续第二个季度实现营收增速加快，高于市场预期的3.132亿美元。
+发布时间：2026年05月13日 12:55 来源：中国新闻网 5月13日，国务院台办举行例行新闻发布会。
 
-调整后每股收益为0.10美元，同样超出华尔街预期的0.06美元。
+有记者问，对于“台独”顽固分子刘世芳外甥颜文群被所在台企解职，刘世芳称，“台湾民众前往大陆务必慎思，否则人身安全、财产安全都会受到威胁”；台陆委会称“将研议反制做法”，海基会也提醒台湾民众“赴大陆投资有风险”。
 
-AI产品成为核心增长引擎 付费客户总数同比增长54%至约69万名，其中年经常性收入超过10万美元的大型客户增长48%，超10万美元客户增长37%。
+请问对此有何评论？
 
-值得注意的是，新转用Pro Team付费方案的用户同比增长超过150%，反映长尾用户持续采用Figma的AI功能。
+发言人张晗在答问时表示，刘世芳搞“台独”是分裂国家、煽动分裂国家的犯罪行为。
 
-公司于3月18日开始实施AI积分额度限制，超过75%的超额使用组织和企业用户在4月底前继续消费积分，超过95%保持活跃。
+颜文群长期从大陆获取利益，却为刘提供政治献金，两人依法遭到惩治、罪有应得。
 
-首席财务官Praveer Melwani将超预期表现归因于“AI产品的广泛采用，包括Figma Make、MCP和Figma Weave”。
+刘世芳不思悔过，却编造谎言，企图拉台湾民众垫背，制造“寒蝉效应”。
 
-上调全年指引，股价逆势大涨 公司将2026年全年营收指引上调5500万美元至14.22亿至14.28亿美元，同比增长约35%。
+近年来，台湾同胞不惧民进党当局的阻挠恐吓，来大陆持续热络，其中台湾青年占比不断提高，表明刘世芳之流恐吓台湾民众的图谋没有得逞，也不会得逞。
 
-非GAAP运营利润指引亦上调2500万美元。
+她说，我们的态度是一贯的，依法惩“独”，利剑高悬，针对的是极少数“台独”顽固分子，不涉及广大台胞台企。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 17:30 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 17:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 17:48 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 17:40 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 17:50 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 17:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 17:50 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 17:43 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 17:24 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 17:32 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 17:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 17:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 17:31 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 17:48 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 17:54 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 17:53 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 17:57 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 17:55 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 17:43 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 17:47 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 17:31 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 17:41 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 17:57 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 17:59 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:51 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/7219996.shtml)
-- 2026-06-29 17:49 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/00727.shtml)
-- 2026-06-29 17:28 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/93697288932.shtml)
-- 2026-06-29 17:33 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/151645.shtml)
-- 2026-06-29 17:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/23373871.shtml)
-- 2026-06-29 17:34 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/70537.shtml)
-- 2026-06-29 17:42 - [扫黑风暴](http://www.blog.minike.top/Article/details/5605845536.shtml)
-- 2026-06-29 17:41 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/982009.shtml)
-- 2026-06-29 17:50 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/183958.shtml)
-- 2026-06-29 17:24 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/42118195616.shtml)
-- 2026-06-29 17:34 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/8327570753.shtml)
-- 2026-06-29 17:50 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/64634.shtml)
-- 2026-06-29 17:32 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/49089789358.shtml)
-- 2026-06-29 17:44 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/540475.shtml)
-- 2026-06-29 17:30 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/1053875648.shtml)
+- 2026-06-29 17:46 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/69506491.shtml)
+- 2026-06-29 17:43 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/969343.shtml)
+- 2026-06-29 17:40 - [舒行钢任湖南省交通运输厅厅长](https://www.blog.kurohicncr.top/Article/details/6322109108.shtml)
+- 2026-06-29 17:44 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/45679.shtml)
+- 2026-06-29 17:58 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/920493.shtml)
+- 2026-06-29 17:45 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/11465667.shtml)
+- 2026-06-29 17:51 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/868596353340.shtml)
+- 2026-06-29 17:58 - [税务总局披露5起合规申报个税案例](http://www.share.minike.top/Article/details/182671.shtml)
+- 2026-06-29 17:47 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/654482837328.shtml)
+- 2026-06-29 17:45 - [沙丘](https://www.share.minike.top/Article/details/39701581.shtml)
+- 2026-06-29 17:54 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/85634507358.shtml)
+- 2026-06-29 17:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/91168302.shtml)
+- 2026-06-29 17:35 - [赵今麦时隔五年再演李诗情](https://www.share.minike.top/Article/details/47840.shtml)
+- 2026-06-29 17:32 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/00670547.shtml)
+- 2026-06-29 17:53 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.minike.top/Article/details/002659.shtml)
