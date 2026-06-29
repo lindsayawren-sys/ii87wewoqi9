@@ -1,56 +1,59 @@
-# 共和党参议员蒂利斯痛批特朗普情报负责人提名人普尔特
+# 重磅，2026自然科学基金预算增加 24 亿元！
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-核心要点 即将卸任北卡罗来纳州联邦参议员的蒂利斯做客 CNBC《财经早间秀》，公开抨击特朗普提名的全美情报掌门人，称其是 “煽风点火的打手”，断言此人无法通过参议院任职核准。此番表态进一步加剧了舆论对比尔・普尔特的反对浪潮；普尔特现任联邦住房金融局局长，特朗普已于周二任命其出任代理国家情报总监。 谈及普尔特，蒂利斯称：“我认为他压根没有机会通过参议院审议、转正成为正式国家情报总
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：材料PLUS 国家自然科学基金委员会网站公布《2026年度部门预算》，今年自然科学基金项目预算数有较大增长。自然科学基金（项）2026年预算数为4185981.01万元，比2025年执行数增加240179.29万元，增长6.09%，主要原因是中央财政对自然科学基金的投入增加。 按照支出功能分类，基础研
 
 ## 正文
 
-核心要点 即将卸任北卡罗来纳州联邦参议员的蒂利斯做客 CNBC《财经早间秀》，公开抨击特朗普提名的全美情报掌门人，称其是 “煽风点火的打手”，断言此人无法通过参议院任职核准。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此番表态进一步加剧了舆论对比尔・普尔特的反对浪潮；普尔特现任联邦住房金融局局长，特朗普已于周二任命其出任代理国家情报总监。
+来源：材料PLUS 国家自然科学基金委员会网站公布《2026年度部门预算》，今年自然科学基金项目预算数有较大增长。
 
-谈及普尔特，蒂利斯称：“我认为他压根没有机会通过参议院审议、转正成为正式国家情报总监。
+自然科学基金（项）2026年预算数为4185981.01万元，比2025年执行数增加240179.29万元，增长6.09%，主要原因是中央财政对自然科学基金的投入增加。
 
-” 不过这名参议员也坦言，特朗普政府或另辟蹊径，长期保留普尔特的代理头衔、不再推动正式提名表决，以此绕开参议院核准环节。
+按照支出功能分类，基础研究方面的支出占部门支出总额的比重较高，主要是：2060203自然科学基金，2026年预算数为4185981.01万元，占部门一般公共预算支出总额的81.71%，主要用于面上项目、青年科学基金项目（A/B/C类）、地区科学基金项目、创新研究群体项目等18类项目资助经费支出和各类项目资助有关的评审活动、信息系统运行维护等方面的支出。
 
-普尔特过往没有任何情报系统任职履历，被外界普遍视作特朗普铁杆亲信；执掌住房监管机构期间，他频频动用职权针对特朗普的政坛对手发难。
+具体为： 科学技术支出（类）基础研究（款）自然科学基金（项）2026年预算数为4185981.01万元，比2025年执行数增加240179.29万元，增长6.09%，主要原因是中央财政对自然科学基金的投入增加。
 
-遭其指控涉嫌抵押贷款违规的对象包括美联储理事莉萨・库克、纽约州总检察长莱蒂西亚・詹姆斯。
+科学技术支出（类）基础研究（款）科技人才队伍建设（项）2026年预算数为459843.41万元，比2025年执行数增加149843.41万元，增长48.34%，主要原因是人才专项支出增加。
 
-特朗普官方说明，普尔特就任代理国家情报总监后，将继续身兼联邦住房金融局（FHFA）局长、两大住房抵押贷款巨头房利美、房地美董事长三项职务。
+科学技术支出（类）基础研究（款）其他基础研究支出（项）2026年预算数为111525.2万元，比2025年执行数减少230474.8万元，下降67.39%，主要原因是其他基础研究资助项目支出减少。
 
-责任编辑：郭明煜
+…… 来源：国自然科学基金委网站 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 19:22 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 19:20 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 19:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 19:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 19:43 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 19:38 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 19:32 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 19:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 19:35 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 19:36 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 19:33 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 19:32 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 19:27 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 19:44 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 19:48 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 19:26 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 19:30 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 19:34 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 19:36 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 19:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 19:34 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 19:53 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [大学专业未来如何洗牌](https://www.blog.minike.top/Article/details/956112.shtml)
-- 2026-06-29 19:33 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/302345842.shtml)
-- 2026-06-29 19:19 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/7443647.shtml)
-- 2026-06-29 19:24 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/71599512854.shtml)
-- 2026-06-29 19:23 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/9080886161.shtml)
-- 2026-06-29 19:42 - [大马同意延长马航370残骸搜寻工作](https://www.share.kurohicncr.top/Article/details/43159.shtml)
-- 2026-06-29 19:21 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/20181939863.shtml)
-- 2026-06-29 19:18 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/79099.shtml)
-- 2026-06-29 19:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/639349982311.shtml)
-- 2026-06-29 19:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/736014472988.shtml)
-- 2026-06-29 19:46 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/4608819993.shtml)
-- 2026-06-29 19:35 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/94830.shtml)
-- 2026-06-29 19:38 - [依法管制阻遏日方军事化危险动向](https://www.share.minike.top/Article/details/09883.shtml)
-- 2026-06-29 19:30 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/25010025.shtml)
-- 2026-06-29 19:41 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/572397742286.shtml)
+- 2026-06-29 19:40 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/0159859.shtml)
+- 2026-06-29 19:37 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/30297680.shtml)
+- 2026-06-29 19:30 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/56574.shtml)
+- 2026-06-29 19:47 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/841538334.shtml)
+- 2026-06-29 19:53 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/75098953.shtml)
+- 2026-06-29 19:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/088872090645.shtml)
+- 2026-06-29 19:44 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/550842029202.shtml)
+- 2026-06-29 19:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/865698.shtml)
+- 2026-06-29 19:46 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/807936047145.shtml)
+- 2026-06-29 19:48 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/02744832692.shtml)
+- 2026-06-29 19:35 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/901343872.shtml)
+- 2026-06-29 19:39 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/1173012.shtml)
+- 2026-06-29 19:53 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/9290840.shtml)
+- 2026-06-29 19:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/25665.shtml)
+- 2026-06-29 19:52 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/6401858.shtml)

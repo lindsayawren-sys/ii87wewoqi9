@@ -1,60 +1,60 @@
-# 2026年“驾驭未来”全国青少年车辆模型教育竞赛哈尔滨地区选拔赛启幕
+# 重磅！腾讯收购喜马拉雅，获市场监管总局附条件批准
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网哈尔滨6月3日电 (记者 刘锡菊)3日，2026年“驾驭未来”全国青少年车辆模型教育竞赛哈尔滨地区选拔赛开赛，817名海选选手同台比拼，在五大项11个小项中展开激烈角逐。 赛事由哈尔滨市教育局、哈尔滨市体育局、哈尔滨市科学技术协会联合主办，哈尔滨市少年宫承办，是哈尔滨市落实素质教育、深耕青少年科创体育教育的重要品牌活动。车辆模型融汇机械原理、物理应用、智能调控、创新设计等
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。 经审查，市场监管总局认为该案对中国境
 
 ## 正文
 
-中新网哈尔滨6月3日电 (记者 刘锡菊)3日，2026年“驾驭未来”全国青少年车辆模型教育竞赛哈尔滨地区选拔赛开赛，817名海选选手同台比拼，在五大项11个小项中展开激烈角逐。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-赛事由哈尔滨市教育局、哈尔滨市体育局、哈尔滨市科学技术协会联合主办，哈尔滨市少年宫承办，是哈尔滨市落实素质教育、深耕青少年科创体育教育的重要品牌活动。
+5月12日，市场监管总局发布公告，附加限制性条件批准腾讯控股有限公司（以下简称腾讯）收购喜马拉雅公司（以下简称喜马拉雅）股权案。
 
-车辆模型融汇机械原理、物理应用、智能调控、创新设计等多领域知识，集知识性、实践性、竞技性于一体。
+该案对维护中国境内在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，防范平台领域“内卷式”竞争，推动平台经济创新和健康发展具有重要意义。
 
-参赛学生在动手实操中打通理论与实践壁垒，锻炼创新思维、专注力与抗压能力。
+经审查，市场监管总局认为该案对中国境内在线音频播放平台市场、网络音乐播放平台市场竞争可能具有排除、限制竞争效果。
 
-比赛现场，参赛选手凝神专注，有条不紊完成模型拼装、精密调试、参数标定、赛道试车等环节，凭借扎实的理论功底、熟练的实操本领与临场应变能力从容应战。
+为有效减少此项经营者集中可能产生的不利影响，市场监管总局经过全面审查、科学论证，依法对该案作出附条件批准决定，要求腾讯、喜马拉雅和集中后实体作出五项限制性承诺：不得提高在线音频播放平台服务价格、降低服务水平或者附加不合理交易条件；不得降低在线音频播放平台免费内容及免费热门内容比例；不得与在线音频播放平台版权方达成独家授权，并在规定期限内解除现有独家授权约定；不得向汽车厂商搭售在线音频播放平台、网络音乐播放平台，或者阻碍、限制其采购竞争对手产品；不得限制主播在多个在线音频播放平台入驻或分发其享有著作权的作品。
 
-赛道上模型战车疾驰穿梭。
+经评估，市场监管总局认为该承诺方案可有效减少本集中导致的竞争问题，能够保障消费者、版权方、主播及汽车厂商等多方主体合法权益，维护相关市场公平竞争秩序，依法于5月11日附加限制性条件批准本案。
 
-下一步，哈尔滨市教育局、哈尔滨市体育局、哈尔滨市科协将持续统筹全市青少年科技体育建设，坚持以赛促学、以赛促练、以赛促育，完善校内外协同育人体系，助推哈尔滨市基础教育与科创教育协同高质量发展，护航冰城少年科创逐梦。
+市场监管总局将严格督促交易双方有效履行限制性承诺，充分发挥经营者集中审查事前预防作用，切实维护我国在线音频播放平台市场、网络音乐播放平台市场公平竞争秩序，保障经营主体、消费者合法权益，防范平台“内卷式”竞争，推动平台企业和平台内经营者、劳动者共赢发展‌。
 
-(完)
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 19:31 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 19:22 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 19:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 19:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 19:32 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 19:20 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 19:32 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 19:29 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 19:38 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 19:40 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 19:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-29 19:19 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 19:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 19:48 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 19:38 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 19:52 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 19:38 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 19:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 19:39 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 19:44 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 19:31 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 19:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 19:25 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 19:27 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 19:31 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 19:51 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 19:44 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/3110569.shtml)
-- 2026-06-29 19:30 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/072535234.shtml)
-- 2026-06-29 19:45 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/658720803674.shtml)
-- 2026-06-29 19:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/533536.shtml)
-- 2026-06-29 19:36 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/49242554.shtml)
-- 2026-06-29 19:31 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/028994893.shtml)
-- 2026-06-29 19:20 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/695475011837.shtml)
-- 2026-06-29 19:45 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/5616279661.shtml)
-- 2026-06-29 19:43 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/0711001.shtml)
-- 2026-06-29 19:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/95321367952.shtml)
-- 2026-06-29 19:38 - [王楚钦称抽签结果出来心情不好](https://www.share.minike.top/Article/details/65318.shtml)
-- 2026-06-29 19:38 - [天道](https://www.share.kurohicncr.top/Article/details/4645849990.shtml)
-- 2026-06-29 19:20 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/7423388971.shtml)
-- 2026-06-29 19:20 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/989995.shtml)
-- 2026-06-29 19:39 - [滚石就音乐人屠颖去世事件发声明](https://www.share.minike.top/Article/details/712463977.shtml)
+- 2026-06-29 19:36 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/77558202.shtml)
+- 2026-06-29 19:24 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/75385755373.shtml)
+- 2026-06-29 19:30 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/9207887.shtml)
+- 2026-06-29 19:45 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/24757889.shtml)
+- 2026-06-29 19:41 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/27387106819.shtml)
+- 2026-06-29 19:46 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/53160.shtml)
+- 2026-06-29 19:26 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/82791.shtml)
+- 2026-06-29 19:44 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/61298.shtml)
+- 2026-06-29 19:41 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/477861803096.shtml)
+- 2026-06-29 19:50 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/940245.shtml)
+- 2026-06-29 19:52 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/5422448.shtml)
+- 2026-06-29 19:44 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/23771126.shtml)
+- 2026-06-29 19:36 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/7073737.shtml)
+- 2026-06-29 19:36 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/2751625.shtml)
+- 2026-06-29 19:44 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/28617669297.shtml)

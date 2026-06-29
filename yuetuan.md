@@ -1,54 +1,48 @@
-# 华润万象生活早盘涨逾4% 大摩给予目标价55.47港元
+# 陕西潼关：沃野铺绿 农事正忙
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。 大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。评级增持，目标价55.47港元。 该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱
+发布时间：2026年05月13日 10:12 来源：中国新闻网 近日，陕西省潼关县沃野铺绿，满目青葱。初夏时节，田间农事正忙，农人躬身耕耘，以汗水浇灌希望，静待夏粮颗粒满仓、丰收在望。(作者：侯英勃 崔正博） 责任编辑：【魏聪聪】
 
 ## 正文
 
-华润万象生活（01209）盘中涨超4%，截至发稿，股价上涨3.87%，现报42.98港元，成交额7279.20万港元。
+发布时间：2026年05月13日 10:12 来源：中国新闻网 近日，陕西省潼关县沃野铺绿，满目青葱。
 
-大摩发布研报称，相信华润万象生活（01209）未来30天股价上升，发生机率料80%以上。
+初夏时节，田间农事正忙，农人躬身耕耘，以汗水浇灌希望，静待夏粮颗粒满仓、丰收在望。
 
-主要是因为股票近期已明显回落，令短期估值大幅更具吸引力。
-
-评级增持，目标价55.47港元。
-
-该行认为市场对华润万象同店销售增长可能放缓过度担忧，原因是近月奢侈品及黄金销售较弱。
-
-该行认为公司相对具免疫力，因过去几年已大幅提升在中低端消费以及二线及顶级三线城市的曝光度，预计仍能达到指引的高单位数同店销售增长，估计5月为中单位数，相比首四个月的约10%同比增长，并实现今年介乎约11%至14%的每股盈利增长，主要受惠于持续的市场份额提升、新商场开业，以及营运杠杆带来的利润率扩张。
-
-责任编辑：卢昱君
+(作者：侯英勃 崔正博） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 19:27 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 19:34 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 19:31 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 19:32 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-29 19:40 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 19:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 19:33 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 19:35 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 19:30 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 19:36 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 19:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 19:42 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 19:30 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 19:51 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 19:44 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 19:49 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 19:32 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 19:42 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 19:53 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 19:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 19:40 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/246538873012.shtml)
-- 2026-06-29 19:35 - [金刚川](http://www.blog.kurohicncr.top/Article/details/396462036569.shtml)
-- 2026-06-29 19:21 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/42433.shtml)
-- 2026-06-29 19:19 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/51651133025.shtml)
-- 2026-06-29 19:36 - [啊啊啊](https://www.share.minike.top/Article/details/15098907.shtml)
-- 2026-06-29 19:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/97522275406.shtml)
-- 2026-06-29 19:43 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/295766.shtml)
-- 2026-06-29 19:23 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/63138145462.shtml)
-- 2026-06-29 19:43 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/28290092010.shtml)
-- 2026-06-29 19:47 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/0093182876.shtml)
-- 2026-06-29 19:21 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/321172150889.shtml)
-- 2026-06-29 19:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/105061234.shtml)
-- 2026-06-29 19:29 - [周生如故](http://www.blog.kurohicncr.top/Article/details/5162997486.shtml)
-- 2026-06-29 19:27 - [明星大侦探第四季](http://www.share.minike.top/Article/details/968478625132.shtml)
-- 2026-06-29 19:21 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/22898.shtml)
+- 2026-06-29 19:40 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/1696680.shtml)
+- 2026-06-29 19:46 - [流金岁月](http://www.share.minike.top/Article/details/590670.shtml)
+- 2026-06-29 19:34 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/366271.shtml)
+- 2026-06-29 19:41 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/85872079760.shtml)
+- 2026-06-29 19:26 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/2867726704.shtml)
+- 2026-06-29 19:27 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/83041501.shtml)
+- 2026-06-29 19:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/4189903.shtml)
+- 2026-06-29 19:24 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/188883416513.shtml)
+- 2026-06-29 19:24 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/46496.shtml)
+- 2026-06-29 19:27 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/9350923.shtml)
+- 2026-06-29 19:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/3013829602.shtml)
+- 2026-06-29 19:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/512669349.shtml)
+- 2026-06-29 19:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/038690411821.shtml)
+- 2026-06-29 19:26 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/450662.shtml)
+- 2026-06-29 19:24 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/7671369.shtml)

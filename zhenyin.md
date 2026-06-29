@@ -1,56 +1,53 @@
-# 宁夏兴庆：织密养老服务网 让老人安享幸福“夕阳红”
+# A股创业板指突破4000点！再刷新近11年新高
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网银川6月3日电 (记者 李佩珊)正午时分，月牙湖乡的老年食堂饭菜飘香；周末午后，社区活动室里欢声笑语；温情服务上门，民政服务直达高龄老人床边……一幅幅暖心画面，正成为宁夏银川市兴庆区老年生活的生动常态。 记者3日从兴庆区获悉，当地聚焦老年人急难愁盼，持续健全居家社区养老服务体系，用精细化、多元化、有温度的服务，切实提升老年群体的幸福感与获得感。 “以前中午总是一个人凑合，
+13日午后，A股指数持续上涨。截至发稿，创业板指突破4000点，涨超1.6%，续创近11年新高。距离历史高点4037.96点仅一步之遥。 板块方面，算力租赁、电力、电网设备、算电协同等方向涨幅居前。
 
 ## 正文
 
-中新网银川6月3日电 (记者 李佩珊)正午时分，月牙湖乡的老年食堂饭菜飘香；周末午后，社区活动室里欢声笑语；温情服务上门，民政服务直达高龄老人床边……一幅幅暖心画面，正成为宁夏银川市兴庆区老年生活的生动常态。
+13日午后，A股指数持续上涨。
 
-记者3日从兴庆区获悉，当地聚焦老年人急难愁盼，持续健全居家社区养老服务体系，用精细化、多元化、有温度的服务，切实提升老年群体的幸福感与获得感。
+截至发稿，创业板指突破4000点，涨超1.6%，续创近11年新高。
 
-“以前中午总是一个人凑合，现在有可口的饭菜，还有人聊天相伴，日子越来越舒心。
+距离历史高点4037.96点仅一步之遥。
 
-”82岁独居老人马桂兰，在月牙湖乡滨河家园三村养老服务驿站真切感受到养老服务的变化。
-
-针对农村老人做饭难、就餐难的问题，当地推行“村级监管+餐厅配餐+志愿服务”模式，依托村集体补贴降低餐费标准，让老人低价享用热乎营养饭菜。
-
-目前，兴庆区已建成城乡社区食堂、农村老饭桌48个，日均服务群众约1万人次，便捷惠民的15分钟养老助餐服务圈基本成型。
-
-老旧小区养老配套短板也在持续补齐。
-
-此前，大新镇万科初昕苑小区老年居民缺少固定活动场所，日常休闲只能露天将就。
+板块方面，算力租赁、电力、电网设备、算电协同等方向涨幅居前。
 
 ## 相关推荐
 
-- 2026-06-29 19:42 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 19:31 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 19:26 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-29 19:38 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 19:43 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 19:42 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 19:22 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 19:30 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 19:46 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 19:20 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 19:43 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 19:53 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 19:33 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 19:45 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 19:24 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 19:26 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 19:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-29 19:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 19:50 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 19:28 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 19:31 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 19:35 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 19:53 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 19:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 19:44 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [TOP Prada](http://www.share.minike.top/Article/details/124551.shtml)
-- 2026-06-29 19:46 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/986931.shtml)
-- 2026-06-29 19:41 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/220210397.shtml)
-- 2026-06-29 19:24 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/9095848491.shtml)
-- 2026-06-29 19:34 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/10563.shtml)
-- 2026-06-29 19:47 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/4434590172.shtml)
-- 2026-06-29 19:33 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/62143596014.shtml)
-- 2026-06-29 19:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/73755.shtml)
-- 2026-06-29 19:26 - [韩国小学生都来吐槽了](http://www.share.minike.top/Article/details/294825.shtml)
-- 2026-06-29 19:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/2876426.shtml)
-- 2026-06-29 19:41 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/50947503959.shtml)
-- 2026-06-29 19:27 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/11424.shtml)
-- 2026-06-29 19:25 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/91395404699.shtml)
-- 2026-06-29 19:25 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/4521501636.shtml)
-- 2026-06-29 19:35 - [啊啊啊](https://www.share.minike.top/Article/details/986186841480.shtml)
+- 2026-06-29 19:50 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/36545915735.shtml)
+- 2026-06-29 19:29 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/164169.shtml)
+- 2026-06-29 19:24 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/90981.shtml)
+- 2026-06-29 19:38 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/0486274213.shtml)
+- 2026-06-29 19:31 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/7161701180.shtml)
+- 2026-06-29 19:52 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/164920625.shtml)
+- 2026-06-29 19:28 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/1654516511.shtml)
+- 2026-06-29 19:39 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/62529416022.shtml)
+- 2026-06-29 19:34 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/89651.shtml)
+- 2026-06-29 19:43 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/8898601291.shtml)
+- 2026-06-29 19:36 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/52630185.shtml)
+- 2026-06-29 19:49 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/00526498630.shtml)
+- 2026-06-29 19:47 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/9276459038.shtml)
+- 2026-06-29 19:38 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/658930.shtml)
+- 2026-06-29 19:29 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/878697940.shtml)

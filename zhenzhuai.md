@@ -1,61 +1,60 @@
-# 宏盟媒体赵延龙：合并重构能力生态 以AI驱动营销行业新变革
+# 大理大学在洱海蓝藻水华防控研究中取得重要进展
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-在Omnicom宏盟与IPG完成史上最大规模的广告巨头合并后，宏盟媒体也在中国市场完成与IPG盟博的深度合并整合，作为全新升级的宏盟媒体，也正式开启全新增长周期。面对中国营销市场高速迭代、数字化转型加速、行业竞争日趋激烈的新格局，宏盟媒体中国跳出传统媒介服务框架，以全链路能力升级、AI深度落地、合规透明运营、长效增长赋能为核心，重塑行业服务新标准。近日，宏盟媒体集团中国区首席执
+中新网云南大理5月12日电 (吴明灿)记者12日从大理大学获悉，近日，该校农学与生物科学学院、药学院联合开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行，在洱海蓝藻水华防控研究中取得重要进展。 “高原明珠”洱海是云南第二大高原淡水湖，位于云南省大理白族自治州大理市，被大理人民誉为“母亲湖”。近年来，随着人类活动导致的富营养化和气候变化加剧，有害蓝藻水华已成为全球性的
 
 ## 正文
 
-在Omnicom宏盟与IPG完成史上最大规模的广告巨头合并后，宏盟媒体也在中国市场完成与IPG盟博的深度合并整合，作为全新升级的宏盟媒体，也正式开启全新增长周期。
+中新网云南大理5月12日电 (吴明灿)记者12日从大理大学获悉，近日，该校农学与生物科学学院、药学院联合开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行，在洱海蓝藻水华防控研究中取得重要进展。
 
-面对中国营销市场高速迭代、数字化转型加速、行业竞争日趋激烈的新格局，宏盟媒体中国跳出传统媒介服务框架，以全链路能力升级、AI深度落地、合规透明运营、长效增长赋能为核心，重塑行业服务新标准。
+“高原明珠”洱海是云南第二大高原淡水湖，位于云南省大理白族自治州大理市，被大理人民誉为“母亲湖”。
 
-近日，宏盟媒体集团中国区首席执行官赵延龙(Joey Zhao)接受媒体采访，深度解读企业合并后的战略变革、AI创新应用、客户增长赋能体系及行业合规发展布局。
+近年来，随着人类活动导致的富营养化和气候变化加剧，有害蓝藻水华已成为全球性的水环境危机，特别是在洱海等生态敏感的高原湖泊流域，此类生态灾害对区域水质安全构成严峻挑战。
 
-整合升级：不止规模扩容，构建全链路商业服务能力 此次宏盟与IPG盟博的合并，并非简单的行业规模叠加，而是核心服务能力的系统性重构与全面升级。
+其中，蓝藻水华优势种铜绿微囊藻不仅能快速增殖，还会合成具有肝毒性的微囊藻毒素(如MC-LR)，成为对水生生物多样性和生态健康威胁最大的因素之一。
 
-在赵延龙看来，中国营销市场瞬息万变，单一的媒介投放、创意服务已无法满足品牌长效发展需求，全方位的能力整合与高效的组织模式，是企业立足市场的核心底气。
+传统的化学除藻方法极易导致细胞破裂及胞内毒素大量释放，从而引发严重的二次污染。
 
-依托双方优势资源整合，宏盟媒体中国补齐并强化了数据洞察、原创创意、零售媒体、客户关系管理、人工智能等核心板块能力，搭建起从文化趋势洞察、策略规划到落地转化、长效运营的完整商业服务闭环，彻底打破传统营销服务的碎片化壁垒。
+针对这一治理困境，大理大学农学与生物科学学院特聘教授吴明灿团队与药学院教授戚克振团队合作开展深入研究，构建了新型光催化体系，实现灭藻与解毒的同步进行。
 
-组织层面，公司创新推行单一团队协同模式，打破原有业务板块各自为战的行业痛点。
+日前，该成果发表于生物工程与环境科学领域国际顶级期刊《Bioresource Technology》。
 
-不同专业背景、不同业务领域的人才围绕客户核心商业课题协同联动，摒弃割裂式服务模式。
+研究团队通过乙醇辅助界面工程策略，成功构建了一种新型的p-p型S型异质结光催化剂。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 19:25 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 19:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 19:24 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 19:32 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 19:43 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 19:41 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 19:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 19:43 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 19:31 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 19:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 19:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 19:23 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 19:30 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 19:29 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 19:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 19:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 19:46 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 19:40 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 19:47 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:37 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 19:34 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 19:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 19:54 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 19:42 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 19:41 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 19:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 19:26 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 19:43 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/22865.shtml)
-- 2026-06-29 19:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/9379333317.shtml)
-- 2026-06-29 19:21 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/31173478.shtml)
-- 2026-06-29 19:43 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/628005713111.shtml)
-- 2026-06-29 19:39 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/15128070.shtml)
-- 2026-06-29 19:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/326327.shtml)
-- 2026-06-29 19:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/668221184.shtml)
-- 2026-06-29 19:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/1730894.shtml)
-- 2026-06-29 19:25 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/4471209919.shtml)
-- 2026-06-29 19:24 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/69507219049.shtml)
-- 2026-06-29 19:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/2460216.shtml)
-- 2026-06-29 19:45 - [当家电外通风口出现鸟窝](https://www.blog.kurohicncr.top/Article/details/7643351298.shtml)
-- 2026-06-29 19:36 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/56551.shtml)
-- 2026-06-29 19:34 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.share.minike.top/Article/details/82634.shtml)
-- 2026-06-29 19:32 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/88017566.shtml)
+- 2026-06-29 19:43 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/393218577.shtml)
+- 2026-06-29 19:46 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/273648.shtml)
+- 2026-06-29 19:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/10762675033.shtml)
+- 2026-06-29 19:37 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/840055589964.shtml)
+- 2026-06-29 19:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/40354529328.shtml)
+- 2026-06-29 19:38 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/88465969.shtml)
+- 2026-06-29 19:52 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/8584133.shtml)
+- 2026-06-29 19:41 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/672618827.shtml)
+- 2026-06-29 19:52 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/496108139.shtml)
+- 2026-06-29 19:37 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/541237981.shtml)
+- 2026-06-29 19:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/530463102.shtml)
+- 2026-06-29 19:27 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/736370290.shtml)
+- 2026-06-29 19:31 - [林逸向方筱然求婚了](https://www.blog.kurohicncr.top/Article/details/320618.shtml)
+- 2026-06-29 19:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/42865.shtml)
+- 2026-06-29 19:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/7940208.shtml)

@@ -1,60 +1,61 @@
-# 西安发现唐长安县尉范凝墓 墓志提及同一时代多位重要人物
+# 长江有色：13日氧化铝期价跌0.53% 日内整体成交反馈平平
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网西安6月3日电 (记者 阿琳娜)记者3日从陕西省考古研究院获悉，考古人员在西安东郊发现唐长安县尉范凝墓，弥补了唐代文献记载的缺环，为研究唐代历史文化、丧葬制度等提供了实物资料。 范凝墓为斜坡墓道三天井单室土洞墓，由斜坡墓道、3个天井、3个过洞、甬道及墓室组成，共出土陶俑、铜器、铁器、墓志等文物49件，其中，较完整者35件。 陕西省考古研究院研究馆员曹龙介绍，这些随葬品位置
+长江有色网5月13日讯，今日氧化铝所有合约全线收跌，主力月2609合约偏弱走软；截止当日15：00收盘，氧化铝主力月2609合约报2799元，跌15元，跌幅0.53%；加权合约累计成交213238手，比前一交易日减少213210手，跌幅50%；持仓量541209手增加1513手，涨幅0.28%。 今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，5月13日氧化铝华南地区每吨
 
 ## 正文
 
-中新网西安6月3日电 (记者 阿琳娜)记者3日从陕西省考古研究院获悉，考古人员在西安东郊发现唐长安县尉范凝墓，弥补了唐代文献记载的缺环，为研究唐代历史文化、丧葬制度等提供了实物资料。
+长江有色网5月13日讯，今日氧化铝所有合约全线收跌，主力月2609合约偏弱走软；截止当日15：00收盘，氧化铝主力月2609合约报2799元，跌15元，跌幅0.53%；加权合约累计成交213238手，比前一交易日减少213210手，跌幅50%；持仓量541209手增加1513手，涨幅0.28%。
 
-范凝墓为斜坡墓道三天井单室土洞墓，由斜坡墓道、3个天井、3个过洞、甬道及墓室组成，共出土陶俑、铜器、铁器、墓志等文物49件，其中，较完整者35件。
+今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，5月13日氧化铝华南地区每吨报2680-2730元之间，与前一交易日报价持平；华东地区氧化铝每吨报2680-2720元之间，与前一交易日报价持平；西南地区氧化铝每吨2765-2805元之间，与前一交易日报价持平；西北地区氧化铝每吨报2985-3025元之间，与前一交易日报价持平。
 
-陕西省考古研究院研究馆员曹龙介绍，这些随葬品位置大体可分为四组：第一组位于墓室入口，以墓志为中心，天王俑、镇墓兽分别位于其左、右后方。
+今日上期所氧化铝期货主力2605合约震荡走弱，日间交易收跌0.53%，国内氧化铝现货价格持稳； 宏观层面，凯文·沃什预计本周正式确认为美联储主席。
 
-第二组为出土于墓室东北大部的陶俑、陶塑动物等，生肖俑散布于墓室东、北壁下。
+尽管其释放出愿意降息的信号，但市场对政策效果的信心逐渐消退。
 
-第三组的塔式罐、陶罐等集中分布于墓室西北部。
+周二（5月12日），美国超预期通胀数据引爆金融市场，交易员对美联储政策预期出现根本性反转，彻底放弃降息期待，转而押注年底前加息概率攀升至约37%。
 
-第四组位于墓室西部，分布人骨周围，以铜镜为代表。
+美元指数延续偏强走势，全球股市涨跌互现，市场多空交织。
 
-据了解，该墓为斜坡墓道多天井长方形单室土洞墓，玄宗天宝、肃宗、德宗时期，此类墓葬已较为少见，竖穴墓道单室土洞墓已开始流行。
+叠加氧化铝自身供应过剩的格局压制，今日氧化铝期货主力呈现偏弱震荡走势。
 
-单室土洞墓贯穿整个唐代，中晚唐时期墓道由斜坡式变为竖穴式，范凝墓当为旧传统的延续。
+基本面方面，海外印度国家铝业宣布部分减产，且几内亚铝土矿出口政策尚不明朗，进口矿价格持稳，对海外氧化铝价格形成一定支撑。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 19:38 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 19:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 19:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 19:37 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 19:36 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:33 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 19:42 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 19:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 19:20 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 19:37 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-29 19:22 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 19:19 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 19:33 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 19:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 19:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 19:48 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 19:49 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 19:24 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 19:36 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 19:41 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 19:33 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 19:27 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 19:40 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 19:35 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 19:34 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 19:52 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 19:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 19:28 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/26499.shtml)
-- 2026-06-29 19:43 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/42777.shtml)
-- 2026-06-29 19:25 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/6706157400.shtml)
-- 2026-06-29 19:39 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/3565874035.shtml)
-- 2026-06-29 19:41 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/0791947574.shtml)
-- 2026-06-29 19:32 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/7421741.shtml)
-- 2026-06-29 19:37 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/0808096.shtml)
-- 2026-06-29 19:35 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/0348361.shtml)
-- 2026-06-29 19:38 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/4097983018.shtml)
-- 2026-06-29 19:31 - [无畏为自己的猫正名了](http://www.blog.minike.top/Article/details/5305649.shtml)
-- 2026-06-29 19:46 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/668995674884.shtml)
-- 2026-06-29 19:22 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/048998.shtml)
-- 2026-06-29 19:22 - [人形机器人](https://www.share.kurohicncr.top/Article/details/088674830789.shtml)
-- 2026-06-29 19:25 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/4867043008.shtml)
-- 2026-06-29 19:31 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/692652182349.shtml)
+- 2026-06-29 19:53 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/819195200416.shtml)
+- 2026-06-29 19:43 - [一见倾心](https://www.share.minike.top/Article/details/44374707.shtml)
+- 2026-06-29 19:43 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/5757826.shtml)
+- 2026-06-29 19:29 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/1406833.shtml)
+- 2026-06-29 19:28 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/803412569.shtml)
+- 2026-06-29 19:42 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/51277457.shtml)
+- 2026-06-29 19:39 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/73766.shtml)
+- 2026-06-29 19:35 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/251420.shtml)
+- 2026-06-29 19:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/2754569403.shtml)
+- 2026-06-29 19:24 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/4930405.shtml)
+- 2026-06-29 19:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/5386764.shtml)
+- 2026-06-29 19:31 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/194857415.shtml)
+- 2026-06-29 19:32 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/802202955.shtml)
+- 2026-06-29 19:37 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/95705.shtml)
+- 2026-06-29 19:30 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/153989529682.shtml)

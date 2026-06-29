@@ -1,61 +1,56 @@
-# 中国男篮热身赛战胜塞尔维亚劲旅 王俊杰砍下全场最高分
+# 汶川大地震中被埋72小时的女孩，如今怎么样了？
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新社长沙6月4日电 (记者 邓霞)6月3日晚，2026年中国男篮热身赛(长沙站)在湖南长沙打响，中国男篮以82：78战胜塞尔维亚KK FMP俱乐部队，中国队6人得分上双。 此次热身赛，中国男篮以考察年轻球员为主。赛前，中国男篮主教练郭士强表示，比赛既要考察年轻球员的篮球技战术能力，也要让他们积累国际比赛的经验，为接下来的国际赛事做准备。 首节开局，双方展开对攻，比分交替上升。
+2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？ 黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排
 
 ## 正文
 
-中新社长沙6月4日电 (记者 邓霞)6月3日晚，2026年中国男篮热身赛(长沙站)在湖南长沙打响，中国男篮以82：78战胜塞尔维亚KK FMP俱乐部队，中国队6人得分上双。
+2008年5月12日14时28分 中国 汶川 大地震颤，山河破碎 8.0级特大地震也让距离汶川不远的北川 瞬间沦为废墟 11岁的北川女孩牛钰 被埋废墟三天三夜后获救 18年过去 如今她怎么样了？
 
-此次热身赛，中国男篮以考察年轻球员为主。
+黑暗72小时 地震那天 上五年级的牛钰正坐在教室 起初感到一阵轻微晃动 她转头问后桌女生 “刚才是不是有大货车经过？
 
-赛前，中国男篮主教练郭士强表示，比赛既要考察年轻球员的篮球技战术能力，也要让他们积累国际比赛的经验，为接下来的国际赛事做准备。
+” 话音未落 剧烈震颤席卷而来 一股巨大的甩力 瞬间将她砸向最后一排的角落 她眼前的最后一幕 是保护电视机的学习委员 被坍塌的铁架砸中 教室随即被黑暗、浓烟与惨叫吞没 牛钰的头顶 被一块预制板死死卡住 双腿以下全被压住 身体扭曲着动弹不得 闷热、窒息、剧痛 让她喘不上气 黑暗中 她摸到一只冰凉的手 手腕上戴着一块电子表 那就是坐在她后桌的女生 那个爱笑的女孩 永远留在了废墟之下 家长们哭喊着搜救 可到处都是坍塌的楼房 搬动一块石板 就可能让另一处再次塌陷 “先救我的孩子们！
 
-首节开局，双方展开对攻，比分交替上升。
+” 班主任的声音从远处传来 微弱却坚定 废墟之下 牛钰昏迷、清醒、再昏迷 直到5月14日中午 她被一阵光亮唤醒 解放军小于叔叔冒着余震风险 一直俯在她上方的预制板上 手使劲往下够 “不要怕，叔叔在这里 我们一定救你出去” 小于叔叔的头盔上 有一盏很小的灯 微弱却耀眼 牛钰说 那是她关于希望最具象的模样 被困三天三夜后获救 5月15日 牛钰成为她读书的学校 最后一位被救出的幸存者 被抬上担架时 小于叔叔和她说 “一定要活下来” 救护车上 她的体温急剧下降 冷得浑身发抖 护士姐姐跪在担架旁 紧紧抱住她 哭着恳求 “孩子，你都撑了三天三夜 一定要坚持住 马上就到医院了” 没想到 抵达医院后等待她的 是另一个残酷的现实 双腿严重坏死 医生告诉牛钰的父母 “要命还是要腿，你们自己决定” 为保住女儿的生命 父母含泪签字 11岁的牛钰 在手术台上失去了右腿 此后又
 
-两队战成12平后，塞尔维亚KK FMP俱乐部队依靠挡拆配合与外线投射，打出一波11：0的小高潮。
+” 在无数个深夜里 她哭着向妈妈问出这个问题 康复训练的痛 与内心的自卑、挣扎 一度让她陷入低谷 日子在煎熬中一点点向前 她把委屈与不甘藏在心底 默默等待一个 能与自己和解的契机 2018年5月12日 汶川地震十周年 这天也是牛钰的农历生日 她做了一个勇敢的决定 参加汶川首届马拉松 那天 她取下假肢上的海绵 穿上短裤 第一次坦然露出假肢和伤疤 五百米、再五百米…… 本想跑几公里就放弃 却跑了一程又一程 有人冲她喊了一声“妹妹加油” 接着 很多折返回来的跑者异口同声 “中国加油！
 
-首节战罢中国队19：27落后。
+汶川加油！
 
-次节，中国队立足内线防守，徐昕多次送出盖帽，庞峥麟、王俊杰轮番突破取分。
+” 她突然意识到 伤疤是苦难留下的不完美 也是无数人托举的生命奇迹 更是自己努力活下来的勋章 “从负数起步 我终于又回到了原点 从内心里接纳了这条‘腿’ 所以 哪有什么迈不过的坎儿？
 
-半场结束，中国队39：46落后对手7分。
+倒就爬起来，活就活精彩” 从那天起 她再也没给假肢包过海绵 坦然接受自己的不完美 真正与伤痛、与自己和解 铭记与向前 走出阴霾的牛钰爱上了摄影 即便扛着器材步履艰难 但她依然坚持用镜头 记录真实与美好 拍下残障朋友 最放松、最自信的模样 她也尝试做自媒体 用轻松幽默的方式 科普假肢知识，讲述幻肢痛 她走进校园宣讲 用自己的经历鼓励迷茫的人 “活法有千千万万种 你相信什么 就会成为什么” 她记得 自己是被无数人“拉一把” 才活下来的孩子 她也想成为拉别人一把的人 一位尿毒症女孩曾因绝望想告别世界 在牛钰的鼓励下重返校园 最终考上复旦大学 一位19岁截肢女孩怀揣模特梦 在看到牛钰的视频后重拾勇气 2021年 牛钰戴着闪光假肢 登上上海时装周T台 聚光灯下 她昂首挺胸，步履坚定 走出了最自信的姿态 每年5月12日 牛钰都会回到北川 祭奠逝去的亲友 小时候一
 
 ## 相关推荐
 
-- 2026-06-29 19:37 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 19:34 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 19:41 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 19:32 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 19:33 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 19:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 19:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 19:40 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 19:24 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 19:39 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 19:34 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 19:25 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 19:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 19:32 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-29 19:24 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 19:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 19:39 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 19:28 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 19:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 19:49 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 19:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 19:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 19:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 19:36 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 19:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/169149696703.shtml)
-- 2026-06-29 19:32 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/8748166980.shtml)
-- 2026-06-29 19:22 - [极限挑战第一季](https://www.blog.minike.top/Article/details/8457008.shtml)
-- 2026-06-29 19:33 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/880378645.shtml)
-- 2026-06-29 19:35 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/135447994.shtml)
-- 2026-06-29 19:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/8368593.shtml)
-- 2026-06-29 19:36 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/9613702727.shtml)
-- 2026-06-29 19:34 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/436176.shtml)
-- 2026-06-29 19:39 - [片寄凉太胖了好多](http://www.blog.minike.top/Article/details/61847472622.shtml)
-- 2026-06-29 19:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/840494895.shtml)
-- 2026-06-29 19:47 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/1557135039.shtml)
-- 2026-06-29 19:28 - [TTG KSG](http://www.share.kurohicncr.top/Article/details/1906520243.shtml)
-- 2026-06-29 19:27 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/23105045516.shtml)
-- 2026-06-29 19:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/0490688.shtml)
-- 2026-06-29 19:18 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/903545926873.shtml)
+- 2026-06-29 19:33 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/48244.shtml)
+- 2026-06-29 19:48 - [周生如故](http://www.share.minike.top/Article/details/78725.shtml)
+- 2026-06-29 19:52 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/4957759204.shtml)
+- 2026-06-29 19:47 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/019367.shtml)
+- 2026-06-29 19:52 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/1021492547.shtml)
+- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/58255709056.shtml)
+- 2026-06-29 19:27 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/8834852236.shtml)
+- 2026-06-29 19:45 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/112282416.shtml)
+- 2026-06-29 19:32 - [LPL第三赛段赛制公布](https://www.share.kurohicncr.top/Article/details/239674424.shtml)
+- 2026-06-29 19:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/8791847161.shtml)
+- 2026-06-29 19:37 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/1224151.shtml)
+- 2026-06-29 19:41 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/640924.shtml)
+- 2026-06-29 19:31 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.minike.top/Article/details/037518266613.shtml)
+- 2026-06-29 19:28 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/44319.shtml)
+- 2026-06-29 19:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/4603460626.shtml)

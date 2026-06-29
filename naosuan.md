@@ -1,55 +1,56 @@
-# 伊朗外长：地区国家不应让美国利用其领土攻击伊朗
+# 中华美食在巴西：一炉烧饼出 全是“浙”里情
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-当地时间4日，伊朗外长阿拉格齐表示，伊朗此前已警告该地区各国，如果它们参与对伊朗的侵略，其境内的美国军事基地将成为伊朗的合法打击目标。 阿拉格齐称，伊朗的反击针对的是美国军事基地，而非该地区各国的领土。该地区许多国家反对美国利用其领空和领土攻击伊朗，但不幸的是，美国却利用这些设施攻击伊朗。（总台记者 李健南） ©2026中央广播电视总台版权所有。未经许可，请勿转载使用。 责任编
+中新网圣保罗5月12日电(记者 林春茵)13岁就开始学做烧饼的浙江丽水缙云籍侨胞施传明，两年前投亲来到巴西圣保罗。他卖过眼镜、守过仓库，最终是靠着一炉缙云烧饼，在圣保罗站稳了脚跟。 今年以来，圣保罗中华美食庙会频频举办，烧饼炉子一开，咸香松脆的缙云烧饼、金华酥饼就迎来如云食客。炉前帮忙擀面的巴西姑娘琳达·拉莫斯对记者说，“巴西人觉得这是最好吃的披萨，中国人觉得这是最好吃的家乡味
 
 ## 正文
 
-当地时间4日，伊朗外长阿拉格齐表示，伊朗此前已警告该地区各国，如果它们参与对伊朗的侵略，其境内的美国军事基地将成为伊朗的合法打击目标。
+中新网圣保罗5月12日电(记者 林春茵)13岁就开始学做烧饼的浙江丽水缙云籍侨胞施传明，两年前投亲来到巴西圣保罗。
 
-阿拉格齐称，伊朗的反击针对的是美国军事基地，而非该地区各国的领土。
+他卖过眼镜、守过仓库，最终是靠着一炉缙云烧饼，在圣保罗站稳了脚跟。
 
-该地区许多国家反对美国利用其领空和领土攻击伊朗，但不幸的是，美国却利用这些设施攻击伊朗。
+今年以来，圣保罗中华美食庙会频频举办，烧饼炉子一开，咸香松脆的缙云烧饼、金华酥饼就迎来如云食客。
 
-（总台记者 李健南） ©2026中央广播电视总台版权所有。
+炉前帮忙擀面的巴西姑娘琳达·拉莫斯对记者说，“巴西人觉得这是最好吃的披萨，中国人觉得这是最好吃的家乡味。
 
-未经许可，请勿转载使用。
+” 守着炉子看施传明烤饼，有种质朴的烟火气。
 
-责任编辑：江学思
+面是一大早揉好的——凌晨3点多起床，前一天留的老面揪子添上几大勺小麦粉，掺进温水，揉到面团光滑，“老面发的，可比酵母的来得香”。
+
+半肥瘦的猪后腿肉剁丁，梅干菜剁细，调盐调糖，这是关键，“咸淡全靠手感”。
+
+巴西木炭火起得旺，炉子很快烫起来。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 19:23 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 19:41 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 19:40 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 19:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 19:41 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 19:25 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 19:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 19:18 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 19:37 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 19:38 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 19:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 19:20 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 19:40 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 19:47 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 19:38 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 19:47 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 19:48 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 19:53 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 19:47 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 19:40 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 19:41 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 19:32 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/254890923.shtml)
-- 2026-06-29 19:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/973061323.shtml)
-- 2026-06-29 19:21 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/4665529.shtml)
-- 2026-06-29 19:28 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/227932347.shtml)
-- 2026-06-29 19:41 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/575182.shtml)
-- 2026-06-29 19:45 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/010411296.shtml)
-- 2026-06-29 19:21 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/69985821.shtml)
-- 2026-06-29 19:39 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/39983870.shtml)
-- 2026-06-29 19:20 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/99019.shtml)
-- 2026-06-29 19:40 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/677015787.shtml)
-- 2026-06-29 19:20 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/57270483045.shtml)
-- 2026-06-29 19:41 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/683579.shtml)
-- 2026-06-29 19:39 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/32328151.shtml)
-- 2026-06-29 19:31 - [女生每天戴耳机18小时突发耳聋](https://www.blog.kurohicncr.top/Article/details/15402160879.shtml)
-- 2026-06-29 19:45 - [金刚川](https://www.blog.minike.top/Article/details/808673074551.shtml)
+- 2026-06-29 19:24 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/89818.shtml)
+- 2026-06-29 19:31 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/144121062460.shtml)
+- 2026-06-29 19:50 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/00762574596.shtml)
+- 2026-06-29 19:41 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/4694333.shtml)
+- 2026-06-29 19:28 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/9160774.shtml)
+- 2026-06-29 19:44 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/383713.shtml)
+- 2026-06-29 19:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/0704576.shtml)
+- 2026-06-29 19:42 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/82070.shtml)
+- 2026-06-29 19:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/018053483742.shtml)
+- 2026-06-29 19:51 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/54518135.shtml)
+- 2026-06-29 19:34 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/2278660013.shtml)
+- 2026-06-29 19:24 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/429338.shtml)
+- 2026-06-29 19:41 - [送你一朵小红花](http://www.blog.minike.top/Article/details/786760393.shtml)
+- 2026-06-29 19:53 - [叠纸](https://www.share.minike.top/Article/details/060871745674.shtml)
+- 2026-06-29 19:34 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/8246303.shtml)

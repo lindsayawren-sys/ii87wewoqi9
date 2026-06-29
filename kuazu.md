@@ -1,58 +1,60 @@
-# 今晚过后国内油价下调，机构这样预判国际油市
+# App过度索取授权或被境外间谍利用 国家安全部：发现线索可举报
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-以油箱容量50L的普通私家车计算，这次调价后，车主们加满一箱油将少花20元左右。 今日24时，国内成品油调价窗口将再度开启。 国家发改委发布的最新通知显示，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。 根据国际市场油价变化情况，国家发改委表示，自今日24时起，国内汽、柴油（标准品）
+手机里各种各样的应用程序(APP)五花八门，在方便我们生活和工作的同时，似乎也越来越能精准地“捕捉”到我们的想法，相信不少人都有过“你在想什么，手机就给你推送什么”的经历。APP的这种“正合我意”是怎么实现？个人信息安全又是否存在风险呢？今天小安就和大家一同明风险、排隐患。超权限乱象频发 近年来，信息泄露事件屡屡发生，APP过度索取授权是个人信息泄露的重要原因之一。国家有关部门
 
 ## 正文
 
-以油箱容量50L的普通私家车计算，这次调价后，车主们加满一箱油将少花20元左右。
+手机里各种各样的应用程序(APP)五花八门，在方便我们生活和工作的同时，似乎也越来越能精准地“捕捉”到我们的想法，相信不少人都有过“你在想什么，手机就给你推送什么”的经历。
 
-今日24时，国内成品油调价窗口将再度开启。
+APP的这种“正合我意”是怎么实现？
 
-国家发改委发布的最新通知显示，5月21日国内成品油价格调整以来，国际市场原油价格震荡下行后近日有所回升，本次调价的前10个工作日平均价格低于上次调价前10个工作日平均价格。
+个人信息安全又是否存在风险呢？
 
-根据国际市场油价变化情况，国家发改委表示，自今日24时起，国内汽、柴油（标准品）价格每吨分别下调525元、505元。
+今天小安就和大家一同明风险、排隐患。
 
-折合为每升价格，今晚过后，89号汽油将下调0.38元/升，92号汽油下调0.40元/升，95号汽油下调0.42元/升，0号柴油下调0.43元/升。
+超权限乱象频发 近年来，信息泄露事件屡屡发生，APP过度索取授权是个人信息泄露的重要原因之一。
 
-该调价情况与第一财经记者此前从行业机构隆众资讯获得的预期一致。
+国家有关部门调查发现，多款APP存在“未经用户同意，收集、使用用户个人信息”“未提供应用账号注销服务”“未公示用户个人信息收集、使用规则”“强行捆绑推广其他应用软件”“强制索取位置信息”等情况，侵害了个人信息安全。
 
-本次调价对于私家车主和物流企业来说，意味着出行成本的减少。
+特别是境外间谍情报机关与不法分子对此虎视眈眈，企图利用非法获取的个人信息，超权开启的语音、位置服务等实施违法犯罪活动，对个人隐私乃至国家安全构成威胁。
 
-据该机构测算，以油箱容量50L的普通私家车计算，这次调价后，车主们加满一箱油将少花20元左右。
+管理授权有妙招 ——严选渠道，慎启弹窗。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 19:22 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 19:46 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 19:21 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 19:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 19:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 19:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 19:20 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 19:26 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 19:33 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 19:32 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 19:19 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 19:28 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 19:30 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 19:38 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 19:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 19:28 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 19:32 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 19:42 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 19:31 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 19:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 19:26 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 19:40 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 19:49 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 19:37 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 19:49 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/61735254.shtml)
-- 2026-06-29 19:33 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/63798045886.shtml)
-- 2026-06-29 19:24 - [本届世界杯已有5人涉性侵风波](https://www.share.minike.top/Article/details/16282166886.shtml)
-- 2026-06-29 19:34 - [挪威王储妃长子两次强奸获刑](https://www.blog.minike.top/Article/details/3060636.shtml)
-- 2026-06-29 19:41 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/48418432337.shtml)
-- 2026-06-29 19:18 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/793910183372.shtml)
-- 2026-06-29 19:22 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/30636634.shtml)
-- 2026-06-29 19:45 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/34852958.shtml)
-- 2026-06-29 19:28 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/668213.shtml)
-- 2026-06-29 19:42 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/862257321929.shtml)
-- 2026-06-29 19:25 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/8650149529.shtml)
-- 2026-06-29 19:36 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/975750.shtml)
-- 2026-06-29 19:20 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/766139.shtml)
-- 2026-06-29 19:22 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/7788730.shtml)
-- 2026-06-29 19:44 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/369549923.shtml)
+- 2026-06-29 19:24 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/157464801.shtml)
+- 2026-06-29 19:44 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/8551749163.shtml)
+- 2026-06-29 19:52 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/514050.shtml)
+- 2026-06-29 19:24 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/931248.shtml)
+- 2026-06-29 19:50 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/623468984.shtml)
+- 2026-06-29 19:38 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/00683777583.shtml)
+- 2026-06-29 19:24 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/613852.shtml)
+- 2026-06-29 19:43 - [流金岁月](http://www.share.kurohicncr.top/Article/details/88817.shtml)
+- 2026-06-29 19:52 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/35810960556.shtml)
+- 2026-06-29 19:46 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/54994.shtml)
+- 2026-06-29 19:37 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/715439311.shtml)
+- 2026-06-29 19:32 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/134823310.shtml)
+- 2026-06-29 19:46 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/11609798913.shtml)
+- 2026-06-29 19:39 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/246571599.shtml)
+- 2026-06-29 19:26 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/53288.shtml)

@@ -1,47 +1,56 @@
-# 南京银行：2025年度每股派0.22295元（含税） 6月15日除权除息
+# 机构预测2026年泰国平均通货膨胀率为3.4%
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，南京银行发布2025年年度权益分派实施公告，每股派发含税现金红利0.22295元（含税），股权登记日为2026年6月12日，除权（息）日及现金红利发放日均为2026年6月15日。 责任编辑：秦艺
+中新社曼谷5月12日电(记者 李映民)泰国开泰研究中心12日发布报告称，受能源成本上升等因素影响，预计2026年泰国平均通货膨胀率为3.4%。 报告指出，受中东冲突影响，2026年4月泰国通货膨胀率升至2.89%，为一年来首次出现正值，并创38个月新高。开泰研究中心预计，2026年平均通货膨胀率为3.4%，源于成本上升逐步传导至消费品价格。预计通胀率将在第三季度达到峰值，第四季
 
 ## 正文
 
-6月4日金融一线消息，南京银行发布2025年年度权益分派实施公告，每股派发含税现金红利0.22295元（含税），股权登记日为2026年6月12日，除权（息）日及现金红利发放日均为2026年6月15日。
+中新社曼谷5月12日电(记者 李映民)泰国开泰研究中心12日发布报告称，受能源成本上升等因素影响，预计2026年泰国平均通货膨胀率为3.4%。
 
-责任编辑：秦艺
+报告指出，受中东冲突影响，2026年4月泰国通货膨胀率升至2.89%，为一年来首次出现正值，并创38个月新高。
+
+开泰研究中心预计，2026年平均通货膨胀率为3.4%，源于成本上升逐步传导至消费品价格。
+
+预计通胀率将在第三季度达到峰值，第四季度维持在高位。
+
+报告认为，导致2026年泰国通胀上升的主要原因有三。
+
+一是2026年第二季度能源价格显著上升。
+
+即使中东局势有所好转，下半年能源价格逐步下降，也难以恢复至战前水平。
+
+泰国国内燃油价格虽然已从4月份的峰值开始回落，但预计2026年平均价格仍将高于上年。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 19:39 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 19:35 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 19:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 19:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 19:35 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 19:42 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 19:47 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 19:47 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-29 19:40 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-29 19:29 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 19:19 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 19:29 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 19:44 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 19:38 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 19:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 19:42 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 19:29 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 19:39 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 19:27 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 19:26 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 19:34 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 19:45 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/73456477.shtml)
-- 2026-06-29 19:47 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/071118738.shtml)
-- 2026-06-29 19:32 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/12809.shtml)
-- 2026-06-29 19:27 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.kurohicncr.top/Article/details/36399631.shtml)
-- 2026-06-29 19:19 - [官媒首曝六代机？大V解读](http://www.blog.minike.top/Article/details/87300743.shtml)
-- 2026-06-29 19:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/811084209556.shtml)
-- 2026-06-29 19:33 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/3143359011.shtml)
-- 2026-06-29 19:27 - [李小璐回应无戏可拍](http://www.share.kurohicncr.top/Article/details/9482218.shtml)
-- 2026-06-29 19:33 - [欧洲极端高温如何影响家电股](http://www.blog.minike.top/Article/details/14171.shtml)
-- 2026-06-29 19:29 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/783549795.shtml)
-- 2026-06-29 19:29 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/780488655255.shtml)
-- 2026-06-29 19:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.kurohicncr.top/Article/details/1562646.shtml)
-- 2026-06-29 19:25 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/4506853380.shtml)
-- 2026-06-29 19:32 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/342674575059.shtml)
-- 2026-06-29 19:33 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/699938.shtml)
+- 2026-06-29 19:35 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/298601988641.shtml)
+- 2026-06-29 19:48 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/63983045.shtml)
+- 2026-06-29 19:29 - [第一炉香](http://www.share.minike.top/Article/details/0377499401.shtml)
+- 2026-06-29 19:52 - [特朗普两大核心赌注将迎高院裁决](http://www.share.minike.top/Article/details/688170859848.shtml)
+- 2026-06-29 19:38 - [逆天祖国人](http://www.share.minike.top/Article/details/1041689.shtml)
+- 2026-06-29 19:36 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/117885314.shtml)
+- 2026-06-29 19:35 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/616790542531.shtml)
+- 2026-06-29 19:51 - [外交部谈对日出口管制措施](http://www.share.kurohicncr.top/Article/details/8412728852.shtml)
+- 2026-06-29 19:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/72893.shtml)
+- 2026-06-29 19:52 - [海口塔吊事故处罚结果公布](http://www.blog.kurohicncr.top/Article/details/5657837.shtml)
+- 2026-06-29 19:37 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/8127356.shtml)
+- 2026-06-29 19:38 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/769339450.shtml)
+- 2026-06-29 19:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/129668396.shtml)
+- 2026-06-29 19:26 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/796717.shtml)
+- 2026-06-29 19:28 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/619656.shtml)

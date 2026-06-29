@@ -1,57 +1,59 @@
-# 热闹的发行市场背后，为什么还有大量基金在默默退场？
+# 日本大型银行最快将于本月开始使用Anthropic公司的Mythos系统
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-来源：市值风云 市场回暖并不会平均照顾所有产品。 作者 | 市值风云基金研究部 编辑 | 小白 随着市场情绪回暖，年内已出现多只50亿元级别的权益类新基金。然而，热闹的发行市场背后，另一扇门正在悄悄关上。 Wind数据显示，截至2026年5月30日，公募基金市场年内已有124只基金被清算，超过去年同期的107只。 （制图：市值风云APP；来源：Wind） 而且，2026年5月以
+日本经济新闻周三报道称，日本三大银行最快将于5月底获得Anthropic公司开发的人工智能模型Mythos的使用权。报道称，三菱UFJ金融集团、三井住友金融集团 以及瑞穗金融集团的银行部门，很可能已在周二于日本举行的会议上，从美国财政部长斯科特·贝森特处获悉了这一消息。这将是日本企业首次获准使用Mythos。Mythos虽专为防御性网络安全任务设计，但其功能却引发了对传统软件安
 
 ## 正文
 
-来源：市值风云 市场回暖并不会平均照顾所有产品。
+日本经济新闻周三报道称，日本三大银行最快将于5月底获得Anthropic公司开发的人工智能模型Mythos的使用权。
 
-作者 | 市值风云基金研究部 编辑 | 小白 随着市场情绪回暖，年内已出现多只50亿元级别的权益类新基金。
+报道称，三菱UFJ金融集团、三井住友金融集团 以及瑞穗金融集团的银行部门，很可能已在周二于日本举行的会议上，从美国财政部长斯科特·贝森特处获悉了这一消息。
 
-然而，热闹的发行市场背后，另一扇门正在悄悄关上。
+这将是日本企业首次获准使用Mythos。
 
-Wind数据显示，截至2026年5月30日，公募基金市场年内已有124只基金被清算，超过去年同期的107只。
+Mythos虽专为防御性网络安全任务设计，但其功能却引发了对传统软件安全威胁的担忧。
 
-（制图：市值风云APP；来源：Wind） 而且，2026年5月以来，还有超20只基金发布清盘风险预警，基本上一个交易日一只，而这些基金未来也可能走向清盘。
+Anthropic公司表示，在预览测试中发现该系统存在诸多重大漏洞，这些漏洞影响着所有主流操作系统和网络浏览器。
 
-这组数据之所以值得关注，不只是因为数量多，更因为它出现在市场情绪回暖、新基金发行修复的背景下。
+周二，日本财务大臣片山皋月会见了贝森特，随后表示日本将于本周成立一个公私合作工作组，以应对Mythos给日本金融体系带来的网络安全风险。
 
-看起来不算差的环境里，为什么还有这么多基金退场？
+该工作组的首场会议预计将于周四举行。
 
-核心原因仍然是规模不达标 先说结论：基金清盘数量上升，不等于公募行业出了系统性问题，更不意味着投资者的钱“突然没了”。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 19:30 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 19:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 19:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 19:23 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 19:32 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 19:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 19:42 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 19:35 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 19:35 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 19:37 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 19:33 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 19:47 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 19:42 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 19:47 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 19:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 19:31 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 19:53 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 19:34 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 19:24 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 19:37 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 19:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 19:31 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 19:47 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [欧洲极端高温如何影响家电股](https://www.share.kurohicncr.top/Article/details/748151552906.shtml)
-- 2026-06-29 19:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/6926117096.shtml)
-- 2026-06-29 19:19 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/0849394.shtml)
-- 2026-06-29 19:42 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/3764055411.shtml)
-- 2026-06-29 19:20 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/6343094.shtml)
-- 2026-06-29 19:35 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/59360.shtml)
-- 2026-06-29 19:29 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/81222039.shtml)
-- 2026-06-29 19:19 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/263750260123.shtml)
-- 2026-06-29 19:19 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/18432003476.shtml)
-- 2026-06-29 19:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/49243.shtml)
-- 2026-06-29 19:29 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/411805.shtml)
-- 2026-06-29 19:38 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/788913.shtml)
-- 2026-06-29 19:43 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/922499.shtml)
-- 2026-06-29 19:22 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/165008417717.shtml)
-- 2026-06-29 19:36 - [一生一世](https://www.blog.kurohicncr.top/Article/details/7825820.shtml)
+- 2026-06-29 19:28 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/814258.shtml)
+- 2026-06-29 19:45 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/720263362589.shtml)
+- 2026-06-29 19:45 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/41757991890.shtml)
+- 2026-06-29 19:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/804293443567.shtml)
+- 2026-06-29 19:53 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/52363.shtml)
+- 2026-06-29 19:53 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/87730188837.shtml)
+- 2026-06-29 19:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/621067.shtml)
+- 2026-06-29 19:46 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/96965.shtml)
+- 2026-06-29 19:36 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/03951.shtml)
+- 2026-06-29 19:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/9677838734.shtml)
+- 2026-06-29 19:34 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/665177558058.shtml)
+- 2026-06-29 19:40 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/15947826420.shtml)
+- 2026-06-29 19:42 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/132152887768.shtml)
+- 2026-06-29 19:46 - [请回答王牌2019](https://www.share.minike.top/Article/details/75764.shtml)
+- 2026-06-29 19:39 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/90573527.shtml)

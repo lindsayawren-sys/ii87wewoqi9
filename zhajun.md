@@ -1,43 +1,56 @@
-# 人民之心·总书记谈政绩观 ⑦丨一词一观：不留后遗症
+# Kinder Morgan势将结束六连跌，油价反弹提振能源板块
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：梁洁萍 素材来源：新华社
+Kinder Morgan股价周一跳涨约3%，势将结束此前连续六个交易日的下跌走势，受益于原油价格反弹及地缘政治紧张局势再度升温。 此前，该股自5月1日起持续走低，截至5月8日累计跌幅超过3%。周一盘中，Kinder Morgan股价上涨约2.3%至32.13美元，将年内涨幅扩大至约16%，远超标普500指数同期近8%的涨幅。 涨势主要受能源板块整体走强带动。美国总统特朗普当日
 
 ## 正文
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：梁洁萍 素材来源：新华社
+Kinder Morgan股价周一跳涨约3%，势将结束此前连续六个交易日的下跌走势，受益于原油价格反弹及地缘政治紧张局势再度升温。
+
+此前，该股自5月1日起持续走低，截至5月8日累计跌幅超过3%。
+
+周一盘中，Kinder Morgan股价上涨约2.3%至32.13美元，将年内涨幅扩大至约16%，远超标普500指数同期近8%的涨幅。
+
+涨势主要受能源板块整体走强带动。
+
+美国总统特朗普当日公开拒绝了伊朗的和平提议，称停火协议“命悬一线”。
+
+受此影响，埃克森美孚、雪佛龙、康菲石油等能源股普遍上涨约2%至3%。
+
+Kinder Morgan近期基本面亦传出利好。
+
+公司一季度财报显示，调整后每股收益达0.48美元，远超市场预期的0.40美元；营收48.3亿美元，同样超出预期。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 19:40 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 19:40 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 19:33 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 19:31 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 19:42 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 19:28 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-29 19:23 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 19:42 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 19:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 19:47 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 19:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 19:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 19:34 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 19:43 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 19:31 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 19:27 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 19:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:39 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 19:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 19:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/914449988332.shtml)
-- 2026-06-29 19:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/3051922.shtml)
-- 2026-06-29 19:30 - [Ella回应SHE何时合体](http://www.share.kurohicncr.top/Article/details/01009.shtml)
-- 2026-06-29 19:41 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/37101850504.shtml)
-- 2026-06-29 19:37 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/41498651137.shtml)
-- 2026-06-29 19:24 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/520938400.shtml)
-- 2026-06-29 19:40 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/09358.shtml)
-- 2026-06-29 19:33 - [永远有话聊的原因](http://www.blog.kurohicncr.top/Article/details/218395126.shtml)
-- 2026-06-29 19:47 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/232284518409.shtml)
-- 2026-06-29 19:40 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/250608533.shtml)
-- 2026-06-29 19:44 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/3415011.shtml)
-- 2026-06-29 19:20 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/0390165180.shtml)
-- 2026-06-29 19:21 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/3522807.shtml)
-- 2026-06-29 19:47 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/48429614844.shtml)
-- 2026-06-29 19:45 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.minike.top/Article/details/49023213.shtml)
+- 2026-06-29 19:43 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/1530002398.shtml)
+- 2026-06-29 19:40 - [曝屠颖去世和酒店失责有关](https://www.blog.kurohicncr.top/Article/details/5769240.shtml)
+- 2026-06-29 19:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/302729132.shtml)
+- 2026-06-29 19:40 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/95911887185.shtml)
+- 2026-06-29 19:25 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/7452345529.shtml)
+- 2026-06-29 19:44 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/06808386.shtml)
+- 2026-06-29 19:42 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/046728764364.shtml)
+- 2026-06-29 19:32 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/08708.shtml)
+- 2026-06-29 19:45 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/43444.shtml)
+- 2026-06-29 19:51 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/8090204326.shtml)
+- 2026-06-29 19:34 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/44529.shtml)
+- 2026-06-29 19:34 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/53433210.shtml)
+- 2026-06-29 19:32 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/320068732.shtml)
+- 2026-06-29 19:50 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/71879881.shtml)
+- 2026-06-29 19:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/47313251525.shtml)

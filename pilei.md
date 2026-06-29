@@ -1,57 +1,47 @@
-# 标普拒绝给SpaceX等巨无霸IPO公司纳入指数提供快速通道
+# 一线调研：让沙县小吃留住“家的味道”
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-标普道琼斯指数公司表示，将继续维持标普500指数等主要基准指数现行的资格要求，否决了让SpaceX等超大市值公司上市后快速纳入指数的提议。 该指数提供商周四发布新闻稿称，公司不会缩短目前对新上市公司设定的12个月观察期，也不会基于公司规模而豁免当前对盈利能力和公众持股比例的要求，与纳斯达克和富时罗素等竞争对手的做法截然不同。 当前华尔街面临着新的现实：一些公司在上市之前就已达到
+发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-标普道琼斯指数公司表示，将继续维持标普500指数等主要基准指数现行的资格要求，否决了让SpaceX等超大市值公司上市后快速纳入指数的提议。
-
-该指数提供商周四发布新闻稿称，公司不会缩短目前对新上市公司设定的12个月观察期，也不会基于公司规模而豁免当前对盈利能力和公众持股比例的要求，与纳斯达克和富时罗素等竞争对手的做法截然不同。
-
-当前华尔街面临着新的现实：一些公司在上市之前就已达到前所未有的规模。
-
-今年早些时候，标普道琼斯指数公司公开征询意见，询问为不同时代制定的指数规则是否应该做出调整，以适应那些如今规模已达到过去只有成熟蓝筹股才能达到的公司，即业内所称的“快速通道”。
-
-加快纳入基准指数的提议引发一些投资者担忧，他们认为，盈利能力、流通股数量和交易历史等方面的规定正是为了防止基准指数盲目追逐炒作。
-
-此外，他们还指出，过快地纳入IPO公司，可能会使被动型基金面临更大的市场波动，迫使这些基金在可靠的市场定价完全确立之前就买入股票。
-
-与此同时，支持者表示，指数应该尽快纳入大型公司，以反映投资者实际拥有的市场，并称这些万亿美元市值公司在满足传统指数要求之前，可能已经具有重要的经济意义。
-
-这一结果意味着，SpaceX至少要在上市一年后才能被纳入标普500指数。
+发布时间：2026年05月12日 11:14 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 19:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-29 19:18 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 19:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 19:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 19:38 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 19:36 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 19:47 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 19:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 19:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 19:18 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 19:30 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 19:50 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 19:35 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 19:47 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 19:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 19:50 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-29 19:43 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 19:45 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 19:51 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 19:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 19:25 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 19:40 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 19:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 19:24 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 19:41 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [刘冰任河南南阳市代市长](http://www.share.kurohicncr.top/Article/details/33940.shtml)
-- 2026-06-29 19:47 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/44654370303.shtml)
-- 2026-06-29 19:26 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/7915281252.shtml)
-- 2026-06-29 19:41 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/83349225.shtml)
-- 2026-06-29 19:19 - [金牌调解](https://www.share.kurohicncr.top/Article/details/230746936417.shtml)
-- 2026-06-29 19:27 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/16692105527.shtml)
-- 2026-06-29 19:21 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/736626960.shtml)
-- 2026-06-29 19:38 - [当家电外通风口出现鸟窝](http://www.blog.minike.top/Article/details/4002705.shtml)
-- 2026-06-29 19:36 - [戒掉咖啡后我的身体变化](http://www.share.kurohicncr.top/Article/details/4345893445.shtml)
-- 2026-06-29 19:33 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/5181015057.shtml)
-- 2026-06-29 19:46 - [法生态部长反对装空调却自己吹空调](https://www.share.kurohicncr.top/Article/details/23184.shtml)
-- 2026-06-29 19:22 - [Ella回应SHE何时合体](https://www.blog.kurohicncr.top/Article/details/8140904.shtml)
-- 2026-06-29 19:22 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/4371014.shtml)
-- 2026-06-29 19:29 - [斛珠夫人](http://www.share.minike.top/Article/details/444747193298.shtml)
-- 2026-06-29 19:18 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/7817378629.shtml)
+- 2026-06-29 19:43 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/848009152266.shtml)
+- 2026-06-29 19:53 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/1253608.shtml)
+- 2026-06-29 19:34 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/75479427895.shtml)
+- 2026-06-29 19:29 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/34195648549.shtml)
+- 2026-06-29 19:27 - [每天通勤往返3h的感觉](http://www.blog.kurohicncr.top/Article/details/76622.shtml)
+- 2026-06-29 19:43 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/99205.shtml)
+- 2026-06-29 19:46 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/8637381.shtml)
+- 2026-06-29 19:46 - [周杰伦千禧年就有小卡了](https://www.share.kurohicncr.top/Article/details/3658283521.shtml)
+- 2026-06-29 19:43 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/2873176567.shtml)
+- 2026-06-29 19:40 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/848343351713.shtml)
+- 2026-06-29 19:33 - [周生如故](https://www.share.minike.top/Article/details/08394232.shtml)
+- 2026-06-29 19:31 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/655316.shtml)
+- 2026-06-29 19:27 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/228608498.shtml)
+- 2026-06-29 19:26 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/2233204677.shtml)
+- 2026-06-29 19:40 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/03088851.shtml)

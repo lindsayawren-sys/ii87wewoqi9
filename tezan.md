@@ -1,59 +1,61 @@
-# 谷歌母公司800亿美元增发标志着华尔街迈入前所未有的市场阶段
+# 平安产险：打造“防、减、救”风险减量服务体系，守护平安美好家园
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-核心要点 高盛国际联席首席执行官安东尼・古特曼周三在 CNBC 独家采访中称：谷歌母公司字母表拟发售 800 亿美元股票，用于落地人工智能相关投入，此举令资本市场踏入 “前所未有的阶段”。 字母表于周一发布公告，本次股票发行额度中有 100 亿美元定向配售给格雷格・阿贝尔执掌的伯克希尔・哈撒韦，募资将用于建设顶级 AI 算力基础设施，匹配爆发式增长的客户需求。 高盛、摩根大通、
+2026年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”，5月11日至17日为防灾减灾宣传周。 平安产险秉持“金融为民”初心使命，始终把保障人民群众生命财产安全放在第一位，以科技为核心引擎，构建防灾、减灾、救灾全流程风险减量服务体系，以专业守护社会安全。 科技赋能，构建防灾减灾救灾体系 平安产险深度融合大数据、AI、物联网、卫星遥感
 
 ## 正文
 
-核心要点 高盛国际联席首席执行官安东尼・古特曼周三在 CNBC 独家采访中称：谷歌母公司字母表拟发售 800 亿美元股票，用于落地人工智能相关投入，此举令资本市场踏入 “前所未有的阶段”。
+2026年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”，5月11日至17日为防灾减灾宣传周。
 
-字母表于周一发布公告，本次股票发行额度中有 100 亿美元定向配售给格雷格・阿贝尔执掌的伯克希尔・哈撒韦，募资将用于建设顶级 AI 算力基础设施，匹配爆发式增长的客户需求。
+平安产险秉持“金融为民”初心使命，始终把保障人民群众生命财产安全放在第一位，以科技为核心引擎，构建防灾、减灾、救灾全流程风险减量服务体系，以专业守护社会安全。
 
-高盛、摩根大通、摩根士丹利共同担任本次承销发行的联席簿记管理人，其中高盛兼任私募配售代理机构。
+科技赋能，构建防灾减灾救灾体系 平安产险深度融合大数据、AI、物联网、卫星遥感等前沿技术，自主研发了“鹰眼系统DRS3.0”，提供防灾、减灾、救灾全流程服务。
 
-古特曼在早间节目中对主持人卡洛琳・罗斯表示：“首先要说，当前市场环境史无前例，我们都需怀揣审慎与敬畏，合理把控业务重心。
+防灾：精准预判，源头减损 平安产险坚持风险前置、源头防控，通过风险评估、隐患排查、科普宣教等举措，实现对自然灾害和意外事故的闭环处置，从源头降低事故发生概率。
 
-昨日字母表的巨额募资为后续 IPO 梯队释放积极信号，这笔募资规模创下同类发行的历史新高。
+在自然灾害方面，平安产险依托数字化风险地图能够精准识别台风、暴雨等10余种自然灾害风险，并派遣专业风控工程师协助整改、消除隐患。
 
-” 古特曼称，市场对大额股权融资需求旺盛，从全市场股市总市值占比来看，本轮募资体量处在可控区间。
+在意外事故方面，平安产险打造了“AI物联网+保险”模式，实现了对电气火灾、水淹水浸、电梯安全等17类安全风险的实时监测、预警和有效干预。
 
-当前资本市场正冲刺年度历史新高，多家巨头筹备重磅 IPO： 备受市场关注的 SpaceX 定于 6 月 12 日挂牌上市，冲刺史上最大 IPO，马斯克旗下公司目标纳斯达克上市估值 1.75 万亿美元；此外，OpenAI 与 Anthropic 均已官宣计划在年内登陆资本市场。
+2025年，平安产险为超18万家企业提供现场隐患排查和物联网服务，助力社会经济减损超7亿元。
 
-古特曼补充：“我们十分看好这一批上市项目。
+针对农村道路基础设施薄弱且风险隐患较多的现状，平安产险发起“红绿灯”道路安全风险减量公益行动。
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 19:29 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-29 19:34 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 19:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 19:19 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 19:46 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 19:34 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 19:40 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 19:32 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 19:34 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 19:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 19:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 19:21 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-29 19:33 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 19:50 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 19:53 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 19:44 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 19:44 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 19:43 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 19:31 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 19:52 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 19:27 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:50 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 19:42 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 19:44 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 19:41 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 19:40 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 19:25 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/41872040.shtml)
-- 2026-06-29 19:31 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/436842866.shtml)
-- 2026-06-29 19:36 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/75500225.shtml)
-- 2026-06-29 19:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/9713055340.shtml)
-- 2026-06-29 19:44 - [媒体：听清自己内心的声音再填志愿](http://www.blog.minike.top/Article/details/0798104809.shtml)
-- 2026-06-29 19:30 - [乔家的儿女](http://www.blog.minike.top/Article/details/41829620.shtml)
-- 2026-06-29 19:32 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/0165881962.shtml)
-- 2026-06-29 19:20 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/17489298052.shtml)
-- 2026-06-29 19:39 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/853685258771.shtml)
-- 2026-06-29 19:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/6906161.shtml)
-- 2026-06-29 19:21 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/999101.shtml)
-- 2026-06-29 19:24 - [爸爸当家中断录制帮小摊贩挡雨](https://www.share.kurohicncr.top/Article/details/8246505123.shtml)
-- 2026-06-29 19:27 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/8955872.shtml)
-- 2026-06-29 19:44 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/6068241752.shtml)
-- 2026-06-29 19:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/2905921.shtml)
+- 2026-06-29 19:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/1890487931.shtml)
+- 2026-06-29 19:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/74394.shtml)
+- 2026-06-29 19:47 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/055789.shtml)
+- 2026-06-29 19:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/23797185.shtml)
+- 2026-06-29 19:30 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/4887805.shtml)
+- 2026-06-29 19:49 - [王楚钦开门红](https://www.blog.minike.top/Article/details/38212906.shtml)
+- 2026-06-29 19:35 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/7230466.shtml)
+- 2026-06-29 19:51 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/370228996.shtml)
+- 2026-06-29 19:37 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/229545435362.shtml)
+- 2026-06-29 19:32 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/463180.shtml)
+- 2026-06-29 19:49 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/6861574349.shtml)
+- 2026-06-29 19:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/93301.shtml)
+- 2026-06-29 19:32 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/87721258.shtml)
+- 2026-06-29 19:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/51622.shtml)
+- 2026-06-29 19:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/0595171505.shtml)

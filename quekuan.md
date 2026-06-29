@@ -1,58 +1,58 @@
-# NCE平:夏季高峰前原油库存趋紧
+# 新接订单量暴涨近2倍，中船系逆市走强！华宝基金军工ETF（512810）水下拉起翻红，中国动力涨停封板
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-6月3日，进入夏季需求高峰前，NCE平台表示，原油库存下降速度正在重新影响市场对供需平衡的判断。OilPrice援引国际能源署的观点称，3月至5月期间全球原油库存减少超过2.5亿桶，部分地区的库存水平可能在盛夏前逼近历史低位。 从季节性看，NCE平台认为，北半球燃料消费上升与高温天气叠加，会让库存缓冲进一步收窄。国际能源署提到，7月至8月市场可能进入更紧张的观察窗口，这意味着即
+5月13日早盘，军工板块低开后异动拉升，军工核心资产——军工ETF华宝（512810）水下拉起翻红。成份股局部高温，华力创通一度暴拉逾11%，中国动力涨停封板，权重股中国船舶涨超2%。商业航天概念回调为主要拖累，中国卫星续跌逾1%。 消息面，工信部发布我国造船业最新数据显示，2026年1-3月，我国造船完工量1568万载重吨，同比增长46.0%，其中出口船舶占总量的96.1%；
 
 ## 正文
 
-6月3日，进入夏季需求高峰前，NCE平台表示，原油库存下降速度正在重新影响市场对供需平衡的判断。
+5月13日早盘，军工板块低开后异动拉升，军工核心资产——军工ETF华宝（512810）水下拉起翻红。
 
-OilPrice援引国际能源署的观点称，3月至5月期间全球原油库存减少超过2.5亿桶，部分地区的库存水平可能在盛夏前逼近历史低位。
+成份股局部高温，华力创通一度暴拉逾11%，中国动力涨停封板，权重股中国船舶涨超2%。
 
-从季节性看，NCE平台认为，北半球燃料消费上升与高温天气叠加，会让库存缓冲进一步收窄。
+商业航天概念回调为主要拖累，中国卫星续跌逾1%。
 
-国际能源署提到，7月至8月市场可能进入更紧张的观察窗口，这意味着即便需求没有超预期走强，库存偏低本身也会抬高价格敏感度。
+消息面，工信部发布我国造船业最新数据显示，2026年1-3月，我国造船完工量1568万载重吨，同比增长46.0%，其中出口船舶占总量的96.1%；新接订单量5953万载重吨，同比增长195.2%；截至3月底，手持订单量32230万载重吨，同比增长43.6%。
 
-库存下降并不一定立即转化为单边上行，但会明显提升供应扰动的放大效应。
+回归军工行业基本面，中信建投最新研报分析军工板块上市公司2025年年报和2026年一季报的全部公告指出，整体板块呈现触底回暖的趋势。
 
-若炼厂开工、成品油消耗和商业库存去化同步延续，市场对远月供需缺口的定价可能会更积极，油价波动区间也容易被重新抬高。
+2025年军工板块实现营业收入8276.32亿元，同比增长8.46%，实现归母净利润314.94亿元，同比增长18.66%。
 
-基于这些变化，NCE平台预计，未来数周市场会更加关注周度库存、炼厂利润和旺季实际需求兑现情况。
+毛利率小幅上涨0.23个百分点至17.88%，随着四费费率的下降，净利率小幅回升0.33个百分点至3.81%。
 
-只要库存没有出现明显修复，原油价格就仍具备较强的阶段性支撑。
+该机构判断，中国军工产业已从过去依赖国内单一需求的模式，演进为三轮驱动的新发展格局，增长动能更加多元和可持续。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 19:35 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 19:41 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-29 19:47 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 19:29 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 19:19 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 19:28 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 19:39 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 19:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 19:24 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 19:31 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 19:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 19:32 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 19:36 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 19:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 19:24 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 19:43 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 19:41 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 19:48 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 19:35 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 19:50 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 19:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 19:24 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 19:24 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/53316.shtml)
-- 2026-06-29 19:34 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/05404510285.shtml)
-- 2026-06-29 19:19 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/01454320.shtml)
-- 2026-06-29 19:40 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/183113428063.shtml)
-- 2026-06-29 19:21 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/67498286365.shtml)
-- 2026-06-29 19:43 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/102425704.shtml)
-- 2026-06-29 19:37 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/28462.shtml)
-- 2026-06-29 19:27 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/12940071.shtml)
-- 2026-06-29 19:38 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/84799.shtml)
-- 2026-06-29 19:39 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/9841298430.shtml)
-- 2026-06-29 19:46 - [特朗普两大核心赌注将迎高院裁决](https://www.blog.kurohicncr.top/Article/details/8580066.shtml)
-- 2026-06-29 19:19 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/370745625718.shtml)
-- 2026-06-29 19:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/56997416930.shtml)
-- 2026-06-29 19:43 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/924196785.shtml)
-- 2026-06-29 19:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/604145531849.shtml)
+- 2026-06-29 19:47 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/748400.shtml)
+- 2026-06-29 19:36 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/3089473664.shtml)
+- 2026-06-29 19:26 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/663084.shtml)
+- 2026-06-29 19:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/4927312.shtml)
+- 2026-06-29 19:53 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/835253564993.shtml)
+- 2026-06-29 19:51 - [Ella回应SHE何时合体](http://www.blog.minike.top/Article/details/5662887.shtml)
+- 2026-06-29 19:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/2576888057.shtml)
+- 2026-06-29 19:31 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/598243318.shtml)
+- 2026-06-29 19:28 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/871320696.shtml)
+- 2026-06-29 19:39 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/75614.shtml)
+- 2026-06-29 19:35 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/122901.shtml)
+- 2026-06-29 19:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/21511.shtml)
+- 2026-06-29 19:32 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/71633620.shtml)
+- 2026-06-29 19:51 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/63877.shtml)
+- 2026-06-29 19:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/890119105647.shtml)

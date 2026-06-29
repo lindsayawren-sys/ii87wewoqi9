@@ -1,60 +1,57 @@
-# 科创赋能文脉 沈阳仿真航模出彩出圈
+# 京沪高铁部分动车组列车公布票价上浮20%
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网沈阳6月4日电(姜月恒 赵桂华 禹瑞斋)近日，一架1:3比例歼-35仿真航模刷屏全网，在海内外各大社交平台持续发酵。只因之前这一仿真航模在东北超联赛开幕式上亮相，相关现场画面通过网络传播，收获众多海外网友点赞热议，强势破圈。 一架仿真航模，为何能够引发那么多人关注？它的魅力在什么地方？带着疑问，记者走进仿真航模设计制作企业----沈阳云马翔和飞行科技公司，探寻这款爆款科创
+中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。 公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。 公告指出，公司将持续提升客运服务品质。此次票价优化调整对公司业绩的影响具
 
 ## 正文
 
-中新网沈阳6月4日电(姜月恒 赵桂华 禹瑞斋)近日，一架1:3比例歼-35仿真航模刷屏全网，在海内外各大社交平台持续发酵。
+中新社上海5月11日电 (范宇斌)京沪高速铁路股份有限公司11日发布公告称，对京沪高速线和合蚌高速线开行的时速300~350km/h、200~250km/h及以下的动车组列车的公布票价上浮20%。
 
-只因之前这一仿真航模在东北超联赛开幕式上亮相，相关现场画面通过网络传播，收获众多海外网友点赞热议，强势破圈。
+公告表示，各站间执行票价将以公布票价为上限，在公布票价基础上实行不同幅度的折扣浮动，满足旅客差异化出行需求。
 
-一架仿真航模，为何能够引发那么多人关注？
+公告指出，公司将持续提升客运服务品质。
 
-它的魅力在什么地方？
+此次票价优化调整对公司业绩的影响具有一定的不确定性，公司董事会提醒广大投资者谨慎决策，注意投资风险。
 
-带着疑问，记者走进仿真航模设计制作企业----沈阳云马翔和飞行科技公司，探寻这款爆款科创作品背后的研发密码。
+京沪高铁连接京津冀和长三角两大经济区，区域经济增长快，人口密度大，城市化程度高，具有良好的客流基础。
 
-走进企业研发基地，1:3比例歼-35航模映入眼帘，整机细节逼真、工艺精湛，机身流线、核心零部件高度还原真机样貌，具有超高观赏性。
+作为“中国高铁第一股”，京沪高铁已于2020年1月16日在A股上市。
 
-据了解，歼-35航模从图纸定稿、结构设计到调试试飞、成功展演，全程仅耗时45天。
+据京沪高铁财报显示，2026年一季度实现营收105.59亿元(人民币，下同)，同比增长3.29%；实现归母净利润31.43亿元，同比增长6.03%。
 
-“这款歼-35航模最大亮点在于机身各类折线、凹陷线条全靠手工雕琢成型，线条精度把控是作品关键。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 19:34 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 19:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 19:31 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 19:42 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 19:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 19:43 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 19:23 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 19:25 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 19:34 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 19:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 19:24 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 19:39 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 19:41 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 19:30 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 19:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 19:47 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 19:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 19:46 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 19:35 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 19:25 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 19:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 19:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 19:32 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 19:53 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:36 - [挪威王储妃长子两次强奸获刑](https://www.blog.kurohicncr.top/Article/details/067777647.shtml)
-- 2026-06-29 19:21 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/997283406731.shtml)
-- 2026-06-29 19:20 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/414671007330.shtml)
-- 2026-06-29 19:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/959134053.shtml)
-- 2026-06-29 19:19 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/68578367593.shtml)
-- 2026-06-29 19:22 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/08607.shtml)
-- 2026-06-29 19:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/64810826.shtml)
-- 2026-06-29 19:24 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/478386.shtml)
-- 2026-06-29 19:19 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/19892963727.shtml)
-- 2026-06-29 19:27 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/259913343.shtml)
-- 2026-06-29 19:41 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/915275292279.shtml)
-- 2026-06-29 19:44 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/023703.shtml)
-- 2026-06-29 19:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/33981867937.shtml)
-- 2026-06-29 19:21 - [日美楼市危机复盘：见底顺序曝光](http://www.share.minike.top/Article/details/255399.shtml)
-- 2026-06-29 19:35 - [战略导弹部队60年如何炼成大国长剑](http://www.share.kurohicncr.top/Article/details/38219156358.shtml)
+- 2026-06-29 19:34 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/6612498.shtml)
+- 2026-06-29 19:53 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/274955160.shtml)
+- 2026-06-29 19:24 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/86150.shtml)
+- 2026-06-29 19:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/79130.shtml)
+- 2026-06-29 19:36 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/684378080013.shtml)
+- 2026-06-29 19:39 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/1727809.shtml)
+- 2026-06-29 19:46 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/00244821384.shtml)
+- 2026-06-29 19:50 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/41383994.shtml)
+- 2026-06-29 19:45 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/6144278.shtml)
+- 2026-06-29 19:41 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/08490.shtml)
+- 2026-06-29 19:49 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/4616252.shtml)
+- 2026-06-29 19:44 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/26782.shtml)
+- 2026-06-29 19:29 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/183463921.shtml)
+- 2026-06-29 19:37 - [天道](https://www.share.minike.top/Article/details/628398.shtml)
+- 2026-06-29 19:29 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/52722411790.shtml)

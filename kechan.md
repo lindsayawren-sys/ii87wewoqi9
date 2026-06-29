@@ -1,58 +1,59 @@
-# 酒价内参6月4日价格发布：水晶剑南春下跌2元
+# 最后一刻，黄仁勋背着包，随特朗普访华！知情人：特朗普在看到报道其缺席代表团后，致电邀请
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。 今日白酒市场11大
+据央视网昨日消息，白宫11日公布了将随特朗普一同访华的商界领袖名单。据悉，总共将有16位美国商界代表来到北京，他们代表的美国企业涵盖科技、金融、航空和农业等多个领域，名单内没有黄仁勋。 不过，最新消息显示，全球市值最高的AI芯片龙头英伟达CEO黄仁勋临时更改行程，将随美国总统特朗普访华。 随后，英伟达向多家媒体证实，其首席执行官黄仁勋将随特朗普访问中国。 据一位知情人士透露，特
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月4日整体明显走弱。
+据央视网昨日消息，白宫11日公布了将随特朗普一同访华的商界领袖名单。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日大幅下跌25元，回吐昨日全部涨幅。
+据悉，总共将有16位美国商界代表来到北京，他们代表的美国企业涵盖科技、金融、航空和农业等多个领域，名单内没有黄仁勋。
 
-市场在前一日底部反弹后迅速转衰，终端交投情绪偏谨慎，今日除习酒君品微涨外其余十大品种均下跌或平盘。
+不过，最新消息显示，全球市值最高的AI芯片龙头英伟达CEO黄仁勋临时更改行程，将随美国总统特朗普访华。
 
-今日白酒市场11大单品一涨九跌一平，输家占据绝对优势。
+随后，英伟达向多家媒体证实，其首席执行官黄仁勋将随特朗普访问中国。
 
-上涨方面，习酒君品小幅上涨1元/瓶，收获四连阳，逐步走出月内最低谷。
+据一位知情人士透露，特朗普是在看到媒体报道黄仁勋缺席代表团后，致电黄仁勋，邀请他加入访华代表团。
 
-下跌方面，五粮液普五八代与古井贡古20跌幅居前，均下跌5元/瓶，其中前者三连阴后创下月内最低价纪录，近一个月其价格下行势头明显；青花汾20与青花郎均下跌4元/瓶，其中前者回吐前一日全部涨幅，回落至月内最低位，后者创下月内最低价格记录；飞天茅台、精品茅台与水晶剑南春均下跌2元/瓶；五粮液1618与国窖1573均小幅下跌1元/瓶。
+英伟达在声明中称，黄仁勋应特朗普的邀请出席峰会，以支持美国和本届政府的目标。
 
-洋河梦之蓝M6+的价格环比保持不变。
+据社交媒体流传的一张照片，黄仁勋在“空军一号”于阿拉斯加经停加油期间登上了飞机，与特朗普一同前往中国，并附上了一张他身穿皮衣，背着背包候机的照片。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+▲黄仁勋在阿拉斯加机场等待登上空军一号 此前，美国白宫公布了将随特朗普一同访华的商界领袖名单。
 
 ## 相关推荐
 
-- 2026-06-29 19:23 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 19:34 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 19:39 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 19:45 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 19:41 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 19:38 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 19:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 19:28 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 19:47 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 19:45 - [男子40度高温下骑行严重晒伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 19:20 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-29 19:21 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 19:41 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 19:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 19:40 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 19:27 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 19:51 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 19:50 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 19:30 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 19:38 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 19:36 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 19:36 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 19:38 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 19:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 19:26 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/915876.shtml)
-- 2026-06-29 19:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/24610376761.shtml)
-- 2026-06-29 19:29 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/64110.shtml)
-- 2026-06-29 19:28 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/8703158670.shtml)
-- 2026-06-29 19:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/1139492.shtml)
-- 2026-06-29 19:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/1758977989.shtml)
-- 2026-06-29 19:20 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/74392300.shtml)
-- 2026-06-29 19:44 - [东方风云榜](https://www.blog.minike.top/Article/details/441485172.shtml)
-- 2026-06-29 19:21 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/4770805.shtml)
-- 2026-06-29 19:21 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/04615.shtml)
-- 2026-06-29 19:40 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/45463125545.shtml)
-- 2026-06-29 19:37 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/4029098068.shtml)
-- 2026-06-29 19:36 - [当我回母校教书](http://www.share.minike.top/Article/details/958722.shtml)
-- 2026-06-29 19:39 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/0045024.shtml)
-- 2026-06-29 19:28 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/1952169.shtml)
+- 2026-06-29 19:40 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/214608774.shtml)
+- 2026-06-29 19:37 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/110725.shtml)
+- 2026-06-29 19:49 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/26295707911.shtml)
+- 2026-06-29 19:42 - [网红小徐直播时突遇地震](https://www.share.kurohicncr.top/Article/details/11429.shtml)
+- 2026-06-29 19:40 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/2637811.shtml)
+- 2026-06-29 19:26 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/9381133.shtml)
+- 2026-06-29 19:35 - [温网](http://www.blog.minike.top/Article/details/6890588364.shtml)
+- 2026-06-29 19:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/760353.shtml)
+- 2026-06-29 19:26 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/71638953.shtml)
+- 2026-06-29 19:32 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/616724788.shtml)
+- 2026-06-29 19:39 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/74018.shtml)
+- 2026-06-29 19:25 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/1760022540.shtml)
+- 2026-06-29 19:31 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/031643.shtml)
+- 2026-06-29 19:35 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/491759.shtml)
+- 2026-06-29 19:36 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/56150438796.shtml)

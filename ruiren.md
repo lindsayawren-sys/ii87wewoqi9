@@ -1,57 +1,57 @@
-# 消息人士：韩国5月航煤出口反弹至战前水平
+# 沃达丰股价走低：德国业务表现不及预期，调整后盈利未达市场预估
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-多位分析师与行业贸易消息人士表示，受原油进口回暖、炼油利润丰厚提振，韩国炼厂5月航空煤油（航煤）出口量回升至伊朗冲突爆发前的水平。 作为亚洲主要成品油出口国之一，韩国航煤出口显著回暖，现货批量出货增多，有效缓解了市场对供应紧缺的担忧，大幅压低了亚太地区航煤价格。 过去两周，航煤现货升水大跌五成，回落至每桶约2美元；而在3月，该升水曾突破20美元，创下历史峰值。 Kpler、Vo
+专题：聚焦美股2026年第一季度财报 英国电信巨头沃达丰公布财报后股价下跌，核心原因是其最大市场德国业务服务收入下滑，且调整后盈利小幅不及市场预期。 这家英国电信企业公布，截至 3 月 31 日的财年，扣除租赁支出后的调整后息税折旧摊销前利润为113.5 亿欧元（约 133.8 亿美元），上年同期为 109.3 亿欧元。 根据公司汇总的分析师一致预期，市场原本预估该项调整后 E
 
 ## 正文
 
-多位分析师与行业贸易消息人士表示，受原油进口回暖、炼油利润丰厚提振，韩国炼厂5月航空煤油（航煤）出口量回升至伊朗冲突爆发前的水平。
+专题：聚焦美股2026年第一季度财报 英国电信巨头沃达丰公布财报后股价下跌，核心原因是其最大市场德国业务服务收入下滑，且调整后盈利小幅不及市场预期。
 
-作为亚洲主要成品油出口国之一，韩国航煤出口显著回暖，现货批量出货增多，有效缓解了市场对供应紧缺的担忧，大幅压低了亚太地区航煤价格。
+这家英国电信企业公布，截至 3 月 31 日的财年，扣除租赁支出后的调整后息税折旧摊销前利润为113.5 亿欧元（约 133.8 亿美元），上年同期为 109.3 亿欧元。
 
-过去两周，航煤现货升水大跌五成，回落至每桶约2美元；而在3月，该升水曾突破20美元，创下历史峰值。
+根据公司汇总的分析师一致预期，市场原本预估该项调整后 EBITDA 为 114.8 亿欧元。
 
-Kpler、Vortexa统计数据及贸易商数据显示，韩国5月航煤出口量介于110万–120万吨（折合867万桶至946万桶），为去年8月以来最高。
+沃达丰伦敦上市股票早盘下跌 3.5%，报 1.16 英镑；该股年内累计涨幅仍略超 17%。
 
-Kpler数据显示，5月出口量较4月年内低点大增36%；今年迄今为止，韩国航煤出货量占亚太航煤进口总量的30%，较2025全年占比23%明显抬升。
+投资机构 AJ Bell 分析师拉斯・穆尔德在客户研报中表示，股价回落，一方面源于前期涨幅已大，另一方面刚结束的财年及新财年开局均未出现超预期利好。
 
-伦敦证券交易所集团（LSEG）数据显示，除航煤现货升水大幅回落外，低硫（10ppm）柴油与航煤之间的品级价差已由升水转为小幅贴水。
+他指出：“市场甚至略带失望情绪。
 
-美以针对伊朗的军事行动造成霍尔木兹海峡事实上遭封锁，全球五分之一的原油运力原本经该海峡外运，原油供应受阻一度压低亚洲炼厂开工负荷。
+公司欧洲以外业务增长更强劲，而德国业务能否重回正轨，沃达丰尚未给出足够说服力的表现。
 
-Vortexa亚太区分析主管表示，韩国炼厂5月原油进口量已恢复至扰动前水平的约八成；受炼厂加工量抬升影响，他预计韩国6月航空煤油出口将环比增长。
+” 财报期内，集团总营收从上年 374.5 亿欧元增至404.6 亿欧元。
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 19:46 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 19:21 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 19:43 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 19:31 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 19:26 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 19:38 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 19:22 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 19:47 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 19:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 19:31 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 19:51 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 19:25 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 19:45 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 19:52 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-29 19:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 19:42 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 19:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 19:27 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 19:24 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 19:26 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 19:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/867438.shtml)
-- 2026-06-29 19:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/0119270481.shtml)
-- 2026-06-29 19:36 - [急先锋](https://www.blog.minike.top/Article/details/62034.shtml)
-- 2026-06-29 19:19 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/42017.shtml)
-- 2026-06-29 19:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/14693.shtml)
-- 2026-06-29 19:36 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/15721520.shtml)
-- 2026-06-29 19:18 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/3765006884.shtml)
-- 2026-06-29 19:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/35121924314.shtml)
-- 2026-06-29 19:42 - [滚石点名酒店员工说有急救培训](http://www.blog.minike.top/Article/details/61503267.shtml)
-- 2026-06-29 19:46 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/47510732.shtml)
-- 2026-06-29 19:37 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/77481955035.shtml)
-- 2026-06-29 19:25 - [王楚钦开门红](http://www.share.minike.top/Article/details/0189919.shtml)
-- 2026-06-29 19:33 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/8440108.shtml)
-- 2026-06-29 19:19 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/57018281.shtml)
-- 2026-06-29 19:42 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/85242.shtml)
+- 2026-06-29 19:38 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/91610930.shtml)
+- 2026-06-29 19:26 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/05182502395.shtml)
+- 2026-06-29 19:36 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/8017728401.shtml)
+- 2026-06-29 19:48 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/46066144.shtml)
+- 2026-06-29 19:51 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/25516619550.shtml)
+- 2026-06-29 19:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/3458846.shtml)
+- 2026-06-29 19:50 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/090685.shtml)
+- 2026-06-29 19:28 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/09721179166.shtml)
+- 2026-06-29 19:53 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/064252334249.shtml)
+- 2026-06-29 19:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/8775827.shtml)
+- 2026-06-29 19:40 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/443115363066.shtml)
+- 2026-06-29 19:28 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/0417260.shtml)
+- 2026-06-29 19:30 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/885231549.shtml)
+- 2026-06-29 19:53 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/01423387.shtml)
+- 2026-06-29 19:38 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/847281.shtml)

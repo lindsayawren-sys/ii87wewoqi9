@@ -1,60 +1,60 @@
-# 重庆银行股权整合落定，国资股东实现“六转一”
+# 探访杭州“未来学校”：AI赋能下的教育新图景
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中国基金报记者 马嘉昕 历时近半年的国资股权整合正式落定。6月2日晚间，重庆银行发布公告称，重庆联交所、西南证券、重庆轻纺资产、重庆机电集团、重庆农投资产及重庆家具已将其持有的全部该行股票转让给重庆发展资产经营有限公司（以下简称重庆发展资产），相关转让事项已完成过户登记。 国资股东实现“六转一” 公告显示，今年1月，重庆市国资委出具批复文件，同意上述6家公司将其持有的该行股票转
+中新网杭州5月11日电(林波)“你看，纹样生成的速度是不是很快？”5月11日，杭州市春晖小学的“非遗蓝染工坊”里，五年级学生苗翾熟练地在平板电脑上输入几个关键词，几秒钟后，绚丽而个性的蓝染纹样便呈现在大家眼前。 她和同学们借助“央馆虚拟实验室”建立项目，通过智能体“染染”学习蓝染历史与工艺，运用AI实验箱探究染液pH值与颜色深浅的关联，让传统印染工序在数字技术加持下焕发新生。
 
 ## 正文
 
-中国基金报记者 马嘉昕 历时近半年的国资股权整合正式落定。
+中新网杭州5月11日电(林波)“你看，纹样生成的速度是不是很快？
 
-6月2日晚间，重庆银行发布公告称，重庆联交所、西南证券、重庆轻纺资产、重庆机电集团、重庆农投资产及重庆家具已将其持有的全部该行股票转让给重庆发展资产经营有限公司（以下简称重庆发展资产），相关转让事项已完成过户登记。
+”5月11日，杭州市春晖小学的“非遗蓝染工坊”里，五年级学生苗翾熟练地在平板电脑上输入几个关键词，几秒钟后，绚丽而个性的蓝染纹样便呈现在大家眼前。
 
-国资股东实现“六转一” 公告显示，今年1月，重庆市国资委出具批复文件，同意上述6家公司将其持有的该行股票转让给重庆发展资产。
+她和同学们借助“央馆虚拟实验室”建立项目，通过智能体“染染”学习蓝染历史与工艺，运用AI实验箱探究染液pH值与颜色深浅的关联，让传统印染工序在数字技术加持下焕发新生。
 
-上述事项完成后，该行股东重庆渝富资本运营集团有限公司（以下简称渝富资本）及其一致行动人的构成将发生变动，上述6家公司不再是渝富资本的一致行动人。
+这一幕，是杭州“未来学校”建设的生动缩影。
 
-重庆银行还表示，该行于近日收到渝富资本通知，上述股份转让事项已完成过户登记。
+5月11日至13日，以“人工智能+教育：变革 发展 治理”为主题的2026世界数字教育大会在杭州举行。
 
-这也标志着，重庆银行国资股东从“分散持有”向“专业集中”迈出关键一步。
+其间，作者探访杭州多所特色校园，了解他们如何用AI赋能教育，勾勒出未来教育的多元图景，让人们得以窥见中国教育数字化改革的深度与温度。
 
-信息显示，重庆发展资产是地方国资委新设的专业资产运营平台，该公司成立于2023年11月，注册资本为50亿元。
+“‘未来学校’不仅仅是一种特定的学习方式，而是选择在合适的发展时机，让新技术赋能不同的学习场景。
 
-官网资料显示，重庆发展资产的主要职责是资产盘活和资金管理，盘活部分包括收购、营运和处置全市区县政府及国企资产、股权、特许经营权等，管理方面包括承接市委、市政府安排的资产收购任务，以及管理市级国资应急周转资金池。
+”杭州市春晖小学教育集团党总支书记田冰冰接受采访时这样界定。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 19:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 19:41 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 19:20 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 19:37 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 19:26 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 19:47 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 19:27 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 19:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 19:26 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 19:30 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 19:41 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 19:43 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 19:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 19:39 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 19:28 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 19:29 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 19:44 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 19:41 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 19:50 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 19:36 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 19:30 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 19:36 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 19:37 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 19:49 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 19:29 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 19:31 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-29 19:45 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/8398622405.shtml)
-- 2026-06-29 19:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/624595.shtml)
-- 2026-06-29 19:36 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/7294958239.shtml)
-- 2026-06-29 19:33 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/338659.shtml)
-- 2026-06-29 19:35 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/5456812.shtml)
-- 2026-06-29 19:32 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/32062597.shtml)
-- 2026-06-29 19:27 - [女心理师](https://www.share.kurohicncr.top/Article/details/6572748.shtml)
-- 2026-06-29 19:35 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/8017166450.shtml)
-- 2026-06-29 19:22 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/1759457203.shtml)
-- 2026-06-29 19:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/389720769.shtml)
-- 2026-06-29 19:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/963037.shtml)
-- 2026-06-29 19:24 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/417246207.shtml)
-- 2026-06-29 19:41 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/1094080.shtml)
-- 2026-06-29 19:36 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/02702.shtml)
-- 2026-06-29 19:35 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/269197275837.shtml)
+- 2026-06-29 19:45 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/467691308.shtml)
+- 2026-06-29 19:44 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/58715.shtml)
+- 2026-06-29 19:34 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/23857745.shtml)
+- 2026-06-29 19:28 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/49800.shtml)
+- 2026-06-29 19:35 - [男子40度高温下骑行严重晒伤](https://www.blog.kurohicncr.top/Article/details/6621051.shtml)
+- 2026-06-29 19:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/360735274390.shtml)
+- 2026-06-29 19:41 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/569404237.shtml)
+- 2026-06-29 19:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/7096763649.shtml)
+- 2026-06-29 19:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/50150.shtml)
+- 2026-06-29 19:26 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/09126.shtml)
+- 2026-06-29 19:44 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/9989909.shtml)
+- 2026-06-29 19:50 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/204336185.shtml)
+- 2026-06-29 19:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/1403889.shtml)
+- 2026-06-29 19:39 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/0009866.shtml)
+- 2026-06-29 19:40 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/48340.shtml)

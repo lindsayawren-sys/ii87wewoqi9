@@ -1,58 +1,61 @@
-# 创投月报 | 5月新增管理人、基金环比双降 月之暗面、阶跃星辰获百亿级融资
+# 300965，重大资产重组，明日复牌
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-2026年5月，国内一级市场展现出显著的“K型”分化特征。一方面，基金备案数量与管理人登记有所回落，显示出资本供给端的审慎态度；另一方面，投资端整体金额再创新高，在人工智能、先进制造等硬科技领域的集中度进一步提升。北京投资数量、金额双双领跑，显示出政策高地对资本的强吸附力。国资背景机构在投资端和募资端均占据绝对主导，头部市场化机构通过高频次、多赛道的布局维持活跃度。 据中国基金
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！明日复牌。 恒宇信通（300965）5月12日晚间公告，公司拟通过发行股份及支付现金方式购买张俊清等9名交易对方持有的北京神导科技股份有限公司（简称“神导科技”）100%股权，并拟向不超过35名特定投资者发行股份募集配套资金。公司股票将于2026年5月13日开市起复牌。 本次交易预计构成重大资产重组及关联交
 
 ## 正文
 
-2026年5月，国内一级市场展现出显著的“K型”分化特征。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一方面，基金备案数量与管理人登记有所回落，显示出资本供给端的审慎态度；另一方面，投资端整体金额再创新高，在人工智能、先进制造等硬科技领域的集中度进一步提升。
+明日复牌。
 
-北京投资数量、金额双双领跑，显示出政策高地对资本的强吸附力。
+恒宇信通（300965）5月12日晚间公告，公司拟通过发行股份及支付现金方式购买张俊清等9名交易对方持有的北京神导科技股份有限公司（简称“神导科技”）100%股权，并拟向不超过35名特定投资者发行股份募集配套资金。
 
-国资背景机构在投资端和募资端均占据绝对主导，头部市场化机构通过高频次、多赛道的布局维持活跃度。
+公司股票将于2026年5月13日开市起复牌。
 
-据中国基金业协会数据显示，5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；已注销的私募股权、创业投资基金管理人共31家，超七成为主动注销。
+本次交易预计构成重大资产重组及关联交易，不构成重组上市，不会导致公司实际控制人变更。
 
-月内新增备案私募股权投资基金123只，同比微降1.6%，环比减少22.6%；新增创业投资基金469只，同比激增119.2%，环比小幅下降7.3%。
+本次交易前，公司主营业务为直升机综合显示控制设备的研发、生产、销售，并提供相关专业技术服务，主要产品包括机载多功能综合显示控制设备及嵌入式计算机模块等航空电子产品。
 
-从基金类型合计来看，单月新增基金总数592只，环比下降11.0%，但较2025年同期增长74.6%。
+本次交易完成后，公司的主要产品将新增标的公司研发、生产和销售的卫星导航产品、惯性导航产品和军用电子设备。
 
-由此可见，募资端已逐步从“增量扩张”转向“存量优化”。
+公告指出，公司和神导科技之间在技术、产品、市场等方面均具有较强的协同效应。
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 19:46 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 19:23 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 19:23 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 19:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 19:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 19:20 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 19:44 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 19:28 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 19:22 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 19:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 19:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 19:41 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 19:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 19:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 19:40 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 19:46 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 19:51 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 19:33 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 19:39 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 19:46 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 19:40 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 19:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 19:34 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 19:37 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 19:49 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 19:51 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/70247406.shtml)
-- 2026-06-29 19:41 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/93206.shtml)
-- 2026-06-29 19:41 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/296509741417.shtml)
-- 2026-06-29 19:29 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/812408740.shtml)
-- 2026-06-29 19:32 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/698560.shtml)
-- 2026-06-29 19:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/57540.shtml)
-- 2026-06-29 19:34 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.minike.top/Article/details/153327953.shtml)
-- 2026-06-29 19:40 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/038606536.shtml)
-- 2026-06-29 19:41 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/937404.shtml)
-- 2026-06-29 19:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/20999.shtml)
-- 2026-06-29 19:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/361585008.shtml)
-- 2026-06-29 19:27 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/37609.shtml)
-- 2026-06-29 19:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/37864635.shtml)
-- 2026-06-29 19:37 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/56754276.shtml)
-- 2026-06-29 19:25 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/83114.shtml)
+- 2026-06-29 19:39 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/338887485647.shtml)
+- 2026-06-29 19:48 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/913429.shtml)
+- 2026-06-29 19:41 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/1577499755.shtml)
+- 2026-06-29 19:49 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/357906986221.shtml)
+- 2026-06-29 19:25 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/14013329.shtml)
+- 2026-06-29 19:53 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/735476.shtml)
+- 2026-06-29 19:42 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/9190508941.shtml)
+- 2026-06-29 19:30 - [北京市发布雷电黄色预警](https://www.share.minike.top/Article/details/92614.shtml)
+- 2026-06-29 19:52 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/79053060.shtml)
+- 2026-06-29 19:26 - [高考1357分的同学如何报志愿？](https://www.share.kurohicncr.top/Article/details/7232424.shtml)
+- 2026-06-29 19:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/54283574912.shtml)
+- 2026-06-29 19:37 - [媒体：听清自己内心的声音再填志愿](http://www.blog.kurohicncr.top/Article/details/22585.shtml)
+- 2026-06-29 19:36 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/36627447.shtml)
+- 2026-06-29 19:43 - [急先锋](https://www.blog.kurohicncr.top/Article/details/119015674.shtml)
+- 2026-06-29 19:32 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/945444.shtml)

@@ -1,57 +1,56 @@
-# 华北黄淮等地将有较强降水 南方地区将再现强降水过程
+# 强降雨持续影响云南 多地连发暴雨预警
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网6月5日电 据中央气象台网站消息，昨日，云南、湖南、浙江、吉林、黑龙江等地出现大到暴雨，局地大暴雨，河北、陕西等地出现雷暴大风。预计5日，华南、华北南部、东北地区东部等地有较强降雨，关注局地强降雨可能引发的次生灾害，6日夜间起，南方地区将有新一轮大范围降雨过程，关注降雨叠加影响，以及对高考、农业生产等的影响。关注南海热带低压发展趋势，东海、南海相关海域及东南沿海防范大风影
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。 截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势
 
 ## 正文
 
-中新网6月5日电 据中央气象台网站消息，昨日，云南、湖南、浙江、吉林、黑龙江等地出现大到暴雨，局地大暴雨，河北、陕西等地出现雷暴大风。
+中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。
 
-预计5日，华南、华北南部、东北地区东部等地有较强降雨，关注局地强降雨可能引发的次生灾害，6日夜间起，南方地区将有新一轮大范围降雨过程，关注降雨叠加影响，以及对高考、农业生产等的影响。
+截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。
 
-关注南海热带低压发展趋势，东海、南海相关海域及东南沿海防范大风影响。
+本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势持续，辖区内多个乡镇暴雨灾害风险较高。
 
-华北黄淮等地将有较强降水 6月5日至6日，西北地区东部、华北、黄淮、东北地区东部、江南东南部、华南北部等地部分地区有大到暴雨，局地大暴雨，并伴有短时强降水或雷暴大风等强对流天气。
+同时，部分区域发布雷电黄色预警，预计将出现持续雷电天气，存在一定雷击安全隐患，大范围强对流天气风险突出。
 
-中央气象台6月5日6时继续发布暴雨蓝色预警：预计，6月5日8时至6日8时，黑龙江东部、吉林东北部、甘肃东部、陕西北部、山西中南部、河北中南部、广西中部和东北部、福建中东部、台湾岛等地部分地区有大到暴雨，其中，吉林东部、福建东南部、台湾岛南部等地部分地区有大暴雨(100～130毫米)。
+结合最新气象监测，云南省发布地质灾害气象风险预警，5月11日20时至12日20时，红河州元阳、绿春、金平三县滑坡、泥石流灾害风险高；红河州南部、文山州西南部、普洱市东西部、丽江市中部、临沧市西南部地质灾害风险较高，需重点防范。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
+云南省最新天气预报显示，11日白天云南多个州市被降雨覆盖，丽江、昆明、红河、文山、普洱、临沧等地多区域出现小到中雨，局部大雨、暴雨。
 
-南方地区将再次出现强降水过程 6月6日至9日，西南地区东部、江南、华南将再次出现强降雨过程，部分地区有大到暴雨，局地大暴雨，并伴有强对流天气。
+11日夜间至12日，全省降水逐步减弱，12日夜间起，降雨范围大幅收缩，仅省内西部、南部边缘有零星阵雨，大部地区天气逐步转好。
 
-国内未来三天具体预报 6月5日8时至6日8时，东北地区东部、新疆南疆西部山区、西北地区东北部、华北大部、黄淮东北部、江南东部和南部、华南中北部和西南部、台湾岛等地部分地区有中到大雨，其中，黑龙江东南部、吉林东北部、陕西北部、山西中南部、河北中南部、福建东南部、台湾岛南部等地部分地区有暴雨或大暴雨(100～130毫米)。
+气象部门特别提醒，本轮降雨暖区对流特征明显，突发性强、变化快、局地性显著，强降水极易诱发城市内涝、山洪、滑坡、泥石流等地质灾害。
 
 ## 相关推荐
 
-- 2026-06-29 19:27 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 19:32 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 19:45 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 19:31 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 19:42 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 19:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 19:24 - [医药生物行业今日涨5.91%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 19:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 19:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 19:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 19:40 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 19:45 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 19:33 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 19:28 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 19:28 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 19:44 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 19:44 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 19:33 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 19:45 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 19:51 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:28 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/41484837233.shtml)
-- 2026-06-29 19:38 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/95704468939.shtml)
-- 2026-06-29 19:23 - [五只军犬招募领养人](https://www.share.kurohicncr.top/Article/details/137523086.shtml)
-- 2026-06-29 19:39 - [赵今麦时隔五年再演李诗情](https://www.share.kurohicncr.top/Article/details/42678210530.shtml)
-- 2026-06-29 19:21 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/2843602.shtml)
-- 2026-06-29 19:37 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/40490234.shtml)
-- 2026-06-29 19:44 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/5852414.shtml)
-- 2026-06-29 19:23 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/915050657723.shtml)
-- 2026-06-29 19:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.kurohicncr.top/Article/details/06287073010.shtml)
-- 2026-06-29 19:42 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/6851294.shtml)
-- 2026-06-29 19:34 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/004934928.shtml)
-- 2026-06-29 19:47 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/01959491.shtml)
-- 2026-06-29 19:25 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/6849771.shtml)
-- 2026-06-29 19:32 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/664910893248.shtml)
-- 2026-06-29 19:26 - [东宫女主是不是顶级恋爱脑](https://www.blog.minike.top/Article/details/076560812.shtml)
+- 2026-06-29 19:25 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/8878445.shtml)
+- 2026-06-29 19:35 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/50969338.shtml)
+- 2026-06-29 19:27 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/35577142.shtml)
+- 2026-06-29 19:40 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/81508170.shtml)
+- 2026-06-29 19:45 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/6601539.shtml)
+- 2026-06-29 19:24 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/68000473603.shtml)
+- 2026-06-29 19:27 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/8623705840.shtml)
+- 2026-06-29 19:48 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/4462194736.shtml)
+- 2026-06-29 19:29 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/28467.shtml)
+- 2026-06-29 19:24 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/756884816744.shtml)
+- 2026-06-29 19:52 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/7974969.shtml)
+- 2026-06-29 19:46 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/281384.shtml)
+- 2026-06-29 19:41 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/283653697.shtml)
+- 2026-06-29 19:26 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/8054502.shtml)
+- 2026-06-29 19:46 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/8252785.shtml)

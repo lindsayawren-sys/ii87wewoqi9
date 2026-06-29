@@ -1,57 +1,61 @@
-# 工信部：到2029年形成一批自主创新的6G技术方案
+# 四川启动《四川省饮用水水源保护管理条例》执法检查
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据工信部网站消息，工信部日前通知，将组织开展6G创新发展部省协同试点专项行动。 专项行动明确主要目标：到2029年，通过实施6G创新发展部省协同试点专项行动，进一步激发地方和企业创新活力，形成一批自主创新的6G技术方案，培育一批前景可观的新型业务应用场景，涌现一批丰富多样的新型终端产品，为6G商用落地提供有力支撑。 专项行动提到四项重点任务： 加强技术攻关协同
+中新网成都5月11日电 (单鹏)四川省人大常委会11日在成都举行《四川省饮用水水源保护管理条例》执法检查动员会，并正式启动此次执法检查。 据悉，四川省人大常委会开展此次执法检查，是落实人大法定职责、运用法治方式保障饮水安全的具体举措，旨在依法加强饮用水水源保护，切实保障人民群众饮用水安全。 《四川省饮用水水源保护管理条例》自1995年颁布实施以来，经历3次修订或修正，推动成都等
 
 ## 正文
 
-中新网6月4日电 据工信部网站消息，工信部日前通知，将组织开展6G创新发展部省协同试点专项行动。
+中新网成都5月11日电 (单鹏)四川省人大常委会11日在成都举行《四川省饮用水水源保护管理条例》执法检查动员会，并正式启动此次执法检查。
 
-专项行动明确主要目标：到2029年，通过实施6G创新发展部省协同试点专项行动，进一步激发地方和企业创新活力，形成一批自主创新的6G技术方案，培育一批前景可观的新型业务应用场景，涌现一批丰富多样的新型终端产品，为6G商用落地提供有力支撑。
+据悉，四川省人大常委会开展此次执法检查，是落实人大法定职责、运用法治方式保障饮水安全的具体举措，旨在依法加强饮用水水源保护，切实保障人民群众饮用水安全。
 
-专项行动提到四项重点任务： 加强技术攻关协同。
+《四川省饮用水水源保护管理条例》自1995年颁布实施以来，经历3次修订或修正，推动成都等11个市(州)制定饮用水水源保护地方性法规或政府规章，对老鹰水库、华强沟水库等特殊饮用水水源制定专门法规制度。
 
-瞄准全球新一代信息通信技术制高点，强化6G前沿技术布局，加强通信与人工智能、卫星互联网、无线感知等融合技术方案和系统架构研究，支撑6G标准研制和产业研发。
+此外，四川还出台了《四川省饮用水水源保护区管理规定》。
 
-深化基础理论创新，围绕信息理论、编码理论、电磁理论等基础理论与技术持续研究，形成一批基础性、原创性、颠覆性科研成果，为移动通信发展长期演进做好技术储备。
+在多层制度体系支撑下，四川成为全国首个“地方性法规+配套制度”、用最严格制度最严密法治保护饮用水水源地的省份。
 
-加强产业研发协同。
+四川省现有2492个集中式饮用水水源地。
 
-结合6G标准和产业发展节奏，加强6G基站、核心网、承载网、专用仪器仪表等通信设备产业研发，提升产品性能和安全保障水平，支撑6G商用部署。
+近年来，四川优化饮用水水源布局，截至2025年12月，全省300个县级及以上(简称“城市”)集中式饮用水水源水质连续6年达标率保持100%、保护区规范化建设完成率达100%；通过优化水源等方式，乡镇及以下集中式饮用水水源水质达标率从93.60%提升至99.60%针对保护区内涉永久基本农田、矿产资源、基础设施、工业企业等问题，四川建立集中式饮用水水源保护区“划定”会审会签制度；在全国率先发布集中式饮用水水源保护区勘界定标地方标准；制定耕地林地园地管理边界与饮用水水源保护区的冲突解决规则；推进农村供水提质增效三年行动，确保全省3200万农村人口“有水喝”“喝好水”。
 
-优化关联产业研发布局，加强新型终端、芯片器件、操作系统、商业航天等6G关联产业培育，打造地方6G特色产业集群。
+“条例对保护全省饮用水水源安全、保障人民群众身体健康、促进经济社会发展发挥了积极作用。
 
 ## 相关推荐
 
-- 2026-06-29 19:19 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 19:20 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 19:30 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:20 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 19:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 19:19 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 19:42 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 19:43 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 19:30 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 19:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 19:29 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 19:38 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 19:30 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 19:51 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 19:28 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-29 19:39 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 19:30 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 19:31 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 19:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 19:31 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 19:46 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 19:40 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 19:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 19:26 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 19:43 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 19:39 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/392567604.shtml)
-- 2026-06-29 19:39 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/435854930.shtml)
-- 2026-06-29 19:30 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/302425188.shtml)
-- 2026-06-29 19:32 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/448947.shtml)
-- 2026-06-29 19:40 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/39729.shtml)
-- 2026-06-29 19:41 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/94064137.shtml)
-- 2026-06-29 19:21 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/722092616483.shtml)
-- 2026-06-29 19:33 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/70921.shtml)
-- 2026-06-29 19:44 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/581949.shtml)
-- 2026-06-29 19:41 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/2636152966.shtml)
-- 2026-06-29 19:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/93268.shtml)
-- 2026-06-29 19:31 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/39220.shtml)
-- 2026-06-29 19:32 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/67385869.shtml)
-- 2026-06-29 19:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/0589961.shtml)
-- 2026-06-29 19:24 - [明天睁眼按时来取代我](http://www.share.kurohicncr.top/Article/details/384451380725.shtml)
+- 2026-06-29 19:35 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/204463950.shtml)
+- 2026-06-29 19:36 - [夫妻生活太无聊，所以我……](https://www.blog.kurohicncr.top/Article/details/278005928.shtml)
+- 2026-06-29 19:25 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/75193.shtml)
+- 2026-06-29 19:52 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.minike.top/Article/details/3523529115.shtml)
+- 2026-06-29 19:33 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/14783757.shtml)
+- 2026-06-29 19:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/96569223174.shtml)
+- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/18975601550.shtml)
+- 2026-06-29 19:39 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/19798436.shtml)
+- 2026-06-29 19:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/13671880.shtml)
+- 2026-06-29 19:26 - [黄金也扛不住了](http://www.share.minike.top/Article/details/9454481941.shtml)
+- 2026-06-29 19:45 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/159298148171.shtml)
+- 2026-06-29 19:49 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/2012948.shtml)
+- 2026-06-29 19:27 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/90891039.shtml)
+- 2026-06-29 19:37 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/811866451620.shtml)
+- 2026-06-29 19:45 - [逆天祖国人](https://www.blog.minike.top/Article/details/43855464214.shtml)

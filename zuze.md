@@ -1,61 +1,58 @@
-# 中国互联网金融协会召开成立十周年工作座谈会
+# 李强会见塔吉克斯坦总统拉赫蒙
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-来源：中国互联网金融协会 2026年是国家“十五五”规划开局之年，也是中国互联网金融协会成立十周年。为回顾总结协会十年发展历程，更好助力数字金融高质量发展，近日，协会在京召开“十五五”数字金融高质量发展暨成立十周年工作座谈会。中国人民银行党委委员、副行长陶玲出席会议并讲话。会议由协会会长朱苏荣主持。协会党委书记、秘书长马超作工作报告。中国人民银行相关司局负责同志、协会党委班子成
+新华社北京5月12日电 5月12日上午，国务院总理李强在北京人民大会堂会见来华进行国事访问的塔吉克斯坦总统拉赫蒙。 李强表示，当前，在两国元首战略引领下，双方正紧密协作，努力在更高水平上构建中塔命运共同体。习近平主席将同总统先生举行会晤，就持续深化中塔关系擘画新的蓝图。中方愿同塔方进一步筑牢政治互信，加大在涉及彼此核心利益问题上的相互支持，坚决反对任何外部势力干涉，推动中塔新时
 
 ## 正文
 
-来源：中国互联网金融协会 2026年是国家“十五五”规划开局之年，也是中国互联网金融协会成立十周年。
+新华社北京5月12日电 5月12日上午，国务院总理李强在北京人民大会堂会见来华进行国事访问的塔吉克斯坦总统拉赫蒙。
 
-为回顾总结协会十年发展历程，更好助力数字金融高质量发展，近日，协会在京召开“十五五”数字金融高质量发展暨成立十周年工作座谈会。
+李强表示，当前，在两国元首战略引领下，双方正紧密协作，努力在更高水平上构建中塔命运共同体。
 
-中国人民银行党委委员、副行长陶玲出席会议并讲话。
+习近平主席将同总统先生举行会晤，就持续深化中塔关系擘画新的蓝图。
 
-会议由协会会长朱苏荣主持。
+中方愿同塔方进一步筑牢政治互信，加大在涉及彼此核心利益问题上的相互支持，坚决反对任何外部势力干涉，推动中塔新时代全面战略合作伙伴关系不断走深走实，为两国发展振兴增添更多动力。
 
-协会党委书记、秘书长马超作工作报告。
+李强指出，中方愿同塔方继续发挥政府间经贸合作委员会作用，稳步扩大贸易规模，提升投资合作质效，深化矿产资源、绿色产业、数字经济、基础设施等领域合作，更好服务两国现代化建设。
 
-中国人民银行相关司局负责同志、协会党委班子成员及会员机构代表参加会议。
+中方愿进口塔方更多优质产品，鼓励更多有实力的中资企业赴塔投资。
 
-陶玲指出，十年来，中国人民银行以习近平新时代中国特色社会主义思想为指导，认真落实党中央国务院决策部署，推动中国互联网金融协会走中国特色金融发展之路，以强监管、防风险、促发展为主线，敦促互联网金融行业深刻汲取风险教训，强化金融运行规律认识，依法合规经营，全面接受金融监管。
+双方要继续深化文化、教育、卫生、地方等领域交流合作，加快推进互设文化中心，进一步夯实两国友好的民意基础。
 
-下一步，中国互联网金融协会要立足全国性行业自律组织定位，进一步健全自身治理机制，完善行业自律制度，强化行业自律功能，助力金融监管；要带领广大会员机构，严格树立法治理念，健全公司治理和内部管理，规范经营行为，加强风险防控，促进行业规范健康发展，服务经济社会高质量发展。
+中塔同为全球南方重要力量，应当密切在联合国、上合组织、中国－中亚机制等平台协调配合，推动各方一道维护多边主义、促进开放共赢，构建更加公正合理的全球治理体系。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 19:42 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 19:35 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 19:32 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 19:34 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 19:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 19:21 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 19:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 19:19 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 19:44 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 19:28 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 19:33 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 19:38 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 19:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 19:28 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 19:45 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 19:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 19:27 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 19:38 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 19:34 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 19:41 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 19:29 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 19:35 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 19:53 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 19:38 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 19:35 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 19:31 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/53334.shtml)
-- 2026-06-29 19:23 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/13780013.shtml)
-- 2026-06-29 19:31 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/25787471.shtml)
-- 2026-06-29 19:24 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/083232.shtml)
-- 2026-06-29 19:29 - [刘冰任河南南阳市代市长](http://www.blog.minike.top/Article/details/711134405056.shtml)
-- 2026-06-29 19:20 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/35641302451.shtml)
-- 2026-06-29 19:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/155575775.shtml)
-- 2026-06-29 19:30 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/1702603682.shtml)
-- 2026-06-29 19:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/97562955923.shtml)
-- 2026-06-29 19:46 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/8989414871.shtml)
-- 2026-06-29 19:19 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/471227924.shtml)
-- 2026-06-29 19:32 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.kurohicncr.top/Article/details/191184038166.shtml)
-- 2026-06-29 19:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/549613843637.shtml)
-- 2026-06-29 19:20 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/6498024.shtml)
-- 2026-06-29 19:30 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/445095.shtml)
+- 2026-06-29 19:45 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/964407468856.shtml)
+- 2026-06-29 19:48 - [美议员呼吁断供以色列政府](http://www.share.kurohicncr.top/Article/details/17276630.shtml)
+- 2026-06-29 19:44 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/332407087901.shtml)
+- 2026-06-29 19:25 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/57071911288.shtml)
+- 2026-06-29 19:47 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/3168799.shtml)
+- 2026-06-29 19:26 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/541317999.shtml)
+- 2026-06-29 19:30 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/1785191.shtml)
+- 2026-06-29 19:24 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/736497830.shtml)
+- 2026-06-29 19:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/21965038111.shtml)
+- 2026-06-29 19:49 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/218486.shtml)
+- 2026-06-29 19:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/3204967.shtml)
+- 2026-06-29 19:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/3754220.shtml)
+- 2026-06-29 19:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/69251.shtml)
+- 2026-06-29 19:52 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/152818250.shtml)
+- 2026-06-29 19:45 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/646651556858.shtml)

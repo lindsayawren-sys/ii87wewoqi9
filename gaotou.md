@@ -1,56 +1,61 @@
-# 夏天租房没空调用？这几个避坑技巧一定要知道
+# 东西问丨达巍：今年有机会为“调适”中美关系构建新基础
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-“租房遇见这空调天塌了”——这个话题最近登上了微博热搜，阅读量接近75万，引发了无数租客的共鸣。随着气温一天天升高，很多租客发现自己租的房子空调要么坏了房东不肯修，要么干脆没装空调，找房东沟通要么被敷衍要么直接拉黑。夏天三十多度的高温天里回到家像蒸笼一样，这种体验确实让人崩溃。租房本来就是消费者相对弱势的群体，遇到不负责任的房东更是有苦说不出。 类似的情况其实在租房市场并不少见
+中新社北京5月12日电 题：今年有机会为“调适”中美关系构建新基础 ——专访清华大学战略与安全研究中心主任达巍 中新社记者 王梦瑶 美国总统特朗普将于5月13日至15日对中国进行国事访问。对于当前动荡的国际秩序而言，此次中美两个大国间的元首会晤意义非凡。 近日，清华大学战略与安全研究中心主任达巍就中美关系、中东局势等国际热点议题接受中新社“东西问”专访。他认为，当前中美关系核心
 
 ## 正文
 
-“租房遇见这空调天塌了”——这个话题最近登上了微博热搜，阅读量接近75万，引发了无数租客的共鸣。
+中新社北京5月12日电 题：今年有机会为“调适”中美关系构建新基础 ——专访清华大学战略与安全研究中心主任达巍 中新社记者 王梦瑶 美国总统特朗普将于5月13日至15日对中国进行国事访问。
 
-随着气温一天天升高，很多租客发现自己租的房子空调要么坏了房东不肯修，要么干脆没装空调，找房东沟通要么被敷衍要么直接拉黑。
+对于当前动荡的国际秩序而言，此次中美两个大国间的元首会晤意义非凡。
 
-夏天三十多度的高温天里回到家像蒸笼一样，这种体验确实让人崩溃。
+近日，清华大学战略与安全研究中心主任达巍就中美关系、中东局势等国际热点议题接受中新社“东西问”专访。
 
-租房本来就是消费者相对弱势的群体，遇到不负责任的房东更是有苦说不出。
+他认为，当前中美关系核心任务是“调适”，今年有很好的机会构建两国关系新基础；从当前国际局势来看，尽管冲突风险有所上升，但对世界来说，核威慑与经济相互依存仍是重要的和平“压舱石”；而中国发展的最大定力，始终源于自身。
 
-类似的情况其实在租房市场并不少见。
+现将访谈实录整理如下： 中新社记者：全球化智库近期将中美关系描述为“战略稳定”，您怎么看当前的中美关系？
 
-除了空调问题，还有入住后发现家电全是坏的、押金被各种理由克扣、合同到期后房东以“房屋损耗”为由拒不退还押金、二房东卷款跑路留下烂摊子……每一个踩过坑的租客都能讲出一段血泪史。
+即将到来的中美元首会晤将对双边关系带来何种影响？
 
-问题的根源在于，租房前大多数人的注意力都集中在价格和地段上，对中介资质、房东信用、房屋真实状况以及周边配套这些关键信息缺乏足够的了解。
+达巍：战略稳定这个概念有不同的含义。
 
-等到住进去发现问题再想维权，往往已经处于被动局面了。
+在学术上，这个词是有固定意义的，这是指两个或多个核大国之间，各方都没有强烈动机首先使用核武器、发动战略打击，或通过扩军来获得决定性优势的一种安全状态。
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 19:30 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 19:29 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 19:26 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 19:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 19:36 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 19:30 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 19:19 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 19:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 19:25 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 19:50 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 19:29 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-29 19:31 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-29 19:35 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 19:30 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 19:48 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 19:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 19:47 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 19:39 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 19:46 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 19:36 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 19:28 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 19:48 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 19:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 19:30 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [爱很美味](https://www.blog.minike.top/Article/details/354696.shtml)
-- 2026-06-29 19:37 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/1842022456.shtml)
-- 2026-06-29 19:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/8668096372.shtml)
-- 2026-06-29 19:19 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/52682226.shtml)
-- 2026-06-29 19:36 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/95213.shtml)
-- 2026-06-29 19:36 - [一生一世](https://www.share.kurohicncr.top/Article/details/5389018.shtml)
-- 2026-06-29 19:32 - [普京为何喊话俄乌都别打对方纵深](https://www.share.kurohicncr.top/Article/details/421364439.shtml)
-- 2026-06-29 19:20 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/048197468947.shtml)
-- 2026-06-29 19:26 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/238171116.shtml)
-- 2026-06-29 19:39 - [黄金也扛不住了](https://www.share.minike.top/Article/details/15831855.shtml)
-- 2026-06-29 19:44 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/13606512.shtml)
-- 2026-06-29 19:20 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/59781825407.shtml)
-- 2026-06-29 19:26 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/66601932070.shtml)
-- 2026-06-29 19:47 - [王楚钦开门红](http://www.share.minike.top/Article/details/934726649.shtml)
-- 2026-06-29 19:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/043839225.shtml)
+- 2026-06-29 19:53 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/813002034.shtml)
+- 2026-06-29 19:29 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/8169240.shtml)
+- 2026-06-29 19:24 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/328822.shtml)
+- 2026-06-29 19:34 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/851207530515.shtml)
+- 2026-06-29 19:47 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/39034556.shtml)
+- 2026-06-29 19:43 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/381034013.shtml)
+- 2026-06-29 19:24 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/41449947.shtml)
+- 2026-06-29 19:27 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/748183830629.shtml)
+- 2026-06-29 19:36 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/2220620.shtml)
+- 2026-06-29 19:47 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.blog.kurohicncr.top/Article/details/6612453.shtml)
+- 2026-06-29 19:32 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/70017813955.shtml)
+- 2026-06-29 19:40 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/99730558.shtml)
+- 2026-06-29 19:25 - [周生如故](http://www.blog.kurohicncr.top/Article/details/4174581.shtml)
+- 2026-06-29 19:37 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/0951075.shtml)
+- 2026-06-29 19:41 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/0496999942.shtml)

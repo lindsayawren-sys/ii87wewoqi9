@@ -1,60 +1,51 @@
-# 博通财报暴雷：AI指引未达顶标，股价暴跌15%
+# 韩国股市反弹涨超2% 散户买入抵消了外资抛售影响
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。 美东时间6月3日盘后，博通公布了2026财年第二财季业绩。数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，
+周三，韩国股市快速收复跌幅并向新高攀升，当地散户投资者趁着外国基金抛售潮的机会买入股票，基准股指 Kospi 在早盘下跌 3.2% 后，一度上涨 逾2%。存储芯片巨头三星电子股价同步止跌回升，交易投资者暂时淡化其与最大工会薪资谈判破裂带来的担忧情绪。此番快速反转，已是全球最热股市波动剧烈的又一缩影。受人工智能行情带动，Kospi 指数年内涨幅已超 80%；即便进入熊市区间，其年
 
 ## 正文
 
-尽管交出了一份创纪录的财报，美国芯片巨头博通却在盘后交易中股价暴跌15%，上演了经典的“买预期，卖事实”行情。
+周三，韩国股市快速收复跌幅并向新高攀升，当地散户投资者趁着外国基金抛售潮的机会买入股票，基准股指 Kospi 在早盘下跌 3.2% 后，一度上涨 逾2%。
 
-美东时间6月3日盘后，博通公布了2026财年第二财季业绩。
+存储芯片巨头三星电子股价同步止跌回升，交易投资者暂时淡化其与最大工会薪资谈判破裂带来的担忧情绪。
 
-数据显示，公司营收达221.9亿美元，同比增长48%，创下历史新高；调整后每股收益为2.44美元，高于市场预期的2.40美元。
+此番快速反转，已是全球最热股市波动剧烈的又一缩影。
 
-其中，备受关注的AI半导体业务表现尤为抢眼，收入高达108亿美元，同比激增143%，成为推动增长的核心引擎。
+受人工智能行情带动，Kospi 指数年内涨幅已超 80%；即便进入熊市区间，其年内表现仍稳居全球前列。
 
-然而，亮眼的数据并未能阻止股价“跳水”。
-
-博通当季总营收略低于分析师预期的222.7亿美元，同时基础设施软件业务营收71.8亿美元，也未达到73.2亿美元的预期。
-
-但真正导致市场抛售的，是管理层对未来业绩的谨慎展望。
-
-尽管博通预计第三财季总营收将达294亿美元，超出预期，但其核心的AI芯片收入指引为160亿美元，低于部分分析师预期的172亿美元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 19:42 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 19:40 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 19:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 19:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 19:33 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 19:22 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 19:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 19:28 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 19:36 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 19:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 19:35 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 19:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 19:26 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 19:41 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 19:31 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 19:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 19:30 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 19:52 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 19:30 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 19:28 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 19:47 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 19:33 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 19:53 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 19:39 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/8819396671.shtml)
-- 2026-06-29 19:18 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/996778099.shtml)
-- 2026-06-29 19:34 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/227657317527.shtml)
-- 2026-06-29 19:45 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/3519587.shtml)
-- 2026-06-29 19:39 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/9112691.shtml)
-- 2026-06-29 19:25 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/672028.shtml)
-- 2026-06-29 19:18 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/899190.shtml)
-- 2026-06-29 19:24 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/897721.shtml)
-- 2026-06-29 19:31 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/22499631097.shtml)
-- 2026-06-29 19:18 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/20566.shtml)
-- 2026-06-29 19:26 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/651387.shtml)
-- 2026-06-29 19:28 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/1600211721.shtml)
-- 2026-06-29 19:38 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/17962622522.shtml)
-- 2026-06-29 19:31 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/6015377.shtml)
-- 2026-06-29 19:36 - [V8](https://www.share.minike.top/Article/details/0078423.shtml)
+- 2026-06-29 19:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/92939.shtml)
+- 2026-06-29 19:26 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/57315.shtml)
+- 2026-06-29 19:40 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/88876738.shtml)
+- 2026-06-29 19:27 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/32361.shtml)
+- 2026-06-29 19:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/47552.shtml)
+- 2026-06-29 19:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/210460939.shtml)
+- 2026-06-29 19:37 - [一生一世](https://www.blog.kurohicncr.top/Article/details/06737614440.shtml)
+- 2026-06-29 19:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/004826.shtml)
+- 2026-06-29 19:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/4485361.shtml)
+- 2026-06-29 19:48 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/67330.shtml)
+- 2026-06-29 19:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/3410653446.shtml)
+- 2026-06-29 19:47 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/133055061858.shtml)
+- 2026-06-29 19:40 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/15310.shtml)
+- 2026-06-29 19:42 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/10942456186.shtml)
+- 2026-06-29 19:51 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/66532534201.shtml)

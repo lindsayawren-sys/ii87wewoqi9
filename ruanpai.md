@@ -1,61 +1,59 @@
-# 京津冀等地有强对流 黑龙江吉林及江南华南等地有较强降水
+# 第二十二届文博会将开幕 聚焦文化产业数智化赋能
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据中央气象台网站消息，昨日，贵州、江西、安徽、湖南等地出现暴雨或大暴雨，河北、山东等地出现明显风雹。预计4日至5日，西南地区南部、江南、华南及东北、华北等地有较强降雨并伴有局地强对流天气，关注局地强降雨可能引发的山洪、地质灾害，以及降雨和强对流天气对城市运行、农业生产、交通运输等的影响；6日夜间起，南方将有新一轮大范围降雨过程，关注降雨叠加影响及暴雨灾害风险。
+中新网深圳5月12日电 (记者 索有为)记者12日从深圳市政府新闻办举行的新闻发布会上获悉，第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)将于5月21日至25日在深圳国际会展中心举行，本届文博会展览面积16万平方米，超12万件文化产品亮相。 本届文博会聚焦文化产业数智化赋能与新质生产力培育，汇聚国内外高端文化产业资源与创新要素，以“创新场景落地、前沿技术赋能、全
 
 ## 正文
 
-中新网6月4日电 据中央气象台网站消息，昨日，贵州、江西、安徽、湖南等地出现暴雨或大暴雨，河北、山东等地出现明显风雹。
+中新网深圳5月12日电 (记者 索有为)记者12日从深圳市政府新闻办举行的新闻发布会上获悉，第二十二届中国(深圳)国际文化产业博览交易会(下称“文博会”)将于5月21日至25日在深圳国际会展中心举行，本届文博会展览面积16万平方米，超12万件文化产品亮相。
 
-预计4日至5日，西南地区南部、江南、华南及东北、华北等地有较强降雨并伴有局地强对流天气，关注局地强降雨可能引发的山洪、地质灾害，以及降雨和强对流天气对城市运行、农业生产、交通运输等的影响；6日夜间起，南方将有新一轮大范围降雨过程，关注降雨叠加影响及暴雨灾害风险。
+本届文博会聚焦文化产业数智化赋能与新质生产力培育，汇聚国内外高端文化产业资源与创新要素，以“创新场景落地、前沿技术赋能、全球资源聚合、消费体验升级”为核心，实现从“产业展示”到“价值共创”的能级跃升，致力于打造一届更具前沿时尚、数智赋能、交易实效的文化产业盛会。
 
-京津冀等地有强对流 未来三天，京津冀等地部分地区有小到中雨或雷阵雨，部分地区伴有雷暴大风或冰雹等强对流天气。
+据深圳市委宣传部常务副部长曾相莱介绍，本届展会共组织6312家政府组团、文化机构和企业线上线下参展。
 
-中央气象台6月4日6时继续发布强对流天气黄色预警：6月4日8时至5日8时，华北等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，河北中部、北京西南部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上；江南东部和南部、西南地区南部、华南西部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，浙江中北部、广西中南部等地的部分地区小时雨量大于50毫米，最大可达60毫米以上。
+全球65个国家和地区、310家海外展商线上线下参展，其中42个国家和地区的148家企业线下参展。
 
-黑龙江吉林及江南华南等地有较强降水 6月4日至5日，东北地区东部、云贵高原、江南、华南等地的部分地区将有大到暴雨，局地有大暴雨，并伴有短时强降水等强对流天气。
+深圳市文化广电旅游体育局局长刘蕾表示，本届文博会整体呈现“参会阵容更强、国际朋友圈更广、科技含量更浓、文化交易更实”的鲜明特质。
 
-中央气象台6月4日6时继续发布暴雨蓝色预警：预计，6月4日8时至5日8时，黑龙江东部、吉林东部以及内蒙古东南部、河北东部、浙江西部和东北部、江西中部和东北部、湖南南部、广西东北部和西南部、云南北部和南部、四川西部和南部、西藏东南部、台湾岛南部等地部分地区有大到暴雨，其中，黑龙江东北部、湖南南部、云南东南部、广西东北部和西南部等地局地有大暴雨(100～150毫米)。
+据介绍，本届展会市场化组展质量和数量取得新突破，预计397家国内外头部及品牌企业同台亮相，同比增长31%；预计将有来自110个国家和地区、3.5万名海外专业观众参会；首次设立APEC经济体展区，并在展期内举办“鲲鹏会·春华”国际经贸交流活动，呈现多元文化交融的精彩成果。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
+本届文博会重点设置人工智能展区、AI未来科技展区等。
 
-国内未来三天具体预报 6月4日8时至5日8时，东北地区东部、江南东北部和南部、川西高原南部、西南地区南部、华南北部和西部、台湾岛等地部分地区有中到大雨，其中，黑龙江东部、吉林东部、湖南南部、广西西南部和东北部、云南南部、西藏东南部、台湾岛南部等地部分地区有暴雨或大暴雨(100～150毫米)。
+在北京亦庄马拉松超越人类半马世界纪录而火爆出圈的荣耀“闪电”机器人，以及众擎、乐聚、元气仔、数字华夏等机器人将亮相，全方位增强展会科技感、沉浸感与体验感。
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 19:21 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 19:24 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 19:23 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 19:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 19:21 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 19:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 19:40 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 19:32 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 19:38 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 19:46 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 19:24 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 19:22 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 19:42 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 19:25 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 19:50 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 19:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-29 19:24 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 19:52 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 19:36 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 19:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 19:49 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 19:51 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 19:44 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 19:34 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 19:30 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 19:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 19:32 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [速度与激情9](https://www.share.minike.top/Article/details/10606984575.shtml)
-- 2026-06-29 19:34 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/005967225297.shtml)
-- 2026-06-29 19:20 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/48494.shtml)
-- 2026-06-29 19:41 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/696577.shtml)
-- 2026-06-29 19:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/8978935977.shtml)
-- 2026-06-29 19:45 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/1038808.shtml)
-- 2026-06-29 19:45 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/06487425475.shtml)
-- 2026-06-29 19:26 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/9099820.shtml)
-- 2026-06-29 19:18 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/5735333.shtml)
-- 2026-06-29 19:22 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/37564.shtml)
-- 2026-06-29 19:34 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/4426675448.shtml)
-- 2026-06-29 19:39 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/660916317580.shtml)
-- 2026-06-29 19:19 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/38124.shtml)
-- 2026-06-29 19:44 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/2038064639.shtml)
-- 2026-06-29 19:18 - [首个靠AI躺赢的国家](http://www.share.minike.top/Article/details/534938210.shtml)
+- 2026-06-29 19:35 - [T1零封KC MSI](http://www.share.minike.top/Article/details/381189905178.shtml)
+- 2026-06-29 19:49 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/60044.shtml)
+- 2026-06-29 19:30 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/443372310.shtml)
+- 2026-06-29 19:48 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/988270.shtml)
+- 2026-06-29 19:29 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/4738791.shtml)
+- 2026-06-29 19:47 - [特朗普两大核心赌注将迎高院裁决](https://www.share.minike.top/Article/details/081160016268.shtml)
+- 2026-06-29 19:52 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/565014.shtml)
+- 2026-06-29 19:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/57410360.shtml)
+- 2026-06-29 19:36 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/1195371217.shtml)
+- 2026-06-29 19:37 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/27160654580.shtml)
+- 2026-06-29 19:33 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/054189248194.shtml)
+- 2026-06-29 19:36 - [Ella回应SHE何时合体](http://www.blog.kurohicncr.top/Article/details/7396036.shtml)
+- 2026-06-29 19:28 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/83400203.shtml)
+- 2026-06-29 19:49 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/839369326.shtml)
+- 2026-06-29 19:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/138532188.shtml)

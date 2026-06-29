@@ -1,58 +1,58 @@
-# 天津发布2025年生态环境公报 PM2.5年均浓度同比下降5%
+# 5月13日财经早餐：美联储年内加息概率攀升，金价承压，油价飙升近4%
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网天津6月4日电 (记者 周亚强)天津市政府新闻办3日举行2025年天津市生态环境状况公报新闻发布会。数据显示，2025年天津生态环境质量持续改善，PM2.5年均浓度36.2微克/立方米，同比下降5%，较2020年下降25%。 天津市生态环境局党组书记王智毅介绍，今年六五环境日主题为“全面绿色转型，共建美丽中国”。大气环境方面，2025年全市优良天数比率77%，同比增加3.
+文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。 日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0
 
 ## 正文
 
-中新网天津6月4日电 (记者 周亚强)天津市政府新闻办3日举行2025年天津市生态环境状况公报新闻发布会。
+文章来源：汇通财经 周三（北京时间5月13日）亚市早盘，现货黄金交投于4718.40美元/盎司附近，金价周二承压，市场对通胀及全球利率可能上升的担忧加剧，美联储年内加息概率升至34.7%；美原油交投于102美元/桶附近，油价周二上涨近4%，美伊博弈持续，伊朗称如果再次遭到袭击，或将铀浓缩丰度提升至90%。
 
-数据显示，2025年天津生态环境质量持续改善，PM2.5年均浓度36.2微克/立方米，同比下降5%，较2020年下降25%。
+日内重点关注 股市 美股标普500指数和纳斯达克指数周二收跌，分别下跌0.16%和0.71%，从历史高位回落，道琼斯指数则微涨0.11%。
 
-天津市生态环境局党组书记王智毅介绍，今年六五环境日主题为“全面绿色转型，共建美丽中国”。
+4月消费者价格指数涨幅超出预期，加之伊朗局势导致美伊停火协议日益脆弱，投资者在财报季接近尾声时获利了结。
 
-大气环境方面，2025年全市优良天数比率77%，同比增加3.8个百分点，较2020年增加10.1个百分点；重污染天数4天，较2020年减少7天。
+科技股疲软拖累纳指，而医疗保健股带动道指上涨。
 
-水环境方面，地表水国考断面优良水体占比55.6%，无劣V类水质断面；近岸海域优良水质比例73.3%。
+通胀数据受伊朗战争封锁霍尔木兹海峡影响，市场对美联储今年降息的期望几乎破灭，加息概率上升，CME FedWatch工具显示12月加息25个基点的概率为30.5%。
 
-土壤环境保持安全利用。
+个股方面，Zebra Technologies上调年度销售增长预期后大涨11.4%；Humana因目标价上调36%上涨7.7%；GameStop遭eBay拒绝收购要约后下跌3.5%；Hims & Hers Health因营收不及预期且意外亏损暴跌14.1%；Venture Global上调核心利润预期大涨14.2%。
 
-绿色转型方面，累计243家企业获评国家级绿色制造示范单位，煤炭消费总量控制在3200万吨以内，超额完成“十四五”减煤10%目标，新能源电力装机规模是2020年的5.1倍。
+金市 金价周二承压下跌，现货黄金下跌0.41%至每盎司4715.07美元，主要因伊朗和平协议希望破灭推高油价，加剧市场对通胀及全球利率可能上升的担忧。
 
-天津港铁矿石、焦炭清洁运输比例达77.5%。
+道明证券策略师表示，油价上涨增加了美联储等央行可能不得不加息应对滞胀的风险，从而对黄金构成压力。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 19:42 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 19:24 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 19:47 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 19:20 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 19:39 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 19:38 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 19:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 19:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 19:20 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 19:42 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-29 19:46 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 19:40 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 19:35 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 19:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 19:47 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 19:44 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 19:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 19:25 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 19:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 19:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 19:41 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 19:47 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 19:32 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/7171727.shtml)
-- 2026-06-29 19:40 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/769355568.shtml)
-- 2026-06-29 19:19 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/791284.shtml)
-- 2026-06-29 19:45 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/66799699.shtml)
-- 2026-06-29 19:44 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/5331960860.shtml)
-- 2026-06-29 19:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/12695.shtml)
-- 2026-06-29 19:37 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/1760814628.shtml)
-- 2026-06-29 19:48 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/49993097208.shtml)
-- 2026-06-29 19:45 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/400780325002.shtml)
-- 2026-06-29 19:18 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/017200583.shtml)
-- 2026-06-29 19:27 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/634634.shtml)
-- 2026-06-29 19:22 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/9609805455.shtml)
-- 2026-06-29 19:39 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/09026835782.shtml)
-- 2026-06-29 19:19 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/7424538.shtml)
-- 2026-06-29 19:45 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/9751325779.shtml)
+- 2026-06-29 19:42 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/60560043.shtml)
+- 2026-06-29 19:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/330360272473.shtml)
+- 2026-06-29 19:25 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/04863.shtml)
+- 2026-06-29 19:36 - [急先锋](https://www.share.kurohicncr.top/Article/details/93971.shtml)
+- 2026-06-29 19:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/32628408781.shtml)
+- 2026-06-29 19:53 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.minike.top/Article/details/34993515.shtml)
+- 2026-06-29 19:41 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/35532.shtml)
+- 2026-06-29 19:49 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/2751453259.shtml)
+- 2026-06-29 19:51 - [时光音乐会](https://www.share.minike.top/Article/details/5920295.shtml)
+- 2026-06-29 19:42 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/5589750.shtml)
+- 2026-06-29 19:25 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/1328680074.shtml)
+- 2026-06-29 19:28 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/0917789120.shtml)
+- 2026-06-29 19:27 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/1889460.shtml)
+- 2026-06-29 19:52 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/6645931.shtml)
+- 2026-06-29 19:39 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/27046467.shtml)

@@ -1,60 +1,59 @@
-# Liquid Mercury全面整合BitGo，为全线产品提供机构级托管服务
+# 剂泰科技-P首挂上市 早盘上涨175.05%
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-数字资产市场技术提供商Liquid Mercury LLC周三宣布，选择BitGo Holdings， Inc．旗下子公司BitGo Inc．及受美国货币监理署监管的BitGo Bank & Trust， N.A．作为其“加密货币即服务”提供商。此次战略整合将合格托管、冷存储和合规框架引入Liquid Mercury全部产品线，深化了双方原有的技术合作关系。 根据合作协议，Bi
+剂泰科技-P（07666）首挂上市，公告显示，每股定价10.5港元，共发行2.01亿股股份，每手500股，所得款项净额约为19.93亿港元。截至发稿，股价上涨175.05%，现报28.88港元，成交额13.90亿港元。 招股书显示，剂泰科技是一家AI纳米材料创新企业，致力于有效载荷在不同生命体中的递送与应用。公司核心平台NanoForge整合了大规模脂质库、人工智能基础模型、M
 
 ## 正文
 
-数字资产市场技术提供商Liquid Mercury LLC周三宣布，选择BitGo Holdings， Inc．旗下子公司BitGo Inc．及受美国货币监理署监管的BitGo Bank & Trust， N.A．作为其“加密货币即服务”提供商。
+剂泰科技-P（07666）首挂上市，公告显示，每股定价10.5港元，共发行2.01亿股股份，每手500股，所得款项净额约为19.93亿港元。
 
-此次战略整合将合格托管、冷存储和合规框架引入Liquid Mercury全部产品线，深化了双方原有的技术合作关系。
+截至发稿，股价上涨175.05%，现报28.88港元，成交额13.90亿港元。
 
-根据合作协议，BitGo的加密货币即服务基础设施将为Liquid Mercury的三款核心产品提供支持。
+招股书显示，剂泰科技是一家AI纳米材料创新企业，致力于有效载荷在不同生命体中的递送与应用。
 
-其中，Mercury Pro面向专业和机构交易者，支持现货、期权、期货及永续合约交易，其结算流程将无缝接入BitGo合格托管体系以降低交易对手风险；Mercury OTC为场外经纪商和流动性提供商的自动化电子交易平台提供结算支持；Mercury RWA则聚焦于体育投资、另类资产等代币化现实世界资产的发行、交易与管理。
+公司核心平台NanoForge整合了大规模脂质库、人工智能基础模型、METiS智能体、量子化学与分子动力学模拟及AI驱动高通量筛选平台，并在此基础上开发AiTEM、AiLNP及AiRNA三大解决方案，用于先进纳米材料及相关有效载荷的设计、优化与验证。
 
-BitGo的基础设施将提供多重签名冷存储方案、最高达2.5亿美元的行业领先保险保障，以及全面的合规框架。
+管线方面，剂泰科技已布局超过10款产品，覆盖中枢神经、肿瘤、免疫、代谢等方向。
 
-Liquid Mercury首席执行官Tony Saliba表示：“随着我们持续扩大平台规模并吸引机构级客户，托管不仅是功能，更是基石。
+其中，MTS-004为公司进展较快的候选产品。
 
-BitGo在规模化数字资产安全方面的记录、监管地位和先进技术使其成为我们的明确选择。
+公开资料显示，该产品用于假性延髓情绪失控相关治疗方向，并已完成III期临床研究主要终点；公司还通过产品授权和平台合作推进商业化验证。
 
-我们的客户要求与传统市场同等标准的机构级基础设施，而BitGo恰恰能满足这一需求。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 19:21 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 19:33 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 19:26 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 19:23 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 19:37 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 19:30 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 19:22 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 19:46 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 19:26 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-29 19:47 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 19:47 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 19:34 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 19:32 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 19:49 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 19:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 19:28 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 19:24 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 19:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 19:51 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 19:45 - [一台空调背后的全球化逻辑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 19:27 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 19:51 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 19:29 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 19:50 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 19:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 19:32 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [主力抛售电子和通信板块](https://www.blog.kurohicncr.top/Article/details/61972.shtml)
-- 2026-06-29 19:19 - [东方风云榜](http://www.share.minike.top/Article/details/1861788.shtml)
-- 2026-06-29 19:39 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/05213509.shtml)
-- 2026-06-29 19:26 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/933638.shtml)
-- 2026-06-29 19:25 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/9364388.shtml)
-- 2026-06-29 19:30 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/781075107.shtml)
-- 2026-06-29 19:47 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/1204097239.shtml)
-- 2026-06-29 19:42 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.minike.top/Article/details/33757.shtml)
-- 2026-06-29 19:22 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/99033710077.shtml)
-- 2026-06-29 19:21 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/024826361.shtml)
-- 2026-06-29 19:23 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/73294778398.shtml)
-- 2026-06-29 19:30 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/193846.shtml)
-- 2026-06-29 19:44 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/560418105.shtml)
-- 2026-06-29 19:37 - [《贺子珍》](https://www.blog.minike.top/Article/details/996971484996.shtml)
-- 2026-06-29 19:23 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/54259.shtml)
+- 2026-06-29 19:29 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/759771.shtml)
+- 2026-06-29 19:28 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/95489.shtml)
+- 2026-06-29 19:42 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/3595719550.shtml)
+- 2026-06-29 19:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/217413.shtml)
+- 2026-06-29 19:41 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/0691783.shtml)
+- 2026-06-29 19:33 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/3244574993.shtml)
+- 2026-06-29 19:25 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/91487757.shtml)
+- 2026-06-29 19:34 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/35412.shtml)
+- 2026-06-29 19:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/214884121.shtml)
+- 2026-06-29 19:25 - [请回答王牌2019](https://www.share.minike.top/Article/details/644749018.shtml)
+- 2026-06-29 19:38 - [2026年，如果你有100万，你会怎么投资？](http://www.share.minike.top/Article/details/0671082.shtml)
+- 2026-06-29 19:24 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/644631698300.shtml)
+- 2026-06-29 19:35 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/797841.shtml)
+- 2026-06-29 19:50 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/26417434.shtml)
+- 2026-06-29 19:46 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/177176003177.shtml)

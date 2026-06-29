@@ -1,60 +1,60 @@
-# 美国5月服务业活动有所回升 企业面临投入成本上涨
+# 6家白酒企直销收入1042亿元，营收占比增超3个百分点，不断加码的背后，是酒厂与经销商的“利润争夺”？
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-5月份，美国服务业活动有所回升，原因是企业为应对与伊朗的战争可能引发的短缺和价格上涨，纷纷提前下单并补充库存。 供应管理协会周三表示，其非制造业采购经理人指数（PMI）上月从4月的53.6升至54.5。路透调查的经济学家此前预计，服务业PMI将升至53.8。 读数高于50表明服务业处于扩张状态，该行业占美国经济活动的三分之二以上。美国与以色列针对伊朗的三个月战争严重扰乱了大宗商
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|叶峰 近日，白酒上市公司全部公布了2025年年度业绩。20家A股白酒上市公司中，仅山西汾酒、*ST椰岛营收净利“双增”。行业整体寒意弥漫，去库存、稳价格成为摆在每一家酒企面前的紧迫课题。 压力之下，渠道结构的深层变化正在发生。 《每日经济新闻·将进酒》记者统计发现，在整体业绩承压下滑的背后，直
 
 ## 正文
 
-5月份，美国服务业活动有所回升，原因是企业为应对与伊朗的战争可能引发的短缺和价格上涨，纷纷提前下单并补充库存。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|熊嘉楠 每经编辑|叶峰 近日，白酒上市公司全部公布了2025年年度业绩。
 
-供应管理协会周三表示，其非制造业采购经理人指数（PMI）上月从4月的53.6升至54.5。
+20家A股白酒上市公司中，仅山西汾酒、*ST椰岛营收净利“双增”。
 
-路透调查的经济学家此前预计，服务业PMI将升至53.8。
+行业整体寒意弥漫，去库存、稳价格成为摆在每一家酒企面前的紧迫课题。
 
-读数高于50表明服务业处于扩张状态，该行业占美国经济活动的三分之二以上。
+压力之下，渠道结构的深层变化正在发生。
 
-美国与以色列针对伊朗的三个月战争严重扰乱了大宗商品的运输，并推高了包括能源、铝和化肥在内的商品价格。
+《每日经济新闻·将进酒》记者统计发现，在整体业绩承压下滑的背后，直销渠道（含新兴渠道、电商等）却有着反向向上的趋势。
 
-服务业PMI的上升与美国供应管理协会（ISM）本周报告的制造业活动增长相呼应。
+以贵州茅台、五粮液（维权）、山西汾酒、泸州老窖、洋河股份、古井贡酒等六家头部白酒上市公司为例，直销收入合计达到1042亿元。
 
-调查显示，服务业企业新订单指数从4月的53.5跃升至57.3。
+直销渠道总收入虽有微降，但其降幅明显小于整体营收降幅，收入占比相较于上一年提升约3个百分点；有酒企直销渠道占比甚至首次超过了经销渠道。
 
-服务业库存指标从上月的53.1飙升至62.5。
+消费者主权时代的到来，各大酒厂纷纷通过加码直营渠道“直面C端”“触达C端”。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 19:40 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-29 19:28 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 19:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 19:44 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 19:30 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-29 19:25 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 19:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 19:45 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 19:20 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-29 19:46 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-29 19:30 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 19:27 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 19:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 19:46 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 19:43 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 19:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 19:34 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-29 19:34 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 19:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
+- 2026-06-29 19:25 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 19:30 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 19:47 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 19:44 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 19:26 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-29 19:43 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 19:44 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 19:31 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:36 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/11945680.shtml)
-- 2026-06-29 19:18 - [上海小区惊现鳄鱼](http://www.blog.minike.top/Article/details/503132663144.shtml)
-- 2026-06-29 19:35 - [绘画区你赢了](https://www.share.minike.top/Article/details/338942843.shtml)
-- 2026-06-29 19:45 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/201956206.shtml)
-- 2026-06-29 19:42 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/9333177.shtml)
-- 2026-06-29 19:30 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/8304446994.shtml)
-- 2026-06-29 19:36 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/58207440731.shtml)
-- 2026-06-29 19:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/13888.shtml)
-- 2026-06-29 19:47 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/45779840942.shtml)
-- 2026-06-29 19:18 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/3173959067.shtml)
-- 2026-06-29 19:30 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/761454.shtml)
-- 2026-06-29 19:28 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/16560813.shtml)
-- 2026-06-29 19:24 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/77345.shtml)
-- 2026-06-29 19:39 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/3543181894.shtml)
-- 2026-06-29 19:40 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/1873063.shtml)
+- 2026-06-29 19:26 - [起风了](http://www.blog.minike.top/Article/details/26120.shtml)
+- 2026-06-29 19:34 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/1630519.shtml)
+- 2026-06-29 19:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/927647.shtml)
+- 2026-06-29 19:42 - [扫黑风暴](https://www.share.minike.top/Article/details/077142.shtml)
+- 2026-06-29 19:32 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/214566277632.shtml)
+- 2026-06-29 19:43 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/8312436.shtml)
+- 2026-06-29 19:51 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/625230558064.shtml)
+- 2026-06-29 19:49 - [金牌调解](https://www.blog.minike.top/Article/details/46973172.shtml)
+- 2026-06-29 19:53 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/34905790.shtml)
+- 2026-06-29 19:50 - [女心理师](http://www.share.minike.top/Article/details/8193486619.shtml)
+- 2026-06-29 19:30 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/92836221091.shtml)
+- 2026-06-29 19:31 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/3259708894.shtml)
+- 2026-06-29 19:50 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/63128211.shtml)
+- 2026-06-29 19:42 - [河南高院审委会原委员曲海滨被查](http://www.share.kurohicncr.top/Article/details/466910.shtml)
+- 2026-06-29 19:37 - [首个靠AI躺赢的国家](https://www.blog.minike.top/Article/details/84290095.shtml)

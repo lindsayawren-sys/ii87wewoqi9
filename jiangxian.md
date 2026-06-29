@@ -1,58 +1,59 @@
-# CrowdStrike CEO：网络安全行业已迎来发展拐点
+# 宗馥莉罢免销售总经理，整合销售公司多科室
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-CrowdStrike首席执行官乔治・库尔茨在财报电话会议上表示，受人工智能技术迭代推动，网络攻防两端同步提速，本季度网络安全行业正式迎来行业拐点。 库尔茨提到，Anthropic 与 OpenAI 推出的新一代大模型，能够以远快于以往的速度识别各类软件漏洞并串联利用；AI 技术高速迭代倒逼企业配置专业化网络安全防护方案，CrowdStrike已参与上述两家企业最新 AI 产品
+5月12日，据市场消息称，宏胜饮料集团发布一份组织架构调整及人员任免通知。 其中透露，将营销中心划归总裁宗馥莉统筹直管，营销中心总监兼销售公司总经理吴汀燕被免职。 同时，销售公司商超管理科、特通管理科合并更名为商超特通管理科。渠道客户管理科与产品价格管理科合并为渠道管理科，由渠道管理科承接原两科室全部业务职能。 此外，宏胜饮料还宣布了相关科室的相关人士变动： 舒康廷为销售公司副
 
 ## 正文
 
-CrowdStrike首席执行官乔治・库尔茨在财报电话会议上表示，受人工智能技术迭代推动，网络攻防两端同步提速，本季度网络安全行业正式迎来行业拐点。
+5月12日，据市场消息称，宏胜饮料集团发布一份组织架构调整及人员任免通知。
 
-库尔茨提到，Anthropic 与 OpenAI 推出的新一代大模型，能够以远快于以往的速度识别各类软件漏洞并串联利用；AI 技术高速迭代倒逼企业配置专业化网络安全防护方案，CrowdStrike已参与上述两家企业最新 AI 产品的抢先试用项目。
+其中透露，将营销中心划归总裁宗馥莉统筹直管，营销中心总监兼销售公司总经理吴汀燕被免职。
 
-“行业讨论的重心已经从‘人工智能会不会颠覆网安行业’，转变为各类机构乃至前沿 AI 实验室，都在依托我们的猎鹰（Falcon）产品作为 AI 安全防护底座。
+同时，销售公司商超管理科、特通管理科合并更名为商超特通管理科。
 
-” 库尔茨同时警示，性能愈发强大的 AI 工具也在降低黑客作恶门槛，让网络攻击实现 “破坏能力平民化”。
+渠道客户管理科与产品价格管理科合并为渠道管理科，由渠道管理科承接原两科室全部业务职能。
 
-富国银行分析师点评：公司一季度业绩表现稳健，但该股近一个月暴涨超60%，同期纳斯达克综合指数仅上涨 7%，现有业绩或难以满足投资者预期。
+此外，宏胜饮料还宣布了相关科室的相关人士变动： 舒康廷为销售公司副总经理兼商超特通管理科科长；刘凡为销售公司商超特通管理科副科长；余国英为销售公司渠道管理科科长；牟爽为销售公司渠道管理科副科长。
 
-不过分析师指出，公司全年业绩指引超预期、内生增长提速，叠加管理层提出的 AI 驱动行业拐点逻辑，为企业下一阶段成长奠定基础；富国维持该股增持评级，目标价 725 美元。
+另任命吴丹凤为计划中心生产管理科副科长；姚丽娜为桥南基地综合管理科副科长。
 
-责任编辑：郭明煜
+对于上述情况，新浪财经问询了娃哈哈方面，截至发稿前未获回应。
+
+责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 19:23 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 19:43 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 19:20 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 19:33 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 19:29 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 19:28 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 19:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 19:31 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 19:33 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 19:40 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 19:36 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 19:28 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 19:40 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 19:38 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 19:47 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-29 19:25 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 19:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 19:42 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 19:33 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 19:46 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 19:47 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 19:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 19:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 19:42 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 19:41 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 19:40 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:20 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/0987183.shtml)
-- 2026-06-29 19:23 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/9682571.shtml)
-- 2026-06-29 19:20 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/578878437879.shtml)
-- 2026-06-29 19:18 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/6317055473.shtml)
-- 2026-06-29 19:28 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/625069229016.shtml)
-- 2026-06-29 19:21 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/6743502829.shtml)
-- 2026-06-29 19:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/1183679.shtml)
-- 2026-06-29 19:26 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/466028301789.shtml)
-- 2026-06-29 19:22 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/867074725557.shtml)
-- 2026-06-29 19:35 - [时光音乐会](https://www.blog.minike.top/Article/details/6615952738.shtml)
-- 2026-06-29 19:39 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/830826348.shtml)
-- 2026-06-29 19:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/038435919.shtml)
-- 2026-06-29 19:28 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/9029989394.shtml)
-- 2026-06-29 19:20 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/0996945776.shtml)
-- 2026-06-29 19:42 - [刘冰任河南南阳市代市长](http://www.share.minike.top/Article/details/45724120.shtml)
+- 2026-06-29 19:42 - [扬名立万](https://www.share.minike.top/Article/details/876421791406.shtml)
+- 2026-06-29 19:29 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/78016772.shtml)
+- 2026-06-29 19:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/16636.shtml)
+- 2026-06-29 19:50 - [永远有话聊的原因](https://www.share.minike.top/Article/details/50001936.shtml)
+- 2026-06-29 19:52 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/148664159.shtml)
+- 2026-06-29 19:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/680459252.shtml)
+- 2026-06-29 19:43 - [V8](https://www.blog.minike.top/Article/details/68720529670.shtml)
+- 2026-06-29 19:48 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/693323065184.shtml)
+- 2026-06-29 19:34 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/27707087734.shtml)
+- 2026-06-29 19:36 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/3386469693.shtml)
+- 2026-06-29 19:30 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/5168797.shtml)
+- 2026-06-29 19:29 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/325403.shtml)
+- 2026-06-29 19:29 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/338337.shtml)
+- 2026-06-29 19:52 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/2568574290.shtml)
+- 2026-06-29 19:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/2499187.shtml)

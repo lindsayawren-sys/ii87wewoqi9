@@ -1,53 +1,57 @@
-# 日本与美国就美国贸易代表办公室的关税公告保持密切沟通
+# 宁波银行三名副行长的任职资格获监管核准
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-日本内阁官房副长官尾崎正直表示，日本政府和美国政府一直就美国贸易代表办公室有关新关税的声明保持密切沟通。 尾崎周三在记者会上表示，日美两国已再次确认，去年签署的双边贸易协定依然稳固且有效。 两国还一致认为，双方都将继续致力于落实该贸易协定。 对于美国贸易代表办公室的相关报告，尾崎表示不予置评，因为该文件并非最终决定，而只是美国贸易代表办公室在法律程序中提交的一份文件。责任编辑：
+5月12日金融一线消息，宁波金融监管局发布批复，核准胡海东、陆海英、俞罡宁波银行股份有限公司副行长的任职资格。 公开资料显示，胡海东1988年1月出生，硕士研究生学历。现任宁波银行总行财务会计部总经理。胡海东先生2011年7月加入宁波银行，历任北仑支行行长助理、副行长、行长，嘉兴分行行长，总行财务会计部副总经理（主持工作）、总经理。 陆海英1982年9月出生，硕士研究生学历。现
 
 ## 正文
 
-日本内阁官房副长官尾崎正直表示，日本政府和美国政府一直就美国贸易代表办公室有关新关税的声明保持密切沟通。
+5月12日金融一线消息，宁波金融监管局发布批复，核准胡海东、陆海英、俞罡宁波银行股份有限公司副行长的任职资格。
 
-尾崎周三在记者会上表示，日美两国已再次确认，去年签署的双边贸易协定依然稳固且有效。
+公开资料显示，胡海东1988年1月出生，硕士研究生学历。
 
-两国还一致认为，双方都将继续致力于落实该贸易协定。
+现任宁波银行总行财务会计部总经理。
 
-对于美国贸易代表办公室的相关报告，尾崎表示不予置评，因为该文件并非最终决定，而只是美国贸易代表办公室在法律程序中提交的一份文件。
+胡海东先生2011年7月加入宁波银行，历任北仑支行行长助理、副行长、行长，嘉兴分行行长，总行财务会计部副总经理（主持工作）、总经理。
 
-责任编辑：刘明亮
+陆海英1982年9月出生，硕士研究生学历。
+
+现任宁波银行总行公司银行总部总经理、机构业务部总经理。
+
+陆海英女士2005年7月加入宁波银行，历任总行公司银行部综合管理部高级经理、市场营销部高级经理、部门总经理助理、副总经理，总行机构业务部副总经理（主持工作）、总经理，总行公司平台经营部总经理。
+
+俞罡1977年2月出生，硕士研究生学历，高级经济师。
 
 ## 相关推荐
 
-- 2026-06-29 19:28 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 19:44 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 19:33 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 19:39 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-29 19:43 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 19:36 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 19:30 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 19:30 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 19:32 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 19:31 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 19:29 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 19:27 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 19:29 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-29 19:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 19:33 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 19:44 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 19:46 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 19:31 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 19:37 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 19:36 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 19:28 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 19:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 19:52 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 19:24 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/0930988790.shtml)
-- 2026-06-29 19:22 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/693305.shtml)
-- 2026-06-29 19:23 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/3237606868.shtml)
-- 2026-06-29 19:19 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/45535.shtml)
-- 2026-06-29 19:22 - [起风了](https://www.share.minike.top/Article/details/6346455.shtml)
-- 2026-06-29 19:34 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/267862378.shtml)
-- 2026-06-29 19:23 - [扩军害了世界杯吗](http://www.share.kurohicncr.top/Article/details/4229029.shtml)
-- 2026-06-29 19:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/21240261380.shtml)
-- 2026-06-29 19:22 - [一生一世](https://www.blog.minike.top/Article/details/590294.shtml)
-- 2026-06-29 19:36 - [斛珠夫人](https://www.share.minike.top/Article/details/133140179530.shtml)
-- 2026-06-29 19:41 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/070486.shtml)
-- 2026-06-29 19:42 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/00603.shtml)
-- 2026-06-29 19:40 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/09636.shtml)
-- 2026-06-29 19:36 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/30885497617.shtml)
-- 2026-06-29 19:39 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/45842.shtml)
+- 2026-06-29 19:46 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.minike.top/Article/details/87734.shtml)
+- 2026-06-29 19:24 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/99234215.shtml)
+- 2026-06-29 19:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.minike.top/Article/details/6609877.shtml)
+- 2026-06-29 19:41 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/280052.shtml)
+- 2026-06-29 19:38 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/514135349270.shtml)
+- 2026-06-29 19:36 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/0328691445.shtml)
+- 2026-06-29 19:28 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/08348226386.shtml)
+- 2026-06-29 19:37 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/8785123.shtml)
+- 2026-06-29 19:39 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/75836960026.shtml)
+- 2026-06-29 19:25 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/06139087673.shtml)
+- 2026-06-29 19:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/364524057.shtml)
+- 2026-06-29 19:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/050652200067.shtml)
+- 2026-06-29 19:36 - [T1零封KC MSI](https://www.share.minike.top/Article/details/190149419033.shtml)
+- 2026-06-29 19:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/5506422268.shtml)
+- 2026-06-29 19:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/8795353.shtml)

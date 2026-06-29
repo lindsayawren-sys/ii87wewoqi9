@@ -1,59 +1,60 @@
-# 国投策略林荣雄：AI投资下半场“守大光买光圈”，存储与AI应用成关键赛道
+# 一影带百业！“电影+”激活消费新生态
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！AI还能涨多久？站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？面对高波动与强分歧，投资者应如何锚定主线？6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 林荣雄认为，当前AI行情正从“大光”向“光圈”扩散，投资者应守住产业关键环节，同时积极布局存储和AI应用等
+近期，多部不同题材热门影片集中上映。与此同时，各地积极探索“电影+”多元融合模式，激活消费新动能，重塑城市消费新业态。 “电影+”融合百业 激活全国消费新生态 5月以来，《消失的人》《寒战1994》等多部热门新片集中登陆各大院线。如今，看电影已成为市民日常休闲、家庭聚会、好友社交的重要选择，观影之余逛商场、品美食、休闲娱乐也渐渐成为大众常态化的生活消费方式。 抚州市民 曾天鹏：
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+近期，多部不同题材热门影片集中上映。
 
-AI还能涨多久？
+与此同时，各地积极探索“电影+”多元融合模式，激活消费新动能，重塑城市消费新业态。
 
-站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？
+“电影+”融合百业 激活全国消费新生态 5月以来，《消失的人》《寒战1994》等多部热门新片集中登陆各大院线。
 
-面对高波动与强分歧，投资者应如何锚定主线？
+如今，看电影已成为市民日常休闲、家庭聚会、好友社交的重要选择，观影之余逛商场、品美食、休闲娱乐也渐渐成为大众常态化的生活消费方式。
 
-6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 林荣雄认为，当前AI行情正从“大光”向“光圈”扩散，投资者应守住产业关键环节，同时积极布局存储和AI应用等供需缺口方向。
+抚州市民 曾天鹏：和家人朋友来看电影已经成为一种生活习惯，看完电影就顺便在商场吃饭、逛街，放松又方便。
 
-林荣雄将科技投资的演绎路径归纳为四个阶段：当爆款产品出现时，市场应聚焦巨头；当巨头开启巨额资本开支时，市场应转向基础设施；当产业链形成后，市场应锁定产业链关键环节；最后则是供需缺口，上游看涨价、下游看放量。
+借着观影热潮，江西抚州的多个核心商圈主动与影院深度联动。
 
-以新能源车为例，特斯拉Model S作为爆款催生了对特斯拉本身的炒作；特斯拉进入国内并大规模资本开支后，充电桩、电网设备等基础设施成为焦点；产业链成熟后，锂电池等关键环节主导行情；最终，上游锂矿因涨价逻辑、下游汽车零部件因放量逻辑接棒演绎。
+商场购物、餐饮消费积分可直接兑换电影票，凭当日观影票根，还能在三十余家餐饮、零售、娱乐门店以及周边景区享受专属优惠。
 
-将这一框架套用到当前的AI产业趋势中，林荣雄认为，ChatGPT作为爆款出现时，市场应找巨头——这对应2023年的行情；随后巨头进行巨额资本开支，算力作为基础设施成为主线，这一阶段已充分演绎；产业链形成后，AI芯片作为关键环节受到关注，国内代表公司包括中芯国际、寒武纪等；而目前正在进入第四阶段——供需缺口，其中上游涨价对应存储（类似于锂矿），下游放量对应AI应用（类似于汽车零部件）。
+影视流量有效串联起文旅、餐饮、购物等多个领域，逐步形成一影带百业的全新消费格局。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 19:39 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-29 19:29 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:46 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 19:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 19:47 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 19:18 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 19:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 19:27 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 19:42 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 19:29 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 19:47 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 19:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 19:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 19:32 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 19:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 19:48 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 19:25 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 19:36 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 19:31 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 19:30 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 19:46 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 19:44 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 19:52 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 19:35 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 19:52 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 19:50 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/8768216.shtml)
-- 2026-06-29 19:24 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/4184555816.shtml)
-- 2026-06-29 19:29 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/77774.shtml)
-- 2026-06-29 19:39 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/36541656697.shtml)
-- 2026-06-29 19:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/1478139.shtml)
-- 2026-06-29 19:31 - [人形机器人](https://www.share.kurohicncr.top/Article/details/624494787.shtml)
-- 2026-06-29 19:42 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/754311.shtml)
-- 2026-06-29 19:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/123846.shtml)
-- 2026-06-29 19:42 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/8577518.shtml)
-- 2026-06-29 19:24 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/931326570403.shtml)
-- 2026-06-29 19:36 - [千与千寻](http://www.share.kurohicncr.top/Article/details/9590711.shtml)
-- 2026-06-29 19:24 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/23314.shtml)
-- 2026-06-29 19:18 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/307011.shtml)
-- 2026-06-29 19:22 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/92492679127.shtml)
-- 2026-06-29 19:47 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/31086894.shtml)
+- 2026-06-29 19:40 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/598451746.shtml)
+- 2026-06-29 19:35 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/4146005649.shtml)
+- 2026-06-29 19:50 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/67874.shtml)
+- 2026-06-29 19:30 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/0552884.shtml)
+- 2026-06-29 19:39 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/637175669.shtml)
+- 2026-06-29 19:45 - [TTG KSG](https://www.blog.minike.top/Article/details/307141027.shtml)
+- 2026-06-29 19:44 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/13869224746.shtml)
+- 2026-06-29 19:35 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/230457496.shtml)
+- 2026-06-29 19:34 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/580556912.shtml)
+- 2026-06-29 19:27 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/1062644286.shtml)
+- 2026-06-29 19:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/2605920.shtml)
+- 2026-06-29 19:45 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/504526499.shtml)
+- 2026-06-29 19:32 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/43134.shtml)
+- 2026-06-29 19:27 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/4216739.shtml)
+- 2026-06-29 19:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/2564337.shtml)

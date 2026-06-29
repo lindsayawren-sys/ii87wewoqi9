@@ -1,50 +1,57 @@
-# 来看海警用“镜头签”为高考学子送祝福
+# 日本财务大臣：贝森特对日元干预政策“充分理解”
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。祝愿高考学子金榜题名，前程似锦，高考加油！(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
+来源：华尔街见闻 日本财务大臣称贝森特对当局日元干预政策“充分理解”，双方沟通“极为顺畅”。会后，日元短线拉升约100点，而后迅速跌回157，显示出官方日元政策干预成效存疑。分析师警告，若跌破158关口，新一轮干预随时触发，而日本央行加息与否的悬念，才是日元走势的真正关键。 日本与美国就汇率政策立场达成协调。 日本财务大臣片山皋月周二表示，美国财政部长贝森特对当局日元干预政策“
 
 ## 正文
 
-发布时间：2026年06月05日 08:58 来源：中国新闻网 相信奇迹的人，本身和奇迹一样了不起。
+来源：华尔街见闻 日本财务大臣称贝森特对当局日元干预政策“充分理解”，双方沟通“极为顺畅”。
 
-祝愿高考学子金榜题名，前程似锦，高考加油！
+会后，日元短线拉升约100点，而后迅速跌回157，显示出官方日元政策干预成效存疑。
 
-(来源：中国海警局直属第六局 作者：王艺璇 王振球 吴治邦) 责任编辑：【魏聪聪】
+分析师警告，若跌破158关口，新一轮干预随时触发，而日本央行加息与否的悬念，才是日元走势的真正关键。
+
+日本与美国就汇率政策立场达成协调。
+
+日本财务大臣片山皋月周二表示，美国财政部长贝森特对当局日元干预政策“充分理解”，双方就近期包括汇率在内的市场动态“协调极为顺畅”。
+
+贝森特随后在X平台发文称，双方在应对“不良的过度汇率波动”方面的沟通与协调“持续且稳健”。
+
+会谈后，日元一度拉升近100点至156.75，但美元迅速收复失地最新报1美元兑157.72。
+
+野村证券外汇策略师Yujiro Goto指出，片山皋月的表态并未释放出支持进一步干预的明确信号，未能推动日元走强。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 19:33 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 19:25 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-29 19:31 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 19:27 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 19:37 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 19:18 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 19:18 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 19:22 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-29 19:44 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 19:22 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 19:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 19:19 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 19:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 19:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 19:50 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 19:37 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 19:30 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 19:45 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 19:27 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 19:53 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 19:26 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 19:28 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 19:26 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 19:35 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/245578.shtml)
-- 2026-06-29 19:40 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/06644757.shtml)
-- 2026-06-29 19:22 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/52115355345.shtml)
-- 2026-06-29 19:35 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/1535588750.shtml)
-- 2026-06-29 19:25 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/878204891.shtml)
-- 2026-06-29 19:21 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/4473468.shtml)
-- 2026-06-29 19:20 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/40862.shtml)
-- 2026-06-29 19:21 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/59153.shtml)
-- 2026-06-29 19:41 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/5148241.shtml)
-- 2026-06-29 19:22 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/85850377.shtml)
-- 2026-06-29 19:46 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/014653.shtml)
-- 2026-06-29 19:18 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/6835574667.shtml)
-- 2026-06-29 19:38 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/57057952.shtml)
-- 2026-06-29 19:25 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/871345846220.shtml)
-- 2026-06-29 19:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/1032857.shtml)
+- 2026-06-29 19:33 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/68931684905.shtml)
+- 2026-06-29 19:32 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/00163.shtml)
+- 2026-06-29 19:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/854112226249.shtml)
+- 2026-06-29 19:24 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/30576906949.shtml)
+- 2026-06-29 19:28 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/0195489172.shtml)
+- 2026-06-29 19:33 - [逃狱兄弟](http://www.share.minike.top/Article/details/93831232.shtml)
+- 2026-06-29 19:38 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/778611.shtml)
+- 2026-06-29 19:29 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/073387008.shtml)
+- 2026-06-29 19:29 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/01087425.shtml)
+- 2026-06-29 19:49 - [2026全国田径冠军赛江苏队4金收官](http://www.share.minike.top/Article/details/027946.shtml)
+- 2026-06-29 19:30 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/09263409427.shtml)
+- 2026-06-29 19:36 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/603817.shtml)
+- 2026-06-29 19:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/435371.shtml)
+- 2026-06-29 19:26 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/34327115.shtml)
+- 2026-06-29 19:30 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/010218.shtml)

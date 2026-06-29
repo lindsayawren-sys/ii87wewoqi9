@@ -1,59 +1,49 @@
-# 量子计算：泡沫炒作还是硬核实业？
+# 学习时节｜人民至上、生命至上，牢记总书记“时时放心不下”的嘱托
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-“量子” 一词本义为 “一份、定量”，源自拉丁语词根，含义是 “多少”。在物理学中，量子是各类物理属性最小的不可分割基本单位。用作形容词时，例如短语 “quantum leap（跨越式巨变）”，指代突发性、根本性的重大变革；而这个词用来定义下一代颠覆性科技 —— 量子计算，也再贴切不过。 继人工智能之后，量子计算被业界奉为即将颠覆整个算力行业的下一代技术。各类行业头条虽然对非专
+今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。 习近平总书记对防灾减灾工作“时时放心不下”，多次在不同场合发表重要讲话、作出重要指示批示，多次深入灾区考察，始终坚持把人民群众的生命安全放在第一位。 值此全国防灾减灾日之际，让我们一起学习习近平总书记关于防灾减灾救灾工作的重要论述，牢记总书记“时时放心不下”的嘱托。 (南方网·粤
 
 ## 正文
 
-“量子” 一词本义为 “一份、定量”，源自拉丁语词根，含义是 “多少”。
+今年5月12日是第18个全国防灾减灾日，主题是“人人讲安全、个个会应急——提高防灾减灾救灾能力”。
 
-在物理学中，量子是各类物理属性最小的不可分割基本单位。
+习近平总书记对防灾减灾工作“时时放心不下”，多次在不同场合发表重要讲话、作出重要指示批示，多次深入灾区考察，始终坚持把人民群众的生命安全放在第一位。
 
-用作形容词时，例如短语 “quantum leap（跨越式巨变）”，指代突发性、根本性的重大变革；而这个词用来定义下一代颠覆性科技 —— 量子计算，也再贴切不过。
+值此全国防灾减灾日之际，让我们一起学习习近平总书记关于防灾减灾救灾工作的重要论述，牢记总书记“时时放心不下”的嘱托。
 
-继人工智能之后，量子计算被业界奉为即将颠覆整个算力行业的下一代技术。
-
-各类行业头条虽然对非专业读者晦涩难懂，却极具冲击力： 然而，满是行业术语的亮眼科技头条，历来常常超前于产业落地现实。
-
-下文将厘清量子计算的本质、行业价值，判断行业热潮究竟名实相符，还是盲目炒作、不值得资本入局。
-
-经典计算机与摩尔定律 想要读懂量子计算，先要弄懂比特。
-
-从智能手机、桌面笔记本，到全球算力顶尖的 “埃尔卡皮坦” 超级计算机，所有经典计算机的运算基础都是比特。
+(南方网·粤学习)
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 19:27 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 19:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 19:33 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-29 19:20 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 19:25 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 19:45 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 19:35 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 19:35 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 19:35 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 19:23 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 19:31 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 19:33 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 19:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 19:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 19:38 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 19:50 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 19:29 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 19:41 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 19:43 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 19:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 19:50 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 19:30 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 19:34 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/491107200790.shtml)
-- 2026-06-29 19:33 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/810809251404.shtml)
-- 2026-06-29 19:27 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/2612611469.shtml)
-- 2026-06-29 19:42 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/424079484.shtml)
-- 2026-06-29 19:45 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/09267991806.shtml)
-- 2026-06-29 19:19 - [明星大侦探第四季](http://www.share.minike.top/Article/details/5143006.shtml)
-- 2026-06-29 19:35 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/022963.shtml)
-- 2026-06-29 19:24 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/474708394.shtml)
-- 2026-06-29 19:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/277414934.shtml)
-- 2026-06-29 19:35 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/290866256.shtml)
-- 2026-06-29 19:42 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/56073639.shtml)
-- 2026-06-29 19:43 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/90464.shtml)
-- 2026-06-29 19:41 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/59007.shtml)
-- 2026-06-29 19:41 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/1586735526.shtml)
-- 2026-06-29 19:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/069080276.shtml)
+- 2026-06-29 19:53 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/97073769.shtml)
+- 2026-06-29 19:41 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/27894.shtml)
+- 2026-06-29 19:52 - [章若楠包场白敬亭特立独行](https://www.blog.minike.top/Article/details/462220.shtml)
+- 2026-06-29 19:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/727468911911.shtml)
+- 2026-06-29 19:45 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/18324.shtml)
+- 2026-06-29 19:43 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/054816638.shtml)
+- 2026-06-29 19:51 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/890891799530.shtml)
+- 2026-06-29 19:34 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/95550.shtml)
+- 2026-06-29 19:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/6693840343.shtml)
+- 2026-06-29 19:52 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/21699.shtml)
+- 2026-06-29 19:51 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/659945895576.shtml)
+- 2026-06-29 19:38 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/5356426.shtml)
+- 2026-06-29 19:30 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/93181.shtml)
+- 2026-06-29 19:47 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/067042102.shtml)
+- 2026-06-29 19:52 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/3486497.shtml)

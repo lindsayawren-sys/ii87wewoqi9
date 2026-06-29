@@ -1,56 +1,58 @@
-# 河南武陟：黄河之畔麦收忙
+# 1元钱285万Token的陷阱！起底“AI中转站”：封号跑路，模型降智，倒卖用户数据
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定 梅西、C罗将六战世界杯被用户吐槽“越来越难用”“频频出错”，AI开始偷懒了？1290万人将赶赴高考，教育部：提高对智能眼镜等检出率千万不要大意！早上
+每经记者|高涵 郑雨航 每经编辑|王嘉琦 2026年5月，曾被业内视作“草根生意”的AI API中转站（以下简称AI中转站）突然成为热门赛道：孙宇晨、特朗普家族关联加密项目WLFI以及猎豹移动CEO傅盛入局，各推平台、砸钱补贴、绑定代币。 市面上也出现号称“1元可兑换285万Token”的超低价AI中转站，看似让利用户，实则暗藏巨大风险。 封号跑路、模型降智、随意涨价已成行业常
 
 ## 正文
 
-新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？
+每经记者|高涵 郑雨航 每经编辑|王嘉琦 2026年5月，曾被业内视作“草根生意”的AI API中转站（以下简称AI中转站）突然成为热门赛道：孙宇晨、特朗普家族关联加密项目WLFI以及猎豹移动CEO傅盛入局，各推平台、砸钱补贴、绑定代币。
 
-中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定 梅西、C罗将六战世界杯被用户吐槽“越来越难用”“频频出错”，AI开始偷懒了？
+市面上也出现号称“1元可兑换285万Token”的超低价AI中转站，看似让利用户，实则暗藏巨大风险。
 
-1290万人将赶赴高考，教育部：提高对智能眼镜等检出率千万不要大意！
+封号跑路、模型降智、随意涨价已成行业常态，甚至有AI中转站靠倒卖用户数据牟利。
 
-早上起床“眼屎”增多，当心是这些眼病！
+有业内人士实测发现，诸多AI中转站存在恶意代码注入、窃取云凭证、盗取加密资产等问题。
 
-104场比赛39天精彩不停 美加墨世界杯观赛指南来了杜祥琬院士声明 未参与核技术应用于垃圾焚烧日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束美国股市密集亮起预警红灯打击网络侵权盗版 四部门启动“剑网2026”专项行动特朗普怒斥内塔尼亚胡：对以色列升级黎巴嫩局势表示“强烈不满”重启第三次，天涯打赢复活赛了吗？
+AI中转站，究竟是新基建，还是被严重低估的灰色雷区？
 
-内蒙古一残疾大哥救下受伤骆驼悉心照料雨天路滑老人接连摔倒 热心路人纷纷上前帮扶体验“中式生活”！
+AI中转站是介于用户与AI模型厂商官方服务之间的代理层，在行业内也被称作“API搬运工”。
 
-美国青少年从味蕾开始钓鱼佬夜钓顺手救下2名落水少年高铁穿麦浪，皖北麦收正当时直击无人机实战化作战训练现场“最美天山公路”独库公路恢复通车新疆喀什：走进“西域之西”的人文风情津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京天坛的奠基土来自山西后土祠？
+简单来说，就是把各家AI模型厂商的API接口，统一封装整合到一个平台，再提供给用户。
 
-水下仿生机器鱼展演栩栩如生高铁穿行华山脚下金色麦浪 陕西集中发布三项考古研究成果 中国西部陆海新通道平陆运河全线通水 2026年度最小满月“蓝月亮”现身夜空 广东揭阳：一纸情书 藏在这座低调古城的烟 福建泉州最后一位代书先生 浙江温州AI赋能时尚产业“换羽新生” 滇藏公路50年：筑就发展幸福路 分享 评论 顶部
+通过AI中转站，用户无需在多个模型间来回切换，也不用单独向各家厂商分别付费；对于无法直连部分海外大模型的用户，还能借助AI中转站绕开访问限制。
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 19:38 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 19:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 19:47 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 19:47 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 19:31 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:45 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 19:29 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 19:27 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 19:33 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 19:35 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 19:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 19:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 19:26 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 19:25 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 19:26 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:27 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 19:45 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 19:53 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 19:49 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 19:38 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 19:39 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/157905170035.shtml)
-- 2026-06-29 19:34 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/37553217599.shtml)
-- 2026-06-29 19:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/060423494531.shtml)
-- 2026-06-29 19:26 - [金刚川](http://www.share.kurohicncr.top/Article/details/444099580880.shtml)
-- 2026-06-29 19:36 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/8999931.shtml)
-- 2026-06-29 19:23 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/298698311368.shtml)
-- 2026-06-29 19:39 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/5936234010.shtml)
-- 2026-06-29 19:37 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/8464202979.shtml)
-- 2026-06-29 19:26 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/320859.shtml)
-- 2026-06-29 19:32 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/201883.shtml)
-- 2026-06-29 19:46 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/89260.shtml)
-- 2026-06-29 19:19 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/3053132.shtml)
-- 2026-06-29 19:33 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/023475333.shtml)
-- 2026-06-29 19:38 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/5973393270.shtml)
-- 2026-06-29 19:29 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/686962663685.shtml)
+- 2026-06-29 19:39 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/4323687178.shtml)
+- 2026-06-29 19:30 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/6125169259.shtml)
+- 2026-06-29 19:28 - [夫妻生活太无聊，所以我……](https://www.share.kurohicncr.top/Article/details/452464992.shtml)
+- 2026-06-29 19:53 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/046788237.shtml)
+- 2026-06-29 19:42 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/60622.shtml)
+- 2026-06-29 19:39 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/93495962.shtml)
+- 2026-06-29 19:25 - [速度与激情9](http://www.blog.minike.top/Article/details/46091050.shtml)
+- 2026-06-29 19:48 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/5019276.shtml)
+- 2026-06-29 19:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/8565689520.shtml)
+- 2026-06-29 19:52 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/09294.shtml)
+- 2026-06-29 19:46 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/91776648855.shtml)
+- 2026-06-29 19:37 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.kurohicncr.top/Article/details/69387.shtml)
+- 2026-06-29 19:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/80036.shtml)
+- 2026-06-29 19:26 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/1546853213.shtml)
+- 2026-06-29 19:30 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/58379669.shtml)

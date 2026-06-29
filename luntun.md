@@ -1,57 +1,57 @@
-# 韩国宣布获得美国价值18亿美元海上液化天然气设施订单
+# 快手拟拆分可灵AI融资：200亿美元估值“阳谋”与资本大逃杀
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-韩国政府周四宣布，韩国获得一项价值 28 亿美元的美国液化天然气（LNG）海上设施建设项目订单。 据韩国国土交通部发布的公告，由韩国政府、公立机构及民营企业组成的联合体中标，将在美国路易斯安那州承建一套浮式液化天然气设施。 三星重工是主要承包商，但韩国政府并未透露客户名称。 浮式液化天然气设施是一种用于海上天然气开发中液化天然气生产及相关作业的海上浮式装置。 这个耗资48亿美元
+2026年5月，一则消息在资本市场上掀起了不小的波澜：快手科技正计划将其旗下视频生成大模型业务“可灵AI”（Kling）进行分拆独立，并以约200亿美元估值展开Pre-IPO轮融资，融资规模预计高达20亿美元，腾讯等资本方有望参与其中。 这是一条看似简单的资本运作新闻，但其背后涉及的市值逻辑、产业竞争、估值体系重构以及AI赛道的发展路径，却可谓一石激起千层浪。要知道，截至消息传
 
 ## 正文
 
-韩国政府周四宣布，韩国获得一项价值 28 亿美元的美国液化天然气（LNG）海上设施建设项目订单。
+2026年5月，一则消息在资本市场上掀起了不小的波澜：快手科技正计划将其旗下视频生成大模型业务“可灵AI”（Kling）进行分拆独立，并以约200亿美元估值展开Pre-IPO轮融资，融资规模预计高达20亿美元，腾讯等资本方有望参与其中。
 
-据韩国国土交通部发布的公告，由韩国政府、公立机构及民营企业组成的联合体中标，将在美国路易斯安那州承建一套浮式液化天然气设施。
+这是一条看似简单的资本运作新闻，但其背后涉及的市值逻辑、产业竞争、估值体系重构以及AI赛道的发展路径，却可谓一石激起千层浪。
 
-三星重工是主要承包商，但韩国政府并未透露客户名称。
+要知道，截至消息传出时，快手在港股市场的整体市值尚不足290亿美元，而可灵AI这一块尚处于“烧钱”阶段、在母公司总营收中占比尚不足1%的新业务，其单主体估值竟然已逼近母公司总市值的70%。
 
-浮式液化天然气设施是一种用于海上天然气开发中液化天然气生产及相关作业的海上浮式装置。
+消息传出后，快手股价应声高开近10%，报56.7港元。
 
-这个耗资48亿美元的美国大型项目旨在每年在路易斯安那州附近海域生产440万吨液化天然气，建设期预计为五年，运营期计划为25年。
+市场立即用脚投了票，但狂欢背后，这场“拆分之谜”却包含着更深层的故事。
 
-韩国海外基础设施与城市发展公司、绿色基金以及韩国海洋商业公司，共同向由全球资产管理公司贝莱德（BlackRock）牵头的基金注资1.5亿美元，以支持三星重工业参与工程、采购与建设（EPC）项目的投标。
+何谓拆分的真正动因？
 
-三星重工表示，收到客户发出的开工通知后，计划开始建设，并将于2030年7月前交付该设施。
+200亿美元的估值是泡沫还是新定价逻辑的序曲？
 
-责任编辑：于健 SF069
+可灵的“单飞”又将如何重塑中国AI视频生成的竞争格局？
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 19:37 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 19:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 19:46 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 19:41 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 19:45 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 19:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 19:26 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:47 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 19:29 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 19:43 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 19:52 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 19:24 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 19:41 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 19:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 19:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 19:46 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 19:28 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 19:40 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 19:43 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 19:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 19:27 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.kurohicncr.top/Article/details/96532766.shtml)
-- 2026-06-29 19:39 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/163181112021.shtml)
-- 2026-06-29 19:28 - [林逸向方筱然求婚了](http://www.share.kurohicncr.top/Article/details/81294697.shtml)
-- 2026-06-29 19:26 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/6110338756.shtml)
-- 2026-06-29 19:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/87043298.shtml)
-- 2026-06-29 19:22 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/3090285.shtml)
-- 2026-06-29 19:32 - [天柱山回应网红打卡树枝被砍](http://www.blog.kurohicncr.top/Article/details/8731361.shtml)
-- 2026-06-29 19:41 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/29146799734.shtml)
-- 2026-06-29 19:24 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/6876833132.shtml)
-- 2026-06-29 19:41 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/645900.shtml)
-- 2026-06-29 19:41 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/123178157.shtml)
-- 2026-06-29 19:20 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/025916218.shtml)
-- 2026-06-29 19:20 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/53534.shtml)
-- 2026-06-29 19:22 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/156840905175.shtml)
-- 2026-06-29 19:37 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/632103357345.shtml)
+- 2026-06-29 19:42 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/58695608.shtml)
+- 2026-06-29 19:34 - [AG 宫斗](http://www.blog.minike.top/Article/details/2844649.shtml)
+- 2026-06-29 19:32 - [一生一世](http://www.blog.kurohicncr.top/Article/details/29543709128.shtml)
+- 2026-06-29 19:53 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/9348174499.shtml)
+- 2026-06-29 19:51 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/6468610.shtml)
+- 2026-06-29 19:42 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/089528966045.shtml)
+- 2026-06-29 19:25 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/25726453156.shtml)
+- 2026-06-29 19:41 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/89634.shtml)
+- 2026-06-29 19:45 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/53107093698.shtml)
+- 2026-06-29 19:42 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/59695.shtml)
+- 2026-06-29 19:27 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/13631610877.shtml)
+- 2026-06-29 19:31 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/400991025.shtml)
+- 2026-06-29 19:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/06771079.shtml)
+- 2026-06-29 19:42 - [一生一世](https://www.share.kurohicncr.top/Article/details/57471753444.shtml)
+- 2026-06-29 19:38 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/82391400.shtml)

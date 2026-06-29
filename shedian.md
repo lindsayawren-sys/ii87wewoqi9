@@ -1,57 +1,56 @@
-# Perion在WOO London 2026上推出程序化数字户外广告新功能
+# 美国4月CPI同比上涨3.8% 创近三年最高水平
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-Perion网络公司于6月3日宣布，在伦敦举行的世界户外广告组织年度大会上推出一系列针对程序化数字户外广告的新功能。此次发布的三项新功能覆盖了广告活动规划、投放保障与效果衡量三个关键环节，旨在解决程序化数字户外广告在策划、购买和评估过程中的运营痛点。 在规划层面，Perion推出了名为“Ask Perion”的智能代理体验。该工具将传统的数字户外广告策划流程从手动操作转变为对话
+中新社华盛顿5月12日电 (记者 陈孟统)美国劳工部12日发布数据称，美国4月消费者价格指数(CPI)同比上涨3.8%，为2023年6月以来的最高水平。 自2022年6月同比涨幅达到9.1%的峰值以来，美国通胀总体上一直在稳步回落，但始终高于美联储设定的2%目标。随着今年2月伊朗战事爆发，霍尔木兹海峡航运受阻，国际油价大幅飙升也推高美国国内油价。 数据显示，美国4月能源价格指数
 
 ## 正文
 
-Perion网络公司于6月3日宣布，在伦敦举行的世界户外广告组织年度大会上推出一系列针对程序化数字户外广告的新功能。
+中新社华盛顿5月12日电 (记者 陈孟统)美国劳工部12日发布数据称，美国4月消费者价格指数(CPI)同比上涨3.8%，为2023年6月以来的最高水平。
 
-此次发布的三项新功能覆盖了广告活动规划、投放保障与效果衡量三个关键环节，旨在解决程序化数字户外广告在策划、购买和评估过程中的运营痛点。
+自2022年6月同比涨幅达到9.1%的峰值以来，美国通胀总体上一直在稳步回落，但始终高于美联储设定的2%目标。
 
-在规划层面，Perion推出了名为“Ask Perion”的智能代理体验。
+随着今年2月伊朗战事爆发，霍尔木兹海峡航运受阻，国际油价大幅飙升也推高美国国内油价。
 
-该工具将传统的数字户外广告策划流程从手动操作转变为对话式交互界面，广告买家只需用自然语言描述预算、目标市场、受众及活动目标，便可在数分钟内获得一份包含城市、场地类型、广告格式、受众细分及发布商在内的结构化媒体计划。
+数据显示，美国4月能源价格指数同比上涨17.9%，环比上涨3.8%，占当月整体物价涨幅的40%以上。
 
-在投放激活层面，Perion在旗下Perion One平台中新增了“数字户外广告声份额”这一保障型活动类型。
+其中汽油价格同比上涨28.4%，环比上涨5.4%。
 
-据公司介绍，目前仍有75%至80%的数字户外广告支出通过直接预订方式进行。
+另据美国汽车协会(AAA)12日的数据，全美普通汽油平均价格已超每加仑4.50美元，比去年同期高出约44%。
 
-新功能旨在将这些直接交易纳入程序化基础设施，使发布商能够在同一平台内管理保障性声份额及单屏投放，无需并行工作流或外部预订系统。
+此外，美国的住房价格指数也在4月上涨，环比升0.6%。
 
-责任编辑：张俊 SF065
+食品价格指数当月环比上涨0.5%。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 19:21 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 19:20 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 19:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 19:27 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 19:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 19:28 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 19:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 19:39 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 19:24 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 19:46 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 19:45 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 19:44 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 19:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 19:49 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 19:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 19:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 19:27 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 19:38 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 19:28 - [本届世界杯已有5人涉性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 19:49 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/32629737.shtml)
-- 2026-06-29 19:21 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/5167959585.shtml)
-- 2026-06-29 19:34 - [网红小徐直播时突遇地震](https://www.blog.minike.top/Article/details/7733270055.shtml)
-- 2026-06-29 19:23 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/3443127.shtml)
-- 2026-06-29 19:29 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/305371964.shtml)
-- 2026-06-29 19:21 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/313406806909.shtml)
-- 2026-06-29 19:47 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/48106284133.shtml)
-- 2026-06-29 19:43 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/50084440.shtml)
-- 2026-06-29 19:34 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/2695977.shtml)
-- 2026-06-29 19:34 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/899363695649.shtml)
-- 2026-06-29 19:19 - [朱雀三号重复使用遥二运载火箭新进展](http://www.share.minike.top/Article/details/4569904095.shtml)
-- 2026-06-29 19:30 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/48219823.shtml)
-- 2026-06-29 19:18 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/67425052.shtml)
-- 2026-06-29 19:45 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/4434918.shtml)
-- 2026-06-29 19:36 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/93278214027.shtml)
+- 2026-06-29 19:46 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/8102315838.shtml)
+- 2026-06-29 19:50 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/55292979791.shtml)
+- 2026-06-29 19:27 - [杨紫视后第一场线下活动](https://www.share.kurohicncr.top/Article/details/038269014.shtml)
+- 2026-06-29 19:38 - [特朗普两大核心赌注将迎高院裁决](https://www.share.kurohicncr.top/Article/details/847209277235.shtml)
+- 2026-06-29 19:25 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/57175098.shtml)
+- 2026-06-29 19:33 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/228588243612.shtml)
+- 2026-06-29 19:44 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/71402760.shtml)
+- 2026-06-29 19:47 - [乔家的儿女](http://www.blog.minike.top/Article/details/8101673405.shtml)
+- 2026-06-29 19:38 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/59251527985.shtml)
+- 2026-06-29 19:35 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/0300824.shtml)
+- 2026-06-29 19:32 - [TTG KSG](http://www.share.minike.top/Article/details/22907994488.shtml)
+- 2026-06-29 19:27 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/09905274185.shtml)
+- 2026-06-29 19:35 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/680219545903.shtml)
+- 2026-06-29 19:29 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/488208635889.shtml)
+- 2026-06-29 19:24 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/84881255508.shtml)

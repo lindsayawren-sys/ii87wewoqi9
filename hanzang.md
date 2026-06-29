@@ -1,56 +1,56 @@
-# 打不垮的伊朗，谈不拢的和平：临时协议只是暴风雨前的“中场休息”？
+# 跳槽到易方达的名单，也太长了……
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——原本由美国与以色列主导的对伊朗军事行动，其战略设想是彻底摧毁伊朗的抵抗能力。然而，随着战事推进和谈判桌上的微妙变化，参战各方正逐渐向一项临时性协议靠拢。这一潜在协议的核心现实是：伊朗虽然遭受了沉重打击，但并未被真正击垮。战后的伊朗，经济基础与军工体系将受到严重削弱，然而其国内最具影响力的政治力量——强硬派的伊斯兰革命卫队，反而可能比战前更加稳固地掌握权力中枢
+来源：硬核姬的碎碎念 有一阵子没写行业里的人事盘点了。最近其实瓜很多，光是上海的公募圈，就听说三个知名基金经理蠢蠢欲动，准备跳槽。 不过目前都处于坊间传言的阶段，还没落地。我们先讲一些落地了的。 一、姜老板真的成老板了 最近中泰资管完成了核心管理层的更换。原先的董事长黄文卿、总经理徐建东双双因个人原因离开。原中泰证券投行委员会主任姜天坊接董事长，大家熟悉的价值派的扛把子姜诚姜老
 
 ## 正文
 
-汇通财经APP讯——原本由美国与以色列主导的对伊朗军事行动，其战略设想是彻底摧毁伊朗的抵抗能力。
+来源：硬核姬的碎碎念 有一阵子没写行业里的人事盘点了。
 
-然而，随着战事推进和谈判桌上的微妙变化，参战各方正逐渐向一项临时性协议靠拢。
+最近其实瓜很多，光是上海的公募圈，就听说三个知名基金经理蠢蠢欲动，准备跳槽。
 
-这一潜在协议的核心现实是：伊朗虽然遭受了沉重打击，但并未被真正击垮。
+不过目前都处于坊间传言的阶段，还没落地。
 
-战后的伊朗，经济基础与军工体系将受到严重削弱，然而其国内最具影响力的政治力量——强硬派的伊斯兰革命卫队，反而可能比战前更加稳固地掌握权力中枢。
+我们先讲一些落地了的。
 
-一、临时协议的实质：暂停而非终结 熟悉谈判内情的消息人士透露，即便近期能够达成一份结束当前战事的备忘录，其性质也更可能是一次临时停火，而非持久性的战略突破。
+一、姜老板真的成老板了 最近中泰资管完成了核心管理层的更换。
 
-各方普遍认为，这一安排本质上是一种权宜之计。
+原先的董事长黄文卿、总经理徐建东双双因个人原因离开。
 
-其首要目标是尽快重新开放被伊朗事实封锁的霍尔木兹海峡，从而缓解全球金融市场的剧烈动荡，同时减轻伊朗自身承受的极端经济压力。
+原中泰证券投行委员会主任姜天坊接董事长，大家熟悉的价值派的扛把子姜诚姜老板也升职了，从中泰资管副总变成了代任总经理。
 
-此外，该协议也为美国总统特朗普提供了一条政治上的退路，使其能够向国内选民展示外交成果。
+姜诚的这波升职可以说是火箭速度了。
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 19:35 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-29 19:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 19:30 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 19:46 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 19:21 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-29 19:32 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 19:33 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 19:40 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 19:38 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 19:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 19:43 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 19:34 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 19:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 19:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 19:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 19:50 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 19:54 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 19:41 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 19:43 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:24 - [极限挑战第一季](http://www.share.minike.top/Article/details/187034213543.shtml)
-- 2026-06-29 19:38 - [张杰我九岁就跟你了](http://www.blog.kurohicncr.top/Article/details/690705.shtml)
-- 2026-06-29 19:39 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/4340127.shtml)
-- 2026-06-29 19:38 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/0335170624.shtml)
-- 2026-06-29 19:21 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/930486.shtml)
-- 2026-06-29 19:19 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/203646842929.shtml)
-- 2026-06-29 19:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/747666.shtml)
-- 2026-06-29 19:27 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/95200.shtml)
-- 2026-06-29 19:19 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/01999620.shtml)
-- 2026-06-29 19:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/33687898.shtml)
-- 2026-06-29 19:20 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/230683848397.shtml)
-- 2026-06-29 19:24 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.minike.top/Article/details/9560974.shtml)
-- 2026-06-29 19:18 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/2240943.shtml)
-- 2026-06-29 19:41 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/7827226283.shtml)
-- 2026-06-29 19:22 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/8180238093.shtml)
+- 2026-06-29 19:46 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/646450845.shtml)
+- 2026-06-29 19:53 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/62719390332.shtml)
+- 2026-06-29 19:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/1894092.shtml)
+- 2026-06-29 19:25 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/8177322050.shtml)
+- 2026-06-29 19:50 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/814918.shtml)
+- 2026-06-29 19:32 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/317884470760.shtml)
+- 2026-06-29 19:38 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/2106418251.shtml)
+- 2026-06-29 19:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/127220.shtml)
+- 2026-06-29 19:27 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/15939.shtml)
+- 2026-06-29 19:39 - [沉睡花园](http://www.blog.minike.top/Article/details/835812.shtml)
+- 2026-06-29 19:25 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/97895118570.shtml)
+- 2026-06-29 19:41 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/974296027563.shtml)
+- 2026-06-29 19:47 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/884122755.shtml)
+- 2026-06-29 19:46 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/61471867520.shtml)
+- 2026-06-29 19:26 - [专家预计全球央行加息节奏将出现反复](http://www.share.kurohicncr.top/Article/details/74540619610.shtml)

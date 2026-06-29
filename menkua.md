@@ -1,60 +1,49 @@
-# 防晒衣久洗影响功能？中国布商将“防晒因子”注入纱线
+# 中新健康｜胖一点真的没关系吗？医生解读
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月03日 19:52 来源：中国新闻网 担心防晒衣洗涤多次而影响功能？夏日炎炎，防晒衣成为人们衣柜必不可少的单品。6月2日，记者探访位于浙江绍兴柯桥的中国轻纺城户外功能面料专营区，不少布商创新推出原纱防晒面料，深受市场青睐。原纱防晒指将物理防晒剂织进了纱线，相当于每根纱线都注入了“防晒因子”，使面料久洗也不影响防晒力。据悉，中国轻纺城聚集了纺织品经营户3
+发布时间：2026年05月11日 21:23 来源：中国新闻网 5月11日是世界防治肥胖日。中国中医科学院西苑医院肝病科主任医师张引强在接受中新健康采访时指出，世界卫生组织早就明确：肥胖本身就是一种疾病。而肥胖背后真正危险的，是高血压、高血糖、脂肪肝等一系列代谢性合并症。(赵方园 武思涵) 责任编辑：【岳川】
 
 ## 正文
 
-发布时间：2026年06月03日 19:52 来源：中国新闻网 担心防晒衣洗涤多次而影响功能？
+发布时间：2026年05月11日 21:23 来源：中国新闻网 5月11日是世界防治肥胖日。
 
-夏日炎炎，防晒衣成为人们衣柜必不可少的单品。
+中国中医科学院西苑医院肝病科主任医师张引强在接受中新健康采访时指出，世界卫生组织早就明确：肥胖本身就是一种疾病。
 
-6月2日，记者探访位于浙江绍兴柯桥的中国轻纺城户外功能面料专营区，不少布商创新推出原纱防晒面料，深受市场青睐。
+而肥胖背后真正危险的，是高血压、高血糖、脂肪肝等一系列代谢性合并症。
 
-原纱防晒指将物理防晒剂织进了纱线，相当于每根纱线都注入了“防晒因子”，使面料久洗也不影响防晒力。
-
-据悉，中国轻纺城聚集了纺织品经营户3万余户，是全球最大的纺织品集散中心。
-
-(项菁 刘子琳) 【同期】“北脊”门市部负责人 李巨超 原来我们现有的面料，防晒的，可能就是一些像涂层，一些助剂添加。
-
-近两年是根据市场的整体需求，做出了一些原纱防晒和原纱的凉感(面料)。
-
-像我们现在推出的面料，又吸湿速干，防晒，又防蚊虫，这种多功能叠加。
+(赵方园 武思涵) 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 19:44 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 19:47 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 19:27 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 19:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 19:25 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 19:37 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 19:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 19:45 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 19:27 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-29 19:26 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 19:44 - [许建琼任湖南省检察院副检察长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 19:44 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 19:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 19:25 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 19:24 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 19:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 19:25 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 19:51 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 19:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 19:31 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 19:36 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 19:41 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 19:25 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 19:32 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/442168470858.shtml)
-- 2026-06-29 19:25 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/43687825.shtml)
-- 2026-06-29 19:46 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/35044681.shtml)
-- 2026-06-29 19:46 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/66105502088.shtml)
-- 2026-06-29 19:47 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/99831373015.shtml)
-- 2026-06-29 19:23 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/384398357.shtml)
-- 2026-06-29 19:33 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/027922734445.shtml)
-- 2026-06-29 19:21 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/973813822404.shtml)
-- 2026-06-29 19:45 - [斗破苍穹](http://www.blog.minike.top/Article/details/1068947.shtml)
-- 2026-06-29 19:40 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/772615298.shtml)
-- 2026-06-29 19:19 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/20950014.shtml)
-- 2026-06-29 19:24 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/4991026559.shtml)
-- 2026-06-29 19:18 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/74010.shtml)
-- 2026-06-29 19:21 - [世界杯预测史上最不吃压力之物](http://www.blog.minike.top/Article/details/46202.shtml)
-- 2026-06-29 19:25 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/76664984.shtml)
+- 2026-06-29 19:48 - [扫黑风暴](https://www.share.minike.top/Article/details/572055387085.shtml)
+- 2026-06-29 19:39 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/02638766.shtml)
+- 2026-06-29 19:39 - [河南四位大妈景区跳舞爆火](https://www.blog.kurohicncr.top/Article/details/3747975.shtml)
+- 2026-06-29 19:42 - [周生如故](http://www.share.minike.top/Article/details/56890473826.shtml)
+- 2026-06-29 19:24 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/713998.shtml)
+- 2026-06-29 19:39 - [一生一世](https://www.share.kurohicncr.top/Article/details/8635039.shtml)
+- 2026-06-29 19:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/322001.shtml)
+- 2026-06-29 19:33 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/724231559.shtml)
+- 2026-06-29 19:37 - [V8](http://www.share.minike.top/Article/details/0061700.shtml)
+- 2026-06-29 19:44 - [Ella回应SHE何时合体](http://www.share.minike.top/Article/details/45657253.shtml)
+- 2026-06-29 19:33 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/19958.shtml)
+- 2026-06-29 19:26 - [唐艺昕告别浪姐千字长文](http://www.share.kurohicncr.top/Article/details/160386718054.shtml)
+- 2026-06-29 19:40 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/358354805792.shtml)
+- 2026-06-29 19:26 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/17024989.shtml)
+- 2026-06-29 19:49 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/368346.shtml)

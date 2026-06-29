@@ -1,43 +1,56 @@
-# 老年雪豹获救 或因领地争斗负伤下山
+# 刚刚，白银，直线拉升
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
+来源：中国基金报 【导读】白银突然暴涨 中国基金报记者 泰勒 兄弟姐妹们啊，今晚原油、股市表现平平，但是现货白银突然暴力拉升！ 5月11日晚间，没有一丝丝防备，白银价格突然直线拉升，现暴涨约7%！ 泰勒找了一圈，目前还没有找到触发白银暴涨的原因，因为此时此刻，无论是原油市场还是美股，都没有出现大幅波动。 而市场有一种解读，就是技术分析显示，银价可能正在修复。 白银价格自1月暴跌
 
 ## 正文
 
-发布时间：2026年06月04日 09:09 来源：央视新闻 责任编辑：【李骏】
+来源：中国基金报 【导读】白银突然暴涨 中国基金报记者 泰勒 兄弟姐妹们啊，今晚原油、股市表现平平，但是现货白银突然暴力拉升！
+
+5月11日晚间，没有一丝丝防备，白银价格突然直线拉升，现暴涨约7%！
+
+泰勒找了一圈，目前还没有找到触发白银暴涨的原因，因为此时此刻，无论是原油市场还是美股，都没有出现大幅波动。
+
+而市场有一种解读，就是技术分析显示，银价可能正在修复。
+
+白银价格自1月暴跌，并在伊朗战争爆发初期再度下挫以来，一直表现挣扎。
+
+3月，白银一度跌至每盎司60.94美元的三个月低点，较1月29日创下的121.64美元历史高位跌去约50%。
+
+此后，白银价格已经企稳。
+
+过去六周里，白银重新站上了两个关键技术分析位，也就是所谓的下行趋势线。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 19:32 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 19:19 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 19:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 19:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 19:44 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 19:35 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 19:28 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 19:29 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 19:46 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 19:25 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 19:49 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 19:51 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 19:40 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 19:39 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 19:50 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 19:48 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 19:39 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 19:50 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 19:53 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 19:40 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/8210897.shtml)
-- 2026-06-29 19:33 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/30799233820.shtml)
-- 2026-06-29 19:42 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/074269303.shtml)
-- 2026-06-29 19:29 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/46965.shtml)
-- 2026-06-29 19:22 - [《新闻联播》正在直播](http://www.share.kurohicncr.top/Article/details/74017058343.shtml)
-- 2026-06-29 19:30 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/61473789206.shtml)
-- 2026-06-29 19:39 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/27157542.shtml)
-- 2026-06-29 19:21 - [王楚钦称抽签结果出来心情不好](https://www.share.kurohicncr.top/Article/details/404383.shtml)
-- 2026-06-29 19:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/797969.shtml)
-- 2026-06-29 19:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/7358676.shtml)
-- 2026-06-29 19:26 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/99436.shtml)
-- 2026-06-29 19:31 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/784602.shtml)
-- 2026-06-29 19:42 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/72699723.shtml)
-- 2026-06-29 19:38 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/5623843315.shtml)
-- 2026-06-29 19:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/99794.shtml)
+- 2026-06-29 19:31 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/7550879.shtml)
+- 2026-06-29 19:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/348290873.shtml)
+- 2026-06-29 19:41 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/39871710284.shtml)
+- 2026-06-29 19:33 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/5303097.shtml)
+- 2026-06-29 19:40 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/69678.shtml)
+- 2026-06-29 19:27 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/739936.shtml)
+- 2026-06-29 19:41 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/380878.shtml)
+- 2026-06-29 19:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/264338684055.shtml)
+- 2026-06-29 19:37 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/32206.shtml)
+- 2026-06-29 19:31 - [东宫女主是不是顶级恋爱脑](http://www.blog.minike.top/Article/details/70484868.shtml)
+- 2026-06-29 19:46 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/5278392.shtml)
+- 2026-06-29 19:39 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/953506.shtml)
+- 2026-06-29 19:32 - [一生一世](https://www.share.kurohicncr.top/Article/details/02391602006.shtml)
+- 2026-06-29 19:50 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/442935258793.shtml)
+- 2026-06-29 19:34 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/7070275.shtml)

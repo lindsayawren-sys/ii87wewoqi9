@@ -1,58 +1,54 @@
-# 大摩：中兴通讯升至“增持”评级 目标价上调至39港元
+# 韩国交易所开始在资本市场监测工作中采用AI技术
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-大摩发布研报称，将中兴通讯（00763）H股评级升“与大市同步”升至“增持”，H股目标价由31.5港元升至39港元，主要基于潜在正面AI催化剂以及盈利增长的拐点。中兴（000063.SZ）A股评级由“减持”升至“与大市同步”，A股目标价由29.44元人民币升至34.3元人民币。 报告指，在边缘设备端，公司围绕“豆包”AI助理的合作，将智能体、多模态及系统级AI能力整合到智能手机
+韩国交易所（KRX）周三表示，已开始在其资本市场监测工作中采用人工智能（AI）技术。 此次正式采用人工智能技术是在韩国交易所收购本土人工智能初创公司Fair Labs约三个月后进行的，此次收购旨在加速其人工智能转型并加强其数据业务。 韩国交易所在一份声明中表示，人工智能技术能够帮助员工更好地分析上市公司的实时数据，并全面筛查包括挪用公款和欺诈在内的企业不当行为数据。 声明还指出
 
 ## 正文
 
-大摩发布研报称，将中兴通讯（00763）H股评级升“与大市同步”升至“增持”，H股目标价由31.5港元升至39港元，主要基于潜在正面AI催化剂以及盈利增长的拐点。
+韩国交易所（KRX）周三表示，已开始在其资本市场监测工作中采用人工智能（AI）技术。
 
-中兴（000063.SZ）A股评级由“减持”升至“与大市同步”，A股目标价由29.44元人民币升至34.3元人民币。
+此次正式采用人工智能技术是在韩国交易所收购本土人工智能初创公司Fair Labs约三个月后进行的，此次收购旨在加速其人工智能转型并加强其数据业务。
 
-报告指，在边缘设备端，公司围绕“豆包”AI助理的合作，将智能体、多模态及系统级AI能力整合到智能手机中，早期需求指标如首批产品售罄显示市场兴趣强烈。
+韩国交易所在一份声明中表示，人工智能技术能够帮助员工更好地分析上市公司的实时数据，并全面筛查包括挪用公款和欺诈在内的企业不当行为数据。
 
-该行预计中兴将深化此项合作，有望为AI手机的更广泛商业化铺路，这可能成为情绪及估值的重要催化剂。
+声明还指出，这套基于人工智能的监控系统能够帮助交易所高效地审查上市公司的监管文件。
 
-该行认为，中兴的短期盈利风险已大致被市场消化，预计2026年下半年重返正增长。
+今年2月，韩国交易所斥资67亿韩元（约合440万美元）收购了Fair Labs的67%股份。
 
-由于毛利率承压、营运费用增加、汇兑损失及减值拨备上升，短期盈利在2026年第一季疲弱后仍将受压。
-
-然而，市场似乎已大致消化这一影响，预期已反映至2026年第二季的弱势。
-
-该行认为关键拐点将出现在2026年下半年，届时低基数效应将支持盈利重返正增长。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 19:37 - [AG 宫斗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 19:20 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 19:18 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 19:39 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 19:24 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 19:31 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 19:37 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 19:27 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 19:42 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
-- 2026-06-29 19:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 19:43 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 19:43 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 19:26 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 19:44 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 19:42 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 19:53 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:41 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 19:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 19:34 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 19:46 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 19:40 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 19:39 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 19:29 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/643008226748.shtml)
-- 2026-06-29 19:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/6691500528.shtml)
-- 2026-06-29 19:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/991458.shtml)
-- 2026-06-29 19:37 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/86792565.shtml)
-- 2026-06-29 19:44 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/4810698191.shtml)
-- 2026-06-29 19:33 - [人形机器人](https://www.share.minike.top/Article/details/75083.shtml)
-- 2026-06-29 19:27 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/109126.shtml)
-- 2026-06-29 19:25 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/820212886621.shtml)
-- 2026-06-29 19:36 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/84197908.shtml)
-- 2026-06-29 19:42 - [绘画区你赢了](https://www.blog.minike.top/Article/details/400479536.shtml)
-- 2026-06-29 19:43 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/8719318737.shtml)
-- 2026-06-29 19:37 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/22514187971.shtml)
-- 2026-06-29 19:44 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/41679.shtml)
-- 2026-06-29 19:25 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/793824857.shtml)
-- 2026-06-29 19:35 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/477069840498.shtml)
+- 2026-06-29 19:41 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/96645141.shtml)
+- 2026-06-29 19:42 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/9249507759.shtml)
+- 2026-06-29 19:25 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.blog.kurohicncr.top/Article/details/467247.shtml)
+- 2026-06-29 19:36 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/049292.shtml)
+- 2026-06-29 19:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/321783975881.shtml)
+- 2026-06-29 19:44 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/644888.shtml)
+- 2026-06-29 19:49 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/4282911.shtml)
+- 2026-06-29 19:27 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/9182741308.shtml)
+- 2026-06-29 19:38 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/4747351.shtml)
+- 2026-06-29 19:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/14693683576.shtml)
+- 2026-06-29 19:51 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/213185.shtml)
+- 2026-06-29 19:40 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/45381.shtml)
+- 2026-06-29 19:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/73508.shtml)
+- 2026-06-29 19:30 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/30791231.shtml)
+- 2026-06-29 19:27 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/337261200296.shtml)

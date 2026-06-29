@@ -1,57 +1,55 @@
-# “推动中国藏学研究与国家涉藏高端智库高质量发展”座谈会在北京召开 李干杰出席并讲话
+# 国台办：将支持福建不断探索海峡两岸融合发展新路径、新模式
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新社北京6月3日电 “推动中国藏学研究与国家涉藏高端智库高质量发展”座谈会3日在北京召开。中共中央政治局委员、中央统战部部长李干杰出席开幕式并讲话。 李干杰表示，中国藏学研究中心成立40年以来，发挥牵头协调中国藏学研究的职能，团结带领广大藏学工作者，在服务党的涉藏工作大局、建构中国自主的藏学知识体系、增强学术传播力和影响力、优化完善研究格局上取得新进展，推动中国藏学事业实现跨
+中新网5月13日电 国务院台办13日举行例行新闻发布会。有记者问，近日，建设两岸融合发展示范区部省际工作会议在京召开。请问目前落实《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》情况如何？下一步如何进一步支持福建高质量推进两岸融合发展示范区建设？发言人张晗介绍，自2023年9年《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合
 
 ## 正文
 
-中新社北京6月3日电 “推动中国藏学研究与国家涉藏高端智库高质量发展”座谈会3日在北京召开。
+中新网5月13日电 国务院台办13日举行例行新闻发布会。
 
-中共中央政治局委员、中央统战部部长李干杰出席开幕式并讲话。
+有记者问，近日，建设两岸融合发展示范区部省际工作会议在京召开。
 
-李干杰表示，中国藏学研究中心成立40年以来，发挥牵头协调中国藏学研究的职能，团结带领广大藏学工作者，在服务党的涉藏工作大局、建构中国自主的藏学知识体系、增强学术传播力和影响力、优化完善研究格局上取得新进展，推动中国藏学事业实现跨越式发展。
+请问目前落实《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》情况如何？
 
-李干杰表示，当前国际形势变乱交织，西藏和四省涉藏州县正处于推进长治久安和高质量发展的关键阶段，藏学研究在巩固马克思主义指导地位、促进西藏贯彻新发展理念、提升涉藏治理体系和治理能力现代化水平、提升涉藏国际话语权等方面的作用更加重要。
+下一步如何进一步支持福建高质量推进两岸融合发展示范区建设？
 
-中国藏学研究要强化理论武装，始终把牢藏学研究的正确政治方向；强化战略意识，提升服务党的涉藏工作的能力水平；强化成果宣介，探索创新涉藏对外交流和宣传方式；强化资源整合，创新智库成果的产出转化机制；强化人才根基，激发藏学研究创新活力，不断推动藏学研究取得新的更大发展。
+发言人张晗介绍，自2023年9年《中共中央 国务院关于支持福建探索海峡两岸融合发展新路建设两岸融合发展示范区的意见》发布以来，中央台办、国家发展改革委会同中央和国家机关有关部门及福建省，坚决贯彻落实党中央决策部署，全面推动《意见》各项重点任务落地生效，有力推动两岸融合发展示范区建设走深走实。
 
-西藏、四川、云南、甘肃、青海等省区有关部门负责人，相关学术机构代表，国内藏学研究领域部分学者参加会议。
+近三年来，两岸融合发展示范区对台示范效应逐步显现、影响力日益扩大，台胞台企登陆第一家园更加便利、闽台经贸往来持续热络、福建全域深化两岸融合发展保持良好势头、闽台人文社会交流不断深化，示范区建设取得显著进展。
 
-(完)
+张晗表示，下一步，中央台办、国家发展改革委将会同中央和国家机关有关部门及福建省，支持福建不断探索海峡两岸融合发展的新路径、新模式，推出更多创新举措，深化闽台各领域融合发展，为在更大范围深化两岸融合发展积累可复制、可推广的经验。
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 19:23 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 19:46 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 19:36 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 19:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 19:41 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 19:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-29 19:21 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 19:23 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 19:25 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 19:42 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 19:39 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 19:25 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 19:34 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 19:35 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 19:48 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 19:33 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 19:34 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 19:49 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 19:52 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 19:33 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 19:35 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 19:39 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 19:36 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:26 - [驻港部队军营开放日上演“肌肉秀”](https://www.share.kurohicncr.top/Article/details/32123467.shtml)
-- 2026-06-29 19:20 - [金刚川](http://www.share.kurohicncr.top/Article/details/8919916240.shtml)
-- 2026-06-29 19:31 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/6488383284.shtml)
-- 2026-06-29 19:34 - [永远有话聊的原因](https://www.share.minike.top/Article/details/467540002604.shtml)
-- 2026-06-29 19:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/6566934270.shtml)
-- 2026-06-29 19:22 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/101646168027.shtml)
-- 2026-06-29 19:22 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/545059.shtml)
-- 2026-06-29 19:47 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/694853394.shtml)
-- 2026-06-29 19:43 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/132295110.shtml)
-- 2026-06-29 19:35 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/28025188544.shtml)
-- 2026-06-29 19:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/8838639192.shtml)
-- 2026-06-29 19:22 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/87782371018.shtml)
-- 2026-06-29 19:23 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/31396679.shtml)
-- 2026-06-29 19:22 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/0417040.shtml)
-- 2026-06-29 19:25 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/8148463.shtml)
+- 2026-06-29 19:40 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/99033.shtml)
+- 2026-06-29 19:30 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/260016018915.shtml)
+- 2026-06-29 19:29 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/6563739.shtml)
+- 2026-06-29 19:40 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/92427.shtml)
+- 2026-06-29 19:50 - [RAY评乘风2026总决赛](https://www.blog.kurohicncr.top/Article/details/1338117.shtml)
+- 2026-06-29 19:47 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/908163339.shtml)
+- 2026-06-29 19:37 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.kurohicncr.top/Article/details/153472.shtml)
+- 2026-06-29 19:28 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/869601.shtml)
+- 2026-06-29 19:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/579105910900.shtml)
+- 2026-06-29 19:34 - [扩军害了世界杯吗](http://www.share.minike.top/Article/details/8797870595.shtml)
+- 2026-06-29 19:26 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/10672489.shtml)
+- 2026-06-29 19:39 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/502425230315.shtml)
+- 2026-06-29 19:28 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/5371521506.shtml)
+- 2026-06-29 19:24 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/653861559.shtml)
+- 2026-06-29 19:44 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/02650.shtml)

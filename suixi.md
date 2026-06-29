@@ -1,52 +1,55 @@
-# 海内外侨胞走进重庆潼南 看好汽车后市场发展潜力
+# 贵阳银行：有条件时可以进行中期利润分配
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 11:51 来源：中国新闻网 6月3日，参加2026“一带一路”华侨华人合作发展大会的部分嘉宾走进重庆潼南，实地探访重庆电力高等专科学校汽车后市场产教联合体实训基地，观看潼南汽车后市场全产业链发展与产教融合成果，共商合作方向、共谋发展机遇。 在参访过程中，不少侨界嘉宾对潼南汽车后市场产业布局与产教融合模式表现出浓厚的兴趣。他们表示，全球新能源汽
+5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。2025年度现金分红较上年度增加 3656.20 万元。本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经
 
 ## 正文
 
-发布时间：2026年06月04日 11:51 来源：中国新闻网 6月3日，参加2026“一带一路”华侨华人合作发展大会的部分嘉宾走进重庆潼南，实地探访重庆电力高等专科学校汽车后市场产教联合体实训基地，观看潼南汽车后市场全产业链发展与产教融合成果，共商合作方向、共谋发展机遇。
+5月12日金融一线消息，贵阳银行发布该行参加2026年贵州辖区上市公司投资者集体接待日活动暨2025年度业绩说明会的记录。
 
-在参访过程中，不少侨界嘉宾对潼南汽车后市场产业布局与产教融合模式表现出浓厚的兴趣。
+在互动交流环节，该行回应分红相关问题表示，本行始终高度重视投资者回报，上市以来累计现金分红 86.84 亿元。
 
-他们表示，全球新能源汽车产业快速发展，在新能源汽车后市场，动力电池回收利用领域未来将拥有万亿级市场空间，潼南提前布局，依托产教融合打基础，发展定位精准、产业基础扎实，发展潜力巨大。
+2025年度现金分红较上年度增加 3656.20 万元。
 
-近年来，潼南围绕废旧动力电池梯次利用、报废汽车拆解和汽车零部件再制造等业态，加快推进汽车后市场产业布局，全力打造“中国第一汽车后市场基地”。
+本行牢固树立回报投资者意识，制定新三年股东回报规划，未来将按照监管要求和导向，根据公司实际经营情况，平衡业务稳健发展与投资者长期回报，保持持续、稳定、合理的现金分红，及时与投资者分享经营成果，增强投资者获得感。
 
-(记者 肖江川) 责任编辑：【张燕玲】
+关于中期分红，该行表示，本行牢固树立回报投资者意识，已制定新三年股东回报规划，未来将按照监管要求和导向，平衡业务稳健发展与投资者长期回报，在符合利润分配原则、保证公司正常经营和持续发展的前提下，有条件时可以进行中期利润分配，及时与投资者分享经营成果。
+
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 19:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 19:20 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 19:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 19:18 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 19:19 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 19:46 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 19:27 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 19:38 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 19:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 19:35 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 19:39 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 19:27 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 19:39 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 19:52 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 19:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 19:30 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 19:31 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:27 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 19:35 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 19:50 - [大马同意延长马航370残骸搜寻工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 19:53 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 19:32 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 19:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 19:34 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [戒掉咖啡后我的身体变化](https://www.blog.kurohicncr.top/Article/details/737930.shtml)
-- 2026-06-29 19:38 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/77123546.shtml)
-- 2026-06-29 19:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/2432957.shtml)
-- 2026-06-29 19:28 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/7740711952.shtml)
-- 2026-06-29 19:46 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/86615.shtml)
-- 2026-06-29 19:26 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/40867356.shtml)
-- 2026-06-29 19:47 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/354620.shtml)
-- 2026-06-29 19:39 - [高考1357分的同学如何报志愿？](http://www.share.kurohicncr.top/Article/details/247638618354.shtml)
-- 2026-06-29 19:29 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/25445.shtml)
-- 2026-06-29 19:23 - [NBA交易](http://www.blog.minike.top/Article/details/489471388230.shtml)
-- 2026-06-29 19:18 - [周杰伦演唱会含星量](https://www.blog.kurohicncr.top/Article/details/0012392.shtml)
-- 2026-06-29 19:21 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/4583219217.shtml)
-- 2026-06-29 19:26 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/00475664346.shtml)
-- 2026-06-29 19:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/8505993711.shtml)
-- 2026-06-29 19:47 - [欧洲极端高温如何影响家电股](http://www.share.kurohicncr.top/Article/details/791608.shtml)
+- 2026-06-29 19:32 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/794069932826.shtml)
+- 2026-06-29 19:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/52868365949.shtml)
+- 2026-06-29 19:48 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/11515150.shtml)
+- 2026-06-29 19:46 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/945111461878.shtml)
+- 2026-06-29 19:30 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/011841228896.shtml)
+- 2026-06-29 19:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/103468278923.shtml)
+- 2026-06-29 19:43 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/7075999.shtml)
+- 2026-06-29 19:40 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/11689878468.shtml)
+- 2026-06-29 19:27 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/161942.shtml)
+- 2026-06-29 19:31 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/70983942.shtml)
+- 2026-06-29 19:47 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/891207.shtml)
+- 2026-06-29 19:33 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/232439.shtml)
+- 2026-06-29 19:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/424320304773.shtml)
+- 2026-06-29 19:28 - [女心理师](https://www.blog.minike.top/Article/details/008146.shtml)
+- 2026-06-29 19:35 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/459889.shtml)

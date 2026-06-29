@@ -1,61 +1,57 @@
-# OPEC+石油配额恢复接近完成 最后一批供应限制解除前景受关注
+# York Space Systems遭Wolfpack Research做空，股价暴跌
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-OPEC+恢复数百万桶此前暂停供应的进程已接近完成，至少在纸面上是如此，这让人对该集团原定于2027年恢复投放市场的最后一批产量前景产生疑问。 过去一年，OPEC及其盟友恢复了2023年减产规模的80%以上。与会代表表示，该联盟计划截至9月分三次进一步提高配额，以完成这一复产进程，他们预计将在周日视频会议上批准7月配额又一次小幅上调，幅度为每日18.8万桶。 战争迫使沙特阿拉伯
+太空科技公司York Space Systems周一股价大幅下挫，此前做空机构Wolfpack Research宣布已建立空头头寸，并发布做空报告，直指该公司对五角大楼单一客户的过度依赖正面临重大风险。 Wolfpack Research在报告中指出，York Space Systems 2025年高达96%的营收来自向五角大楼旗下太空发展局出售卫星。然而，五角大楼已于今年4月
 
 ## 正文
 
-OPEC+恢复数百万桶此前暂停供应的进程已接近完成，至少在纸面上是如此，这让人对该集团原定于2027年恢复投放市场的最后一批产量前景产生疑问。
+太空科技公司York Space Systems周一股价大幅下挫，此前做空机构Wolfpack Research宣布已建立空头头寸，并发布做空报告，直指该公司对五角大楼单一客户的过度依赖正面临重大风险。
 
-过去一年，OPEC及其盟友恢复了2023年减产规模的80%以上。
+Wolfpack Research在报告中指出，York Space Systems 2025年高达96%的营收来自向五角大楼旗下太空发展局出售卫星。
 
-与会代表表示，该联盟计划截至9月分三次进一步提高配额，以完成这一复产进程，他们预计将在周日视频会议上批准7月配额又一次小幅上调，幅度为每日18.8万桶。
+然而，五角大楼已于今年4月下旬宣布取消对太空发展局“第3批次传输层”项目的未来资金支持，并着手解散太空发展局。
 
-战争迫使沙特阿拉伯、伊拉克和科威特削减产量，令市场对OPEC+石油的需求变得十分迫切；但由于霍尔木兹海峡油轮通行严重受阻，该集团无法立即满足这一需求。
+做空机构进一步披露，该传输层项目将被“太空数据网络”取代。
 
-因此，尽管他们在纸面上提高产量配额，实际产量水平却大幅下降。
+根据4月28日公开的五角大楼预算文件，SpaceX旗下的Starshield已被列为太空数据网络的指定供应商，文件中并未提及针对第二家卫星供应商的竞争性招标安排。
 
-最后一批供应限制定于明年解除。
+Wolfpack Research还与多名前员工进行了交流，这些员工对York提出批评，称该公司在争取合同时存在欺骗太空发展局的行为，并在生产过程中偷工减料，交付的卫星其关键任务软件尚未完成开发。
 
-几位与会代表表示，鉴于最近几批供应恢复速度快于原计划，加上市场迫切需要石油，最后这一批供应限制也有可能提前解除。
+York Space Systems于今年1月完成IPO，其增长预期建立在此前为太空发展局持续供货的基础之上。
 
-只要霍尔木兹海峡关闭，这些决定基本上只具有象征意义。
+该公司定于本周三举行下一次财报电话会议。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 19:35 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 19:41 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 19:39 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 19:32 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 19:31 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 19:45 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 19:28 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 19:28 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 19:21 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 19:22 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 19:29 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 19:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 19:39 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 19:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-29 19:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 19:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 19:31 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 19:31 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 19:31 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 19:34 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 19:28 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 19:32 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 19:43 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 19:48 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 19:28 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/437966153.shtml)
-- 2026-06-29 19:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/88529853386.shtml)
-- 2026-06-29 19:37 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/795619.shtml)
-- 2026-06-29 19:41 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/148231864.shtml)
-- 2026-06-29 19:35 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/1193839.shtml)
-- 2026-06-29 19:22 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/786720703040.shtml)
-- 2026-06-29 19:26 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/22696895788.shtml)
-- 2026-06-29 19:35 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/95220942.shtml)
-- 2026-06-29 19:42 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/9871895.shtml)
-- 2026-06-29 19:22 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/024688288.shtml)
-- 2026-06-29 19:27 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/6458337858.shtml)
-- 2026-06-29 19:44 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/978270189.shtml)
-- 2026-06-29 19:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/416795.shtml)
-- 2026-06-29 19:42 - [请回答王牌2019](http://www.share.minike.top/Article/details/30286606.shtml)
-- 2026-06-29 19:23 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/3170372.shtml)
+- 2026-06-29 19:36 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/066827.shtml)
+- 2026-06-29 19:35 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.minike.top/Article/details/089881987801.shtml)
+- 2026-06-29 19:44 - [急先锋](https://www.blog.kurohicncr.top/Article/details/920824851140.shtml)
+- 2026-06-29 19:43 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/274667448.shtml)
+- 2026-06-29 19:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/7850344.shtml)
+- 2026-06-29 19:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/294286698629.shtml)
+- 2026-06-29 19:31 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/351271717573.shtml)
+- 2026-06-29 19:44 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/7954204277.shtml)
+- 2026-06-29 19:31 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/098730070852.shtml)
+- 2026-06-29 19:40 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/59924810.shtml)
+- 2026-06-29 19:43 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/96379.shtml)
+- 2026-06-29 19:44 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/69612.shtml)
+- 2026-06-29 19:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/3689459.shtml)
+- 2026-06-29 19:47 - [沙丘](http://www.share.kurohicncr.top/Article/details/275558088188.shtml)
+- 2026-06-29 19:29 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/296550.shtml)

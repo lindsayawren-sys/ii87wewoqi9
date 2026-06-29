@@ -1,56 +1,57 @@
-# 3.7万亿浙商银行新晋两位“中行系”70后副行长 高管架构重回“一正四副”
+# 国家攀岩队走进校园讲述“向上”的力量
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-来源：今日行长 原标题：3.7万亿浙商银行新晋两位“中行系”70后副行长！高管架构重回“一正四副”；一季度营利双增，年初首度跻身系统重要性银行 钱塘江畔，即将22岁的浙商银行又迎来两位“中行系”70后副行长。 6月3日，浙商银行公告称国家金融监督管理总局（简称：金监总局）已核准周伟新、潘华枫副行长任职资格。公开资料显示，两位均为70后核心骨干，且早年间都曾扎根中行体系，分别曾任
+中新网苏州5月11日电 11日，“中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动走进苏州市攀岩特色学校华中师范大学苏州湾实验小学。国家攀岩队速度组主教练钟齐鑫和运动员赵一程、李美妮、胡隽喆等到场，与师生们面对面交流，分享突破背后的拼搏历程。 国家攀岩队近期连破世界纪录，在多项国际赛事中取得优异战绩。在中华体育精神大讲堂上，李美妮从自己6岁结缘攀岩、7岁成为专业
 
 ## 正文
 
-来源：今日行长 原标题：3.7万亿浙商银行新晋两位“中行系”70后副行长！
+中新网苏州5月11日电 11日，“中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动走进苏州市攀岩特色学校华中师范大学苏州湾实验小学。
 
-高管架构重回“一正四副”；一季度营利双增，年初首度跻身系统重要性银行 钱塘江畔，即将22岁的浙商银行又迎来两位“中行系”70后副行长。
+国家攀岩队速度组主教练钟齐鑫和运动员赵一程、李美妮、胡隽喆等到场，与师生们面对面交流，分享突破背后的拼搏历程。
 
-6月3日，浙商银行公告称国家金融监督管理总局（简称：金监总局）已核准周伟新、潘华枫副行长任职资格。
+国家攀岩队近期连破世界纪录，在多项国际赛事中取得优异战绩。
 
-公开资料显示，两位均为70后核心骨干，且早年间都曾扎根中行体系，分别曾任中行安徽分行副行长、中行宁波分行风险管理处处长，此番履新前均为浙商银行党委委员、行长助理。
+在中华体育精神大讲堂上，李美妮从自己6岁结缘攀岩、7岁成为专业运动员的经历讲起，“只要勇敢迈出第一步，看似遥不可及的高度，也能慢慢靠近。
 
-随着二人正式上岗，浙商银行高管队伍重回“一正四副”的配置架构。
+”她告诉同学们，坚持与自律是跨越困难的最好武器。
 
-值得一提的是，目前浙商银行四位副行长中仅骆峰一人是完全由浙商银行内部培养成长起来的高管，其余三位早前或供职于国有大行，或出身其他全国性股份行，如周、潘之外，副行长景峰曾任中国民生银行行苏州分行计划财务部总经理。
+胡隽喆分享了自己对攀岩与成长的理解。
 
-去年年底以来，浙商银行领导班子变化不可谓不大。
+他直言，最初只是被攀岩“脱离地心引力”的感觉吸引，真正走上职业道路后，才体会到训练背后需要付出的努力。
 
-2025年12月31日，浙商银行董事会决议新聘董事长陈海强，行长吕临华，两位副行长周伟新、潘华枫；同时，原副行长林静然，行长助理王超明、侯波均因工作岗位调整辞去相关职务。
+胡隽喆鼓励同学们，青春最美的姿态莫过于为热爱全力以赴，努力的意义不在于一定要站在世界之巅，而在于那个不断“向上”的过程。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 19:26 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 19:34 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 19:26 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 19:41 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 19:41 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 19:38 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 19:21 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 19:19 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 19:33 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 19:35 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 19:25 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 19:31 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 19:44 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 19:24 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 19:32 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 19:51 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 19:44 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 19:36 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 19:34 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 19:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [沙丘](https://www.blog.kurohicncr.top/Article/details/736767885865.shtml)
-- 2026-06-29 19:47 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/915889.shtml)
-- 2026-06-29 19:47 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/983939.shtml)
-- 2026-06-29 19:19 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/1198926182.shtml)
-- 2026-06-29 19:46 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/27390.shtml)
-- 2026-06-29 19:31 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/672000619035.shtml)
-- 2026-06-29 19:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/32181161.shtml)
-- 2026-06-29 19:36 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/572016505446.shtml)
-- 2026-06-29 19:34 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/1892294.shtml)
-- 2026-06-29 19:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/5548768710.shtml)
-- 2026-06-29 19:35 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/5950906784.shtml)
-- 2026-06-29 19:34 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/7841786.shtml)
-- 2026-06-29 19:32 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/929894.shtml)
-- 2026-06-29 19:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/6107598358.shtml)
-- 2026-06-29 19:46 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/774534929.shtml)
+- 2026-06-29 19:51 - [韩国小学生都来吐槽了](http://www.blog.kurohicncr.top/Article/details/89066543.shtml)
+- 2026-06-29 19:44 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/6248712.shtml)
+- 2026-06-29 19:51 - [美国一牛仔表演发生事故](https://www.blog.minike.top/Article/details/557069832731.shtml)
+- 2026-06-29 19:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/738229906190.shtml)
+- 2026-06-29 19:51 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/5471045675.shtml)
+- 2026-06-29 19:36 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/18064.shtml)
+- 2026-06-29 19:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/1450840.shtml)
+- 2026-06-29 19:48 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/216128.shtml)
+- 2026-06-29 19:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/605996.shtml)
+- 2026-06-29 19:30 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/91119159573.shtml)
+- 2026-06-29 19:25 - [青春环游记第三季](https://www.share.minike.top/Article/details/529404884.shtml)
+- 2026-06-29 19:26 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.blog.minike.top/Article/details/4942458214.shtml)
+- 2026-06-29 19:48 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/394511250906.shtml)
+- 2026-06-29 19:52 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/5308179605.shtml)
+- 2026-06-29 19:43 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/10652737.shtml)

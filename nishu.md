@@ -1,49 +1,56 @@
-# 教育部和各省（区、市）开通2026年高考举报电话
+# 俄罗斯新接收LNG运输船完成受制裁项目货物装载
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网6月4日电 据“微言教育”微信公众号消息，近日，教育部统一公布了教育部以及各省(区、市)2026年的高考举报电话，欢迎广大考生、家长及社会各界人士及时举报反映涉及2026年高考的问题线索。教育部及各省(区、市)将会同有关部门根据举报线索第一时间核查处理，坚决维护高考公平公正。
+据伦敦证券交易所集团（LSEG）监测数据显示，俄罗斯近期纳入其能源运输编队的液化天然气（LNG）运输船“默库里”号（Merkuriy）已完成货物装载。该船货物提自受美方制裁的“北极LNG 2”项目（Arctic LNG 2），目前正由俄北极港口摩尔曼斯克附近海域向西航行。 监测信息显示，“默库里”号于5月9日在摩尔曼斯克附近的“萨姆”（Saam）浮式仓储装置完成装载，该装置主要
 
 ## 正文
 
-中新网6月4日电 据“微言教育”微信公众号消息，近日，教育部统一公布了教育部以及各省(区、市)2026年的高考举报电话，欢迎广大考生、家长及社会各界人士及时举报反映涉及2026年高考的问题线索。
+据伦敦证券交易所集团（LSEG）监测数据显示，俄罗斯近期纳入其能源运输编队的液化天然气（LNG）运输船“默库里”号（Merkuriy）已完成货物装载。
 
-教育部及各省(区、市)将会同有关部门根据举报线索第一时间核查处理，坚决维护高考公平公正。
+该船货物提自受美方制裁的“北极LNG 2”项目（Arctic LNG 2），目前正由俄北极港口摩尔曼斯克附近海域向西航行。
+
+监测信息显示，“默库里”号于5月9日在摩尔曼斯克附近的“萨姆”（Saam）浮式仓储装置完成装载，该装置主要用于“北极LNG 2”项目的液化天然气转运作业。
+
+为应对外部制裁压力、保障能源出口安全，俄罗斯近几个月内已先后将“奥赖恩”号（Orion）、“鲁奇”号（Luch）、“默库里”号及“科斯莫斯”号（Kosmos）四艘LNG运输船纳入其运输船队。
+
+上述船只均建造于2005年至2006年间，近期通过变更所有权及重新注册等方式，全部转入俄罗斯旗帜下运行。
+
+目前，“默库里”号的最终航行目的地尚未公开。
+
+有消息人士指出，尽管中东局势动荡导致全球能源供应趋紧，但由于担忧美方制裁影响，印度方面已拒绝了俄方关于购买“北极LNG 2”项目产品的提议。
+
+莫斯科方面正加速推动液化天然气供应的多元化布局，以应对欧洲市场的政策转向。
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 19:23 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 19:22 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 19:40 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 19:24 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 19:30 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 19:30 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 19:18 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-29 19:35 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-29 19:44 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 19:18 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 19:22 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 19:26 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 19:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 19:43 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 19:48 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 19:42 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 19:39 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 19:45 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 19:31 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 19:37 - [赵今麦时隔五年再演李诗情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 19:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 19:36 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 19:50 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 19:48 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/55690497.shtml)
-- 2026-06-29 19:41 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/0269330213.shtml)
-- 2026-06-29 19:31 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/17822411.shtml)
-- 2026-06-29 19:45 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/87655.shtml)
-- 2026-06-29 19:18 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/76807482077.shtml)
-- 2026-06-29 19:34 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.kurohicncr.top/Article/details/9553254066.shtml)
-- 2026-06-29 19:31 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/758795204.shtml)
-- 2026-06-29 19:35 - [斛珠夫人](http://www.share.minike.top/Article/details/456792.shtml)
-- 2026-06-29 19:18 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/2179105.shtml)
-- 2026-06-29 19:24 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/16538340197.shtml)
-- 2026-06-29 19:41 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/677353572.shtml)
-- 2026-06-29 19:44 - [明星大侦探第四季](https://www.share.minike.top/Article/details/2751694.shtml)
-- 2026-06-29 19:22 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/8366527.shtml)
-- 2026-06-29 19:20 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/98677708.shtml)
-- 2026-06-29 19:20 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/470456974962.shtml)
+- 2026-06-29 19:41 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/12305472791.shtml)
+- 2026-06-29 19:43 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/2650850043.shtml)
+- 2026-06-29 19:37 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/6475898097.shtml)
+- 2026-06-29 19:40 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/093742404.shtml)
+- 2026-06-29 19:43 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/28718497.shtml)
+- 2026-06-29 19:47 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/5461018063.shtml)
+- 2026-06-29 19:24 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/320984477.shtml)
+- 2026-06-29 19:43 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/827503748948.shtml)
+- 2026-06-29 19:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/182906052.shtml)
+- 2026-06-29 19:29 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/68461319253.shtml)
+- 2026-06-29 19:36 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/0876268182.shtml)
+- 2026-06-29 19:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/86357.shtml)
+- 2026-06-29 19:28 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/220126.shtml)
+- 2026-06-29 19:30 - [TFING全员黑西装](http://www.share.minike.top/Article/details/54626266.shtml)
+- 2026-06-29 19:47 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/389920229.shtml)

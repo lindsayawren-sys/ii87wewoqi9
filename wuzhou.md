@@ -1,61 +1,60 @@
-# Meta指责澳大利亚拟设新税违反美澳自贸协定
+# 美国参议院批准凯文·沃什出任美联储理事
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-Meta公司周四发表声明，指责澳大利亚政府拟推行的“新闻议价激励机制”（News Bargaining Incentive）草案明显违反了《美澳自由贸易协定》，并警告该政策或将引发美方的贸易报复。此举标志着这家全球社交媒体巨头与澳大利亚政府围绕新闻版权付费问题持续五年的争端再度升级。 根据澳大利亚中左翼工党政府此前公布的立法草案，若Meta、谷歌及海外短视频平台平台TikTok
+美国参议院已确认凯文·沃什出任美联储理事会理事，这使他有望在鲍威尔的任期于周五结束后接任美联储主席。 周二51票赞成、45票反对的表决结果几乎完全按照党派划线，仅有宾夕法尼亚州的约翰·费特曼这一名民主党人投票支持沃什。在上个月的提名确认听证会上，民主党人就沃什是否会抵制白宫对美联储的影响进行了密集盘问。沃什曾表示，他将独立开展工作。 此次投票确认沃什成为美联储七名理事之一，让他
 
 ## 正文
 
-Meta公司周四发表声明，指责澳大利亚政府拟推行的“新闻议价激励机制”（News Bargaining Incentive）草案明显违反了《美澳自由贸易协定》，并警告该政策或将引发美方的贸易报复。
+美国参议院已确认凯文·沃什出任美联储理事会理事，这使他有望在鲍威尔的任期于周五结束后接任美联储主席。
 
-此举标志着这家全球社交媒体巨头与澳大利亚政府围绕新闻版权付费问题持续五年的争端再度升级。
+周二51票赞成、45票反对的表决结果几乎完全按照党派划线，仅有宾夕法尼亚州的约翰·费特曼这一名民主党人投票支持沃什。
 
-根据澳大利亚中左翼工党政府此前公布的立法草案，若Meta、谷歌及海外短视频平台平台TikTok等科技巨头未能与澳大利亚本地新闻媒体达成内容授权协议，将被征收相当于其在澳总收入2.25%的专项税。
+在上个月的提名确认听证会上，民主党人就沃什是否会抵制白宫对美联储的影响进行了密集盘问。
 
-Meta对此强烈反对，并在官方博客中指出，该法案以企业在澳全部营业额（包括与社交媒体无关的收入）为征税基准“完全站不住脚”。
+沃什曾表示，他将独立开展工作。
 
-Meta强调，此举公然违背了澳大利亚在美澳自贸协定中向美方做出的“给予美国企业不低于其本国企业待遇”的承诺，其征税范围甚至超过了此前部分欧洲国家引发美国启动贸易调查并实施反制的“数字服务税”。
+此次投票确认沃什成为美联储七名理事之一，让他重返了2006年至2011年间曾担任的职位，当时他还是理事会的一副新面孔。
 
-针对Meta的指责，负责监督该税项的澳大利亚助理国库部长丹尼尔·穆利诺（Daniel Mulino）的发言人回应称，堪培拉方面将继续致力于推进这一立法程序。
+美联储理事任期为14年。
 
-澳方强调，该政策本质上是一项激励机制而非单纯征税，旨在引导数字平台与本地新闻机构达成合理的商业补偿协议，所有最终收缴的税款也将全额返还给澳大利亚新闻媒体行业，以支持本地新闻生态的数字转型。
+沃什接替了斯蒂芬·米兰。
 
-分析人士指出，在当前美国特朗普政府任内，堪培拉方面对主要位于美国的科技巨头的监管举措，已逐渐演变为美澳双边关系中的一个敏感点。
+米兰是特朗普政府前顾问，从去年年底开始在理事会填补了一个短暂的临时空缺。
 
 ## 相关推荐
 
-- 2026-06-29 19:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 19:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 19:37 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 19:45 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 19:19 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 19:31 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 19:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 19:31 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 19:35 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 19:31 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 19:40 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 19:47 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:28 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 19:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 19:23 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 19:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 19:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 19:51 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-29 19:29 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 19:47 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 19:28 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 19:26 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 19:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 19:40 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 19:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 19:39 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 19:32 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 19:30 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 19:27 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:28 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/483766.shtml)
-- 2026-06-29 19:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/13812865811.shtml)
-- 2026-06-29 19:25 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/123781856.shtml)
-- 2026-06-29 19:34 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/207961426.shtml)
-- 2026-06-29 19:30 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/11181708.shtml)
-- 2026-06-29 19:44 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/11415452.shtml)
-- 2026-06-29 19:42 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/25039.shtml)
-- 2026-06-29 19:37 - [我和我的家乡](http://www.blog.minike.top/Article/details/6263920308.shtml)
-- 2026-06-29 19:33 - [海清4次陪跑白玉兰](http://www.share.kurohicncr.top/Article/details/40320609.shtml)
-- 2026-06-29 19:39 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/985645.shtml)
-- 2026-06-29 19:42 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/72632.shtml)
-- 2026-06-29 19:19 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/6783188708.shtml)
-- 2026-06-29 19:38 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/2728956.shtml)
-- 2026-06-29 19:29 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/8412866.shtml)
-- 2026-06-29 19:29 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/25266117.shtml)
+- 2026-06-29 19:29 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/14520696677.shtml)
+- 2026-06-29 19:48 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/599184599.shtml)
+- 2026-06-29 19:48 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/33725673.shtml)
+- 2026-06-29 19:31 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/3706554357.shtml)
+- 2026-06-29 19:32 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/3350850.shtml)
+- 2026-06-29 19:36 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/6543230.shtml)
+- 2026-06-29 19:38 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/497422.shtml)
+- 2026-06-29 19:31 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/5542102187.shtml)
+- 2026-06-29 19:47 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/1395653.shtml)
+- 2026-06-29 19:47 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/719867381399.shtml)
+- 2026-06-29 19:25 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/620428.shtml)
+- 2026-06-29 19:34 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/69658409.shtml)
+- 2026-06-29 19:41 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/1774606250.shtml)
+- 2026-06-29 19:50 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/34161328084.shtml)
+- 2026-06-29 19:42 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/698169625.shtml)

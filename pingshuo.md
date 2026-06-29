@@ -1,60 +1,58 @@
-# 全球媒体聚焦 | 外媒：英国外交大臣访华 西方国家日益重视与中国的关系
+# 英国石油收购乌兹别克斯坦油气区块40%股权
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-英国外交大臣库珀于6月1日至3日访华并参加第十一次中英战略对话。对此，卡塔尔半岛电视台3日发表了题为《英中“冰河时代”解冻：为何西方需要北京》的文章。 文章称，英国首相斯塔默今年1月访问了北京，而外交大臣库珀此次对中国进行了为期三天的访问。尽管两国存在一些分歧，但英国和中国正努力重振经济和外交关系。 文章说，库珀此次访华并非个案。在库珀此次访问北京前，已经有多位其他国家的领导人
+英国石油周三宣布，已收购乌兹别克斯坦乌斯秋尔特地区六块油气勘探区块产量分成协议40%的参与权益，此举标志着公司重新聚焦传统能源业务。 2021年，在时任首席执行官伯纳德・卢尼推动绿色转型战略期间，英国石油退出了该区域的勘探业务。彼时卢尼曾承诺，到2030年将油气产量削减40%。但如今，公司正重新回归化石能源业务。 英国石油阿塞拜疆、格鲁吉亚及土耳其区域总裁乔・克里斯托福利周三表
 
 ## 正文
 
-英国外交大臣库珀于6月1日至3日访华并参加第十一次中英战略对话。
+英国石油周三宣布，已收购乌兹别克斯坦乌斯秋尔特地区六块油气勘探区块产量分成协议40%的参与权益，此举标志着公司重新聚焦传统能源业务。
 
-对此，卡塔尔半岛电视台3日发表了题为《英中“冰河时代”解冻：为何西方需要北京》的文章。
+2021年，在时任首席执行官伯纳德・卢尼推动绿色转型战略期间，英国石油退出了该区域的勘探业务。
 
-文章称，英国首相斯塔默今年1月访问了北京，而外交大臣库珀此次对中国进行了为期三天的访问。
+彼时卢尼曾承诺，到2030年将油气产量削减40%。
 
-尽管两国存在一些分歧，但英国和中国正努力重振经济和外交关系。
+但如今，公司正重新回归化石能源业务。
 
-文章说，库珀此次访华并非个案。
+英国石油阿塞拜疆、格鲁吉亚及土耳其区域总裁乔・克里斯托福利周三表示：“我们认为乌兹别克斯坦具备巨大的资源潜力，并将此次合作视为助力该国油气资源勘探与开发的契机。
 
-在库珀此次访问北京前，已经有多位其他国家的领导人和官员相继访问中国。
+” 英国石油从现有合作伙伴阿塞拜疆国家石油公司与乌兹别克国家石油天然气公司手中合计收购40%权益；交易完成后，后两者各持有30%股份。
 
-在全球局势日益动荡之际，他们都渴望与世界第二大经济体进行接触。
+阿塞拜疆国家石油公司仍担任这六大区块的作业方，涵盖博伊泰拉克制、捷连库杜克、比尔库里、哈罗伊、卡拉卡尔帕克、库尔博伊区块。
 
-文章表示，库珀承认伦敦和北京之间存在“分歧领域”，但她坚持认为，以“坦诚和尊重”的态度进行讨论将有助于增进相互了解。
+英国石油早在2018年就已与阿塞拜疆国家石油公司、乌兹别克国家石油天然气公司签署过勘探合作协议。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 19:40 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 19:34 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 19:25 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 19:38 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 19:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 19:35 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 19:42 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 19:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 19:36 - [欧洲极端高温如何影响家电股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 19:42 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 19:33 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 19:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 19:26 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 19:36 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 19:53 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 19:38 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 19:46 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 19:43 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-29 19:42 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-29 19:38 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 19:29 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:35 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 19:39 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 19:35 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 19:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/30455480.shtml)
-- 2026-06-29 19:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/79790488205.shtml)
-- 2026-06-29 19:38 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/256527.shtml)
-- 2026-06-29 19:23 - [首个靠AI躺赢的国家](https://www.blog.kurohicncr.top/Article/details/485879519.shtml)
-- 2026-06-29 19:33 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/857588016.shtml)
-- 2026-06-29 19:46 - [内马尔打日本前先买百万美元豪表](https://www.blog.kurohicncr.top/Article/details/636552.shtml)
-- 2026-06-29 19:40 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/1005901667.shtml)
-- 2026-06-29 19:30 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/669316735.shtml)
-- 2026-06-29 19:20 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/66391.shtml)
-- 2026-06-29 19:46 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/64502.shtml)
-- 2026-06-29 19:27 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/8316963.shtml)
-- 2026-06-29 19:27 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/5191248950.shtml)
-- 2026-06-29 19:28 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/807328.shtml)
-- 2026-06-29 19:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/17431.shtml)
-- 2026-06-29 19:37 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/70376566773.shtml)
+- 2026-06-29 19:39 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/23191.shtml)
+- 2026-06-29 19:50 - [哈兰德吃饭被镜中自己吓到](http://www.share.kurohicncr.top/Article/details/76109544.shtml)
+- 2026-06-29 19:25 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/825195.shtml)
+- 2026-06-29 19:25 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/22372.shtml)
+- 2026-06-29 19:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/768268.shtml)
+- 2026-06-29 19:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/09506474.shtml)
+- 2026-06-29 19:35 - [一家三口吃溪石斑鱼中毒](http://www.share.minike.top/Article/details/977733119.shtml)
+- 2026-06-29 19:24 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/280243061185.shtml)
+- 2026-06-29 19:32 - [一见倾心](http://www.share.kurohicncr.top/Article/details/0327338371.shtml)
+- 2026-06-29 19:29 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/57828805942.shtml)
+- 2026-06-29 19:45 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/405834606794.shtml)
+- 2026-06-29 19:32 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/076990614144.shtml)
+- 2026-06-29 19:29 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/217025.shtml)
+- 2026-06-29 19:30 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/9068572447.shtml)
+- 2026-06-29 19:53 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/78166.shtml)

@@ -1,60 +1,59 @@
-# 广州数智未来展：多款首发产品“秀”出中国智造新高度
+# 汤森路透将Anthropic的Claude接入其法律产品CoCounsel Legal
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-广州国际数智装备与人工智能展览会深度推动“两业融合” 多款首发产品“秀”出中国智造新高度 从航空级高精传动到具身智能机器人，从低空物流无人机到智能物流装备全链路解决方案……昨日，由广州国际会展集团和汉诺威米兰佰特展览联合主办的广州国际数智装备与人工智能展览会(以下简称“数智未来展”)开幕。展会设立广州国际低空经济与航空航天展览会、广州国际智能装备与机器人展览会、中国(广州)国际
+汤森路透（Thomson Reuters）正将Anthropic的Claude整合至其人工智能法律工具CoCounsel Legal中。 汤森路透的新一代法律助理平台已基于Anthropic的Claude Agent SDK完成重构。该公司表示，这标志著该系统正向全新模式转变：它现在能够自主规划、选择工具、检索权威内容，并在工作流程中动态调整。 该公司表示，律师将能够用通俗易懂
 
 ## 正文
 
-广州国际数智装备与人工智能展览会深度推动“两业融合” 多款首发产品“秀”出中国智造新高度 从航空级高精传动到具身智能机器人，从低空物流无人机到智能物流装备全链路解决方案……昨日，由广州国际会展集团和汉诺威米兰佰特展览联合主办的广州国际数智装备与人工智能展览会(以下简称“数智未来展”)开幕。
+汤森路透（Thomson Reuters）正将Anthropic的Claude整合至其人工智能法律工具CoCounsel Legal中。
 
-展会设立广州国际低空经济与航空航天展览会、广州国际智能装备与机器人展览会、中国(广州)国际物流装备与技术展览会三大核心展区，为全球客商搭建集技术展示、场景落地于一体的顶级行业盛会，深度推动先进制造业和现代服务业“两业融合”，向外界“秀”出了中国智造技术新高度。
+汤森路透的新一代法律助理平台已基于Anthropic的Claude Agent SDK完成重构。
 
-强强联合打造AI“生态圈”在展会启动仪式暨广州数字科技生态大会上，重磅发布了十余款广州数字科技AI创新产品及平台成果，集结多家龙头企业核心前沿新品，覆盖国产化算力、行业大模型、工业智能检测、智慧医疗、智能调度、网络安全、智慧交通、人才赋能等领域，充分彰显广州本土数字科技企业强劲的研发创新能力与场景落地实力。
+该公司表示，这标志著该系统正向全新模式转变：它现在能够自主规划、选择工具、检索权威内容，并在工作流程中动态调整。
 
-大会现场，广州数科集团携手中国电子信息行业联合会、中国电信广州分公司、广州移动、中国联通广州市分公司、华为等单位，联合发起“广州数字科技生态共建”行动，围绕资源整合、技术攻关、生态搭建、成果转化等核心方向深化合作，致力于打造开放共生、协同共赢的数字科技产业生态圈，助力广州加速建成数字经济引领型城市。
+该公司表示，律师将能够用通俗易懂的语言描述案件，由CoCounsel Legal便能执行精准查询、起草带引文的文书，并在符合受托标准的工作成果中附上经核实的参考文献。
 
-与此同时，广州数科集团与华为达成深度战略合作，双方将持续深耕算力中心建设、AI技术创新、行业数智解决方案研发等重点领域，夯实广州数字产业算力底座与技术底盘，加速数字技术与实体经济深度融合，赋能各行业数字化、智能化升级。
+目前，各大律所、企业法务部门及政府机构的法律专业人士已广泛使用CoCounsel Legal。
 
-广州数字科技集团相关负责人表示，未来，广州数科集团将与华为围绕人工智能、金融、交通、医疗等领域展开更加深度的合作，构建广州算力底座，通过合作打造更多的国家人工智能中试基地和示范项目，把广州的人工智能应用在各个场景落地，真正服务于工业制造、服务业以及居民日常生活。
+汤森路透表示，借助最新版本，专业人士将能够在Claude与CoCounsel Legal符合受托标准的工作流程之间自由流转工作任务。
 
-“秀”出低空经济全链条生态 低空经济领域是本次数智未来展的焦点。
+该公司表示，法律AI的应用正持续加速；但与此同时，通用AI的速度与便利性，同专业级系统的准确性与可验证性之间，差距也在不断拉大。
 
-“本次参展是广州低空经济全生态实力的集中展示。
+汤森路透首席产品官David Wong表示：“汤森路透正致力于将CoCounsel Legal打造成法律工作的核心系统。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 19:29 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 19:29 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-29 19:46 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 19:32 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 19:39 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 19:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 19:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 19:32 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 19:38 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-29 19:22 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 19:21 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 19:47 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 19:28 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 19:53 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 19:25 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 19:49 - [V8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 19:48 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 19:38 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 19:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 19:26 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 19:53 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 19:24 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 19:37 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:27 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 19:25 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 19:44 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:43 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/503345585.shtml)
-- 2026-06-29 19:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/71457307.shtml)
-- 2026-06-29 19:29 - [曝斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/300777309.shtml)
-- 2026-06-29 19:32 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/14514.shtml)
-- 2026-06-29 19:33 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/4299372814.shtml)
-- 2026-06-29 19:24 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/093367069.shtml)
-- 2026-06-29 19:45 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/7210930.shtml)
-- 2026-06-29 19:42 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/6861893797.shtml)
-- 2026-06-29 19:42 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/41700390431.shtml)
-- 2026-06-29 19:36 - [一生一世](https://www.share.kurohicncr.top/Article/details/459675556816.shtml)
-- 2026-06-29 19:40 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/881390.shtml)
-- 2026-06-29 19:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/089705.shtml)
-- 2026-06-29 19:19 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/792827596.shtml)
-- 2026-06-29 19:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/85596364.shtml)
-- 2026-06-29 19:38 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/79692239906.shtml)
+- 2026-06-29 19:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/987061992.shtml)
+- 2026-06-29 19:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/66278.shtml)
+- 2026-06-29 19:42 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/228930.shtml)
+- 2026-06-29 19:52 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/64907301.shtml)
+- 2026-06-29 19:31 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/0263533546.shtml)
+- 2026-06-29 19:33 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/888249.shtml)
+- 2026-06-29 19:45 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/542579961206.shtml)
+- 2026-06-29 19:40 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/17475109798.shtml)
+- 2026-06-29 19:50 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/64647873.shtml)
+- 2026-06-29 19:39 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/336824510.shtml)
+- 2026-06-29 19:44 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/651989940105.shtml)
+- 2026-06-29 19:47 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/18077210.shtml)
+- 2026-06-29 19:25 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/76345.shtml)
+- 2026-06-29 19:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/412807101.shtml)
+- 2026-06-29 19:31 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/398908529.shtml)

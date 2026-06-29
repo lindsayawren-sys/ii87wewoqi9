@@ -1,45 +1,46 @@
-# 港股存储概念股全线走弱 南方两倍做多海力士盘中跌超15%
+# 创业板第二只千元股来了
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-6月5日消息，港股存储概念股全线走弱，南方两倍做多海力士盘中跌超15%，南方两倍做多三星电子盘中跌超12%，澜起科技、兆易创新跌近6%，伟仕佳杰跌超4%。 责任编辑：郝欣煜
+发布时间：2026年05月12日 14:05 来源：中国新闻网 5月12日，光模块龙头企业中际旭创股价盘中突破1000元，成为创业板史上第二只千元股，也是A股史上第十只千元股。(记者 谢艺观） 责任编辑：【宋宇晟】
 
 ## 正文
 
-6月5日消息，港股存储概念股全线走弱，南方两倍做多海力士盘中跌超15%，南方两倍做多三星电子盘中跌超12%，澜起科技、兆易创新跌近6%，伟仕佳杰跌超4%。
+发布时间：2026年05月12日 14:05 来源：中国新闻网 5月12日，光模块龙头企业中际旭创股价盘中突破1000元，成为创业板史上第二只千元股，也是A股史上第十只千元股。
 
-责任编辑：郝欣煜
+(记者 谢艺观） 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-29 19:29 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 19:26 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 19:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 19:32 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 19:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 19:47 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 19:40 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 19:19 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 19:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 19:20 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 19:33 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 19:39 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 19:48 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 19:34 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 19:43 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 19:52 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 19:51 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 19:49 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 19:40 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 19:46 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 19:28 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 19:30 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 19:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:18 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/542611094.shtml)
-- 2026-06-29 19:46 - [沙丘](https://www.share.minike.top/Article/details/6734801.shtml)
-- 2026-06-29 19:20 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/674789211358.shtml)
-- 2026-06-29 19:23 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/37959.shtml)
-- 2026-06-29 19:28 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/6961891754.shtml)
-- 2026-06-29 19:44 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/952943472413.shtml)
-- 2026-06-29 19:22 - [明星大侦探第一季](http://www.share.minike.top/Article/details/5103659710.shtml)
-- 2026-06-29 19:42 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/171045725.shtml)
-- 2026-06-29 19:40 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/0229374.shtml)
-- 2026-06-29 19:38 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/27245828275.shtml)
-- 2026-06-29 19:33 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/07691151537.shtml)
-- 2026-06-29 19:34 - [爱很美味](http://www.share.minike.top/Article/details/129035915350.shtml)
-- 2026-06-29 19:20 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/0261909880.shtml)
-- 2026-06-29 19:21 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/8696852.shtml)
-- 2026-06-29 19:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/20427.shtml)
+- 2026-06-29 19:41 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/884114025551.shtml)
+- 2026-06-29 19:28 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/67012.shtml)
+- 2026-06-29 19:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/385487457366.shtml)
+- 2026-06-29 19:39 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/02205871.shtml)
+- 2026-06-29 19:43 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.kurohicncr.top/Article/details/66295.shtml)
+- 2026-06-29 19:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/30003884688.shtml)
+- 2026-06-29 19:30 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/95394082.shtml)
+- 2026-06-29 19:30 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/5395067826.shtml)
+- 2026-06-29 19:47 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/532173373350.shtml)
+- 2026-06-29 19:50 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/9133021.shtml)
+- 2026-06-29 19:26 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/70465916033.shtml)
+- 2026-06-29 19:45 - [张雪机车杀向海外](http://www.blog.kurohicncr.top/Article/details/84821235700.shtml)
+- 2026-06-29 19:50 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/466381852.shtml)
+- 2026-06-29 19:24 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/179054749030.shtml)
+- 2026-06-29 19:46 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/696770403561.shtml)

@@ -1,61 +1,58 @@
-# 民营银行密集下架中长期存款
+# 美国联合航空将恢复飞往委内瑞拉的航线航班
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-近日，北京中关村银行发布公告称，自2026年5月30日起，该行营业厅、手机银行APP、企业网银等渠道，暂时下架个人、单位整存整取3年期存款产品。 6月3日，中国证券报·中证金牛座记者咨询该行工作人员了解到，以后是否会再次上架3年期存款产品，目前没有明确通知。5月30日前客户已购买的3年期产品不受本次调整影响，仍按照存入时约定的利率计息。 目前，该行在售的整存整取存款产品有3个月
+联合航空将重启飞往委内瑞拉的航班服务。这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。 联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。 就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。此举也被视作特朗普政府快速推
 
 ## 正文
 
-近日，北京中关村银行发布公告称，自2026年5月30日起，该行营业厅、手机银行APP、企业网银等渠道，暂时下架个人、单位整存整取3年期存款产品。
+联合航空将重启飞往委内瑞拉的航班服务。
 
-6月3日，中国证券报·中证金牛座记者咨询该行工作人员了解到，以后是否会再次上架3年期存款产品，目前没有明确通知。
+这家航司于周二宣布，自8月11日起，恢复休斯顿乔治·布什洲际机场至加拉加斯西蒙·玻利瓦尔国际机场的每日直飞航班，最终航线开通仍需获得各国政府监管批准。
 
-5月30日前客户已购买的3年期产品不受本次调整影响，仍按照存入时约定的利率计息。
+联合航空此前已运营美国至委内瑞拉航线超过20年，后于2017年6月暂停通航。
 
-目前，该行在售的整存整取存款产品有3个月期、6个月期、1年期、2年期，利率分别为1.2%、1.4%、1.6%、1.8%。
+就在本次官宣的数周前，美国航空一架客机完成了2019年以来美委之间首趟商业直飞航班。
 
-记者梳理发现，近期多家民营银行宣布下架3年期、5年期存款产品。
+此举也被视作特朗普政府快速推动与委内瑞拉关系正常化最直观的标志性事件。
 
-此前，湖南三湘银行宣布下架5年定期存款，存量产品到期后不再滚存。
+此前报道称，特朗普政府已推出一套特殊安排：一方面吸引美国投资者赴委内瑞拉投资，另一方面进一步巩固两国政府间关系。
 
-亿联银行App显示，该行2年期、3年期、5年期“亿定存”产品均显示已售罄，并被标注“爆款限量释放”的标签。
+美国交通部长表示，联合航空新开这条航线，标志着美委两国关系再获新进展。
 
-该行客户经理告诉记者：“已售罄产品暂时无法购买，后续是否会释放额度，目前还不确定。
+他称：“随着美国与委内瑞拉合作扩大石油产能、创造新的经济机遇，这条航线对于运送石油行业从业人员赴委工作至关重要。
 
 ## 相关推荐
 
-- 2026-06-29 19:20 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 19:19 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 19:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 19:28 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 19:35 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 19:41 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 19:25 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 19:21 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-29 19:19 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 19:30 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 19:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 19:39 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 19:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 19:43 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 19:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 19:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 19:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 19:48 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 19:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 19:37 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 19:52 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 19:29 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 19:34 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 19:41 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 19:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 19:38 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 19:36 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:39 - [歼-15型舰载机为何被歼-15T替代](https://www.blog.kurohicncr.top/Article/details/880889.shtml)
-- 2026-06-29 19:19 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/46748353.shtml)
-- 2026-06-29 19:28 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/98522.shtml)
-- 2026-06-29 19:43 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/88764002540.shtml)
-- 2026-06-29 19:47 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/913536953192.shtml)
-- 2026-06-29 19:18 - [TTG KSG](http://www.blog.minike.top/Article/details/604449167.shtml)
-- 2026-06-29 19:18 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/641598427784.shtml)
-- 2026-06-29 19:27 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/921607.shtml)
-- 2026-06-29 19:18 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/1390843022.shtml)
-- 2026-06-29 19:28 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/7974491.shtml)
-- 2026-06-29 19:37 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/16442902961.shtml)
-- 2026-06-29 19:26 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/51978.shtml)
-- 2026-06-29 19:28 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/147464.shtml)
-- 2026-06-29 19:26 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/905269327501.shtml)
-- 2026-06-29 19:24 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/779926.shtml)
+- 2026-06-29 19:29 - [扬名立万](https://www.share.minike.top/Article/details/787023979535.shtml)
+- 2026-06-29 19:45 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/8780024.shtml)
+- 2026-06-29 19:38 - [娜扎搂着我的腰和我合照](http://www.share.kurohicncr.top/Article/details/8906851.shtml)
+- 2026-06-29 19:47 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/7881994445.shtml)
+- 2026-06-29 19:25 - [《贺子珍》](http://www.share.minike.top/Article/details/50393172966.shtml)
+- 2026-06-29 19:26 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/69935295275.shtml)
+- 2026-06-29 19:39 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/96298.shtml)
+- 2026-06-29 19:25 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/9990799404.shtml)
+- 2026-06-29 19:43 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/77384728.shtml)
+- 2026-06-29 19:51 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/79654112.shtml)
+- 2026-06-29 19:53 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/15569941744.shtml)
+- 2026-06-29 19:29 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/00324891.shtml)
+- 2026-06-29 19:32 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/078114.shtml)
+- 2026-06-29 19:32 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/8207292.shtml)
+- 2026-06-29 19:46 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/137264.shtml)

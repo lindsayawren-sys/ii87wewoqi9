@@ -1,56 +1,61 @@
-# 云南大理查处20余人违规进入苍山
+# 哈尔滨太平海事处实战练兵筑牢水上安全屏障
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网大理6月3日电 (赵茜 赵涛)近日，云南省大理州相关部门联合林草、公安、森林消防等多部门，在苍山兰峰区域开展联合执法行动，重拳打击擅自进入苍山核心保护区、未开发区域的违法行为，依法查处20余名违法入山人员，有效震慑违法入山乱象。联合执法行动主要针对“黑领队”“黑向导”通过各类网络社交媒体平台(抖音、小红书、两步路等)，以小众徒步、秘境探险、组团采菌等噱头招募人员进入苍山核
+中新网哈尔滨5月11日电 (吴迪)5月11日，在第18个全国防灾减灾日即将来临之际，哈尔滨太平海事处联合哈尔滨兴龙旅游客渡服务有限公司成功开展水上综合应急演练。旨在切实强化辖区航运企业应对突发事件的快速响应与协同处置水平。 本次综合演练紧扣水上安全风险防控重点，设置船舶碰撞、船舶消防、人员落水施救、船舶溢油、进水堵漏五大实战科目。为确保演练精准高效，哈尔滨太平海事处提前牵头策划
 
 ## 正文
 
-中新网大理6月3日电 (赵茜 赵涛)近日，云南省大理州相关部门联合林草、公安、森林消防等多部门，在苍山兰峰区域开展联合执法行动，重拳打击擅自进入苍山核心保护区、未开发区域的违法行为，依法查处20余名违法入山人员，有效震慑违法入山乱象。
+中新网哈尔滨5月11日电 (吴迪)5月11日，在第18个全国防灾减灾日即将来临之际，哈尔滨太平海事处联合哈尔滨兴龙旅游客渡服务有限公司成功开展水上综合应急演练。
 
-联合执法行动主要针对“黑领队”“黑向导”通过各类网络社交媒体平台(抖音、小红书、两步路等)，以小众徒步、秘境探险、组团采菌等噱头招募人员进入苍山核心保护区的违法行为进行打击。
+旨在切实强化辖区航运企业应对突发事件的快速响应与协同处置水平。
 
-执法人员在巡查过程中，还发现违法入山人员随意丢弃的食品包装袋、饮料瓶等生活垃圾，同时发现多处野外烧火痕迹。
+本次综合演练紧扣水上安全风险防控重点，设置船舶碰撞、船舶消防、人员落水施救、船舶溢油、进水堵漏五大实战科目。
 
-执法人员同步开展现场遗留垃圾清理工作、消除火灾安全隐患。
+为确保演练精准高效，哈尔滨太平海事处提前牵头策划设计演练方案，组织开展桌面推演，并对参演单位进行专项指导。
 
-依据《中华人民共和国自然保护区条例》相关规定，违法进入苍山核心保护区的，最高可罚款10万元；造成生态破坏的，最高可罚款500万元。
+演练现场模拟两艘客轮航行中突发碰撞，造成其中一艘客轮船体受损、船艉起火并泄漏少许燃油，1名旅客因受惊意外落水，情况紧急需立即营救。
 
-苍山作为苍山洱海国家级自然保护区的核心组成部分，地形复杂、气候多变，违规进入未开放区域极易发生迷路、摔伤、失联等安全事故。
+险情发生后，船方第一时间启动应急预案，参演船员严格按照应变部署，迅速、有序完成应急避险决策、碰撞损害评估与报告、初期火灾扑救、落水人员搜救、乘客安抚与转移准备等全流程应急处置操作，整个过程反应迅速、分工明确、衔接顺畅。
 
-下一步，相关部门将持续常态化开展联合执法行动，加大重点区域巡查力度，严厉打击违规入山行为，守护苍山生态安全与人民群众生命财产安全。
+为保障演练安全有序推进，哈尔滨太平海事处派出2艘海巡艇、6名执法人员全程开展现场监督与指导，同步对相关水域实施临时交通管制和安全警戒。
 
-(完)
+经过多方协同联动，演练中模拟的明火被快速扑灭，溢油得到及时清理，落水人员成功获救，事故船舶安全拖带至客运码头停泊，全程未造成模拟人员损伤，圆满完成各项预设科目。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 19:39 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 19:30 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 19:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 19:22 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 19:40 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 19:26 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 19:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 19:33 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-29 19:31 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 19:31 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 19:46 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 19:53 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 19:26 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 19:44 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 19:49 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 19:42 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 19:47 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 19:27 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 19:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 19:28 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 19:49 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 19:32 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 19:27 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 19:43 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:29 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/69227.shtml)
-- 2026-06-29 19:31 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/045596853.shtml)
-- 2026-06-29 19:29 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/73982.shtml)
-- 2026-06-29 19:47 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.kurohicncr.top/Article/details/40722780.shtml)
-- 2026-06-29 19:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/969091623482.shtml)
-- 2026-06-29 19:19 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.blog.minike.top/Article/details/081076.shtml)
-- 2026-06-29 19:35 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/96473371831.shtml)
-- 2026-06-29 19:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/70793399.shtml)
-- 2026-06-29 19:39 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/35366529.shtml)
-- 2026-06-29 19:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/71100440.shtml)
-- 2026-06-29 19:26 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/327072302625.shtml)
-- 2026-06-29 19:32 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/790089.shtml)
-- 2026-06-29 19:33 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/9642425431.shtml)
-- 2026-06-29 19:27 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/4111757.shtml)
-- 2026-06-29 19:26 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/374189.shtml)
+- 2026-06-29 19:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/1557116989.shtml)
+- 2026-06-29 19:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/32104.shtml)
+- 2026-06-29 19:48 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/345188844643.shtml)
+- 2026-06-29 19:51 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/21550155.shtml)
+- 2026-06-29 19:51 - [王楚钦称抽签结果出来心情不好](http://www.share.minike.top/Article/details/5468827.shtml)
+- 2026-06-29 19:48 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/767798.shtml)
+- 2026-06-29 19:31 - [海清4次陪跑白玉兰](http://www.blog.minike.top/Article/details/750273630639.shtml)
+- 2026-06-29 19:30 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/762518473.shtml)
+- 2026-06-29 19:33 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/98058136.shtml)
+- 2026-06-29 19:40 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/33397423028.shtml)
+- 2026-06-29 19:51 - [杨紫视后第一场线下活动](https://www.blog.minike.top/Article/details/437345.shtml)
+- 2026-06-29 19:32 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.kurohicncr.top/Article/details/702510443983.shtml)
+- 2026-06-29 19:50 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/38135631790.shtml)
+- 2026-06-29 19:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/78034.shtml)
+- 2026-06-29 19:47 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/015855461.shtml)

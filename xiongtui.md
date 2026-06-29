@@ -1,61 +1,60 @@
-# 日内交易者仅5%能盈利，但美国SEC新规放宽门槛
+# AI短剧冲击下，红果保底15亿扶持真人剧
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-此前，证券账户资产不足 2.5 万美元的投资者被禁止随意做日内短线交易。 多年来，日内短线交易基本是专业交易员与高净值投资者的专属，这并非行业惯例，而是受 典型日内交易者监管规则（PDT 规则） 硬性约束。 简单来说：保证金账户资金低于 2.5 万美元的个人投资者，5 个交易日内不能完成 4 笔及以上日内交易（当日开仓、当日平仓）。一旦超限，券商就会将账户标记为 “典型日内交易
+界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。 这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。 5月12日，抖音集团短剧版权中心举办首届短剧产业大会。红果短剧总编辑乐力的很多观点围
 
 ## 正文
 
-此前，证券账户资产不足 2.5 万美元的投资者被禁止随意做日内短线交易。
+界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。
 
-多年来，日内短线交易基本是专业交易员与高净值投资者的专属，这并非行业惯例，而是受 典型日内交易者监管规则（PDT 规则） 硬性约束。
+这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。
 
-简单来说：保证金账户资金低于 2.5 万美元的个人投资者，5 个交易日内不能完成 4 笔及以上日内交易（当日开仓、当日平仓）。
+5月12日，抖音集团短剧版权中心举办首届短剧产业大会。
 
-一旦超限，券商就会将账户标记为 “典型日内交易者”，随后限制该账户数周乃至数月无法新开交易。
+红果短剧总编辑乐力的很多观点围绕对真人短剧的判断。
 
-如今这条 PDT 规则正式取消。
+他表示，真人短剧的价值在于对人和生活的贴近，背后的真情实感仍然是行业发展的核心。
 
-美国金融业监管局（FINRA）与美国证券交易委员会（SEC）均已投票废除该限制，新规 6 月 4 日正式落地；券商最长有 18 个月过渡期完成系统整改，部分券商数日内就会解除相关交易限制。
+乐力透露，短剧版权中心近期推出了多项真人短剧扶持计划。
 
-该条限制规则于 2001 年互联网泡沫破裂后落地。
+例如，针对真人剧核心品类调高内容分成比例。
 
-彼时互联网新技术催生美股暴涨继而崩盘，大批普通散户涌入市场、短线交易门槛大幅降低。
+该中心5月11日发布的新政策公告显示，自然流量场景下，真人剧付费内容分成比例从70%调高至80%，免费内容广告分成预算同等调高。
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 19:37 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 19:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 19:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-29 19:29 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 19:26 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 19:27 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 19:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 19:21 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 19:35 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 19:19 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 19:29 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 19:44 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 19:26 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 19:47 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 19:44 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 19:39 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 19:43 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 19:42 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 19:50 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 19:40 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:42 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 19:45 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 19:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 19:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 19:37 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 19:52 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 19:30 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-29 19:36 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:40 - [人形机器人](https://www.share.kurohicncr.top/Article/details/007481.shtml)
-- 2026-06-29 19:27 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/31288139180.shtml)
-- 2026-06-29 19:22 - [AG 宫斗](http://www.blog.minike.top/Article/details/320846913394.shtml)
-- 2026-06-29 19:40 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/65667.shtml)
-- 2026-06-29 19:30 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/8915234.shtml)
-- 2026-06-29 19:42 - [一见倾心](https://www.share.minike.top/Article/details/720614877369.shtml)
-- 2026-06-29 19:20 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.minike.top/Article/details/2346823.shtml)
-- 2026-06-29 19:25 - [北京市发布雷电黄色预警](http://www.blog.minike.top/Article/details/9555403.shtml)
-- 2026-06-29 19:29 - [刘嘉玲为64岁梁朝伟庆生](http://www.blog.kurohicncr.top/Article/details/568343.shtml)
-- 2026-06-29 19:23 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/909697497.shtml)
-- 2026-06-29 19:25 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/75206.shtml)
-- 2026-06-29 19:45 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/43121.shtml)
-- 2026-06-29 19:24 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/896142.shtml)
-- 2026-06-29 19:44 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/380581.shtml)
-- 2026-06-29 19:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/6088759.shtml)
+- 2026-06-29 19:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/939387358.shtml)
+- 2026-06-29 19:25 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/68269.shtml)
+- 2026-06-29 19:45 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/1426178.shtml)
+- 2026-06-29 19:38 - [港股爆发 美团百度阿里等集体大涨](http://www.share.minike.top/Article/details/27792.shtml)
+- 2026-06-29 19:34 - [温网](http://www.share.minike.top/Article/details/88168174.shtml)
+- 2026-06-29 19:26 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/729628949655.shtml)
+- 2026-06-29 19:33 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/00367786559.shtml)
+- 2026-06-29 19:49 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/0802054.shtml)
+- 2026-06-29 19:39 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/3676648.shtml)
+- 2026-06-29 19:47 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/51262813.shtml)
+- 2026-06-29 19:41 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/055628.shtml)
+- 2026-06-29 19:46 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/519233327673.shtml)
+- 2026-06-29 19:33 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/0284548.shtml)
+- 2026-06-29 19:31 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/63289515788.shtml)
+- 2026-06-29 19:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/79974.shtml)

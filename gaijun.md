@@ -1,49 +1,47 @@
-# 华泰证券将于8月31日派发末期股息每股0.4元
+# 我国成功发射千帆极轨09组卫星
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-华泰证券（06886）发布公告，该公司将于2026年8月31日派发末期股息每股0.4元。责任编辑：卢昱君
+北京时间2026年5月12日19时59分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨09组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是长征系列运载火箭的第642次飞行。 (总台央视记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
 
 ## 正文
 
-华泰证券（06886）发布公告，该公司将于2026年8月31日派发末期股息每股0.4元。
+北京时间2026年5月12日19时59分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨09组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-责任编辑：卢昱君
+此次任务是长征系列运载火箭的第642次飞行。
+
+(总台央视记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
 
 ## 相关推荐
 
-- 2026-06-29 19:31 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 19:27 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 19:23 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 19:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 19:39 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 19:32 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 19:25 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 19:21 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 19:44 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 19:45 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 19:36 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 19:39 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 19:37 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 19:32 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-29 19:42 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 19:49 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 19:32 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 19:37 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 19:24 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 19:26 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 19:41 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 19:34 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 19:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 19:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 19:26 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 19:44 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/76388523.shtml)
-- 2026-06-29 19:41 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/366948335796.shtml)
-- 2026-06-29 19:22 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/18868.shtml)
-- 2026-06-29 19:23 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/9603278449.shtml)
-- 2026-06-29 19:19 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/6168329420.shtml)
-- 2026-06-29 19:22 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/914422.shtml)
-- 2026-06-29 19:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/30287.shtml)
-- 2026-06-29 19:31 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/69265855.shtml)
-- 2026-06-29 19:35 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/525588636872.shtml)
-- 2026-06-29 19:25 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/06894.shtml)
-- 2026-06-29 19:33 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/8649862584.shtml)
-- 2026-06-29 19:21 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/687892512.shtml)
-- 2026-06-29 19:22 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/048519.shtml)
-- 2026-06-29 19:33 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/39670543.shtml)
-- 2026-06-29 19:31 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/77145.shtml)
+- 2026-06-29 19:52 - [一生一世](http://www.blog.kurohicncr.top/Article/details/87834.shtml)
+- 2026-06-29 19:25 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/584891258.shtml)
+- 2026-06-29 19:34 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/77037448451.shtml)
+- 2026-06-29 19:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/258899838466.shtml)
+- 2026-06-29 19:27 - [急先锋](http://www.blog.minike.top/Article/details/65449985773.shtml)
+- 2026-06-29 19:35 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/529217736.shtml)
+- 2026-06-29 19:26 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/1419226877.shtml)
+- 2026-06-29 19:39 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/8720371614.shtml)
+- 2026-06-29 19:41 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/34307858.shtml)
+- 2026-06-29 19:27 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/205773236.shtml)
+- 2026-06-29 19:53 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/346568.shtml)
+- 2026-06-29 19:43 - [断骨增高灰产拉一人提成1.5万元](http://www.share.kurohicncr.top/Article/details/527709230799.shtml)
+- 2026-06-29 19:26 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/66782.shtml)
+- 2026-06-29 19:35 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/41239967.shtml)
+- 2026-06-29 19:48 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/949940977398.shtml)

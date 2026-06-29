@@ -1,49 +1,42 @@
-# 我国成功发射千帆极轨11组卫星
+# 联合国发表声明 前四个月逾880名苏丹平民死于无人机袭击
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-北京时间2026年6月4日19时39分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨11组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是长征系列运载火箭的第648次飞行。 (央视新闻客户端 总台记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
+发布时间：2026年05月12日 13:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-北京时间2026年6月4日19时39分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨11组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
-
-此次任务是长征系列运载火箭的第648次飞行。
-
-(央视新闻客户端 总台记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
+发布时间：2026年05月12日 13:19 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 19:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 19:41 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 19:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 19:36 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-29 19:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 19:23 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 19:46 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 19:26 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 19:28 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 19:24 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 19:35 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-29 19:23 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 19:46 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 19:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 19:37 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 19:53 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 19:25 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-29 19:49 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 19:28 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 19:31 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-29 19:37 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 19:39 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:40 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/16728800.shtml)
-- 2026-06-29 19:26 - [世界杯在中国观看最多的比赛](https://www.share.minike.top/Article/details/17657.shtml)
-- 2026-06-29 19:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/802780462.shtml)
-- 2026-06-29 19:31 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.blog.kurohicncr.top/Article/details/72054174971.shtml)
-- 2026-06-29 19:29 - [北京市发布雷电黄色预警](http://www.blog.kurohicncr.top/Article/details/06583.shtml)
-- 2026-06-29 19:28 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/0422781168.shtml)
-- 2026-06-29 19:34 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/97756615726.shtml)
-- 2026-06-29 19:43 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/17418.shtml)
-- 2026-06-29 19:33 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/46915906.shtml)
-- 2026-06-29 19:24 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/79207.shtml)
-- 2026-06-29 19:18 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/8149261.shtml)
-- 2026-06-29 19:20 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/6976236.shtml)
-- 2026-06-29 19:33 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/6901507780.shtml)
-- 2026-06-29 19:28 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/09103.shtml)
-- 2026-06-29 19:27 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/0545753.shtml)
+- 2026-06-29 19:36 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/5502412451.shtml)
+- 2026-06-29 19:29 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/889048376974.shtml)
+- 2026-06-29 19:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/28397.shtml)
+- 2026-06-29 19:35 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/672425895.shtml)
+- 2026-06-29 19:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/71640627.shtml)
+- 2026-06-29 19:51 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/37262874396.shtml)
+- 2026-06-29 19:30 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/537289974.shtml)
+- 2026-06-29 19:26 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/66819459.shtml)
+- 2026-06-29 19:46 - [千与千寻](http://www.share.minike.top/Article/details/6246739.shtml)
+- 2026-06-29 19:47 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/747309.shtml)
+- 2026-06-29 19:35 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/10569064685.shtml)
+- 2026-06-29 19:34 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/78308996323.shtml)
+- 2026-06-29 19:52 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/4075668.shtml)
+- 2026-06-29 19:35 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/60330.shtml)
+- 2026-06-29 19:33 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/45029.shtml)

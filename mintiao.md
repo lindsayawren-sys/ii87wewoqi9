@@ -1,56 +1,57 @@
-# 四川剑阁翠云廊：把古树当成大熊猫来爱护
+# 五角大楼证实美对伊战争成本已升至290亿美元
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新社四川广元6月4日电 题：四川剑阁翠云廊：把古树当成大熊猫来爱护 中新社记者 韩仪 范思忆 “巡护已成为我的习惯和爱好，如果哪一天没有巡护，我心里还欠欠的，晚上睡不着。”中新社记者近日跟随“美丽中国行之探访国家公园”首批次集中采访团走进四川广元市剑阁县剑门关镇翠云廊，古柏护林员杜德生受访时如是说。 翠云廊是剑门蜀道上的一段古道，保存有目前存世时间最长、规模最大的人工种植古柏
+5月12日，美国国防部高级官员证实，截至目前，美国对伊朗发动的战争成本已达290亿美元。这一数字较4月底公布的估算值增加了40亿美元，反映出美军战争开支正呈现激增态势。 美国国防部代理主计长朱尔斯·赫斯特（Jules Hurst）当日在向国会议员作证时通报了上述财务数据。赫斯特强调，最新数额涵盖了更新后的设备维修、装备更换以及各项作战成本。美国国防部长皮特·海格塞斯（Pete
 
 ## 正文
 
-中新社四川广元6月4日电 题：四川剑阁翠云廊：把古树当成大熊猫来爱护 中新社记者 韩仪 范思忆 “巡护已成为我的习惯和爱好，如果哪一天没有巡护，我心里还欠欠的，晚上睡不着。
+5月12日，美国国防部高级官员证实，截至目前，美国对伊朗发动的战争成本已达290亿美元。
 
-”中新社记者近日跟随“美丽中国行之探访国家公园”首批次集中采访团走进四川广元市剑阁县剑门关镇翠云廊，古柏护林员杜德生受访时如是说。
+这一数字较4月底公布的估算值增加了40亿美元，反映出美军战争开支正呈现激增态势。
 
-翠云廊是剑门蜀道上的一段古道，保存有目前存世时间最长、规模最大的人工种植古柏群，被誉为“森林活化石”。
+美国国防部代理主计长朱尔斯·赫斯特（Jules Hurst）当日在向国会议员作证时通报了上述财务数据。
 
-在翠云廊拾级而上，可见两边古柏形态各异，巍峨壮观。
+赫斯特强调，最新数额涵盖了更新后的设备维修、装备更换以及各项作战成本。
 
-柏群中，有的被命名为“状元柏”，有的被命名为“夫妻柏”，美好的情感寄托背后，显露出中国人“天人合一”的生存哲学。
+美国国防部长皮特·海格塞斯（Pete Hegseth）与参谋长联席会议主席丹·凯恩（Dan Caine）上将共同出席了此次听证会。
 
-作为土生土长的剑阁人，60多岁的杜德生已巡护古柏十余年。
+记录显示，五角大楼曾于4月29日将战争成本估算为250亿美元。
 
-他每日上下午至少各巡护一次，徒步约两公里，观察古柏生长、虫害、人为破坏及树下是否有易燃易爆、杂草垃圾等情况，如发现异常，立即上报；遇刮风下雨等恶劣天气时，还需紧急巡护。
+针对最新公布的290亿美元数据，赫斯特表示，主计长团队正与联合参谋部保持紧密协作，对估算值进行持续动态监测。
 
-“虽然天天都走这段路、看这些树，但不简单的是日复一日的坚持。
+尽管官方未详细说明具体计算口径，但此前有消息称，在开战初期的六天内，特朗普政府的内部预估成本便已突破113亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 19:43 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 19:36 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 19:31 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 19:29 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 19:43 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 19:20 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 19:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 19:35 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 19:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-29 19:47 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 19:47 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 19:32 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 19:37 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 19:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 19:41 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 19:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 19:38 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 19:47 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 19:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 19:39 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/42685.shtml)
-- 2026-06-29 19:31 - [千与千寻](https://www.share.minike.top/Article/details/219965.shtml)
-- 2026-06-29 19:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/513691.shtml)
-- 2026-06-29 19:26 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/74985470585.shtml)
-- 2026-06-29 19:46 - [NBA交易](https://www.share.kurohicncr.top/Article/details/04850.shtml)
-- 2026-06-29 19:34 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/3465791530.shtml)
-- 2026-06-29 19:41 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/1901645190.shtml)
-- 2026-06-29 19:40 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/412280512456.shtml)
-- 2026-06-29 19:42 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/9283171159.shtml)
-- 2026-06-29 19:40 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/698944558.shtml)
-- 2026-06-29 19:31 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/91840419842.shtml)
-- 2026-06-29 19:40 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/2015928591.shtml)
-- 2026-06-29 19:31 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/42894339.shtml)
-- 2026-06-29 19:20 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/32749.shtml)
-- 2026-06-29 19:27 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/73013697939.shtml)
+- 2026-06-29 19:36 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/67458.shtml)
+- 2026-06-29 19:53 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/217609379.shtml)
+- 2026-06-29 19:46 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/59190181.shtml)
+- 2026-06-29 19:36 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/12710397.shtml)
+- 2026-06-29 19:40 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/9541856.shtml)
+- 2026-06-29 19:50 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/630995562727.shtml)
+- 2026-06-29 19:33 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/04533575887.shtml)
+- 2026-06-29 19:37 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/067388615.shtml)
+- 2026-06-29 19:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/196429686862.shtml)
+- 2026-06-29 19:26 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/4564525153.shtml)
+- 2026-06-29 19:33 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/17319149.shtml)
+- 2026-06-29 19:50 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/9516626201.shtml)
+- 2026-06-29 19:45 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/8570509.shtml)
+- 2026-06-29 19:30 - [沉睡花园](https://www.share.minike.top/Article/details/710105.shtml)
+- 2026-06-29 19:50 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.kurohicncr.top/Article/details/30649.shtml)

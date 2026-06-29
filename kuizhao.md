@@ -1,52 +1,53 @@
-# 银之杰称公司“被立案调查”相关传闻不属实
+# 四川遂宁：从电子“打螺丝”到“专项精标” 数据标注岗位走热
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-（来源：北京商报） 北京商报讯（记者 王蔓蕾）6月3日晚间，银之杰（300085）披露公告称，公司关注到网络平台出现关于公司“被立案调查”的相关传闻，经核实，上述传闻不属实。 银之杰表示，截至目前，公司未收到任何有权机关关于对公司立案调查的通知或相关法律文书，公司生产经营情况正常，各项业务开展有序，不存在应披露而未披露的重大事项。 交易行情显示，截至6月3日收盘，银之杰股价收跌
+发布时间：2026年05月12日 19:15 来源：中国新闻网 近年来，随着人工智能快速发展，数据标注员这一早在2020年就被纳入国家职业分类目录的职业逐渐走入民众视野，成为热门新职业之一。在位于四川遂宁河东新区的中鸿数智内，200余名数据标注员在电脑前，对图片、视频、语音等数据进行处理，为互联网企业、智能驾驶汽车公司、具身智能机器人企业提供数据服务。 在该公司执行董事陈臻看来
 
 ## 正文
 
-（来源：北京商报） 北京商报讯（记者 王蔓蕾）6月3日晚间，银之杰（300085）披露公告称，公司关注到网络平台出现关于公司“被立案调查”的相关传闻，经核实，上述传闻不属实。
+发布时间：2026年05月12日 19:15 来源：中国新闻网 近年来，随着人工智能快速发展，数据标注员这一早在2020年就被纳入国家职业分类目录的职业逐渐走入民众视野，成为热门新职业之一。
 
-银之杰表示，截至目前，公司未收到任何有权机关关于对公司立案调查的通知或相关法律文书，公司生产经营情况正常，各项业务开展有序，不存在应披露而未披露的重大事项。
+在位于四川遂宁河东新区的中鸿数智内，200余名数据标注员在电脑前，对图片、视频、语音等数据进行处理，为互联网企业、智能驾驶汽车公司、具身智能机器人企业提供数据服务。
 
-交易行情显示，截至6月3日收盘，银之杰股价收跌15.51%，报35.13元/股，总市值248.2亿元。
+在该公司执行董事陈臻看来，数据标注行业既是人工智能产业链的重要基础环节，也是劳动密集型产业。
 
-责任编辑：孙同怀
+人工智能产业的发展不仅带来了新岗位，也为本地青年就业和人才留存提供了新的机会，相关领域人才需求将持续扩大。
+
+从长远来看，AI带来的不是岗位减少，而是更多细分新职业的产生。
+
+杨予頔 四川遂宁报道 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 19:18 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 19:31 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 19:46 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 19:34 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 19:38 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 19:30 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 19:33 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 19:31 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 19:27 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 19:30 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 19:29 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 19:25 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 19:35 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 19:35 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 19:44 - [刘冰任河南南阳市代市长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 19:37 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 19:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 19:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 19:53 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 19:30 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 19:35 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 19:31 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 19:39 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/6547463.shtml)
-- 2026-06-29 19:30 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/357942760281.shtml)
-- 2026-06-29 19:36 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/834145287525.shtml)
-- 2026-06-29 19:37 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/334675.shtml)
-- 2026-06-29 19:18 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/03248059135.shtml)
-- 2026-06-29 19:25 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/09197456.shtml)
-- 2026-06-29 19:46 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/8279284468.shtml)
-- 2026-06-29 19:28 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/88335.shtml)
-- 2026-06-29 19:33 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/112666.shtml)
-- 2026-06-29 19:34 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/006872898.shtml)
-- 2026-06-29 19:22 - [宜宾地震后铁路工作人员叫停列车](http://www.share.kurohicncr.top/Article/details/811553.shtml)
-- 2026-06-29 19:41 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/82897526032.shtml)
-- 2026-06-29 19:35 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/6206759.shtml)
-- 2026-06-29 19:28 - [女心理师](http://www.share.minike.top/Article/details/53335480.shtml)
-- 2026-06-29 19:33 - [金牌调解](http://www.blog.minike.top/Article/details/580822865.shtml)
+- 2026-06-29 19:27 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/848618.shtml)
+- 2026-06-29 19:35 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/6437030.shtml)
+- 2026-06-29 19:47 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/8008422629.shtml)
+- 2026-06-29 19:35 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/35841924168.shtml)
+- 2026-06-29 19:46 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/535196273.shtml)
+- 2026-06-29 19:40 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/673302800.shtml)
+- 2026-06-29 19:45 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/01043.shtml)
+- 2026-06-29 19:39 - [世界杯在中国观看最多的比赛](https://www.blog.kurohicncr.top/Article/details/1761037105.shtml)
+- 2026-06-29 19:44 - [RAY评乘风2026总决赛](http://www.share.kurohicncr.top/Article/details/66048116981.shtml)
+- 2026-06-29 19:42 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/54645525.shtml)
+- 2026-06-29 19:33 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/700890.shtml)
+- 2026-06-29 19:49 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/847699020.shtml)
+- 2026-06-29 19:51 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/589015.shtml)
+- 2026-06-29 19:40 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/9403143.shtml)
+- 2026-06-29 19:46 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/41543161161.shtml)

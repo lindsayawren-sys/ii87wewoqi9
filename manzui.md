@@ -1,61 +1,59 @@
-# 李家超率团考察哈萨克斯坦高校 欢迎当地学生赴港升学
+# 昆明海关所属怒江海关基础设施修缮项目竞争性磋商公告
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网香港6月3日电 据香港特区政府新闻处消息，当地时间3日，香港特区行政长官李家超率领代表团继续哈萨克斯坦访问行程，到访位于该国首都阿斯塔纳的纳扎尔巴耶夫大学，了解哈萨克斯坦高等教育发展情况。 上午，李家超参观纳扎尔巴耶夫大学，与该校校长瓦卡尔会面，就加强两地高等教育合作交流意见，随后出席纳扎尔巴耶夫大学和香港高等院校签署合作备忘录的仪式。 李家超表示，香港是全球唯一拥有5所
+根据《中华人民共和国政府采购法》、《政府采购竞争性磋商采购方式管理暂行办法》(财库〔2014〕214号)及相关法律法规的规定。怒江石月亮招标有限公司受中华人民共和国怒江海关委托，对昆明海关所属怒江海关基础设施修缮项目进行竞争性磋商采购，采购资金已落实，该项目现已具备采购条件，欢迎符合资格条件的单位参与昆明海关所属怒江海关基础设施修缮项目的竞争性磋商活动。一、项目基本情况 1.项
 
 ## 正文
 
-中新网香港6月3日电 据香港特区政府新闻处消息，当地时间3日，香港特区行政长官李家超率领代表团继续哈萨克斯坦访问行程，到访位于该国首都阿斯塔纳的纳扎尔巴耶夫大学，了解哈萨克斯坦高等教育发展情况。
+根据《中华人民共和国政府采购法》、《政府采购竞争性磋商采购方式管理暂行办法》(财库〔2014〕214号)及相关法律法规的规定。
 
-上午，李家超参观纳扎尔巴耶夫大学，与该校校长瓦卡尔会面，就加强两地高等教育合作交流意见，随后出席纳扎尔巴耶夫大学和香港高等院校签署合作备忘录的仪式。
+怒江石月亮招标有限公司受中华人民共和国怒江海关委托，对昆明海关所属怒江海关基础设施修缮项目进行竞争性磋商采购，采购资金已落实，该项目现已具备采购条件，欢迎符合资格条件的单位参与昆明海关所属怒江海关基础设施修缮项目的竞争性磋商活动。
 
-李家超表示，香港是全球唯一拥有5所世界百强大学的城市，在瑞士洛桑国际管理发展学院发布的《2025年世界人才排名》中位列亚洲第一、全球第四，正积极发展成为国际专上教育枢纽和国际高端人才集聚高地，全力建设北部都会区大学城，推广“留学香港”品牌，并设有“一带一路”奖学金。
+一、项目基本情况 1.项目编号：SYLZB2026016 2.项目名称：昆明海关所属怒江海关基础设施修缮项目 3.采购方式：竞争性磋商 4.总投资：2430000.00元 5.建设内容：1.宿舍楼18间卫生间改造；2.技术业务综合楼三楼中段毛坯房改造5间集体宿舍；3.综合楼楼顶重做防水、卫生间改造、消防及玻璃幕墙修缮等(详见工程量清单)。
 
-目前约500名哈萨克斯坦学生在港就读，他欢迎更多哈萨克斯坦学生赴港升学和发展事业，进一步加强两地人文交流。
+6.工期：90日历天 7.建设地点：云南省怒江州泸水市大练地街道312号、318号 8.质量要求：符合《建筑工程施工质量统一验收标准》及现行相关质量验收标准的要求，一次性验收合格 9.本项目不接受联合体。
 
-李家超说，继去年与香港科技大学签署合作备忘录、开办工商管理学士(欧亚商业管理)课程后，纳扎尔巴耶夫大学此次与香港教育大学和香港理工大学签署合作备忘录，持续深化学术交流和研究协作。
+二、申请人的资格要求： 1.满足《中华人民共和国政府采购法》第二十二条规定； 1.1 营业执照：需具有有效的营业执照、税务登记证、组织机构代码或三证合一； 1.2 财务状况：提供2024年或2025年经第三方审计机构出具的财务报表(新成立不足一年的公司，则需提供企业财务报表(包括资产负债表、利润表、现金流量表)或健全的财务会计制度)； 1.3 专业技术能力：具有履行合同所必需的设备和专业技术能力(提供相关证明材料或承诺) 1.4税收及社保：提供2025年至今任意3个月缴纳税收的证明材料，依法免税的，应提供依法免税的相关证明文件； 提供2025年至今任意3个月缴纳社会保障资金的证明材料，依法免缴的，应提供依法免缴的相关证明文件；新成立公司提供企业成立至今的相关缴纳证明文件； 1.5 无重大违法记录声明：须提供“参加政府采购活动前三年内在经营活动中没有重
 
-他指出，香港和哈萨克斯坦未来会有更多教育合作，共同培育具备国际视野的人才，为共建“一带一路”倡议作出贡献。
+3.本项目的特定资格要求： 3.1 具有必须具备建设主管部门核发的建筑工程施工总承包叁级(含叁级)以上资质和有效的企业安全生产许可证； 3.2拟派往本工程的项目经理须具备建筑工程专业二级及以上注册建造师资格资格等级证书及建造师安全生产考核合格证书； 3.3 项目经理无在建项目承诺； 三、获取采购文件 凡具备以上资格的申请人，请于2026年 5月 9 日至2026年5 月15 日，每日上午08:30～12:00，下14:30～18:00(北京时间，下同)，在怒江石月亮招标有限公司(怒江明珠5期商铺S03)购买竞争性磋商文件。
 
-中午，李家超出席中国驻哈萨克斯坦大使韩春霖所设的交流餐叙。
+购买竞争性磋商文件时请持法定代表人身份证明书原件、法定代表人授权委托书原件及授权代理人身份证原件、营业执照副本加盖公章的复印件、资质证书加盖公章的复印件、项目负责人证书加盖公章的复印件。
 
-他感谢大使馆为此行所作的悉心安排，以及一直以来对香港特区政府工作的支持。
+未按上述要求提供资料的单位将被拒绝。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 19:30 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 19:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 19:30 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 19:21 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:20 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 19:25 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 19:32 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 19:32 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 19:43 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 19:32 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 19:43 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 19:42 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 19:45 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 19:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 19:30 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 19:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 19:36 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 19:51 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 19:27 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 19:26 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 19:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 19:45 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 19:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 19:45 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 19:45 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 19:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 19:26 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [互助版模拟高考志愿填报](http://www.share.minike.top/Article/details/478177065454.shtml)
-- 2026-06-29 19:18 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/97749542510.shtml)
-- 2026-06-29 19:22 - [主力抛售电子和通信板块](https://www.share.minike.top/Article/details/81064.shtml)
-- 2026-06-29 19:46 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/6195271.shtml)
-- 2026-06-29 19:28 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/842766.shtml)
-- 2026-06-29 19:39 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/46834.shtml)
-- 2026-06-29 19:21 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/11825194.shtml)
-- 2026-06-29 19:43 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/89597935.shtml)
-- 2026-06-29 19:36 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/502986320271.shtml)
-- 2026-06-29 19:42 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/619002808926.shtml)
-- 2026-06-29 19:43 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/2241723.shtml)
-- 2026-06-29 19:28 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.kurohicncr.top/Article/details/036663277177.shtml)
-- 2026-06-29 19:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/20527.shtml)
-- 2026-06-29 19:37 - [韩国队主帅遭极端网友死亡威胁](http://www.share.kurohicncr.top/Article/details/449358.shtml)
-- 2026-06-29 19:34 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/413843757.shtml)
+- 2026-06-29 19:24 - [无畏为自己的猫正名了](http://www.blog.kurohicncr.top/Article/details/37588571979.shtml)
+- 2026-06-29 19:53 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/50527.shtml)
+- 2026-06-29 19:51 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/741393.shtml)
+- 2026-06-29 19:49 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/660692183430.shtml)
+- 2026-06-29 19:31 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/349450312206.shtml)
+- 2026-06-29 19:34 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/76117.shtml)
+- 2026-06-29 19:39 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/592338757.shtml)
+- 2026-06-29 19:29 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/439735732.shtml)
+- 2026-06-29 19:52 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/377777.shtml)
+- 2026-06-29 19:34 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/97536802657.shtml)
+- 2026-06-29 19:46 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/5326991903.shtml)
+- 2026-06-29 19:35 - [唐艺昕告别浪姐千字长文](http://www.blog.kurohicncr.top/Article/details/67309848499.shtml)
+- 2026-06-29 19:32 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/018999.shtml)
+- 2026-06-29 19:50 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/555658.shtml)
+- 2026-06-29 19:37 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/010703.shtml)

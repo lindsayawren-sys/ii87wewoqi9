@@ -1,61 +1,56 @@
-# 美股现罕见盘面，历史级涨幅对标1987年崩盘前夕
+# 赵乐际会见塔吉克斯坦总统拉赫蒙
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-来源：金十数据 标普500指数出现少数龙头绑架大盘走势，机构提醒一旦AI板块退潮，即便中小盘回暖也难阻止指数回落，行情拐点大概率在6月到来。 标普500指数接连刷新历史点位，但背后暗藏隐患：本轮上涨仅有少数个股拉动，多数标的并未跟涨。 奈德・戴维斯研究所策略师罗布・安德森（Rob Anderson）在社交平台X发文称，近两个月跑赢标普500的成分股占比，创下1972年以来第三低
+新华社北京5月12日电 全国人大常委会委员长赵乐际5月12日在北京会见塔吉克斯坦总统拉赫蒙。 赵乐际表示，在习近平主席和总统先生的战略引领下，中塔关系实现跨越式发展。中方愿同塔方一道，以两国元首重要共识为根本遵循，深化战略互信，扩大务实合作，推动中国－中亚合作高质量发展，构建世代友好、休戚与共、互利共赢的中塔命运共同体。中国全国人大愿同塔吉克斯坦议会加强交流合作，为中塔关系长期
 
 ## 正文
 
-来源：金十数据 标普500指数出现少数龙头绑架大盘走势，机构提醒一旦AI板块退潮，即便中小盘回暖也难阻止指数回落，行情拐点大概率在6月到来。
+新华社北京5月12日电 全国人大常委会委员长赵乐际5月12日在北京会见塔吉克斯坦总统拉赫蒙。
 
-标普500指数接连刷新历史点位，但背后暗藏隐患：本轮上涨仅有少数个股拉动，多数标的并未跟涨。
+赵乐际表示，在习近平主席和总统先生的战略引领下，中塔关系实现跨越式发展。
 
-奈德・戴维斯研究所策略师罗布・安德森（Rob Anderson）在社交平台X发文称，近两个月跑赢标普500的成分股占比，创下1972年以来第三低纪录，行情割裂程度空前。
+中方愿同塔方一道，以两国元首重要共识为根本遵循，深化战略互信，扩大务实合作，推动中国－中亚合作高质量发展，构建世代友好、休戚与共、互利共赢的中塔命运共同体。
 
-BTIG首席市场技术分析师乔纳森・克林斯基（Jonathan Krinsky）判断，指数上涨高度绑定AI龙头股，一旦这批权重标的行情拐头，大盘极易承压，行情拐点大概率在6月到来。
+中国全国人大愿同塔吉克斯坦议会加强交流合作，为中塔关系长期健康稳定发展提供法治保障。
 
-道琼斯市场数据显示，标普500周二斩获日线九连涨，周线也有望实现十连升。
+拉赫蒙表示，塔方坚定恪守一个中国原则，完全支持习近平主席提出的四大全球倡议。
 
-但盘面细节不容乐观，该指数已连续六个交易日出现涨跌家数倒挂，也就是指数收涨的同时，成分股下跌数量多于上涨个股。
+塔方为中国在现代化建设中取得的伟大成就感到高兴，愿加强政治、经济、文化等各领域务实合作，深化立法机构交流，不断增进两国人民友好感情。
 
-克林斯基在周二研报中表示，回溯1996年以来历史数据，标普500从未出现连续六天指数收红、每日跌股数量均超涨股的行情，此前该反常走势最多仅连续出现三个交易日。
-
-这种盘面特征意味着行情越来越依赖少数高权重个股，指数走高与多数个股走弱形成的割裂局面，被克林斯基称作“广度悖论”：即便市场多数板块走弱，头部权重股仍能独自托举指数上行。
+铁凝参加会见。
 
 ## 相关推荐
 
-- 2026-06-29 19:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 19:35 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 19:47 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 19:37 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 19:19 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 19:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 19:43 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 19:38 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 19:45 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 19:46 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 19:32 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 19:27 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 19:18 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 19:24 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-29 19:28 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 19:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 19:51 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 19:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 19:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 19:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 19:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:47 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 19:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 19:46 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 19:49 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 19:33 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 19:41 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/689569.shtml)
-- 2026-06-29 19:29 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/095350200107.shtml)
-- 2026-06-29 19:41 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/029822324.shtml)
-- 2026-06-29 19:45 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/83345.shtml)
-- 2026-06-29 19:29 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/510439677687.shtml)
-- 2026-06-29 19:44 - [周杰伦演唱会含星量](https://www.blog.kurohicncr.top/Article/details/61135.shtml)
-- 2026-06-29 19:45 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/2482435985.shtml)
-- 2026-06-29 19:46 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/73083.shtml)
-- 2026-06-29 19:44 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/954370562306.shtml)
-- 2026-06-29 19:27 - [韩文体部对韩足协开展审计 查出局原因](http://www.share.minike.top/Article/details/41619468.shtml)
-- 2026-06-29 19:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/8648939121.shtml)
-- 2026-06-29 19:21 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/4194703.shtml)
-- 2026-06-29 19:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/561397764490.shtml)
-- 2026-06-29 19:31 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/902650.shtml)
-- 2026-06-29 19:33 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/14021143.shtml)
+- 2026-06-29 19:50 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/41907027516.shtml)
+- 2026-06-29 19:29 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/53266.shtml)
+- 2026-06-29 19:41 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/434668070296.shtml)
+- 2026-06-29 19:25 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/7821845.shtml)
+- 2026-06-29 19:28 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/16458.shtml)
+- 2026-06-29 19:31 - [江语晨 好恨江语晨前夫](http://www.share.minike.top/Article/details/54137079859.shtml)
+- 2026-06-29 19:41 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/007022544357.shtml)
+- 2026-06-29 19:40 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/558759770.shtml)
+- 2026-06-29 19:26 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/954507555.shtml)
+- 2026-06-29 19:31 - [男子40度高温下骑行严重晒伤](https://www.share.minike.top/Article/details/637391564.shtml)
+- 2026-06-29 19:38 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.kurohicncr.top/Article/details/77856714.shtml)
+- 2026-06-29 19:44 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/5545088.shtml)
+- 2026-06-29 19:28 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/1934405934.shtml)
+- 2026-06-29 19:39 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/20911358.shtml)
+- 2026-06-29 19:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/397173756824.shtml)

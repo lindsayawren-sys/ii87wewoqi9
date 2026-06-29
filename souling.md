@@ -1,58 +1,57 @@
-# 海外华媒走进成都东部新区 感受成都发展新动能
+# 杠上了？追觅俞浩正面硬刚影石刘靖康：“听说某知名科技新贵喜欢看美女，来，满足你”
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-中新网成都6月4日电 (程兆)6月4日，成都天府国际空港综合保税区(下文称天府国际综保区)展厅内，区位图、产业规划和口岸功能介绍吸引了不少海外媒体代表驻足拍摄、记录。美国《新世界时报》社长倪涛看着展厅内的规划图不禁感叹：“成都拥有了一个发展的新‘引擎’。” 当日，“2026海外华文媒体川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进成都东部新区。海外华文媒体代表们在开放平
+近日，影石CEO刘靖康在朋友圈发文内涵追觅俞浩。刘靖康表示，为什么我现在在任何一个视频平台都能看到那个男人，明明不是美女CEO为什么要天天刷屏。 5月12日，追觅创始人俞浩正面硬刚刘靖康，在微博发文将刘靖康朋友圈发文配图贴出，并贴出自己的女装照片表示“听说某知名科技新贵喜欢看美女，来，满足你！ ”。 事情起因在于近日俞浩近期社交动态疯狂刷屏，日更数十至百余条视频，单条发布间隔甚
 
 ## 正文
 
-中新网成都6月4日电 (程兆)6月4日，成都天府国际空港综合保税区(下文称天府国际综保区)展厅内，区位图、产业规划和口岸功能介绍吸引了不少海外媒体代表驻足拍摄、记录。
+近日，影石CEO刘靖康在朋友圈发文内涵追觅俞浩。
 
-美国《新世界时报》社长倪涛看着展厅内的规划图不禁感叹：“成都拥有了一个发展的新‘引擎’。
+刘靖康表示，为什么我现在在任何一个视频平台都能看到那个男人，明明不是美女CEO为什么要天天刷屏。
 
-” 当日，“2026海外华文媒体川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进成都东部新区。
+5月12日，追觅创始人俞浩正面硬刚刘靖康，在微博发文将刘靖康朋友圈发文配图贴出，并贴出自己的女装照片表示“听说某知名科技新贵喜欢看美女，来，满足你！
 
-海外华文媒体代表们在开放平台与未来产业场景中，感受成都发展的新动能。
+”。
 
-成都天府国际空港新城管委会综合处负责人符佳毅介绍，作为四川省首个空港型综合保税区，天府国际综保区位于成都东部新区国际空港经济区核心区域，毗邻成都天府国际机场，正依托航空枢纽优势，加快发展跨境电商、生物医药、航材贸易等特色产业。
+事情起因在于近日俞浩近期社交动态疯狂刷屏，日更数十至百余条视频，单条发布间隔甚至仅仅几分钟。
 
-“不同于沿海口岸城市，成都东部新区的开放优势更多体现在航空枢纽、综合保税区、产业承载空间和城市新区建设的叠加效应。
-
-”符佳毅说，目前，天府国际综保区已建成4.5万平方米的公共保税仓库、1.73万平方米的综合服务办公楼，即将启动建设0.5万平方米的进口高端食材冷库和1.5万平方米的GSP标准医药仓库。
-
-未来，天府国际综保区将继续通过与机场口岸功能区协同，推动口岸、保税、物流、仓储、企业服务等功能集成，为企业降低运营成本、提升通关效率、拓展国际市场提供支撑。
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 19:36 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 19:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 19:30 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 19:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 19:41 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 19:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 19:46 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 19:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 19:23 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 19:45 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 19:22 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 19:34 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 19:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 19:38 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 19:25 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 19:43 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 19:43 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 19:43 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 19:26 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 19:42 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 19:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 19:51 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 19:35 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 19:41 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 19:52 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 19:26 - [北京市发布雷电黄色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/066292.shtml)
-- 2026-06-29 19:35 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/02689783367.shtml)
-- 2026-06-29 19:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/38895.shtml)
-- 2026-06-29 19:39 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/118116042355.shtml)
-- 2026-06-29 19:20 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/24602456191.shtml)
-- 2026-06-29 19:37 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/34179641597.shtml)
-- 2026-06-29 19:32 - [一诺变着花样秀新驾照](http://www.share.minike.top/Article/details/3820829.shtml)
-- 2026-06-29 19:39 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/33491936178.shtml)
-- 2026-06-29 19:34 - [一人一句祝党生日快乐](https://www.blog.minike.top/Article/details/4795290080.shtml)
-- 2026-06-29 19:29 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/231670694.shtml)
-- 2026-06-29 19:35 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/367325852309.shtml)
-- 2026-06-29 19:25 - [周生如故](http://www.share.kurohicncr.top/Article/details/97159637.shtml)
-- 2026-06-29 19:47 - [官媒首曝六代机？大V解读](https://www.share.kurohicncr.top/Article/details/31005322364.shtml)
-- 2026-06-29 19:46 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/869257390.shtml)
-- 2026-06-29 19:39 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/251499061413.shtml)
+- 2026-06-29 19:24 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/36322622.shtml)
+- 2026-06-29 19:31 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/67529815.shtml)
+- 2026-06-29 19:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/132013.shtml)
+- 2026-06-29 19:47 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/28966480525.shtml)
+- 2026-06-29 19:43 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/5908662421.shtml)
+- 2026-06-29 19:33 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/19856370.shtml)
+- 2026-06-29 19:51 - [一见倾心](http://www.blog.minike.top/Article/details/639653138033.shtml)
+- 2026-06-29 19:37 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/97611799887.shtml)
+- 2026-06-29 19:49 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/796561424.shtml)
+- 2026-06-29 19:37 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/41479567.shtml)
+- 2026-06-29 19:32 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/49081788.shtml)
+- 2026-06-29 19:44 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/2328682.shtml)
+- 2026-06-29 19:39 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/414557318.shtml)
+- 2026-06-29 19:38 - [朱雀三号完成静态点火试验](http://www.share.kurohicncr.top/Article/details/76588.shtml)
+- 2026-06-29 19:36 - [韩文体部对韩足协开展审计 查出局原因](https://www.share.minike.top/Article/details/14170224525.shtml)

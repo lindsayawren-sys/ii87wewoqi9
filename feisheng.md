@@ -1,49 +1,58 @@
-# 财通基金：LOF大涨≠赚钱机会！基金投资者必知的溢价风险
+# 纽约联储：美国信用卡债务降至1.25万亿美元，但仍呈现K型分化
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 责任编辑：石秀珍 SF183
+美国纽约联邦储备银行周二发布的最新家庭债务报告显示，2026年第一季度信用卡余额下降了250亿美元，降至1.25万亿美元。不过，这仍比去年同期增长了5.9%。 纽约联储还发现，同期抵押贷款债务、汽车贷款和房屋净值信贷额度均有所上升。 纽约联储研究经济学家丹尼尔·曼格鲁姆在一份声明中表示：“总体而言，家庭债务水平略有上升，大多数债务类型的小幅增长抵消了信用卡余额的季节性下降。”
 
 ## 正文
 
-专题：515投资者保护！
+美国纽约联邦储备银行周二发布的最新家庭债务报告显示，2026年第一季度信用卡余额下降了250亿美元，降至1.25万亿美元。
 
-新浪财经2026年度投教案例评选结果公布 责任编辑：石秀珍 SF183
+不过，这仍比去年同期增长了5.9%。
+
+纽约联储还发现，同期抵押贷款债务、汽车贷款和房屋净值信贷额度均有所上升。
+
+纽约联储研究经济学家丹尼尔·曼格鲁姆在一份声明中表示：“总体而言，家庭债务水平略有上升，大多数债务类型的小幅增长抵消了信用卡余额的季节性下降。
+
+” 临近年底时，由于消费者在假日购物高峰期增加支出，信用卡债务往往会上升。
+
+随后，信用卡债务通常会在第一季度下降。
+
+尽管信用卡债务有所下降，但飞涨的汽油价格正日益加剧家庭预算的压力。
+
+根据美国汽车协会（AAA）的数据，周二全国普通汽油平均价格为每加仑4.50美元，而一年前约为3.14美元。
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 19:25 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 19:34 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 19:43 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 19:41 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 19:27 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 19:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 19:44 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 19:46 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 19:23 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 19:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 19:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 19:36 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 19:21 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 19:27 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 19:52 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 19:27 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 19:44 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 19:49 - [女生每天戴耳机18小时突发耳聋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-29 19:53 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 19:24 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 19:37 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 19:47 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 19:47 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 19:30 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-29 19:29 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 19:36 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:27 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/258792439835.shtml)
-- 2026-06-29 19:40 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/21913.shtml)
-- 2026-06-29 19:34 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/006845180517.shtml)
-- 2026-06-29 19:41 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/7677643.shtml)
-- 2026-06-29 19:20 - [韩国小学生都来吐槽了](https://www.share.kurohicncr.top/Article/details/23308269046.shtml)
-- 2026-06-29 19:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/890761531093.shtml)
-- 2026-06-29 19:37 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/930746205645.shtml)
-- 2026-06-29 19:36 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/62247.shtml)
-- 2026-06-29 19:23 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/3104839650.shtml)
-- 2026-06-29 19:44 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/51684950926.shtml)
-- 2026-06-29 19:44 - [巴西球员：日本队有点傲慢了](https://www.share.kurohicncr.top/Article/details/4682646067.shtml)
-- 2026-06-29 19:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/2119179.shtml)
-- 2026-06-29 19:39 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/76053.shtml)
-- 2026-06-29 19:23 - [男子40度高温下骑行严重晒伤](https://www.blog.minike.top/Article/details/770880890403.shtml)
-- 2026-06-29 19:26 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/94392469.shtml)
+- 2026-06-29 19:50 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/381276.shtml)
+- 2026-06-29 19:29 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/930683215238.shtml)
+- 2026-06-29 19:48 - [逃狱兄弟](http://www.blog.minike.top/Article/details/0211083.shtml)
+- 2026-06-29 19:44 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/07395483123.shtml)
+- 2026-06-29 19:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.kurohicncr.top/Article/details/661420.shtml)
+- 2026-06-29 19:43 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/78767.shtml)
+- 2026-06-29 19:28 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/6067968905.shtml)
+- 2026-06-29 19:53 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/374822.shtml)
+- 2026-06-29 19:26 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/52831880480.shtml)
+- 2026-06-29 19:50 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/17518013.shtml)
+- 2026-06-29 19:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/8471165.shtml)
+- 2026-06-29 19:25 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/936672.shtml)
+- 2026-06-29 19:26 - [TTG KSG](http://www.share.minike.top/Article/details/14108518.shtml)
+- 2026-06-29 19:42 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/061484237.shtml)
+- 2026-06-29 19:46 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/69298813.shtml)

@@ -1,56 +1,56 @@
-# 龙丰集团港股IPO：营收连年大增却常年现金透支 家族高度控股连年高额分红 上市募资部分用于偿还贷款
+# 515投资者保护|富国基金口播轻投教“基金小课堂”：全网播放6000万，助力碎片化投教
 
-> 更新时间：2026-06-29 19:48:02 UTC+8
+> 更新时间：2026-06-29 19:54:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院/港市多维镜 作者：喜乐 2026年5月，香港本土美妆保健药品连锁品牌龙丰集团正式启动全球发售，并将于6月5日在港交所主板上市。依托香港本地消费客流回暖，公司近三年营收与毛利率稳步抬升，在香港细分零售赛道稳居行业前列，全渠道布局与多品类供应链构筑起基础竞争壁垒。但亮眼经营数据之下
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。富国基金口播系列轻投教基金小课堂参选“投教项目优秀实践奖”类别。>>活动详情 据悉，2025年，富国基金在抖音、小红书等新媒体平台全新推出多系列真人出镜的口播轻投教短视频，以“短小精悍、生动有趣”为核心，实现分层化科普，让用户在刷短视频的过程中轻松学
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：515投资者保护！
 
-出品：新浪财经上市公司研究院/港市多维镜 作者：喜乐 2026年5月，香港本土美妆保健药品连锁品牌龙丰集团正式启动全球发售，并将于6月5日在港交所主板上市。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-依托香港本地消费客流回暖，公司近三年营收与毛利率稳步抬升，在香港细分零售赛道稳居行业前列，全渠道布局与多品类供应链构筑起基础竞争壁垒。
+富国基金口播系列轻投教基金小课堂参选“投教项目优秀实践奖”类别。
 
-但亮眼经营数据之下，100%家族实控、上市前突击大额分红、常年依靠银行透支维系周转、无基石认购等一系列问题，令本次港股上市争议重重。
+>>活动详情 据悉，2025年，富国基金在抖音、小红书等新媒体平台全新推出多系列真人出镜的口播轻投教短视频，以“短小精悍、生动有趣”为核心，实现分层化科普，让用户在刷短视频的过程中轻松学习投资知识。
 
-依托深耕香港本土多年的线下门店布局，龙丰集团在香港美妆、保健品及处方药零售领域形成稳固行业地位。
+栏目包括面向基金基础知识的《养基必备攻略》、面向ETF和场内基金投资者的《60s速通ETF》、聚焦债券基金科普的《收蛋人集合》、围绕权益基金投资的《聊聊主动基》，以及解读各热门指数的《这个指数能投吗》和解析市场热点的泛财经科普《秒懂财经热点》。
 
-根据弗若斯特沙利文资料，按2025财政年度零售销售额计，公司是香港第三大美妆、保健及药品零售商，市场份额5.8%；按药品零售额计，更是香港最大的药品零售商，市场份额5.2%。
+传播效果上，以上系列视频在全网多平台发布，内容覆盖面广、反响热烈，累计播放量近6000万。
 
-业绩层面公司受益香港客流回暖实现连续高增，2023至2025财年营收自10.9亿港元增长至24.6亿港元，三年复合增速达50.0%；2026财年前八个月营收20.4亿港元，同比增长35%，增速有所放缓。
-
-毛利率方面，公司采购规模持续扩容带来议价优势，毛利率从2023年24.9%稳步抬升至2025年31.6%，2026财年前八个月小幅回落至30.9%，整体仍维持高位。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 19:25 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 19:40 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 19:43 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 19:45 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 19:28 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 19:28 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 19:24 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 19:21 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 19:22 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 19:41 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 19:31 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 19:36 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 19:44 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 19:24 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-29 19:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 19:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 19:33 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 19:40 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 19:41 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 19:30 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 19:29 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 19:24 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:44 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/9439324.shtml)
-- 2026-06-29 19:46 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/993708.shtml)
-- 2026-06-29 19:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/69509448867.shtml)
-- 2026-06-29 19:29 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/04872370.shtml)
-- 2026-06-29 19:21 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/464103634.shtml)
-- 2026-06-29 19:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/933781328113.shtml)
-- 2026-06-29 19:32 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/162822518102.shtml)
-- 2026-06-29 19:42 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/090141809.shtml)
-- 2026-06-29 19:19 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/280082.shtml)
-- 2026-06-29 19:46 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/0797552153.shtml)
-- 2026-06-29 19:41 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/456665660294.shtml)
-- 2026-06-29 19:26 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/549936.shtml)
-- 2026-06-29 19:41 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/2709998237.shtml)
-- 2026-06-29 19:42 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/728505323654.shtml)
-- 2026-06-29 19:42 - [韩文体部对韩足协开展审计 查出局原因](http://www.blog.kurohicncr.top/Article/details/3885169.shtml)
+- 2026-06-29 19:45 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/84980974420.shtml)
+- 2026-06-29 19:31 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/48737978.shtml)
+- 2026-06-29 19:38 - [毒液2](http://www.blog.kurohicncr.top/Article/details/0563986823.shtml)
+- 2026-06-29 19:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/11997196884.shtml)
+- 2026-06-29 19:42 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/5450068543.shtml)
+- 2026-06-29 19:35 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/533719240166.shtml)
+- 2026-06-29 19:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/61808.shtml)
+- 2026-06-29 19:28 - [中国多领域发布亮眼“成绩单”](https://www.share.minike.top/Article/details/07952.shtml)
+- 2026-06-29 19:25 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/6460709.shtml)
+- 2026-06-29 19:52 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/1801933343.shtml)
+- 2026-06-29 19:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/208917.shtml)
+- 2026-06-29 19:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/50877028876.shtml)
+- 2026-06-29 19:26 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/662066.shtml)
+- 2026-06-29 19:50 - [V8](https://www.blog.minike.top/Article/details/8399611858.shtml)
+- 2026-06-29 19:35 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/43042969.shtml)
