@@ -1,58 +1,59 @@
-# Dunkin’领跑Inspire Brands旗下连锁，母企冲刺IPO
+# 陕西铁路端午假期运输预计发送旅客263.4万人次
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-甜甜圈连锁品牌Dunkin’的母公司Inspire Brands已于上周五秘密提交首次公开募股申请，拟在纳斯达克上市，股票代码为“DNKN”。若成功上市，这将成为近年来美国餐饮行业规模最大的IPO之一。 Dunkin’是Inspire Brands旗下六大品牌中的绝对主力，贡献了集团约38%的系统销售额。该品牌近年来在“饮料优先”经济趋势下表现尤为亮眼。数据显示，目前快餐行业中
+中新网西安6月17日电(记者 张远)记者17日从中国铁路西安局集团有限公司(简称西安铁路局)获悉，今年铁路端午假期运输期限为6月18日至6月22日，共5天。期间，西安铁路局预计发送旅客263.4万人次，日均52.7万人次，同比增长4.9%。 今年端午假期恰逢高考结束，旅客出行需求旺盛。西安铁路局在高峰运行图的基础上，计划加开列车78对，全力保障旅客出行需求。其中，计划加开西安至
 
 ## 正文
 
-甜甜圈连锁品牌Dunkin’的母公司Inspire Brands已于上周五秘密提交首次公开募股申请，拟在纳斯达克上市，股票代码为“DNKN”。
+中新网西安6月17日电(记者 张远)记者17日从中国铁路西安局集团有限公司(简称西安铁路局)获悉，今年铁路端午假期运输期限为6月18日至6月22日，共5天。
 
-若成功上市，这将成为近年来美国餐饮行业规模最大的IPO之一。
+期间，西安铁路局预计发送旅客263.4万人次，日均52.7万人次，同比增长4.9%。
 
-Dunkin’是Inspire Brands旗下六大品牌中的绝对主力，贡献了集团约38%的系统销售额。
+今年端午假期恰逢高考结束，旅客出行需求旺盛。
 
-该品牌近年来在“饮料优先”经济趋势下表现尤为亮眼。
+西安铁路局在高峰运行图的基础上，计划加开列车78对，全力保障旅客出行需求。
 
-数据显示，目前快餐行业中30%的消费场景以饮料购买为第一驱动，Dunkin’凭借冰饮品类和创新营销成功领跑。
+其中，计划加开西安至北京、上海、成都、太原、兰州、重庆等热门方向的跨省旅客列车30对，省内加开西安至宝鸡、汉中、延安、榆林、安康、神木、大荔等方向的省内旅客列车48对。
 
-今年2月，Dunkin’在“咖啡碗”营销战役中超越星巴克，成为社交媒体上的热门话题，进一步巩固了其市场地位。
+对上海、成都、重庆、武汉、太原、延安等客流密集方向的部分动车组实行重联运行，提升最大运输能力。
 
-相比Dunkin’的强劲势头，母公司旗下其他品牌表现相对平稳。
+同时，结合实际需求，计划开行西安至北京、上海、成都、太原等方向的夜间动车组，补齐日间运力缺口，丰富旅客出行时段选择。
 
-Arby‘s、Buffalo Wild Wings和Jimmy John’s等品牌合计贡献约49%的销售额，但增长动能不及Dunkin‘。
+自2025年底西延高铁开通以来，西安铁路局陆续开行了延安至北京、上海、广州、成都、遵义等城市的高铁列车，助力陕北红色旅游热度持续攀升。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 05:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 05:59 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 05:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 05:31 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-30 05:56 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 05:47 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 05:43 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 05:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 05:39 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 05:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 05:58 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 06:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 05:40 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-30 05:44 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 05:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-30 05:42 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 05:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 05:47 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 06:01 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 06:04 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 05:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 05:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-30 06:05 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 05:48 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/02581935.shtml)
-- 2026-06-30 05:56 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/8507017.shtml)
-- 2026-06-30 05:54 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/18536368715.shtml)
-- 2026-06-30 05:34 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/96971007.shtml)
-- 2026-06-30 05:49 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/22982789025.shtml)
-- 2026-06-30 05:49 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/008146858523.shtml)
-- 2026-06-30 05:41 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/19517018.shtml)
-- 2026-06-30 05:32 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/9362129748.shtml)
-- 2026-06-30 05:39 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/63923670373.shtml)
-- 2026-06-30 05:50 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/965002689218.shtml)
-- 2026-06-30 05:34 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/767786564.shtml)
-- 2026-06-30 05:32 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/131496367.shtml)
-- 2026-06-30 05:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/77220417.shtml)
-- 2026-06-30 05:42 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/71783707.shtml)
-- 2026-06-30 05:50 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/288055.shtml)
+- 2026-06-30 06:01 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/548181.shtml)
+- 2026-06-30 05:53 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/900324.shtml)
+- 2026-06-30 06:00 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/928555852497.shtml)
+- 2026-06-30 06:00 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/595937376.shtml)
+- 2026-06-30 05:45 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/72674.shtml)
+- 2026-06-30 05:55 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/77864969570.shtml)
+- 2026-06-30 05:54 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/17954617449.shtml)
+- 2026-06-30 06:04 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/8793134.shtml)
+- 2026-06-30 06:03 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/7350329984.shtml)
+- 2026-06-30 05:45 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.kurohicncr.top/Article/details/768349438.shtml)
+- 2026-06-30 06:03 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/4701130424.shtml)
+- 2026-06-30 05:47 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/5963868.shtml)
+- 2026-06-30 05:45 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/250919.shtml)
+- 2026-06-30 05:58 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/331689.shtml)
+- 2026-06-30 05:51 - [日本反击率先破门](http://www.share.minike.top/Article/details/95929484620.shtml)

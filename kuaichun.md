@@ -1,56 +1,58 @@
-# 转型品牌减肥药致一季度意外亏损，美企业Hims & Hers股价重挫11%
+# 外交部：日本右翼势力掩盖真相 根本目的是否认历史定论
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-受向品牌减肥药业务转型推高运营成本影响，美国远程医疗企业Hims & Hers Health第一季度遭遇意外亏损。当地时间12日，该公司股价在早盘交易中大幅下跌11%至25.95美元，预计市值蒸发约7.3亿美元。 财报数据显示，Hims & Hers第一季度每股亏损40美分，大幅低于此前分析师平均预期的每股盈利4美分，当期营收亦未达华尔街预期。公司首席财务官耶米·奥库佩（Yem
+6月18日，外交部发言人林剑主持例行记者会。有记者问：近日，《揭秘731部队：日本的秘密人体实验》纪录片播出，通过采访日军侵华第731部队唯一在世老兵、细菌战受害者及家属、新加坡学者等，让观众得以进一步了解历史真相。该纪录片受到了广泛关注。网民评论称，日军暴行惨无人道，不应逃脱历史审判。发言人对此有何评论？林剑表示，二战期间，侵华日军第731部队进行了灭绝人性的活体实验和细菌战
 
 ## 正文
 
-受向品牌减肥药业务转型推高运营成本影响，美国远程医疗企业Hims & Hers Health第一季度遭遇意外亏损。
+6月18日，外交部发言人林剑主持例行记者会。
 
-当地时间12日，该公司股价在早盘交易中大幅下跌11%至25.95美元，预计市值蒸发约7.3亿美元。
+有记者问：近日，《揭秘731部队：日本的秘密人体实验》纪录片播出，通过采访日军侵华第731部队唯一在世老兵、细菌战受害者及家属、新加坡学者等，让观众得以进一步了解历史真相。
 
-财报数据显示，Hims & Hers第一季度每股亏损40美分，大幅低于此前分析师平均预期的每股盈利4美分，当期营收亦未达华尔街预期。
+该纪录片受到了广泛关注。
 
-公司首席财务官耶米·奥库佩（Yemi Okupe）指出，此次亏损主要归因于司美格鲁肽（semaglutide）复合原料的资产减值、一次性法律费用及企业合并开支。
+网民评论称，日军暴行惨无人道，不应逃脱历史审判。
 
-对于营收不及预期的深层原因，该公司表示，由于美国食品药品监督管理局（FDA）近期收紧了对仿制减肥药的限制，公司正由提供较廉价的复合版GLP-1药物，全面转向与原研药企合作（如提供诺和诺德的Wegovy等品牌药物）。
+发言人对此有何评论？
 
-这一战略转型不仅冲击了短期销售额，还引发了较高的重组成本。
+林剑表示，二战期间，侵华日军第731部队进行了灭绝人性的活体实验和细菌战，受害者既有大量的中国平民，也有苏联战俘、朝鲜劳工、英美被俘的军人等。
 
-此外，公司近期缩短了产品发货周期，导致部分减肥产品的收入确认时间发生变动，进一步拖累了美国市场的整体营收表现。
+这段极其黑暗、残忍的历史，拷问着人类的良知和底线。
 
-针对该期财报，华尔街投行反应不一，部分券商维持了对该公司的原有评级。
+令人警醒的是，面对铁证如山的事实，日本右翼势力不仅拒不反省，还把臭名昭著的731部队美化为“从事卫生研究的单位”，大搞历史修正主义，极力掩盖真相、淡化否认罪责。
 
 ## 相关推荐
 
-- 2026-06-30 05:49 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 05:52 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 05:58 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 05:34 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 05:34 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 05:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 05:31 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 05:55 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 05:42 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 05:31 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 05:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 05:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 06:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 05:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 05:42 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 05:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 06:04 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 05:38 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 05:38 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 05:40 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 05:55 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 05:39 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/905268790.shtml)
-- 2026-06-30 05:44 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/10674541892.shtml)
-- 2026-06-30 05:44 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/9175193.shtml)
-- 2026-06-30 05:50 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/819816841.shtml)
-- 2026-06-30 05:34 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/667067.shtml)
-- 2026-06-30 05:43 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/587984147113.shtml)
-- 2026-06-30 05:54 - [恋与深空回应争议](http://www.share.minike.top/Article/details/76461168900.shtml)
-- 2026-06-30 05:44 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/023475204.shtml)
-- 2026-06-30 05:39 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/826161133.shtml)
-- 2026-06-30 05:40 - [速度与激情9](http://www.blog.minike.top/Article/details/92531415714.shtml)
-- 2026-06-30 05:43 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/71082946319.shtml)
-- 2026-06-30 05:41 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/8800182.shtml)
-- 2026-06-30 05:43 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/124083273870.shtml)
-- 2026-06-30 05:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/1804488.shtml)
-- 2026-06-30 05:52 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/477778449.shtml)
+- 2026-06-30 05:58 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/84935.shtml)
+- 2026-06-30 05:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/3155285.shtml)
+- 2026-06-30 05:54 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/2413704576.shtml)
+- 2026-06-30 05:46 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/6011984.shtml)
+- 2026-06-30 05:52 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/674091475464.shtml)
+- 2026-06-30 05:39 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/83823.shtml)
+- 2026-06-30 05:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/83350028.shtml)
+- 2026-06-30 05:43 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/784507464377.shtml)
+- 2026-06-30 05:45 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/722170.shtml)
+- 2026-06-30 05:40 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/431209.shtml)
+- 2026-06-30 05:47 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/18761978.shtml)
+- 2026-06-30 05:41 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/1558685340.shtml)
+- 2026-06-30 06:02 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/5491592692.shtml)
+- 2026-06-30 05:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/029748464684.shtml)
+- 2026-06-30 06:03 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/27342.shtml)

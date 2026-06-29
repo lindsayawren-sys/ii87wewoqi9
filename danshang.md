@@ -1,53 +1,60 @@
-# 原芜湖职业技术学院党委书记汪斌严重违纪违法被开除党籍
+# 帮境外机构解决人民币流动性问题，央行出手了
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对原芜湖职业技术学院党委书记汪斌严重违纪违法问题进行了立案审查调查。 经查，汪斌丧失理想信念，背弃初心使命，处心积虑对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排和车辆服务；违背组织原则，违规为他人谋取人事利益，不按规定报告个人有关事项；廉洁
+21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。同日，央行发布公告，披露了该工具的操作框架。 潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。 公告指出，该工具操作方式包括买断式
 
 ## 正文
 
-中新网5月11日电 据安徽省纪委监委消息：日前，经中共安徽省委批准，安徽省纪委监委对原芜湖职业技术学院党委书记汪斌严重违纪违法问题进行了立案审查调查。
+21世纪经济报道记者 唐婧 6月17日，央行行长潘功胜在2026陆家嘴论坛上宣布，将创设境外央行类机构回购工具。
 
-经查，汪斌丧失理想信念，背弃初心使命，处心积虑对抗组织审查；违反中央八项规定精神，收受可能影响公正执行公务的礼品、礼金、消费卡，违规接受旅游活动安排和车辆服务；违背组织原则，违规为他人谋取人事利益，不按规定报告个人有关事项；廉洁底线失守，利用职权为亲属在业务承揽方面谋取利益，违规拥有非上市公司股份，违规挂证取酬；利用职务便利为他人在项目审批、融资贷款等方面谋利，并非法收受巨额财物。
+同日，央行发布公告，披露了该工具的操作框架。
 
-汪斌严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+潘功胜介绍，境外央行或货币当局、国际金融组织、主权财富基金，都可以用中国国债等高等级债券回购的方式，从中国人民银行获得人民币流动性，便利境外央行类机构的人民币流动性管理和人民币资产配置。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经安徽省纪委常委会会议研究并报省委批准，决定给予汪斌开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+公告指出，该工具操作方式包括买断式逆回购和质押式逆回购，操作期限涵盖7天、1个月、3个月，回购利率在公开市场7天期逆回购操作利率上加点确定。
+
+境外机构可使用中国国债、央行票据、政策性金融债等高等级人民币债券作为合格抵押品。
+
+换言之，境外央行类机构可凭合格抵押品从中国人民银行融入资金，从而有效便利其人民币流动性管理，增强持有人民币资产的信心。
+
+‌远东资信研究院副院长张林告诉记者，境外机构持有人民币资产有时会面临短期流动性缺口，该工具有助于解决他们“变现渠道不畅”问题。
+
+此举可以降低境外机构持有人民币资产的流动性风险溢价，从而增强人民币资产对全球配置机构的吸引力。
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 05:58 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 05:31 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 05:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 05:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 05:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 05:45 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 05:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 05:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 05:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 05:43 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 05:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 05:49 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 05:45 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 05:50 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-30 05:58 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 05:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 05:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 05:52 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 05:41 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 06:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 05:38 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 05:44 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-30 05:44 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 05:56 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 06:00 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 05:52 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 05:45 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 05:48 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/212179165347.shtml)
-- 2026-06-30 05:44 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/87118343.shtml)
-- 2026-06-30 05:58 - [美人鱼](https://www.blog.minike.top/Article/details/02353.shtml)
-- 2026-06-30 05:37 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/3403005.shtml)
-- 2026-06-30 05:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/04660.shtml)
-- 2026-06-30 05:51 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/3647730.shtml)
-- 2026-06-30 05:48 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/67855.shtml)
-- 2026-06-30 05:40 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/73881466.shtml)
-- 2026-06-30 05:43 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/59626.shtml)
-- 2026-06-30 05:48 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/7911191.shtml)
-- 2026-06-30 05:51 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/4546566.shtml)
-- 2026-06-30 05:34 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/7939386.shtml)
-- 2026-06-30 05:30 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/52086014352.shtml)
-- 2026-06-30 05:31 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/78851244.shtml)
-- 2026-06-30 05:48 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/11246725.shtml)
+- 2026-06-30 05:38 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/91476076961.shtml)
+- 2026-06-30 05:37 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/316708.shtml)
+- 2026-06-30 05:40 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/36882.shtml)
+- 2026-06-30 05:56 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/69005899.shtml)
+- 2026-06-30 05:58 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/131089294273.shtml)
+- 2026-06-30 05:52 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/416608.shtml)
+- 2026-06-30 05:57 - [毒液2](http://www.blog.kurohicncr.top/Article/details/6165004237.shtml)
+- 2026-06-30 05:42 - [流金岁月](http://www.share.minike.top/Article/details/60716961004.shtml)
+- 2026-06-30 06:00 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/775066674.shtml)
+- 2026-06-30 06:01 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/1792742.shtml)
+- 2026-06-30 06:00 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/852595.shtml)
+- 2026-06-30 06:01 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/901853.shtml)
+- 2026-06-30 05:50 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/95278483711.shtml)
+- 2026-06-30 05:50 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/820248.shtml)
+- 2026-06-30 05:49 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/966482770.shtml)

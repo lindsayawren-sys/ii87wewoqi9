@@ -1,52 +1,56 @@
-# 中银国际：壁仞科技首次覆盖给予“买入”评级 目标价74.43港元
+# 存储芯片涨价潮延续！港股半导体板块逆市上涨，兆易创新股价创历史新高
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中银国际发布研报称，首次覆盖壁仞科技（06082），给予“买入”评级，目标价为74.43港元，此基于20倍2027年预期市销率。 该行指出该公司作为国内领先的GPGPU厂商，将充分受益于中国AI算力需求的指数级增长。除了从芯片到系统层面的技术领先地位外，该行认为壁仞科技与国内供应链的深度融合，为其提供了相较于同业的关键竞争优势。 该行预测，壁仞科技在2025年至2028年期间将
+港股半导体板块逆市上涨，兆易创新盘中涨9%股价创历史新高，英诺赛科、天数智芯涨超7%，澜起科技、纳芯微涨超5%。 消息面上，根据ComputerBase对内存、HDD和SSD三大存储品类的价格追踪数据，当前的存储紧缺危机远未结束，6月中旬HDD价格大幅上涨，内存及SSD价格也在上涨。最新数据显示，内存的价格水平依然处于极端高位，较上个月再度小幅上涨，以2025年9月为基准，DD
 
 ## 正文
 
-中银国际发布研报称，首次覆盖壁仞科技（06082），给予“买入”评级，目标价为74.43港元，此基于20倍2027年预期市销率。
+港股半导体板块逆市上涨，兆易创新盘中涨9%股价创历史新高，英诺赛科、天数智芯涨超7%，澜起科技、纳芯微涨超5%。
 
-该行指出该公司作为国内领先的GPGPU厂商，将充分受益于中国AI算力需求的指数级增长。
+消息面上，根据ComputerBase对内存、HDD和SSD三大存储品类的价格追踪数据，当前的存储紧缺危机远未结束，6月中旬HDD价格大幅上涨，内存及SSD价格也在上涨。
 
-除了从芯片到系统层面的技术领先地位外，该行认为壁仞科技与国内供应链的深度融合，为其提供了相较于同业的关键竞争优势。
+最新数据显示，内存的价格水平依然处于极端高位，较上个月再度小幅上涨，以2025年9月为基准，DDR5内存的平均价格已上涨288%，较一个月前的282%进一步扩大。
 
-该行预测，壁仞科技在2025年至2028年期间将实现137%的收入复合年增长率，并预计其将于2027年实现收支平衡，这主要得益于下一代产品在2026年下半年的商业化落地。
+此外，行业人士称字节跳动正与天数智芯讨论采购至少5万颗AI芯片，主要用于推理工作。
 
-责任编辑：卢昱君
+若交易达成，天数智芯将成为华为和寒武纪之后，字节跳动的第三家GPU供应商。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 05:35 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 05:56 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-30 05:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 05:33 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 05:58 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 05:39 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 05:43 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 05:37 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 05:36 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 05:39 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 05:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:52 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 05:41 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 05:48 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 06:04 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 06:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 06:04 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 05:39 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 06:02 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 05:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 05:58 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 05:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 05:51 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 05:55 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 05:42 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/59053732.shtml)
-- 2026-06-30 05:47 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/179370857.shtml)
-- 2026-06-30 05:41 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/87865.shtml)
-- 2026-06-30 05:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/64186.shtml)
-- 2026-06-30 05:48 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/457310696.shtml)
-- 2026-06-30 05:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/8535129143.shtml)
-- 2026-06-30 05:42 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/76062.shtml)
-- 2026-06-30 05:34 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/943347137.shtml)
-- 2026-06-30 05:44 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/638910.shtml)
-- 2026-06-30 05:43 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/874826.shtml)
-- 2026-06-30 05:41 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/931669640118.shtml)
-- 2026-06-30 05:31 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/73950782.shtml)
-- 2026-06-30 05:42 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/004635920.shtml)
-- 2026-06-30 05:49 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/039366887721.shtml)
-- 2026-06-30 05:54 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/74931.shtml)
+- 2026-06-30 05:51 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/473665772116.shtml)
+- 2026-06-30 05:50 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/9827965.shtml)
+- 2026-06-30 06:02 - [一生一世](https://www.share.kurohicncr.top/Article/details/21804.shtml)
+- 2026-06-30 05:51 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/3962950974.shtml)
+- 2026-06-30 05:41 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/18571.shtml)
+- 2026-06-30 06:05 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/365377304098.shtml)
+- 2026-06-30 06:00 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.kurohicncr.top/Article/details/604349.shtml)
+- 2026-06-30 05:43 - [勇敢的心第二部](http://www.share.minike.top/Article/details/36102284583.shtml)
+- 2026-06-30 06:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/2722674058.shtml)
+- 2026-06-30 05:47 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/09185.shtml)
+- 2026-06-30 05:37 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/6023595.shtml)
+- 2026-06-30 05:45 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/71392250.shtml)
+- 2026-06-30 05:47 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/5822642758.shtml)
+- 2026-06-30 06:04 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/394049.shtml)
+- 2026-06-30 05:37 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/53206.shtml)

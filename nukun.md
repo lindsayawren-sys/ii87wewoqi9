@@ -1,61 +1,56 @@
-# 酒价内参5月11日价格发布：习酒君品上涨4元
+# 美联储维持利率不变 沃什拟设工作组推进改革
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构均
+发布时间：2026年06月18日 11:38 来源：中国新闻网 美国联邦储备委员会6月17日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。这一决定是在新任美联储主席凯文·沃什上任后主持召开的首次货币政策例会上作出，符合市场普遍预期。 美联储当天发表篇幅较以往大幅缩减的政策声明称，决定将联邦基金利率目标区间维持不变，以支持美联储的双重使命。美联储重申其维持
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。
+发布时间：2026年06月18日 11:38 来源：中国新闻网 美国联邦储备委员会6月17日宣布，将联邦基金利率目标区间维持在3.5%至3.75%之间的水平不变。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。
+这一决定是在新任美联储主席凯文·沃什上任后主持召开的首次货币政策例会上作出，符合市场普遍预期。
 
-市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。
+美联储当天发表篇幅较以往大幅缩减的政策声明称，决定将联邦基金利率目标区间维持不变，以支持美联储的双重使命。
 
-今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
+美联储重申其维持银行体系充裕准备金的政策。
 
-上涨方面，古井贡古20与青花郎涨幅居前，均上涨5元/瓶，双双收获二连阳。
+这份声明获得了参与投票的所有美联储官员支持。
 
-前者价格连续两日快速回弹，重回月内高位550元关口，后者创下近一月最高价格，近期该酒品在700元关口附近波动较为剧烈；习酒君品上涨4元/瓶；国窖1573上涨3元/瓶；五粮液1618上涨1元/瓶。
+当天，美联储还公布了经济预测概要。
 
-下跌方面，茅台系飞天茅台与精品茅台均下跌2元/瓶；青花汾20、洋河梦之蓝M6+及水晶剑南春均下跌1元/瓶。
+其中，利率点阵图由除沃什之外的高级官员提交的利率预期汇总形成。
 
-五粮液普五八代的价格环比保持不变。
+点阵图显示，联邦基金利率中值到2026年年末将升至3.8%，暗示年内可能实施加息操作。
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-30 05:44 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 05:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 05:43 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-30 05:58 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 05:52 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 05:30 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 05:40 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-30 05:30 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 05:41 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 05:46 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 05:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-30 05:49 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 05:58 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 05:43 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 05:42 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 05:58 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 06:03 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 05:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 05:53 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 05:51 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 05:47 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 05:51 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 05:41 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 06:05 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/919388307513.shtml)
-- 2026-06-30 05:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/8643012.shtml)
-- 2026-06-30 05:52 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/9229279710.shtml)
-- 2026-06-30 05:51 - [月亮](https://www.share.minike.top/Article/details/58649.shtml)
-- 2026-06-30 05:44 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/90449.shtml)
-- 2026-06-30 05:58 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/4840651229.shtml)
-- 2026-06-30 05:34 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/537875128.shtml)
-- 2026-06-30 05:35 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/487259305305.shtml)
-- 2026-06-30 05:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/31334215.shtml)
-- 2026-06-30 05:48 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/6173049047.shtml)
-- 2026-06-30 05:57 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/950039.shtml)
-- 2026-06-30 05:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/5297571.shtml)
-- 2026-06-30 05:49 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/354364750.shtml)
-- 2026-06-30 05:42 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/2059789.shtml)
-- 2026-06-30 05:39 - [斛珠夫人](https://www.share.minike.top/Article/details/78551757.shtml)
+- 2026-06-30 05:59 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/42611.shtml)
+- 2026-06-30 05:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/751132430.shtml)
+- 2026-06-30 06:05 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/16400213324.shtml)
+- 2026-06-30 05:48 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.kurohicncr.top/Article/details/53463.shtml)
+- 2026-06-30 05:44 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/1848026.shtml)
+- 2026-06-30 05:45 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/91421197.shtml)
+- 2026-06-30 05:57 - [千与千寻](https://www.blog.minike.top/Article/details/260541415.shtml)
+- 2026-06-30 05:38 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/14927.shtml)
+- 2026-06-30 05:50 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/758162870.shtml)
+- 2026-06-30 05:43 - [巴西扳平比分](https://www.share.minike.top/Article/details/7331231.shtml)
+- 2026-06-30 05:39 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/805855237.shtml)
+- 2026-06-30 05:45 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/1920294.shtml)
+- 2026-06-30 06:02 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/02080174692.shtml)
+- 2026-06-30 06:05 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/6718825.shtml)
+- 2026-06-30 05:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/362401799.shtml)

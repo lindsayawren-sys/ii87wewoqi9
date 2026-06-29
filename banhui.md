@@ -1,58 +1,59 @@
-# 强降雨持续影响云南 多地连发暴雨预警
+# 华泰期货：尿素昨日大涨，现货提价带动情绪好转？
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。 截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势
+来源：华泰期货 作者： 化工组 昨日尿素期货大幅上涨，其中主力合约UR2609合约收盘涨幅3.85%。昨日上涨主要有以下原因： 2026年3季度普通尿素行业自律指导价出台，整体指导价上调100-210元/吨不等，河南地区小颗粒尿素上调190元/吨，山东地区小颗粒尿素上调150元/吨，带动情绪好转。 前日起部分区域农业流向好转，现货成交情绪好转，部分工厂限收，上调出厂价。随着中部
 
 ## 正文
 
-中新网昆明5月11日电(李嘉娴)5月11日至14日，江南、华南等地新一轮较强降水过程来袭，其中云南将自西向东迎来中到大雨天气，部分地区有暴雨，并伴有短时强降水等强对流天气，防汛防灾形势严峻。
+来源：华泰期货 作者： 化工组 昨日尿素期货大幅上涨，其中主力合约UR2609合约收盘涨幅3.85%。
 
-截至5月11日20时10分，云南多地密集发布、更新各类气象灾害预警。
+昨日上涨主要有以下原因： 2026年3季度普通尿素行业自律指导价出台，整体指导价上调100-210元/吨不等，河南地区小颗粒尿素上调190元/吨，山东地区小颗粒尿素上调150元/吨，带动情绪好转。
 
-本轮降雨过程中，红河、丽江、普洱等多地气象部门陆续发布暴雨黄色、橙色预警，部分区域监测到明显短时强降水，预判未来时段雨势持续，辖区内多个乡镇暴雨灾害风险较高。
+前日起部分区域农业流向好转，现货成交情绪好转，部分工厂限收，上调出厂价。
 
-同时，部分区域发布雷电黄色预警，预计将出现持续雷电天气，存在一定雷击安全隐患，大范围强对流天气风险突出。
+随着中部地区麦收进度接近收尾，玉米备肥逐步启动，关注后续水稻、玉米用肥采购节奏。
 
-结合最新气象监测，云南省发布地质灾害气象风险预警，5月11日20时至12日20时，红河州元阳、绿春、金平三县滑坡、泥石流灾害风险高；红河州南部、文山州西南部、普洱市东西部、丽江市中部、临沧市西南部地质灾害风险较高，需重点防范。
+出口侧近期政策调控频繁，市场情绪反复。
 
-云南省最新天气预报显示，11日白天云南多个州市被降雨覆盖，丽江、昆明、红河、文山、普洱、临沧等地多区域出现小到中雨，局部大雨、暴雨。
+近日有出口指导价放松消息提振市场情绪，需关注实际落地情况。
 
-11日夜间至12日，全省降水逐步减弱，12日夜间起，降雨范围大幅收缩，仅省内西部、南部边缘有零星阵雨，大部地区天气逐步转好。
+6月8日印度NFL尿素进口招标共收到33家供货商总计625.05万吨货源，最晚船期7月20日。
 
-气象部门特别提醒，本轮降雨暖区对流特征明显，突发性强、变化快、局地性显著，强降水极易诱发城市内涝、山洪、滑坡、泥石流等地质灾害。
+东海岸最低到岸价444.90美元/吨（50万吨），西海岸449.30美元/吨（23.4万吨），意向采购量170万吨。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 05:50 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 05:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 05:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 05:31 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 05:33 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 05:49 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 05:57 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-30 05:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 05:51 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 05:34 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 05:59 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 05:38 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 05:38 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 05:46 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 05:37 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 05:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 05:37 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 05:52 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 05:48 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 05:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 05:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 05:37 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-30 05:50 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 06:05 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/87965514.shtml)
-- 2026-06-30 05:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/92240.shtml)
-- 2026-06-30 05:44 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/33256142594.shtml)
-- 2026-06-30 05:32 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/76524841090.shtml)
-- 2026-06-30 05:53 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/1742838.shtml)
-- 2026-06-30 05:47 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/00464.shtml)
-- 2026-06-30 05:48 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/4715947295.shtml)
-- 2026-06-30 05:52 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/4172293626.shtml)
-- 2026-06-30 05:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/82113003702.shtml)
-- 2026-06-30 05:38 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/5214588.shtml)
-- 2026-06-30 05:47 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/24004868.shtml)
-- 2026-06-30 05:43 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/218379.shtml)
-- 2026-06-30 05:48 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/9433130973.shtml)
-- 2026-06-30 05:45 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/214646753426.shtml)
-- 2026-06-30 05:42 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/763566360.shtml)
+- 2026-06-30 05:36 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/390498.shtml)
+- 2026-06-30 05:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/340859541976.shtml)
+- 2026-06-30 05:40 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/3736822.shtml)
+- 2026-06-30 05:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/5528080844.shtml)
+- 2026-06-30 05:39 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/386292133.shtml)
+- 2026-06-30 05:43 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/8582471.shtml)
+- 2026-06-30 06:02 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/97026201.shtml)
+- 2026-06-30 05:41 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/846950456.shtml)
+- 2026-06-30 05:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/2665182.shtml)
+- 2026-06-30 05:42 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/293342985.shtml)
+- 2026-06-30 05:57 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/868094.shtml)
+- 2026-06-30 05:37 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/00047402.shtml)
+- 2026-06-30 05:49 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/5195099.shtml)
+- 2026-06-30 05:41 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/6098184750.shtml)
+- 2026-06-30 05:58 - [电影后室值得看吗](http://www.share.minike.top/Article/details/0787138.shtml)

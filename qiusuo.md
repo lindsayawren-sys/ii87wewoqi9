@@ -1,57 +1,52 @@
-# 刘涛演妈祖火遍两岸 蒙曼：因为我们有共同的历史认同
+# 中新健康｜被烫伤你还在涂牙膏、酱油、敷冰块吗？全是误区
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？这其实就说明我们有共同的历史认同，这些历史
+发布时间：2026年06月17日 23:00 来源：中国新闻网 6月17日，国家卫生健康委举行“时令节气与健康(芒种、夏至)”新闻发布会。北京中医药大学东直门医院主任医师马洪明在会上表示，烫伤切勿涂抹牙膏、酱油、香油等偏方，也不可直接敷冰块，否则易刺激创面、增加感染风险，干扰医生判断伤情，加重组织损伤。家庭急救牢记“冲、脱、泡、盖、送”：流动凉水冲15-30分钟，轻柔脱除衣物，
 
 ## 正文
 
-发布时间：2026年05月12日 10:47 来源：中国新闻网 5月11日，第三届海峡两岸中华文化峰会在京开幕。
+发布时间：2026年06月17日 23:00 来源：中国新闻网 6月17日，国家卫生健康委举行“时令节气与健康(芒种、夏至)”新闻发布会。
 
-谈及近期多位演员因扮演历史人物火遍两岸，中央民族大学教授蒙曼接受记者采访时表示，“中华民族是一个崇尚英雄的民族，您所说的这些演员他们“翻红”，是因为他们扮演的是我们的民族英雄。
+北京中医药大学东直门医院主任医师马洪明在会上表示，烫伤切勿涂抹牙膏、酱油、香油等偏方，也不可直接敷冰块，否则易刺激创面、增加感染风险，干扰医生判断伤情，加重组织损伤。
 
-比方说他们扮演郑成功、比方说她们扮演妈祖，对不对？
+家庭急救牢记“冲、脱、泡、盖、送”：流动凉水冲15-30分钟，轻柔脱除衣物，常温水浸泡，干净纱布覆盖，视情况及时就医。
 
-这其实就说明我们有共同的历史认同，这些历史人物其实深深根植于老百姓的心中。
-
-如果扮演得好，我们都认为他和他所扮演那个角色是合一的，所以我们才能把对这个角色的感情、对这个历史人物的感情，寄托在这样的艺人身上”。
-
-(范思忆 刘子衿 制作 王雪茵） 责任编辑：【李季】
+(张静） 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 05:56 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 05:37 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 05:41 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
-- 2026-06-30 05:46 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 05:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 05:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 05:51 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 05:41 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 05:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 05:38 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 05:36 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 05:39 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-30 05:31 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 05:46 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-30 05:49 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 05:53 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 05:47 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 05:47 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 05:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 05:47 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 05:37 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 05:54 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 06:03 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 05:57 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 05:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 05:55 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 05:36 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/20066242819.shtml)
-- 2026-06-30 05:51 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/392528.shtml)
-- 2026-06-30 05:54 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/3102040.shtml)
-- 2026-06-30 05:43 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/6577354805.shtml)
-- 2026-06-30 05:42 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/389219666.shtml)
-- 2026-06-30 05:54 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/5250725.shtml)
-- 2026-06-30 05:40 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/996720.shtml)
-- 2026-06-30 05:52 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/41736089695.shtml)
-- 2026-06-30 05:57 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/5935378.shtml)
-- 2026-06-30 05:48 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/1604042766.shtml)
-- 2026-06-30 05:36 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/66220729439.shtml)
-- 2026-06-30 05:43 - [日本16强魔咒](https://www.blog.minike.top/Article/details/755911.shtml)
-- 2026-06-30 05:30 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/442591361814.shtml)
-- 2026-06-30 05:57 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/5426625084.shtml)
-- 2026-06-30 05:57 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/708941059630.shtml)
+- 2026-06-30 05:36 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/4167779379.shtml)
+- 2026-06-30 05:54 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/9637457483.shtml)
+- 2026-06-30 05:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/30373817.shtml)
+- 2026-06-30 05:42 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/98579.shtml)
+- 2026-06-30 05:53 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/18874.shtml)
+- 2026-06-30 05:53 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/906357576192.shtml)
+- 2026-06-30 06:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/7076341815.shtml)
+- 2026-06-30 06:00 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/77452.shtml)
+- 2026-06-30 05:43 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/001708412.shtml)
+- 2026-06-30 05:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/677466.shtml)
+- 2026-06-30 05:56 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/96851921.shtml)
+- 2026-06-30 05:44 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/526154.shtml)
+- 2026-06-30 05:49 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/44663.shtml)
+- 2026-06-30 06:04 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/094207666.shtml)
+- 2026-06-30 06:00 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/956901341709.shtml)

@@ -1,57 +1,59 @@
-# 计划融资500亿元，创始人自掏200亿元！DeepSeek刷新AI赛道价值坐标，国产AI芯片谁将受益？
+# 冲刺IPO的小红书，花10亿抢男用户
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金融投资报 中国人工智能“明星”公司DeepSeek，正寻求完成一轮规模高达500亿元的融资。 这笔巨资不仅将加速DeepSeek大模型的迭代与商业化，更会掀起一轮算力基础设施的采购热潮。AI芯片、AI服务器等核心环节将率先受益，国内硬科技赛道有望迎来更多实力型“选手”。 国家大基金或将成为投资方 财
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！小红书吸引男用户5年，世界杯能给出不一样的答案吗？ 文|《中国企业家》见习记者 林秋艺 记者 王怡洁 一脚站在IPO门外，小红书为了拉动用户增长，使出了杀手锏。 5月底，小红书官宣成为2026年“美加墨世界杯”持权转播商，也成为了除中央广播电视总台、咪咕之外，唯一的直播、点播、短视频版权的持权方。据《晚点L
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：金融投资报 中国人工智能“明星”公司DeepSeek，正寻求完成一轮规模高达500亿元的融资。
+小红书吸引男用户5年，世界杯能给出不一样的答案吗？
 
-这笔巨资不仅将加速DeepSeek大模型的迭代与商业化，更会掀起一轮算力基础设施的采购热潮。
+文|《中国企业家》见习记者 林秋艺 记者 王怡洁 一脚站在IPO门外，小红书为了拉动用户增长，使出了杀手锏。
 
-AI芯片、AI服务器等核心环节将率先受益，国内硬科技赛道有望迎来更多实力型“选手”。
+5月底，小红书官宣成为2026年“美加墨世界杯”持权转播商，也成为了除中央广播电视总台、咪咕之外，唯一的直播、点播、短视频版权的持权方。
 
-国家大基金或将成为投资方 财联社等权威媒体爆出重磅消息，DeepSeek即将开启自成立以来的首轮外部融资，计划募集资金高达500亿元。
+据《晚点LatePost》报道，目前小红书日活用户超过1.7亿，月活用户超4亿——世界杯直播将成为小红书冲击2亿日活的重要起点。
 
-若交易完成，这一规模将刷新中国AI企业的单轮融资纪录，并使公司估值一举攀升至3500亿元。
+世界杯转播权费用从来昂贵，小红书为此付出的成本说法不一：业内估算，小红书投入了约17亿元人民币。
 
-在这轮融资中，DeepSeek创始人兼首席执行官梁文锋预计将以个人身份投入200亿元，占融资总额40%，从而成为本轮融资中最大的出资方。
+另据小红书内部人士透露，实际投入不到10亿元。
 
-公开信息显示，DeepSeek于2023年7月创立，从量化对冲基金幻方量化内部孵化而来，此前全部运营资金均由幻方量化提供，从未进行过任何外部股权融资。
+奋手一搏的背后，是小红书亟待补齐的用户短板。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 05:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 05:39 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 05:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 05:32 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 05:55 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 05:53 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 05:46 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 05:38 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 05:53 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 05:39 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 05:49 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 05:39 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 06:02 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 06:02 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 05:54 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 05:52 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 05:39 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 05:50 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 06:02 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:59 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 05:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 05:41 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 05:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:49 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/622731217427.shtml)
-- 2026-06-30 05:41 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/045343.shtml)
-- 2026-06-30 05:39 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/46282098.shtml)
-- 2026-06-30 05:48 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/779207363.shtml)
-- 2026-06-30 05:33 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/45279.shtml)
-- 2026-06-30 05:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/0511234.shtml)
-- 2026-06-30 05:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/101030253.shtml)
-- 2026-06-30 05:46 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/9635740972.shtml)
-- 2026-06-30 05:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/39737410.shtml)
-- 2026-06-30 05:40 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/79221482586.shtml)
-- 2026-06-30 05:45 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/888769.shtml)
-- 2026-06-30 05:50 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/5219325397.shtml)
-- 2026-06-30 05:37 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/5648728.shtml)
-- 2026-06-30 05:49 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/771419391742.shtml)
-- 2026-06-30 05:59 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/76694605.shtml)
+- 2026-06-30 05:55 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/829914378.shtml)
+- 2026-06-30 05:39 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/966880540.shtml)
+- 2026-06-30 06:03 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/434554383.shtml)
+- 2026-06-30 05:39 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/293947399381.shtml)
+- 2026-06-30 05:41 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/96072410061.shtml)
+- 2026-06-30 05:48 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/437006286509.shtml)
+- 2026-06-30 05:39 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/47816872028.shtml)
+- 2026-06-30 05:45 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/88278017.shtml)
+- 2026-06-30 05:51 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/713780.shtml)
+- 2026-06-30 05:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/04227744.shtml)
+- 2026-06-30 05:46 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/825216580561.shtml)
+- 2026-06-30 05:37 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/78421769.shtml)
+- 2026-06-30 05:42 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/82907884924.shtml)
+- 2026-06-30 05:49 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/79844277084.shtml)
+- 2026-06-30 05:40 - [千与千寻](https://www.share.minike.top/Article/details/952079961740.shtml)

@@ -1,60 +1,61 @@
-# 德中分子医学与分子药学学会举办2026年首期德中学术交流会
+# 加强新时代党的建设的根本遵循
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网柏林5月11日电 德中分子医学与分子药学学会(DCMP)近日在柏林举办2026年第一期德中学术交流会。 会议采取线上线下相结合形式，汇聚中德两国青年科学家、中国驻德国使馆教育处代表及学会成员，围绕生命科学前沿领域的交叉融合与创新发展进行交流。 学会新任执行会长李文忠博士致辞表示，当前生命科学已进入医学、材料学、生物学与人工智能深度融合的新阶段，人类正见证着从“观察生物”走
+原标题：加强新时代党的建设的根本遵循 ——论学习贯彻习近平党建思想 办好中国的事情，关键在党。实现党的使命任务，必须把党建设得更加坚强有力。 党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想，开辟了马克思主义建党学说中国化时代化的新境界，构成习近平
 
 ## 正文
 
-中新网柏林5月11日电 德中分子医学与分子药学学会(DCMP)近日在柏林举办2026年第一期德中学术交流会。
+原标题：加强新时代党的建设的根本遵循 ——论学习贯彻习近平党建思想 办好中国的事情，关键在党。
 
-会议采取线上线下相结合形式，汇聚中德两国青年科学家、中国驻德国使馆教育处代表及学会成员，围绕生命科学前沿领域的交叉融合与创新发展进行交流。
+实现党的使命任务，必须把党建设得更加坚强有力。
 
-学会新任执行会长李文忠博士致辞表示，当前生命科学已进入医学、材料学、生物学与人工智能深度融合的新阶段，人类正见证着从“观察生物”走向“精准调控生命”的崭新时代。
+党的十八大以来，以习近平同志为核心的党中央围绕建设什么样的长期执政的马克思主义政党、怎样建设长期执政的马克思主义政党的重大时代课题，提出一系列新理念新思想新战略，形成习近平党建思想，开辟了马克思主义建党学说中国化时代化的新境界，构成习近平新时代中国特色社会主义思想的党建篇，为加强新时代党的建设提供了根本遵循。
 
-他强调，DCMP将继续发挥桥梁作用，加强学术界与产业界的互动，推动基础研究与临床转化的紧密结合，让更多优秀青年学者“被发现、被看见、被链接、被支持”。
+学习贯彻习近平党建思想，是当前和今后一个时期全党的一项重要政治任务。
 
-中国驻德国使馆教育处马艳红博士特别肯定了学会长期以来为中德学术交流搭建的高端平台，尤其是通过“春晖计划”组织多批学者回国考察交流，对促进科研成果转化具有深远意义。
+作为马克思主义建党学说中国化时代化的最新成果，习近平党建思想鲜明提出坚持党的领导是中国特色社会主义最本质的特征，坚持党中央集中统一领导，坚持全面从严治党，坚持不忘初心、牢记使命，坚持以党的政治建设为统领，坚持用党的创新理论凝心铸魂，坚持锤炼坚强党性，坚持健全上下贯通、执行有力的组织体系，坚持建设堪当民族复兴重任的高素质干部队伍，坚持推进作风建设常态化长效化，坚持用严明的纪律管全党治全党，坚持一体推进不敢腐不能腐不想腐，坚持制度治党、依规治党，坚持落实管党治党政治责任，是新时代党的建设理论发展和实践经验的科学总结，博大精深、内涵丰富、思想深邃、体系严密。
 
-她表示，使馆教育处将一如既往地支持学会的各项活动，为广大留德学者做好服务与保障工作。
+这“十四个坚持”是对习近平总书记关于新时代党的建设具有标志性、引领性的新理念新思想新战略的集中概括，深刻阐明了党的建设的最高原则、战略方针、价值追求、工作布局、方法路径。
 
-在学术报告环节，中山大学肿瘤防治中心教授、昌平国家实验室特聘科学家高嵩博士作题为《线粒体融合与T细胞肿瘤免疫》的报告，介绍了线粒体动力学结构、线粒体融合蛋白机制，并探讨了这些基础研究在肿瘤免疫治疗中的应用前景。
+深刻把握管党治党、兴党强党和强国复兴的内在联系，统筹党的领导和党的建设，坚持认识论和方法论、两点论和重点论的有机统一，习近平党建思想明体达用、体用贯通，为发展马克思主义建党学说作出重大原创性贡献，标志着我们党对马克思主义执政党建设规律的认识达到了新高度。
 
-随后，柏林自由大学生物化学系王磊博士作题为《功能材料指导类器官构建与干细胞调控》的报告，分享了生物材料精准调控干细胞行为的最新成果，为再生医学领域的研究提供了新契机。
+新时代新征程，如何把党建设得更加坚强有力？
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 05:46 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 05:59 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 05:38 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 05:49 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 05:54 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 05:36 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 05:33 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-30 05:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 05:45 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-30 05:37 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 05:52 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 05:40 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-30 05:48 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 05:57 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 05:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-30 05:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 06:02 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 05:56 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-30 05:47 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 05:38 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 05:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 05:45 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 05:42 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 05:52 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 05:41 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-30 05:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-30 05:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 05:59 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/474008185.shtml)
-- 2026-06-30 05:45 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/060891090.shtml)
-- 2026-06-30 05:45 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/317262.shtml)
-- 2026-06-30 05:34 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/26675567475.shtml)
-- 2026-06-30 05:58 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/764032.shtml)
-- 2026-06-30 05:48 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/58587651134.shtml)
-- 2026-06-30 05:34 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/300670639.shtml)
-- 2026-06-30 05:55 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/80715559330.shtml)
-- 2026-06-30 05:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/97630569.shtml)
-- 2026-06-30 05:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/2664349043.shtml)
-- 2026-06-30 05:35 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/85408550.shtml)
-- 2026-06-30 05:37 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/08372696.shtml)
-- 2026-06-30 05:55 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/12328865.shtml)
-- 2026-06-30 05:44 - [森保一 保守](https://www.blog.minike.top/Article/details/84676.shtml)
-- 2026-06-30 05:57 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/004311.shtml)
+- 2026-06-30 05:47 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/093674593.shtml)
+- 2026-06-30 05:38 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/84990859.shtml)
+- 2026-06-30 05:57 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/311135.shtml)
+- 2026-06-30 05:45 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/506417.shtml)
+- 2026-06-30 06:00 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/6207605.shtml)
+- 2026-06-30 05:55 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/555361248.shtml)
+- 2026-06-30 05:41 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/58938.shtml)
+- 2026-06-30 05:45 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/758949706654.shtml)
+- 2026-06-30 05:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/1090661.shtml)
+- 2026-06-30 05:39 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/958599439.shtml)
+- 2026-06-30 05:36 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/7479565167.shtml)
+- 2026-06-30 05:42 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/14078528.shtml)
+- 2026-06-30 05:47 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/538884503498.shtml)
+- 2026-06-30 05:54 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/2285138826.shtml)
+- 2026-06-30 05:44 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/001655361980.shtml)

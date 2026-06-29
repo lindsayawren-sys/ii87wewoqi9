@@ -1,57 +1,56 @@
-# 罗克韦尔自动化携手Actemium部署AI制冷系统，助力食品生产节能17%
+# 广西民众逛“中医药夜市” 感受传统医药魅力
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-工业自动化巨头罗克韦尔自动化周一宣布，与合作伙伴Actemium联合部署了一套由AI驱动的制冷系统优化方案，旨在显著降低食品生产过程中高能耗制冷环节的电力消耗。 该解决方案名为“实时性能系数”，运行于罗克韦尔自动化的PlantPAx分布式控制系统之上。它像一个永不停歇的虚拟操作员，能够实时分析压缩机、冷凝器和蒸发器等设备的运行状态及环境条件，自主选择并执行最高效的配置组合。 该
+中新网柳州6月18日电(林馨)6月17日晚，2026年“百市千县”中医药文化惠民活动(广西站)暨中医药健康养生文化行启动仪式在广西柳州市举行。活动将传统中医药文化融入现代夜市生活，吸引大批民众前来“打卡”，沉浸式感受传统中医药的魅力。 本次活动以“活力中医药，健康惠万家”为主题，现场设置名中医义诊、特色技法体验、药膳品鉴及数智中医药体验等多个互动区域，实现“体验+科普”的深度融
 
 ## 正文
 
-工业自动化巨头罗克韦尔自动化周一宣布，与合作伙伴Actemium联合部署了一套由AI驱动的制冷系统优化方案，旨在显著降低食品生产过程中高能耗制冷环节的电力消耗。
+中新网柳州6月18日电(林馨)6月17日晚，2026年“百市千县”中医药文化惠民活动(广西站)暨中医药健康养生文化行启动仪式在广西柳州市举行。
 
-该解决方案名为“实时性能系数”，运行于罗克韦尔自动化的PlantPAx分布式控制系统之上。
+活动将传统中医药文化融入现代夜市生活，吸引大批民众前来“打卡”，沉浸式感受传统中医药的魅力。
 
-它像一个永不停歇的虚拟操作员，能够实时分析压缩机、冷凝器和蒸发器等设备的运行状态及环境条件，自主选择并执行最高效的配置组合。
+本次活动以“活力中医药，健康惠万家”为主题，现场设置名中医义诊、特色技法体验、药膳品鉴及数智中医药体验等多个互动区域，实现“体验+科普”的深度融合。
 
-该系统已在一家大型冷冻薯条生产商的实际应用中验证了效果，成功将制冷系统的能源效率提升了17%，预计每年可为单个生产基地节省约13万美元的能源成本。
+在数智中医药体验区，68岁的张女士在工作人员的引导下，尝试人工智能把脉。
 
-同时，该方案还有效减少了设备的运行负荷，有助于延长制冷资产的使用寿命。
+她表示：“感觉机器把脉还是挺准的，报告里还给出了相应的饮食建议，很方便。
 
-Actemium大西洋加拿大区总经理Jim Gillis指出，对设备进行持续、稳定的能效排序，是人工操作员根本无法实时完成的工作。
+” 除了前沿的AI中医体验，现场的动手制作中草药活动也吸引了不少亲子家庭参与。
 
-在食品制造工厂中，工业制冷系统的用电量可占全厂总用电量的70%，是该行业能源优化的最大突破口。
+作为此次活动的承办方之一，广西药用植物园为民众带来了丰富的科普体验。
 
-罗克韦尔自动化表示，随着食品生产商面临技能短缺和降本增效压力，此类AI驱动的自主应用需求日益增长。
+带着孩子前来参加活动的李女士说：“难得有机会让孩子亲手触摸、制作中草药，了解这么多中医药知识。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:59 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 05:45 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 05:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 05:48 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 05:37 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 05:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 05:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 05:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 05:56 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 05:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-30 05:52 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 05:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 05:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 05:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 05:44 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 05:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 06:01 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 06:00 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 06:04 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 06:03 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:35 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/0806065548.shtml)
-- 2026-06-30 05:57 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/3142843.shtml)
-- 2026-06-30 05:40 - [青春环游记第三季](http://www.blog.minike.top/Article/details/69253.shtml)
-- 2026-06-30 05:35 - [金牌调解](http://www.share.minike.top/Article/details/33345373.shtml)
-- 2026-06-30 05:36 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/030049953.shtml)
-- 2026-06-30 05:42 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/168436624.shtml)
-- 2026-06-30 05:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/76764667.shtml)
-- 2026-06-30 05:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/12849849.shtml)
-- 2026-06-30 05:47 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/30056.shtml)
-- 2026-06-30 05:39 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/0687142.shtml)
-- 2026-06-30 05:43 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/12069030.shtml)
-- 2026-06-30 05:32 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/607303263185.shtml)
-- 2026-06-30 05:42 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/71693332.shtml)
-- 2026-06-30 05:30 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/4906389772.shtml)
-- 2026-06-30 05:55 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/6255332.shtml)
+- 2026-06-30 05:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/39218225606.shtml)
+- 2026-06-30 05:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/418596.shtml)
+- 2026-06-30 05:49 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/3285215.shtml)
+- 2026-06-30 05:55 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/140549216.shtml)
+- 2026-06-30 05:53 - [森保一 保守](http://www.blog.minike.top/Article/details/56875.shtml)
+- 2026-06-30 06:05 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/24275.shtml)
+- 2026-06-30 05:40 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/06641817.shtml)
+- 2026-06-30 05:59 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/813348038.shtml)
+- 2026-06-30 05:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/88913442847.shtml)
+- 2026-06-30 05:59 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/16169.shtml)
+- 2026-06-30 05:37 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/600614982277.shtml)
+- 2026-06-30 05:43 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/72105507164.shtml)
+- 2026-06-30 06:00 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/40973164.shtml)
+- 2026-06-30 06:05 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/357658968.shtml)
+- 2026-06-30 05:49 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/10744331.shtml)

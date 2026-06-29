@@ -1,55 +1,60 @@
-# 王祥基：将力邀张凌赫、刘宇宁等大陆艺人赴台交流
+# 中央网信办：即日起开展为期3个月的“清朗·整治账号名称信息乱象”专项行动
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 22:10 来源：中国新闻网 5月11日下午，第三届海峡两岸中华文化峰会两岸演艺合作论坛在北京举办。台北演艺经纪文化交流协会创会理事长王祥基在接受中新社采访时表示，两岸同文同种、语言相通、情感相连，天然拥有深厚的文化共鸣，这份文化情感根基难以割裂。他认为，包括《沉默的荣耀》《逐玉》等在内的大陆影视剧，成为台湾青年了解大陆生活方式、婚恋观念与社会
+中新网6月18日电 据“网信中国”微信公众号消息，近日，中央网信办秘书局发布《关于开展“清朗·整治账号名称信息乱象”专项行动的通知》，具体如下： 各省、自治区、直辖市党委网信办，新疆生产建设兵团党委网信办： 按照2026年“清朗”系列专项行动总体安排，中央网信办决定自即日起，开展为期3个月的“清朗·整治账号名称信息乱象”专项行动。现就有关事项通知如下： 一、工作目标坚持问题导向
 
 ## 正文
 
-发布时间：2026年05月11日 22:10 来源：中国新闻网 5月11日下午，第三届海峡两岸中华文化峰会两岸演艺合作论坛在北京举办。
+中新网6月18日电 据“网信中国”微信公众号消息，近日，中央网信办秘书局发布《关于开展“清朗·整治账号名称信息乱象”专项行动的通知》，具体如下： 各省、自治区、直辖市党委网信办，新疆生产建设兵团党委网信办： 按照2026年“清朗”系列专项行动总体安排，中央网信办决定自即日起，开展为期3个月的“清朗·整治账号名称信息乱象”专项行动。
 
-台北演艺经纪文化交流协会创会理事长王祥基在接受中新社采访时表示，两岸同文同种、语言相通、情感相连，天然拥有深厚的文化共鸣，这份文化情感根基难以割裂。
+现就有关事项通知如下： 一、工作目标坚持问题导向和效果导向，通过开展专项行动，集中整治账号名称信息存在的突出问题。
 
-他认为，包括《沉默的荣耀》《逐玉》等在内的大陆影视剧，成为台湾青年了解大陆生活方式、婚恋观念与社会风貌的重要窗口，两岸民众也能借此看清彼此差异、互相借鉴学习，在潜移默化中增进理解与认同。
+针对名称冒充、身份伪装、夹带违规信息、名称信息黑灰产等4类问题，督促网站平台严格落实主体责任，进一步完善账号名称信息全流程管理，持续营造清朗网络空间。
 
-王祥基举例称，张凌赫、刘宇宁等大陆艺人在台湾人气极高，相关动态一经传出便备受民众关注追捧，大陆艺人身上深厚的文化底蕴也值得台湾演艺界学习。
+二、整治重点 专项行动重点整治4类突出问题： 1.名称冒充问题。
 
-他透露，协会今年将持续发力推动两岸文化交流，力邀大陆高人气知名艺人赴台开展演出、合作座谈、签名会等活动。
+一是假冒仿冒官方机构账号。
 
-据他介绍，协会此前已在台北小巨蛋、大巨蛋等地成功举办四五十场两岸大型演艺交流活动，收获了扎实的交流成果，未来也将继续深耕两岸演艺文化融合事业。
+在账号名称、简介中嵌入党政军机关等官方机构信息，使用相同或相似名称、标识，恶意误导公众。
 
-记者 范思忆 北京报道 责任编辑：【李骏】
+使用、关联县级以上行政区划地名，使用“某某政事”等组合表述，易被误认为官方账号，使公众产生错误认知。
+
+使用“某某办事大厅”“某某服务中心”等官方服务通道表述，假冒本地官方生活服务账号。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 05:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 05:44 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-30 05:57 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 05:31 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 05:47 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 05:34 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-30 05:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 05:59 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 05:46 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 05:48 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 05:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 05:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 05:41 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 06:02 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 05:55 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 06:02 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 05:58 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 06:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 05:53 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 05:39 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 06:03 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 05:58 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 05:54 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 06:04 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/1159613.shtml)
-- 2026-06-30 05:40 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/36156020645.shtml)
-- 2026-06-30 05:44 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/35488192.shtml)
-- 2026-06-30 05:39 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/778023770399.shtml)
-- 2026-06-30 05:38 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/98135489081.shtml)
-- 2026-06-30 05:58 - [日本领先巴西](http://www.blog.minike.top/Article/details/7015458629.shtml)
-- 2026-06-30 05:41 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/13604712672.shtml)
-- 2026-06-30 05:42 - [一生一世](http://www.share.kurohicncr.top/Article/details/222057241774.shtml)
-- 2026-06-30 05:31 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/9490309.shtml)
-- 2026-06-30 05:38 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/162030.shtml)
-- 2026-06-30 05:45 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/5825036.shtml)
-- 2026-06-30 05:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/84293907132.shtml)
-- 2026-06-30 05:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/86033.shtml)
-- 2026-06-30 05:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/889699058.shtml)
-- 2026-06-30 05:53 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/41819101.shtml)
+- 2026-06-30 06:02 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/9215602682.shtml)
+- 2026-06-30 05:41 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/5612162157.shtml)
+- 2026-06-30 06:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/6781590587.shtml)
+- 2026-06-30 05:59 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/251393388952.shtml)
+- 2026-06-30 05:49 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/52534.shtml)
+- 2026-06-30 06:03 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/819305724586.shtml)
+- 2026-06-30 05:54 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/278146.shtml)
+- 2026-06-30 05:50 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/926482506.shtml)
+- 2026-06-30 05:56 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/0485101224.shtml)
+- 2026-06-30 05:57 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/2719500241.shtml)
+- 2026-06-30 06:01 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/854058707.shtml)
+- 2026-06-30 05:56 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/837378746406.shtml)
+- 2026-06-30 05:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/35700069.shtml)
+- 2026-06-30 06:06 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/542531588.shtml)
+- 2026-06-30 05:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/954664.shtml)

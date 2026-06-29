@@ -1,60 +1,52 @@
-# 儿童用药新政发布：商保入局，落地仍需“闯关”
+# A股收评：超3300只个股飘绿，深指、创业板指收涨
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 孙诗卉 上海报道 近日，国家卫生健康委、工业和信息化部等八部门发布的《关于改革完善儿童用药供应保障机制的实施意见》提出，支持商业健康保险开发儿童保险保障产品，鼓励将创新药、罕见病用药纳入保障范围。 新政明确鼓励“商业健康保险将儿童创新药、罕见病用药纳入保障范围”，但有多位业内专家直言：面向成人的商保创新药目录当前处于“雷声大雨点小”的局面。而儿童用药的商保
+原标题：A股收评：超3300只个股飘绿，深指、创业板指收涨，沪指收跌，科创综指涨超3%；稀土概念爆发，半导体、通信设备板块上涨，保险、券商下跌 18日，A股三大指数低开，盘中一度集体翻红，随后沪指翻绿。截至收盘，沪指跌0.43%，深证成指涨0.94%，创业板指涨2.05%。科创综指涨3.29%。 全市成交额3.33万亿，超3300只个股下跌。 板块方面，稀土、GPU概念走高，寒
 
 ## 正文
 
-21世纪经济报道记者 孙诗卉 上海报道 近日，国家卫生健康委、工业和信息化部等八部门发布的《关于改革完善儿童用药供应保障机制的实施意见》提出，支持商业健康保险开发儿童保险保障产品，鼓励将创新药、罕见病用药纳入保障范围。
+原标题：A股收评：超3300只个股飘绿，深指、创业板指收涨，沪指收跌，科创综指涨超3%；稀土概念爆发，半导体、通信设备板块上涨，保险、券商下跌 18日，A股三大指数低开，盘中一度集体翻红，随后沪指翻绿。
 
-新政明确鼓励“商业健康保险将儿童创新药、罕见病用药纳入保障范围”，但有多位业内专家直言：面向成人的商保创新药目录当前处于“雷声大雨点小”的局面。
+截至收盘，沪指跌0.43%，深证成指涨0.94%，创业板指涨2.05%。
 
-而儿童用药的商保支付之路，挑战更大。
+科创综指涨3.29%。
 
-要打破这一困局，需要构建连接保司、药企、医院和消费者的“基础设施”。
+全市成交额3.33万亿，超3300只个股下跌。
 
-全链条破局，首提“儿童基本药物目录” 此次《意见》的核心突破在于“系统思维”——不再是单一环节修补，而是覆盖研发、生产、采购、支付、使用的全链条设计。
+板块方面，稀土、GPU概念走高，寒武纪盘中大涨超16%；半导体板块领涨，电子元器件、生物科技、通信设备、互联网、电脑硬件等上涨；保险大跌，电力、券商、机场、贵金属等下跌。
 
-研发端，明确对纳入《鼓励研发申报儿童药品清单》的品种予以优先审评审批，允许滚动提交资料，早期介入、研审联动。
-
-支付端，首次鼓励商业健康保险开发儿童保险保障产品，将创新药、罕见病用药纳入保障范围。
-
-采购端，在集采中对儿童专用药与成人药分组采购，优化差比价规则，激励儿童适宜剂型供应。
+(“中新经纬”微信公众号)
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 05:47 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 05:44 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 05:41 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 05:40 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 05:49 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 05:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 05:36 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 05:32 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 05:38 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-30 05:42 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 05:40 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 05:40 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 05:42 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 05:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 05:49 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 05:45 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 05:40 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 05:49 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 05:45 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 05:52 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 05:44 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 05:58 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 05:56 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:55 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/5869971.shtml)
-- 2026-06-30 05:33 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/102079.shtml)
-- 2026-06-30 05:45 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/33272.shtml)
-- 2026-06-30 05:36 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/80711603929.shtml)
-- 2026-06-30 05:56 - [德约科维奇向温网对手放狠话](https://www.blog.minike.top/Article/details/169297280.shtml)
-- 2026-06-30 05:31 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/5653184.shtml)
-- 2026-06-30 05:41 - [急先锋](https://www.share.minike.top/Article/details/441537.shtml)
-- 2026-06-30 05:58 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/64824207070.shtml)
-- 2026-06-30 05:41 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/7833432439.shtml)
-- 2026-06-30 05:50 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/31909693.shtml)
-- 2026-06-30 05:34 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/0502577.shtml)
-- 2026-06-30 05:39 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/894547582115.shtml)
-- 2026-06-30 05:36 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/447184219.shtml)
-- 2026-06-30 05:47 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/415176198.shtml)
-- 2026-06-30 05:36 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/22545731.shtml)
+- 2026-06-30 05:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/70840310.shtml)
+- 2026-06-30 06:00 - [恋与深空回应争议](https://www.share.minike.top/Article/details/52316866.shtml)
+- 2026-06-30 05:44 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/694605.shtml)
+- 2026-06-30 05:47 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/1816213.shtml)
+- 2026-06-30 05:47 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/793030038.shtml)
+- 2026-06-30 05:51 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/5028175.shtml)
+- 2026-06-30 05:58 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/58648.shtml)
+- 2026-06-30 06:00 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/3809330.shtml)
+- 2026-06-30 05:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/35614195.shtml)
+- 2026-06-30 05:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/046612.shtml)
+- 2026-06-30 05:36 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/272479.shtml)
+- 2026-06-30 06:04 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/711652.shtml)
+- 2026-06-30 05:38 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/0340442619.shtml)
+- 2026-06-30 05:56 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/587799.shtml)
+- 2026-06-30 05:41 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/10342666.shtml)

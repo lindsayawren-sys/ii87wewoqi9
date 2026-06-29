@@ -1,50 +1,61 @@
-# 河南省人民检察院原巡视员刘新年被开除党籍
+# 货币政策框架改革再进一步 隔夜回购利率将发挥更重要作用
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对河南省人民检察院原巡视员刘新年严重违纪违法问题进行了立案审查调查。 经查，刘新年丧失理想信念，背弃初心使命，对党不忠诚不老实，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金，退休后违规收受消费卡，退休后违规接受宴请；违背组织原则，不按规定报告个人有关事项，利用职权为他人谋取人
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：金融时报 6月17日，在2026陆家嘴论坛上，央行行长潘功胜表示，金融结构正在发生深刻的变化。他指出，从经济发展阶段看，我国经济已从高速增长转向高质量发展，相应地，金融对经济的服务更多体现在结构优化上，而不是宏观金融总量的持续扩张上。 一组数据显示：目前，我国社会融资规模存量超过450万亿元，M2余额超过350
 
 ## 正文
 
-中新网5月11日电 据河南省纪委监委消息：经中共河南省委批准，河南省纪委监委对河南省人民检察院原巡视员刘新年严重违纪违法问题进行了立案审查调查。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 来源：金融时报 6月17日，在2026陆家嘴论坛上，央行行长潘功胜表示，金融结构正在发生深刻的变化。
 
-经查，刘新年丧失理想信念，背弃初心使命，对党不忠诚不老实，对抗组织审查；无视中央八项规定精神，收受可能影响公正执行公务的礼品、礼金，退休后违规收受消费卡，退休后违规接受宴请；违背组织原则，不按规定报告个人有关事项，利用职权为他人谋取人事利益并收受财物；廉洁底线失守，退休后利用原职权地位形成的便利条件为他人谋取利益并收受财物；大搞权钱交易，在任时及退休后为他人在工程承揽、项目建设等方面提供帮助，非法收受巨额财物。
+他指出，从经济发展阶段看，我国经济已从高速增长转向高质量发展，相应地，金融对经济的服务更多体现在结构优化上，而不是宏观金融总量的持续扩张上。
 
-刘新年严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌受贿、利用影响力受贿犯罪，且在党的十八大、十九大乃至二十大后仍然不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+一组数据显示：目前，我国社会融资规模存量超过450万亿元，M2余额超过350万亿元，总量规模已经很大。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经河南省纪委常委会会议研究并报中共河南省委批准，决定给予刘新年开除党籍处分；按规定取消其享受的待遇；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+“当前280万亿元的贷款余额中，房地产、地方融资平台的贷款占比仍然较大，这一块不仅不再增长，反而还在下降。
+
+剩下的其他贷款要先填补上这个下降的部分，才能表现为增量，全部信贷要保持过去的增速是很难的，也是没有必要的。
+
+”潘功胜表示，同时，部分存量贷款效率不高，盘活低效存量贷款和新增贷款对经济增长的意义本质上是相同的。
+
+贷款“降速提质”或将成为宏观运行的新常态之一。
+
+实际上，近年来，我国货币政策调控框架正从数量型为主向价格型为主转型，本次潘功胜宣布的政策也显示了这一趋势。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 05:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 05:50 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 05:48 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 05:34 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:51 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 05:44 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 05:36 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 05:46 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-30 05:34 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 05:33 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-30 05:47 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 05:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 05:50 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 05:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 05:45 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 05:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 06:02 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 05:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 05:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 05:49 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 05:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-30 05:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 05:46 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 05:46 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 05:38 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/6941356138.shtml)
-- 2026-06-30 05:40 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/96234.shtml)
-- 2026-06-30 05:58 - [周生如故](https://www.share.minike.top/Article/details/149650.shtml)
-- 2026-06-30 05:50 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/15268.shtml)
-- 2026-06-30 05:59 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/65531.shtml)
-- 2026-06-30 05:53 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/1959738933.shtml)
-- 2026-06-30 05:33 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/6596230710.shtml)
-- 2026-06-30 05:53 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/629704866.shtml)
-- 2026-06-30 05:31 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/07218697071.shtml)
-- 2026-06-30 05:58 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/1199827.shtml)
-- 2026-06-30 05:59 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/516329176.shtml)
-- 2026-06-30 05:33 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/775042759503.shtml)
-- 2026-06-30 05:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/47049227239.shtml)
-- 2026-06-30 05:46 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/929489.shtml)
-- 2026-06-30 05:39 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/054072575332.shtml)
+- 2026-06-30 05:40 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/946184476368.shtml)
+- 2026-06-30 05:59 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/79238590.shtml)
+- 2026-06-30 06:04 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/9264500998.shtml)
+- 2026-06-30 05:58 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/054405553.shtml)
+- 2026-06-30 06:00 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/1239395.shtml)
+- 2026-06-30 05:48 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/945691.shtml)
+- 2026-06-30 05:47 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/5408961.shtml)
+- 2026-06-30 05:46 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/18505088688.shtml)
+- 2026-06-30 05:58 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/3647885531.shtml)
+- 2026-06-30 05:39 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/84369287877.shtml)
+- 2026-06-30 06:05 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/1982254216.shtml)
+- 2026-06-30 05:46 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/94519438.shtml)
+- 2026-06-30 05:48 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/4377310546.shtml)
+- 2026-06-30 05:59 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/6678990.shtml)
+- 2026-06-30 05:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/6852839.shtml)

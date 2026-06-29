@@ -1,60 +1,53 @@
-# 原油：震荡承压
+# 12岁中国足球小将“空翻哥”孟新艺载誉返校：希望将来能进世界杯
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-油市小蓝莓 观点小结 核心观点：中性 地缘局势上，美以伊三方仍然处于谈判阶段，虽有信息干扰，但在具体谈判落地之前，市场方向仍然不够明朗。通航表现和替代管道上来看，霍尔木兹经过的油轮仍然仅在一成左右，而延布和富查伊拉港的出口最高增量达到530万桶/日，存在一定的供应改善。库存表现上，海上制裁油库存大幅抢购之后，主要国家的陆地库存仍然持稳，暂无大幅下降的危险，因此虽然各地区存在结构
+发布时间：2026年06月17日 16:24 来源：中国新闻网 近日，凭借标志性后空翻庆祝动作走红网络的12岁南京足球小将孟新艺载誉返校，回到南京市鼓楼区第一中心小学，与全校师生分享球队夺冠征程以及自身的足球追梦故事。此次他随队出征意大利国际青少年杯赛(SIGISMONDI Cup)，在决赛中打入制胜点球，斩获冠军，该赛事素有“U12小世界杯”之称。 心怀绿茵梦想，孟新艺也摸索
 
 ## 正文
 
-油市小蓝莓 观点小结 核心观点：中性 地缘局势上，美以伊三方仍然处于谈判阶段，虽有信息干扰，但在具体谈判落地之前，市场方向仍然不够明朗。
+发布时间：2026年06月17日 16:24 来源：中国新闻网 近日，凭借标志性后空翻庆祝动作走红网络的12岁南京足球小将孟新艺载誉返校，回到南京市鼓楼区第一中心小学，与全校师生分享球队夺冠征程以及自身的足球追梦故事。
 
-通航表现和替代管道上来看，霍尔木兹经过的油轮仍然仅在一成左右，而延布和富查伊拉港的出口最高增量达到530万桶/日，存在一定的供应改善。
+此次他随队出征意大利国际青少年杯赛(SIGISMONDI Cup)，在决赛中打入制胜点球，斩获冠军，该赛事素有“U12小世界杯”之称。
 
-库存表现上，海上制裁油库存大幅抢购之后，主要国家的陆地库存仍然持稳，暂无大幅下降的危险，因此虽然各地区存在结构性的贸易紧张问题，但是总体对绝对价格的推动作用有限。
+心怀绿茵梦想，孟新艺也摸索出了适配自身的学习与训练节奏，合理平衡学业与足球训练，做到学业、训练两不误。
 
-相较于原油端，炼厂端的降负幅度也比较明显，部分国家已经倡议减少出行、线上办公等等，但是基于终端需求负反馈还未达到大量级，对裂解价差仍有强支撑。
+在孟新艺看来，端正且全力以赴的态度是日常训练的核心，这名少年心中早已立下远大目标。
 
-总结来看，目前处于停战谈判的真空期，且主要国家的陆地库存尚能维持，阶段性油价预计以震荡降波为主，库存矛盾的积累需要时间，谈判需要时间，需要等待博弈落地再确定油价走向。
+多年来，南京市鼓楼区第一中心小学常态化搭建足球训练与赛事交流平台，依托足球运动厚植学生爱国情怀，助力五育并举落地见效。
 
-地缘：中性 美以伊三方仍然处于谈判阶段，虽有信息干扰，但在具体谈判落地之前，市场方向仍然不够明朗。
-
-供给：偏多 霍尔木兹经过的油轮仍然仅在一成左右，而延布和富查伊拉港的出口最高增量达到530万桶/日，存在一定的供应改善。
-
-地缘风险溢价虽随谈判预期降温有所回落，但供应中断的实质性扰动仍未消除，仍是支撑油价与近端结构的关键变量。
+记者 葛勇 江苏南京报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 05:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 05:33 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 05:59 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 05:56 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 05:53 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 05:38 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 05:35 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 05:44 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-30 06:00 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 05:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 05:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 05:50 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 05:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 05:58 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 05:51 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 05:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 06:04 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 05:47 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 05:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 05:47 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 05:43 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 05:38 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 05:55 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 05:37 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/206011663757.shtml)
-- 2026-06-30 05:44 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/05749921.shtml)
-- 2026-06-30 05:54 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/2398100.shtml)
-- 2026-06-30 05:38 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/238621.shtml)
-- 2026-06-30 05:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/19310.shtml)
-- 2026-06-30 05:37 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/4048643726.shtml)
-- 2026-06-30 05:45 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/007750287.shtml)
-- 2026-06-30 05:55 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/80978010350.shtml)
-- 2026-06-30 05:40 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/93226.shtml)
-- 2026-06-30 05:54 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/088226085.shtml)
-- 2026-06-30 05:34 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/09203104938.shtml)
-- 2026-06-30 05:55 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/93555149057.shtml)
-- 2026-06-30 05:34 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/02666.shtml)
-- 2026-06-30 05:43 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/3264453.shtml)
-- 2026-06-30 05:30 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/95500315.shtml)
+- 2026-06-30 06:02 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/449951252.shtml)
+- 2026-06-30 05:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/8963284.shtml)
+- 2026-06-30 05:54 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/207100.shtml)
+- 2026-06-30 05:49 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/192424097.shtml)
+- 2026-06-30 05:40 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/345094918190.shtml)
+- 2026-06-30 05:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/21588.shtml)
+- 2026-06-30 05:51 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/22279745545.shtml)
+- 2026-06-30 05:46 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/36675109.shtml)
+- 2026-06-30 05:46 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/993209234.shtml)
+- 2026-06-30 05:45 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/3152950.shtml)
+- 2026-06-30 05:54 - [啊啊啊](http://www.blog.minike.top/Article/details/709195584305.shtml)
+- 2026-06-30 05:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/085655283166.shtml)
+- 2026-06-30 05:37 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/1339571375.shtml)
+- 2026-06-30 05:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/33088073.shtml)
+- 2026-06-30 05:36 - [极限挑战第一季](http://www.share.minike.top/Article/details/838973.shtml)

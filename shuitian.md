@@ -1,58 +1,60 @@
-# 印度总理莫迪呼吁民众停买黄金 以保存外汇储备
+# 光大期货：6月18日农产品日报
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-印度总理莫迪呼吁国人至少一年不买黄金，以保存外汇储备，鉴于黄金在该国民众的储蓄、婚礼和宗教节日中扮演着重要角色，这一呼声颇为出人意料。 莫迪周日表示：“一年之中，不管是什么情况，我们都不应该购买黄金首饰。”他还呼吁民众减少燃料使用及不必要的海外旅行。他说，印度每年都花很多钱进口黄金，民众应该避免进行非必要的采购。 这一不同寻常的请求，凸显出中东战争及其引发的能源短缺严重加剧了印
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周三，CBOT大豆涨至两周高点，受乐观出口前景提振。美国农业部证实，周三销售37.2万吨大豆，其中6万吨旧作，其余为新作。空头资金集中平仓，也推动了价格上涨。南美方面，阿根廷大豆丰收兑现，预计巴西6月大豆出口1531万吨，比去年同期增加150万吨。阿根廷大豆产量预计在5150万吨附近。国内方面
 
 ## 正文
 
-印度总理莫迪呼吁国人至少一年不买黄金，以保存外汇储备，鉴于黄金在该国民众的储蓄、婚礼和宗教节日中扮演着重要角色，这一呼声颇为出人意料。
+蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周三，CBOT大豆涨至两周高点，受乐观出口前景提振。
 
-莫迪周日表示：“一年之中，不管是什么情况，我们都不应该购买黄金首饰。
+美国农业部证实，周三销售37.2万吨大豆，其中6万吨旧作，其余为新作。
 
-”他还呼吁民众减少燃料使用及不必要的海外旅行。
+空头资金集中平仓，也推动了价格上涨。
 
-他说，印度每年都花很多钱进口黄金，民众应该避免进行非必要的采购。
+南美方面，阿根廷大豆丰收兑现，预计巴西6月大豆出口1531万吨，比去年同期增加150万吨。
 
-这一不同寻常的请求，凸显出中东战争及其引发的能源短缺严重加剧了印度贸易逆差、削弱了卢比汇率。
+阿根廷大豆产量预计在5150万吨附近。
 
-按金额计算，黄金是仅次于石油的印度第二大进口商品，印度也是世界第二大黄金进口国。
+国内方面，蛋白粕震荡运行，跟随进口成本波动。
 
-印度民众对莫迪的号召会有多高的响应度，目前尚不得而知。
+现货市场成交清淡，同样观望为主。
 
-这种贵金属几乎渗透到了印度经济和文化生活的方方面面。
+钢联数据显示，上周大豆库存攀升，豆粕库存攀升，未执行合同下降。
 
 ## 相关推荐
 
-- 2026-06-30 05:48 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 05:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 05:34 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 05:34 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 05:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
-- 2026-06-30 05:31 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 05:50 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 05:58 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 05:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 05:30 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-30 05:38 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 05:54 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
+- 2026-06-30 05:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 05:57 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 06:04 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 05:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 06:00 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-30 06:00 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 05:38 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 05:50 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 06:05 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-30 05:48 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 06:05 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 06:04 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-30 05:55 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 05:41 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/75474363.shtml)
-- 2026-06-30 05:31 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/470802.shtml)
-- 2026-06-30 05:42 - [乔家的儿女](http://www.blog.minike.top/Article/details/38994887019.shtml)
-- 2026-06-30 05:57 - [金刚川](https://www.share.minike.top/Article/details/096437238.shtml)
-- 2026-06-30 05:39 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/38565040.shtml)
-- 2026-06-30 05:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/02838117.shtml)
-- 2026-06-30 05:31 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/283277457728.shtml)
-- 2026-06-30 05:49 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/76428.shtml)
-- 2026-06-30 05:31 - [锐评T1零封KC](https://www.share.minike.top/Article/details/31716056.shtml)
-- 2026-06-30 05:54 - [蔚来车主罚站](https://www.share.minike.top/Article/details/7130045.shtml)
-- 2026-06-30 05:42 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/80718786388.shtml)
-- 2026-06-30 05:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/83872356596.shtml)
-- 2026-06-30 05:59 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/691523880.shtml)
-- 2026-06-30 05:58 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/98534118785.shtml)
-- 2026-06-30 05:57 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/910108009174.shtml)
+- 2026-06-30 06:01 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/120918157605.shtml)
+- 2026-06-30 06:01 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/2543049555.shtml)
+- 2026-06-30 05:54 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/92412446.shtml)
+- 2026-06-30 05:37 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/32433290.shtml)
+- 2026-06-30 05:47 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/2259891.shtml)
+- 2026-06-30 05:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/56913.shtml)
+- 2026-06-30 05:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/90395.shtml)
+- 2026-06-30 05:51 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/84908491610.shtml)
+- 2026-06-30 05:50 - [日本进球](http://www.blog.minike.top/Article/details/836051232.shtml)
+- 2026-06-30 06:05 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/52382243.shtml)
+- 2026-06-30 05:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/1635939446.shtml)
+- 2026-06-30 06:00 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/14607087.shtml)
+- 2026-06-30 06:01 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/218926.shtml)
+- 2026-06-30 05:41 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/77794099434.shtml)
+- 2026-06-30 05:59 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/12886479.shtml)

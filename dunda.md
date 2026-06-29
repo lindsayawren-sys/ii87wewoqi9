@@ -1,61 +1,60 @@
-# 海湾危机背景下 印度总理莫迪呼吁印度民众勒紧裤腰带
+# 资金“回流”港股通，阳光保险或迎价值重估
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-印度总理莫迪呼吁民众居家办公、选择公共交通出行以节约燃油。印度作为全球第三大石油进口国，正试图遏制能源价格飙升给本国经济带来的冲击。 自美国对伊朗发起军事行动以来，印度这个全球人口第一大国的领导人首次呼吁民众勒紧裤腰带、节约开支。就在此次呼吁发布的几天前，势头回升的印度人民党在地方选举中击败实力削弱的反对党，斩获多场胜利。 印度政府目前最大的担忧之一，是能源价格上涨给印度卢比及
+近日，监管重拳整治非法跨境炒股平台的动作，引发市场关注。5月22日，证监会等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》，明确禁止境外机构在境内开展证券期货基金业务相关营销招揽活动，同时设置2年过渡期，存量投资者可在期间单向卖出。监管文件出台之际，3家互联网券商遭罚。从2016年证监会发布投资风险提示，直指提供港美股等境外证券买卖服务的互联网券商平台，到202
 
 ## 正文
 
-印度总理莫迪呼吁民众居家办公、选择公共交通出行以节约燃油。
+近日，监管重拳整治非法跨境炒股平台的动作，引发市场关注。
 
-印度作为全球第三大石油进口国，正试图遏制能源价格飙升给本国经济带来的冲击。
+5月22日，证监会等八部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》，明确禁止境外机构在境内开展证券期货基金业务相关营销招揽活动，同时设置2年过渡期，存量投资者可在期间单向卖出。
 
-自美国对伊朗发起军事行动以来，印度这个全球人口第一大国的领导人首次呼吁民众勒紧裤腰带、节约开支。
+监管文件出台之际，3家互联网券商遭罚。
 
-就在此次呼吁发布的几天前，势头回升的印度人民党在地方选举中击败实力削弱的反对党，斩获多场胜利。
+从2016年证监会发布投资风险提示，直指提供港美股等境外证券买卖服务的互联网券商平台，到2022年底，证监会开展对境外券商非法跨境经营的整治工作，监管“长牙带刺”的态度早已明确。
 
-印度政府目前最大的担忧之一，是能源价格上涨给印度卢比及外汇储备带来的承压压力。
+此次整治方案出台，多部门联合、明确时间表、真金白银罚单落地等举措，向市场宣告着跨境券商“灰色通道”时代正式终结。
 
-莫迪周日晚间在南部城市塞康德拉巴德发表讲话称：“我们必须减少汽油和柴油的消耗。
+那么关键问题来了：原来通过这些通道沉淀在港美股市场上的内地资金，撤出之后去哪儿？
 
-” “在开通地铁的城市，我们应当优先选择地铁出行……当前国际汽柴油价格高企，我们还必须高度重视节约外汇储备。
+一种声音是“资金回A股”，但市场分析更多则认为这批资金可通过合规渠道(首要就是港股通)重新配置到同类资产——港股中估值折价深、股息率高、基本面扎实的品种。
 
-” 恩凯环球金融服务首席经济学家表示：“地方选举落幕之后，莫迪得以直面伊朗局势引发的各类经济问题。
+换言之，整治行动绝非要堵死内地投资者全球资产配置的通道,恰恰相反,其根本目的在于“堵偏门、开正门”。
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 05:35 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 05:41 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 05:41 - [月亮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 05:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 05:49 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-30 05:31 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 05:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 05:46 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:41 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 05:41 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 05:45 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 05:52 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 05:30 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 05:54 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 06:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 05:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 06:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 05:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 06:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 05:48 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 05:56 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 05:46 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 05:37 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 05:51 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 05:58 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 06:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 05:41 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 06:00 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/348324597273.shtml)
-- 2026-06-30 05:36 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/53317.shtml)
-- 2026-06-30 05:48 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/66309.shtml)
-- 2026-06-30 05:59 - [人类...完蛋了...](http://www.share.minike.top/Article/details/49436566.shtml)
-- 2026-06-30 05:38 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/5097924266.shtml)
-- 2026-06-30 05:33 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/33728485295.shtml)
-- 2026-06-30 05:56 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/7634199465.shtml)
-- 2026-06-30 05:31 - [日本16强魔咒](https://www.share.minike.top/Article/details/314720121.shtml)
-- 2026-06-30 05:32 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/36360.shtml)
-- 2026-06-30 05:44 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/86371468685.shtml)
-- 2026-06-30 05:41 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/81496.shtml)
-- 2026-06-30 05:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/122648.shtml)
-- 2026-06-30 05:54 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/457427.shtml)
-- 2026-06-30 05:38 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/7310349.shtml)
-- 2026-06-30 05:56 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/51513286291.shtml)
+- 2026-06-30 05:36 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/1520806756.shtml)
+- 2026-06-30 05:44 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/044901.shtml)
+- 2026-06-30 05:57 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/236848764588.shtml)
+- 2026-06-30 05:39 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/82970521839.shtml)
+- 2026-06-30 05:51 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/0767359037.shtml)
+- 2026-06-30 05:39 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/019457150.shtml)
+- 2026-06-30 05:48 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/483459118980.shtml)
+- 2026-06-30 05:39 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/092385910533.shtml)
+- 2026-06-30 05:57 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/938437.shtml)
+- 2026-06-30 05:36 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/8519198.shtml)
+- 2026-06-30 05:46 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/60152.shtml)
+- 2026-06-30 05:40 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/082081062.shtml)
+- 2026-06-30 05:38 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/523167873.shtml)
+- 2026-06-30 05:37 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/8748588321.shtml)
+- 2026-06-30 06:02 - [扬名立万](http://www.share.minike.top/Article/details/54052157.shtml)

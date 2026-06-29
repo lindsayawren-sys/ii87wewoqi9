@@ -1,58 +1,59 @@
-# 第一观察｜引领中美关系这艘大船穿越风浪、平稳前行
+# 吴清详解资本市场建设四大路径
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。 这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。习近平主席将同特朗普总统就事关中美关系以及世界和平与发展的重大问题深入交换意见。 今年2月4日，习近平主席在同特朗普总统通电话时指出：“新的一年，我愿同你继续引领中美关系这艘大船穿越风浪、平稳前行，多办一些大事、好事。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：央视财经 在今天（17日）举行的2026陆家嘴论坛上，中国证监会主席吴清详解了资本市场建设四大路径。 一是突出稳，着力增强资本市场的内在稳定性，新“国九条”出台两年多来，社保、保险、年金等中长期资金持有A股流通市值增长85%，净买入A股约1
 
 ## 正文
 
-应国家主席习近平邀请，美国总统特朗普将于5月13日至15日对中国进行国事访问。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
+来源：央视财经 在今天（17日）举行的2026陆家嘴论坛上，中国证监会主席吴清详解了资本市场建设四大路径。
 
-习近平主席将同特朗普总统就事关中美关系以及世界和平与发展的重大问题深入交换意见。
+一是突出稳，着力增强资本市场的内在稳定性，新“国九条”出台两年多来，社保、保险、年金等中长期资金持有A股流通市值增长85%，净买入A股约1.3万亿元。
 
-今年2月4日，习近平主席在同特朗普总统通电话时指出：“新的一年，我愿同你继续引领中美关系这艘大船穿越风浪、平稳前行，多办一些大事、好事。
+二是突出严，全面落实依法从严监管的理念，坚持监管的“长牙带刺”、有棱有角。
 
-” 回望中美关系历经跌宕起伏实现总体稳定的过程，元首外交始终是中美关系的“定盘星”，发挥着不可替代的战略引领作用，为中美关系的改善和发展提供了重要战略保障。
+这两年多共查处查办各类案件1358件，罚没款350亿元。
 
-2025年1月、6月、9月，习近平主席三次同特朗普通电话，为两国关系朝着正确方向发展作出重要指引。
+三是突出优，大力培育优质上市群体。
 
-2025年10月，韩国釜山，习近平主席和特朗普总统时隔6年再度会面，这也是两国元首自美国新政府就职以来首次面对面互动。
+两年多来，A股公司分红回购规模达到同期股权融资的三倍。
 
-两位领导人进行了长达100多分钟的深入交谈。
+四是突出新，不断提升服务新质生产力发展的质效。
 
 ## 相关推荐
 
-- 2026-06-30 05:59 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-30 05:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-30 05:35 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 05:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 05:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 05:52 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 05:59 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 05:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-30 05:39 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 05:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 05:58 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 05:33 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 06:04 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 05:47 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 05:45 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 05:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 05:53 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-30 05:49 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-30 05:47 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 05:38 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 05:46 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 06:00 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 05:42 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 06:05 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 05:54 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/45248.shtml)
-- 2026-06-30 05:50 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/30957916.shtml)
-- 2026-06-30 05:57 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/26141626.shtml)
-- 2026-06-30 05:31 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/056921047522.shtml)
-- 2026-06-30 05:53 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/72624.shtml)
-- 2026-06-30 05:41 - [千与千寻](http://www.share.kurohicncr.top/Article/details/72166695.shtml)
-- 2026-06-30 05:40 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/50513058.shtml)
-- 2026-06-30 05:39 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/75618044625.shtml)
-- 2026-06-30 05:43 - [斗破苍穹](http://www.share.minike.top/Article/details/5760177.shtml)
-- 2026-06-30 05:40 - [美股](http://www.share.kurohicncr.top/Article/details/46264545812.shtml)
-- 2026-06-30 05:32 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/0039114.shtml)
-- 2026-06-30 05:58 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/31231.shtml)
-- 2026-06-30 05:40 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/6745621628.shtml)
-- 2026-06-30 05:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/759282660.shtml)
-- 2026-06-30 05:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/692149.shtml)
+- 2026-06-30 05:47 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/53919.shtml)
+- 2026-06-30 05:52 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/447434090919.shtml)
+- 2026-06-30 06:03 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/60547923153.shtml)
+- 2026-06-30 05:39 - [世界杯](http://www.blog.minike.top/Article/details/51099.shtml)
+- 2026-06-30 05:56 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/754621.shtml)
+- 2026-06-30 05:36 - [明星大侦探第四季](http://www.share.minike.top/Article/details/481646973.shtml)
+- 2026-06-30 05:58 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/9235701.shtml)
+- 2026-06-30 05:53 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/576558433694.shtml)
+- 2026-06-30 05:55 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/681324486.shtml)
+- 2026-06-30 05:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/27903.shtml)
+- 2026-06-30 06:03 - [月亮](https://www.blog.minike.top/Article/details/19692671700.shtml)
+- 2026-06-30 05:49 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/594667.shtml)
+- 2026-06-30 05:48 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/28839826211.shtml)
+- 2026-06-30 05:57 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/6732409.shtml)
+- 2026-06-30 05:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/413789.shtml)

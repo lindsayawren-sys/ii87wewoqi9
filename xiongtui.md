@@ -1,60 +1,48 @@
-# 精神病院炒股出圈背后：非公医疗如何突围？
+# 市场监管总局督导货拉拉落实反垄断合规整改
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-记者丨韩利明 实习生蒋雨桐 编辑丨季媛媛 张明艳 日前，盛通股份（002599.SZ）发布一季报显示，上饶市广丰区十五岭山精神病医院有限公司以143.37万股的持股量、0.27%的占比跻身其第九大股东。一时间，“精神病院炒股成A股公司前十大股东”的话题意外出圈。 针对市场热议，当事方明确回应，这家二级民营医院的投资行为完全符合相关规定，属于正常的资本市场参与行为。另据中国证券报
+前期，市场监管总局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营，主动回应各方关切，自觉接受社会监督。 市场监管总局加强对货拉拉反垄断合规整改的全过程督导，压实平台主体责任，督促其严格落实整改要求，具体包括四方面内容： 停止利用算法不合理压低货运价格，严格控制多因素计价订单占
 
 ## 正文
 
-记者丨韩利明 实习生蒋雨桐 编辑丨季媛媛 张明艳 日前，盛通股份（002599.SZ）发布一季报显示，上饶市广丰区十五岭山精神病医院有限公司以143.37万股的持股量、0.27%的占比跻身其第九大股东。
+前期，市场监管总局依据《中华人民共和国反垄断法》公开约谈货拉拉，要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改，依法合规经营，主动回应各方关切，自觉接受社会监督。
 
-一时间，“精神病院炒股成A股公司前十大股东”的话题意外出圈。
+市场监管总局加强对货拉拉反垄断合规整改的全过程督导，压实平台主体责任，督促其严格落实整改要求，具体包括四方面内容： 停止利用算法不合理压低货运价格，严格控制多因素计价订单占比，公平合理运用调价算法，推动平均每单运价、每公里运价合理回升，并常态化公示计价规则和运价涨降理由； 全面取消强制独家车贴规则，停止提高抽成、罚款等惩罚措施，并将向司机退还不合理费用1.2亿元； 切实降低平台抽成费率，平台整体抽成费率由整改前约11%降至约9%，每年可减轻司机负担超13亿元； 全面保障司机合法权益，取消非付费会员司机每天接2单限制，提升车型与订单匹配度，取消扣减里程机制，每年投入里程偏差补偿金1000万元，优化司机申诉流程，投入司机帮扶资金5000万元。
 
-针对市场热议，当事方明确回应，这家二级民营医院的投资行为完全符合相关规定，属于正常的资本市场参与行为。
+市场监管总局将深入整治平台经济领域“内卷式”竞争，督促货拉拉持续深化反垄断合规整改质效，保护货车司机和消费者利益，形成优质优价、良性竞争的市场秩序，促进平台企业与平台内经营者、劳动者实现共赢发展。
 
-另据中国证券报道，这家精神病院相关负责人表示，公司实控人早在10年前就开始涉足A股投资，初期资金规模不大，主要是出于闲置资金保值增值的理财需求，并非盲目跟风。
-
-事实上，这家精神病医院的投资行为并非个例。
-
-业内亦有不少上市非公医疗机构在保障日常经营资金需求的前提下，使用部分闲置资金进行炒股、理财等管理。
-
-此次事件之所以引发热议，或源于精神病院的行业特殊性与资本市场行为的强烈反差。
-
-而这一热点事件或也像一面镜子，折射出当前非公医疗行业在转型发展中的焦虑。
+（总台央视记者 王婧） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 05:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-30 05:33 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 05:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 05:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 05:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 05:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 05:48 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 05:40 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 05:37 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 05:49 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 05:42 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 05:51 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 05:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 05:55 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 05:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 05:37 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 05:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 06:02 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:41 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 05:50 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 06:05 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 05:44 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [TOP Prada](http://www.share.minike.top/Article/details/978554624.shtml)
-- 2026-06-30 05:37 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/998124589.shtml)
-- 2026-06-30 05:32 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/0961652028.shtml)
-- 2026-06-30 05:37 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/039290.shtml)
-- 2026-06-30 05:56 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/092599317.shtml)
-- 2026-06-30 05:40 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/43801824056.shtml)
-- 2026-06-30 05:41 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/29982405.shtml)
-- 2026-06-30 05:42 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/4958072.shtml)
-- 2026-06-30 05:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/336736.shtml)
-- 2026-06-30 05:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/1160148131.shtml)
-- 2026-06-30 05:33 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/782722804.shtml)
-- 2026-06-30 05:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/4224006.shtml)
-- 2026-06-30 05:43 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/566775.shtml)
-- 2026-06-30 05:47 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/39277.shtml)
-- 2026-06-30 05:46 - [我和我的家乡](http://www.blog.minike.top/Article/details/56808331927.shtml)
+- 2026-06-30 06:00 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/63939770.shtml)
+- 2026-06-30 05:43 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/7450437.shtml)
+- 2026-06-30 06:05 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/755988.shtml)
+- 2026-06-30 05:44 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/1735884.shtml)
+- 2026-06-30 05:53 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/431303940373.shtml)
+- 2026-06-30 05:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/4293090.shtml)
+- 2026-06-30 05:44 - [爱很美味](http://www.share.kurohicncr.top/Article/details/5401401.shtml)
+- 2026-06-30 05:47 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/2870221.shtml)
+- 2026-06-30 05:36 - [绘画区你赢了](https://www.share.minike.top/Article/details/6245276.shtml)
+- 2026-06-30 06:01 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/11181138470.shtml)
+- 2026-06-30 05:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/94210964.shtml)
+- 2026-06-30 05:53 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/25808154.shtml)
+- 2026-06-30 05:52 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/4843835.shtml)
+- 2026-06-30 05:49 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/41692997240.shtml)
+- 2026-06-30 05:36 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/98830.shtml)

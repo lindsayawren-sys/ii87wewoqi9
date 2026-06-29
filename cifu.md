@@ -1,59 +1,53 @@
-# 哈萨克斯坦前4个月GDP同比增长3.6%
+# 珠江流域持续暴雨 40条河流发生超警洪水
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新社阿斯塔纳5月12日电(记者 单璐)哈萨克斯坦国家统计局12日公布初步数据显示，2026年1月至4月，哈萨克斯坦国内生产总值(GDP)同比增长3.6%。其中，制造业同比增长9.9%，成为拉动经济增长的重要因素。 数据显示，今年前4个月，该国建筑业同比增长14.5%，交通运输和仓储业同比增长12%，贸易业同比增长5.1%，农业同比增长3.6%。制造业内部多个领域保持较快增长。
+中新社广州6月17日电 (记者 王坚)中国水利部珠江水利委员会(珠江委)17日通报称，受珠江流域近期持续强降雨影响，韩江、东江及北江上游出现明显涨水过程，40条河流发生超警洪水。 珠江委介绍，6月12日以来，珠江流域遭遇入汛以来最强降雨过程，降雨覆盖面积广，累计降雨量100毫米、50毫米以上暴雨笼罩面积分别为11.6万平方公里和29.37万平方公里，其中，韩江、东江累计面平均降
 
 ## 正文
 
-中新社阿斯塔纳5月12日电(记者 单璐)哈萨克斯坦国家统计局12日公布初步数据显示，2026年1月至4月，哈萨克斯坦国内生产总值(GDP)同比增长3.6%。
+中新社广州6月17日电 (记者 王坚)中国水利部珠江水利委员会(珠江委)17日通报称，受珠江流域近期持续强降雨影响，韩江、东江及北江上游出现明显涨水过程，40条河流发生超警洪水。
 
-其中，制造业同比增长9.9%，成为拉动经济增长的重要因素。
+珠江委介绍，6月12日以来，珠江流域遭遇入汛以来最强降雨过程，降雨覆盖面积广，累计降雨量100毫米、50毫米以上暴雨笼罩面积分别为11.6万平方公里和29.37万平方公里，其中，韩江、东江累计面平均降雨量分别达109毫米、129毫米。
 
-数据显示，今年前4个月，该国建筑业同比增长14.5%，交通运输和仓储业同比增长12%，贸易业同比增长5.1%，农业同比增长3.6%。
+受其影响，韩江、东江及北江上游出现明显涨水过程，永定河、古竹水等40条河流发生超警洪水，最大超警幅度0.03米至1.81米。
 
-制造业内部多个领域保持较快增长。
+面对严峻复杂的防汛形势，按照中国水利部部署要求，珠江委会同广东、福建省水利厅科学实施水库群联合调度，成功避免韩江、东江编号洪水发生，最大限度减轻了流域防洪压力。
 
-其中，机械制造业同比增长23.3%，主要得益于交通运输设备、农业机械、铁路设备、电气产品等产量增加。
-
-哈国家统计局分析指出，当前该国建筑、交通运输、贸易和制造业等非资源型产业增长较快，反映出该国经济增长结构正在发生变化。
-
-同时，哈萨克斯坦通胀水平持续回落。
-
-据哈国民经济部数据，2026年3月，该国通胀率降至11.0%，已连续6个月放缓。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:36 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 05:38 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 05:30 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 05:30 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 05:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-30 05:52 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 05:36 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 05:38 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 05:58 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 05:57 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 05:47 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 05:35 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 05:49 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 05:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 05:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
+- 2026-06-30 05:40 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 05:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 05:44 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 05:53 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
+- 2026-06-30 05:38 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 06:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 05:55 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 05:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 05:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 05:46 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 05:46 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/6754315.shtml)
-- 2026-06-30 05:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/8913505144.shtml)
-- 2026-06-30 05:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/416716538.shtml)
-- 2026-06-30 05:35 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/9117120909.shtml)
-- 2026-06-30 05:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/8472716.shtml)
-- 2026-06-30 05:46 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/33587.shtml)
-- 2026-06-30 05:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/05103423.shtml)
-- 2026-06-30 05:36 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/94401614.shtml)
-- 2026-06-30 05:58 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/0345177.shtml)
-- 2026-06-30 05:46 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/6972887.shtml)
-- 2026-06-30 05:58 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.kurohicncr.top/Article/details/800594079450.shtml)
-- 2026-06-30 05:56 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/440908010788.shtml)
-- 2026-06-30 05:45 - [苗族银饰](https://www.share.minike.top/Article/details/604732465.shtml)
-- 2026-06-30 05:56 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/74027526.shtml)
-- 2026-06-30 05:32 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/77451111.shtml)
+- 2026-06-30 05:51 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/612468902003.shtml)
+- 2026-06-30 05:37 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/58205793.shtml)
+- 2026-06-30 05:40 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/3153389503.shtml)
+- 2026-06-30 05:40 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/7106763376.shtml)
+- 2026-06-30 06:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/9130006.shtml)
+- 2026-06-30 05:41 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/764061016.shtml)
+- 2026-06-30 05:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/895098150995.shtml)
+- 2026-06-30 05:48 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/41974.shtml)
+- 2026-06-30 05:37 - [扬名立万](https://www.share.minike.top/Article/details/249348227.shtml)
+- 2026-06-30 05:56 - [千与千寻](https://www.share.minike.top/Article/details/21753482.shtml)
+- 2026-06-30 05:56 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/36855499.shtml)
+- 2026-06-30 05:44 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/17849.shtml)
+- 2026-06-30 06:04 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/543638728.shtml)
+- 2026-06-30 06:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/087188498.shtml)
+- 2026-06-30 05:53 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/229283.shtml)

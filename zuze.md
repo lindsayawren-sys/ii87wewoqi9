@@ -1,59 +1,56 @@
-# 伊朗战事背景下，加息预期限制欧元兑美元跌幅
+# 第四届北京网络视听艺术大会将启
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-荷兰国际分析师克里斯・特纳在研报中表示，市场预期欧洲央行可能在 6 月加息，这限制了受伊朗战事担忧拖累的欧元兑美元跌幅。 他称，在油价维持高位的背景下，欧洲央行料将继续释放强硬鹰派论调。他还表示，欧洲央行行长克里斯蒂娜・拉加德及管委会成员菲利普・莱恩将于周三发表讲话，或进一步强化市场对 6 月加息 25 个基点的预期。 但他同时指出，除非本周伊核和谈取得突破性进展，否则欧元很难
+中新网北京6月17日电 (记者 高凯)记者17日从主办方获悉，6月24日至25日，第四届北京网络视听艺术大会将在北京城市副中心召开。本届大会由北京市广电局主办，北京网络视听节目服务协会承办。 据了解，此次大会设立开幕式暨高峰研讨、四场主题研讨、创作者之夜，以及网络视听嘉年华等配套活动。大会开幕式将发布2026“北京大视听”重点网络文艺精品项目等重磅作品、《北京网络视听文艺发展报
 
 ## 正文
 
-荷兰国际分析师克里斯・特纳在研报中表示，市场预期欧洲央行可能在 6 月加息，这限制了受伊朗战事担忧拖累的欧元兑美元跌幅。
+中新网北京6月17日电 (记者 高凯)记者17日从主办方获悉，6月24日至25日，第四届北京网络视听艺术大会将在北京城市副中心召开。
 
-他称，在油价维持高位的背景下，欧洲央行料将继续释放强硬鹰派论调。
+本届大会由北京市广电局主办，北京网络视听节目服务协会承办。
 
-他还表示，欧洲央行行长克里斯蒂娜・拉加德及管委会成员菲利普・莱恩将于周三发表讲话，或进一步强化市场对 6 月加息 25 个基点的预期。
+据了解，此次大会设立开幕式暨高峰研讨、四场主题研讨、创作者之夜，以及网络视听嘉年华等配套活动。
 
-但他同时指出，除非本周伊核和谈取得突破性进展，否则欧元很难突破 1.18 美元关口；而若周二美国通胀数据走高，欧元跌破 1.17 美元的风险将进一步加大。
+大会开幕式将发布2026“北京大视听”重点网络文艺精品项目等重磅作品、《北京网络视听文艺发展报告(2025)》等重磅报告。
 
-欧元目前下跌 0.1%，报 1.1773 美元。
+大会聚焦网络视听艺术的主流门类，参会嘉宾将深度参与新大众文艺、网络综艺创作、微短剧发展、动画微短剧+网络动画发展等主题研讨，通过一线的实践分享与深刻的思想交锋，共同探讨新方向、新机遇与新可能。
 
-阿布扎比第一银行分析师在研报中表示，海湾阿拉伯国家及埃及的宏观经济前景仍偏脆弱、波动剧烈。
+大会还将设置网络视听艺术市集、精品展播、优质IP打卡、资源推介与对接、校园招聘会等多元主题活动，打造“大众共享、行业共通、文旅共促、就业共进、质效共举”的活力氛围，让视听成果更好惠及市民、服务社会。
 
-分析师称，美方试图凭借一份仅有一页纸、包含 14 项条款的谅解备忘录，促成从伊朗战事中抽身、达成缓和，这一愿景仍为市场保留了一丝乐观曙光。
-
-“倘若此事能够落地，我们认为中东地缘局势将持续走向局势降温，战事也有望迎来终结。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 05:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 05:30 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 05:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 05:33 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 05:30 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 05:42 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 05:30 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 05:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 05:51 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 05:51 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 05:44 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 05:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 06:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 05:38 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 05:52 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 05:57 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 06:03 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 05:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 06:00 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 06:05 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 05:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 05:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 05:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 05:49 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [日本16强魔咒](https://www.blog.minike.top/Article/details/3136833.shtml)
-- 2026-06-30 05:48 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/42119270.shtml)
-- 2026-06-30 05:33 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/835016.shtml)
-- 2026-06-30 05:30 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/930534006.shtml)
-- 2026-06-30 05:44 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/6975599568.shtml)
-- 2026-06-30 05:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/662828163035.shtml)
-- 2026-06-30 05:51 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/4386610439.shtml)
-- 2026-06-30 05:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/70675703.shtml)
-- 2026-06-30 05:40 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/747578109359.shtml)
-- 2026-06-30 05:55 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/096608.shtml)
-- 2026-06-30 05:43 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/098785631.shtml)
-- 2026-06-30 05:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/790064569.shtml)
-- 2026-06-30 05:48 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/93801528820.shtml)
-- 2026-06-30 05:42 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/110871145.shtml)
-- 2026-06-30 05:53 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/66912.shtml)
+- 2026-06-30 05:48 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/71740266.shtml)
+- 2026-06-30 05:39 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/523193.shtml)
+- 2026-06-30 06:01 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/35984455452.shtml)
+- 2026-06-30 05:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/05643315291.shtml)
+- 2026-06-30 06:00 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/90479.shtml)
+- 2026-06-30 05:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/33838.shtml)
+- 2026-06-30 05:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/523968595314.shtml)
+- 2026-06-30 05:46 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/52263966.shtml)
+- 2026-06-30 05:52 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/36951.shtml)
+- 2026-06-30 05:55 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/70313185.shtml)
+- 2026-06-30 05:39 - [小娘惹](https://www.blog.minike.top/Article/details/473335354.shtml)
+- 2026-06-30 05:45 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/228323.shtml)
+- 2026-06-30 05:41 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/70897.shtml)
+- 2026-06-30 05:59 - [千香](http://www.blog.minike.top/Article/details/126086949.shtml)
+- 2026-06-30 05:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/566689643762.shtml)

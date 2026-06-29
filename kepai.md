@@ -1,43 +1,56 @@
-# 新锦动力：目前公司在手订单充足，公司在有序推进项目的排产制造
+# 银行分红密集落地 16家银行6月份完成 金额435亿
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-证券日报网5月12日讯，新锦动力在接受调研者提问时表示，目前公司在手订单充足，公司在有序推进项目的排产制造，经营业绩情况请以公司后续披露的定期报告为准。
+进入6月份，上市银行年度分红密集落地，有10家银行已经完成分红，加上5月份5家银行，一共有15家银行完成了分红。还有6家银行宣布将在6月完成分红。除了郑州银行，A股共有41家上市银行确定实施2025年度分红，全年累计派发现金红利 6456.37亿元 （含中期分红），较2024年增加约135亿元。6月8日，上海银行完成红利发放，根据分配方案每股分红现金0.22元，共计派发31.2
 
 ## 正文
 
-证券日报网5月12日讯，新锦动力在接受调研者提问时表示，目前公司在手订单充足，公司在有序推进项目的排产制造，经营业绩情况请以公司后续披露的定期报告为准。
+进入6月份，上市银行年度分红密集落地，有10家银行已经完成分红，加上5月份5家银行，一共有15家银行完成了分红。
+
+还有6家银行宣布将在6月完成分红。
+
+除了郑州银行，A股共有41家上市银行确定实施2025年度分红，全年累计派发现金红利 6456.37亿元 （含中期分红），较2024年增加约135亿元。
+
+6月8日，上海银行完成红利发放，根据分配方案每股分红现金0.22元，共计派发31.26亿。
+
+加上2025年中期的42.63亿，2025年合计派发73.89亿。
+
+6月9日，常熟银行和紫金银行完成红利发放。
+
+常熟银行每股发放现金0.12元，共计派发3.98亿，每股转增股份0.1股，共计转增3.32亿股。
+
+加上2025年中期派发的4.97亿，合计派发8.95亿。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 05:40 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 05:38 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 05:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 05:57 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 05:45 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 05:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 05:48 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-30 05:45 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 05:39 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 05:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 05:41 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 06:05 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 05:37 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-30 05:49 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 06:01 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 05:47 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 05:36 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 05:53 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 06:04 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 05:41 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/84682277.shtml)
-- 2026-06-30 05:36 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/0210058353.shtml)
-- 2026-06-30 05:33 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/2048870.shtml)
-- 2026-06-30 05:42 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/8245130641.shtml)
-- 2026-06-30 05:55 - [世界杯](http://www.share.minike.top/Article/details/22829.shtml)
-- 2026-06-30 05:58 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/705846201250.shtml)
-- 2026-06-30 05:38 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/236158.shtml)
-- 2026-06-30 05:51 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/783470223915.shtml)
-- 2026-06-30 05:58 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/5232143267.shtml)
-- 2026-06-30 05:34 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/1791132.shtml)
-- 2026-06-30 05:58 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/58448432799.shtml)
-- 2026-06-30 05:36 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/3303031.shtml)
-- 2026-06-30 05:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/971332447127.shtml)
-- 2026-06-30 05:48 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/75468928.shtml)
-- 2026-06-30 05:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/9872662.shtml)
+- 2026-06-30 05:38 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/432493.shtml)
+- 2026-06-30 05:38 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/42091318276.shtml)
+- 2026-06-30 06:00 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/9667811051.shtml)
+- 2026-06-30 06:04 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/66161083093.shtml)
+- 2026-06-30 05:38 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/098670268759.shtml)
+- 2026-06-30 06:05 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/542663426999.shtml)
+- 2026-06-30 06:03 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/712039.shtml)
+- 2026-06-30 06:02 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/0107414363.shtml)
+- 2026-06-30 05:52 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/677475293.shtml)
+- 2026-06-30 05:38 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/16133869.shtml)
+- 2026-06-30 05:53 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/093923226610.shtml)
+- 2026-06-30 05:58 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/9420488.shtml)
+- 2026-06-30 05:45 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/36459853896.shtml)
+- 2026-06-30 05:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/871738.shtml)
+- 2026-06-30 06:05 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/0518135.shtml)

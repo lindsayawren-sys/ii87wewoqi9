@@ -1,60 +1,55 @@
-# 美国得州正式起诉奈飞 指控虚假宣传及违规滥用用户隐私
+# 中国人寿大宗交易成交1.63亿元
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-美国得州总检察长肯・帕克斯顿已正式起诉奈飞，指控其背弃承诺，不再坚守无广告运营，也未做到儿童友好安全。 该案于周一立案，诉状指出：奈飞将得州用户数据开放给大型广告科技企业调取使用，而这类企业恰恰是奈飞过去曾批评、指责其以同类方式侵害用户隐私的对象。 帕克斯顿在诉状中表示，奈飞长期对外塑造自身形象，宣称平台是逃离大型科技巨头监控的一方净土，借此吸纳大量订阅用户。但2022年奈飞推
+中国人寿6月17日大宗交易平台出现一笔成交，成交量479.91万股，成交金额1.63亿元，大宗交易成交价为34.02元，相对今日收盘价折价5.00%。该笔交易的买方营业部为华泰证券股份有限公司上海分公司，卖方营业部为国泰海通证券股份有限公司杭州滨江科技馆街证券营业部。证券时报·数据宝统计显示，中国人寿今日收盘价为35.81元，下跌0.69%，日换手率为0.13%，成交额为9.8
 
 ## 正文
 
-美国得州总检察长肯・帕克斯顿已正式起诉奈飞，指控其背弃承诺，不再坚守无广告运营，也未做到儿童友好安全。
+中国人寿6月17日大宗交易平台出现一笔成交，成交量479.91万股，成交金额1.63亿元，大宗交易成交价为34.02元，相对今日收盘价折价5.00%。
 
-该案于周一立案，诉状指出：奈飞将得州用户数据开放给大型广告科技企业调取使用，而这类企业恰恰是奈飞过去曾批评、指责其以同类方式侵害用户隐私的对象。
+该笔交易的买方营业部为华泰证券股份有限公司上海分公司，卖方营业部为国泰海通证券股份有限公司杭州滨江科技馆街证券营业部。
 
-帕克斯顿在诉状中表示，奈飞长期对外塑造自身形象，宣称平台是逃离大型科技巨头监控的一方净土，借此吸纳大量订阅用户。
+证券时报·数据宝统计显示，中国人寿今日收盘价为35.81元，下跌0.69%，日换手率为0.13%，成交额为9.83亿元，全天主力资金净流出9399.71万元，近5日该股累计上涨3.41%，近5日资金合计净流入1.43亿元。
 
-但2022年奈飞推出含广告会员套餐后，立场彻底反转——而这正是公司联合创始人里德・哈斯廷斯当初明确承诺绝不会做的事。
+两融数据显示，该股最新融资余额为13.67亿元，近5日减少6395.50万元，降幅为4.47%。
 
-诉状指控，奈飞布局数字广告业务后，开始利用暗中从儿童及家庭用户身上海量采集的各类数据牟利。
+据天眼查APP显示，中国人寿保险股份有限公司成立于2003年06月30日，注册资本2826470.5万人民币。
 
-帕克斯顿指控奈飞搭建了一套用户行为监控体系，大量收集用户行为信息：包括地理位置、使用设备、搜索词条、内容评分偏好等。
+（数据宝）6月17日中国人寿大宗交易一览注：本文系新闻报道，不构成投资建议，股市有风险，投资需谨慎。
 
-这家流媒体平台还将上述用户信息共享给Experian、Acxiom等数据中间商。
-
-诉状写道：“奈飞多年来一直采取虚假宣传、套路消费者的经营手法，最终沦为自己曾经发誓绝不扮演的角色：诱导儿童与家庭沉迷平台、大肆挖掘用户隐私数据，再将这些数据加工成商业情报，为全球广告巨头创造丰厚收益。
+（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 05:36 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 05:50 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 05:35 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 05:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-30 05:32 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 05:35 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-30 05:55 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 05:32 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 05:37 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 05:37 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-30 05:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 05:41 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 05:39 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 05:40 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 05:54 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 06:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 05:38 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 05:58 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 05:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-30 05:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 06:02 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 06:05 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 05:42 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:41 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/977532176783.shtml)
-- 2026-06-30 05:47 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/9409670671.shtml)
-- 2026-06-30 05:44 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/17597353563.shtml)
-- 2026-06-30 05:40 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/469730.shtml)
-- 2026-06-30 05:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/51151684.shtml)
-- 2026-06-30 05:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/394452.shtml)
-- 2026-06-30 05:43 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/205785251.shtml)
-- 2026-06-30 05:57 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/1537759010.shtml)
-- 2026-06-30 05:57 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/49310360.shtml)
-- 2026-06-30 05:56 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/75684963.shtml)
-- 2026-06-30 05:56 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/432385556.shtml)
-- 2026-06-30 05:32 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/441307.shtml)
-- 2026-06-30 05:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/201544093480.shtml)
-- 2026-06-30 05:46 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/02050120247.shtml)
-- 2026-06-30 05:41 - [父母催婚话术是如何做到全国统一的](https://www.share.minike.top/Article/details/132869.shtml)
+- 2026-06-30 05:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/743031544.shtml)
+- 2026-06-30 06:00 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/1654945.shtml)
+- 2026-06-30 06:04 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/428996.shtml)
+- 2026-06-30 06:04 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.kurohicncr.top/Article/details/469921458.shtml)
+- 2026-06-30 05:49 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/3895494791.shtml)
+- 2026-06-30 05:40 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/264610154.shtml)
+- 2026-06-30 05:56 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/39496.shtml)
+- 2026-06-30 06:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/49732279942.shtml)
+- 2026-06-30 05:59 - [请回答王牌2019](http://www.share.minike.top/Article/details/437768403282.shtml)
+- 2026-06-30 06:05 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/88356965.shtml)
+- 2026-06-30 05:59 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/93264333610.shtml)
+- 2026-06-30 05:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/56886213.shtml)
+- 2026-06-30 06:01 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/374862519.shtml)
+- 2026-06-30 05:51 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/69686.shtml)
+- 2026-06-30 06:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/80659.shtml)

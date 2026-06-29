@@ -1,56 +1,45 @@
-# ST百利遭证监会立案 投资者或可索赔
+# 民生银行将于8月10日派发末期股息每10股0.53元
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月11日晚间，ST百利（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。公告显示：湖南百利工程科技股份有限公司于2026 年5 月11日收到中国证券监督管理委员会下发的《立案告知书》（证监立案字 0132026004 号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处
+民生银行（01988）发布公告，该公司将于2026年8月10日派发截至2025年12月31日止年度的末期股息每10股人民币0.53元。责任编辑：卢昱君
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月11日晚间，ST百利（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。
+民生银行（01988）发布公告，该公司将于2026年8月10日派发截至2025年12月31日止年度的末期股息每10股人民币0.53元。
 
-公告显示：湖南百利工程科技股份有限公司于2026 年5 月11日收到中国证券监督管理委员会下发的《立案告知书》（证监立案字 0132026004 号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》、《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
-
-近期，ST百利股价波动较大，4月20日只有股价呈急跌态势，此后5月后股价逐渐企稳，近两个月交易日股价连续涨停。
-
-业绩方面，2025年ST百利实现营业收入22.17亿元，同比增长12.97%；归属于上市公司股东的净利润8905.65万元，上年同期归母净利润亏损1.09亿元；基本每股收益0.0819元。
-
-在此次遭证监会立案之前，早在 2024年10月9日ST百利就第一次遭证监会立案，并于2025年6月6日收到证监会的行政处罚。
-
-行政处罚下达后，即有投资者提起了证券诉讼，据相关媒体报道，此前长沙中院已经一审判决投资者胜诉。
-
-江苏振泽律师事务所合伙人张云律师表示，此次ST百利再遭证监会立案，恐将再次面对投资者索赔。
-
-针对此次立案，暂定：于2026年5月11日之前买入ST百利，且在2026年5月12日之后卖出或持有ST百利的亏损投资者符合索赔条件。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 05:32 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 05:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 05:31 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 05:35 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-30 05:58 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 05:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 05:56 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 05:42 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-30 05:46 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-30 05:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 05:36 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 05:57 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 05:46 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 05:46 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 05:45 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 05:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-30 05:56 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 05:44 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 05:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:42 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/026301.shtml)
-- 2026-06-30 05:59 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/0575507.shtml)
-- 2026-06-30 05:52 - [人类...完蛋了...](https://www.share.minike.top/Article/details/14547517570.shtml)
-- 2026-06-30 05:33 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/983511.shtml)
-- 2026-06-30 05:55 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/753431.shtml)
-- 2026-06-30 05:52 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/1112523.shtml)
-- 2026-06-30 05:35 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/908359484.shtml)
-- 2026-06-30 05:46 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/8859985.shtml)
-- 2026-06-30 05:55 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/263488.shtml)
-- 2026-06-30 05:45 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/907714179503.shtml)
-- 2026-06-30 05:47 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/249296183737.shtml)
-- 2026-06-30 05:42 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/9094368.shtml)
-- 2026-06-30 05:31 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/01014.shtml)
-- 2026-06-30 05:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/4158136987.shtml)
-- 2026-06-30 05:34 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/93963296959.shtml)
+- 2026-06-30 05:59 - [女心理师](https://www.blog.kurohicncr.top/Article/details/09385.shtml)
+- 2026-06-30 05:49 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/991307967.shtml)
+- 2026-06-30 05:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/302043715104.shtml)
+- 2026-06-30 05:46 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/7362994.shtml)
+- 2026-06-30 06:02 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/882109867896.shtml)
+- 2026-06-30 06:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/2446441.shtml)
+- 2026-06-30 05:49 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/46645420.shtml)
+- 2026-06-30 06:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/81582.shtml)
+- 2026-06-30 05:36 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/955595656.shtml)
+- 2026-06-30 05:54 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/7472496.shtml)
+- 2026-06-30 05:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/8528033.shtml)
+- 2026-06-30 05:51 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/424406.shtml)
+- 2026-06-30 06:04 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/730258019.shtml)
+- 2026-06-30 05:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/6395999487.shtml)
+- 2026-06-30 05:59 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/590344727870.shtml)

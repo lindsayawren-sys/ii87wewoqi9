@@ -1,59 +1,60 @@
-# 中国驻泰国使馆提醒在泰中国公民自觉抵制任何形式赌博活动
+# 北京经开区发布营商环境改革创新成果 近30项成果全国全市推广
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据中国驻泰国大使馆微信公众号消息，近年来，不少中国公民在海外参赌涉赌并深受其害，不仅蒙受巨额财产损失，甚至引发绑架、勒索、非法拘禁等恶性刑事案件，严重威胁人身安全。 为保障广大旅泰同胞的合法权益，中国驻泰国使馆郑重提醒：赌博害人害己，一次沉迷，终生悔恨！请务必认清跨境赌博陷阱，自觉抵制任何形式赌博活动，切勿以身试法。 一、跨境赌博已入刑，法律红线不可碰 泰国
+中新网北京6月17日电 (黄巧维)北京经济技术开发区(简称北京经开区，又称北京亦庄)已有200余项营商环境改革创新举措落地见效，其中近30项创新成果在全国或全市范围内推广。北京经济技术开发区工委委员、管委会副主任李全在今天举行的一场发布会上表示，经开区始终把营商环境作为高质量发展的生命线，以“亦企创未来”品牌为引领，在制度创新、为企服务、要素保障和数字赋能四方面聚能发力，有力发
 
 ## 正文
 
-中新网5月11日电 据中国驻泰国大使馆微信公众号消息，近年来，不少中国公民在海外参赌涉赌并深受其害，不仅蒙受巨额财产损失，甚至引发绑架、勒索、非法拘禁等恶性刑事案件，严重威胁人身安全。
+中新网北京6月17日电 (黄巧维)北京经济技术开发区(简称北京经开区，又称北京亦庄)已有200余项营商环境改革创新举措落地见效，其中近30项创新成果在全国或全市范围内推广。
 
-为保障广大旅泰同胞的合法权益，中国驻泰国使馆郑重提醒：赌博害人害己，一次沉迷，终生悔恨！
+北京经济技术开发区工委委员、管委会副主任李全在今天举行的一场发布会上表示，经开区始终把营商环境作为高质量发展的生命线，以“亦企创未来”品牌为引领，在制度创新、为企服务、要素保障和数字赋能四方面聚能发力，有力发挥了全市营商环境改革试验田和示范区的作用。
 
-请务必认清跨境赌博陷阱，自觉抵制任何形式赌博活动，切勿以身试法。
+以“沙盒审批”健全“四新”经济准入规范 北京经济技术开发区行政审批局局长庞雁介绍，北京经开区紧扣产业发展实际、聚焦企业核心需求，稳慎探索、先行先试，在全市首创新质生产力“沙盒审批”机制，破解新兴业态准入堵点。
 
-一、跨境赌博已入刑，法律红线不可碰 泰国法律严格禁止非法赌博及网络博彩活动。
+庞雁表示，在机制运行方面，北京经开区以“全流程闭环管理”为核心，确保试点工作规范可控。
 
-我国刑法修正案已明确将跨境赌博入刑，即使境外赌场合法开设，中国公民跨境赌博也涉嫌触犯我国法律，特别是对于组织赌博、开设赌场、招揽中国公民参赌等行为，我国司法机关将依法追究刑事责任。
+“我们始终把安全可控摆在沙盒审批的首要位置，构建了’入盒申请—符合性审查—沙盒试验—出盒审批’全链条工作程序，做到包容而不纵容、放手而不放任。
 
-二、认清赌博骗局，拒绝诱惑 警惕“杀猪盘”：跨境赌博常与电信诈骗、非法洗钱交织，所谓的“赢钱秘籍”和“高额回报”全是骗局。
+” 目前，沙盒审批已在医疗器械自动售械机及机器人(数字人)演出等两个领域率先落地。
 
-警惕关联陷阱：切勿轻信“高薪招聘”、“包机票食宿”等虚假诱惑，防范陷入非法劳务或被限制人身自由。
+经开区已为首家数字人试点企业颁发沙盒准入证明，计划年内对相关线下商业文艺演出进行审核，为数字人产业规范化发展探索路径。
 
-三、共同打击犯罪，欢迎积极举报 中国公安部已开通打击治理跨境赌博综合举报平台。
+“我们立足新业态、新产业发展实际破除制度堵点，用首创性制度供给、释放企业创新发展空间。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 05:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 05:35 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 05:49 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 05:57 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 05:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 05:41 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 05:39 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 05:57 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 05:39 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 05:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 05:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 05:49 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 05:55 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 05:56 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:54 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 05:39 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 05:36 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 05:47 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 05:53 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 05:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 05:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 05:58 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 06:04 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
+- 2026-06-30 05:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 05:38 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 05:43 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/838940025393.shtml)
-- 2026-06-30 05:33 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/336508393890.shtml)
-- 2026-06-30 05:49 - [女心理师](https://www.share.kurohicncr.top/Article/details/5676896419.shtml)
-- 2026-06-30 05:59 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/65172.shtml)
-- 2026-06-30 05:30 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/502313.shtml)
-- 2026-06-30 05:34 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/4060320078.shtml)
-- 2026-06-30 05:46 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/339063041.shtml)
-- 2026-06-30 05:50 - [美人鱼](http://www.share.kurohicncr.top/Article/details/242577622266.shtml)
-- 2026-06-30 05:36 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/8487161.shtml)
-- 2026-06-30 05:36 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/2831559700.shtml)
-- 2026-06-30 05:38 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/65122304.shtml)
-- 2026-06-30 05:31 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/593379.shtml)
-- 2026-06-30 05:43 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/893206935.shtml)
-- 2026-06-30 05:57 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/437896.shtml)
-- 2026-06-30 05:48 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/3569633077.shtml)
+- 2026-06-30 06:04 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/249676912264.shtml)
+- 2026-06-30 05:48 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/61967889436.shtml)
+- 2026-06-30 05:52 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/98616.shtml)
+- 2026-06-30 05:44 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/696253.shtml)
+- 2026-06-30 05:45 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/5478700.shtml)
+- 2026-06-30 06:01 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/044491979881.shtml)
+- 2026-06-30 05:57 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/89120439.shtml)
+- 2026-06-30 05:36 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/7576732864.shtml)
+- 2026-06-30 05:45 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/69216.shtml)
+- 2026-06-30 05:37 - [月亮](https://www.blog.kurohicncr.top/Article/details/994905876460.shtml)
+- 2026-06-30 05:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/930771.shtml)
+- 2026-06-30 05:41 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/152977.shtml)
+- 2026-06-30 05:40 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/7227631926.shtml)
+- 2026-06-30 05:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/54089276784.shtml)
+- 2026-06-30 05:36 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/67678.shtml)

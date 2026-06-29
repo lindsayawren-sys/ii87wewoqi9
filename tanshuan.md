@@ -1,59 +1,49 @@
-# 非洲驻华使团将举办“2026非洲日文化节”
+# 金爵奖纪录片单元评委刘擎：以纪实观照众生 在他者中读懂自我
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网北京5月11日电 (记者 余湛奕)2026非洲日新闻发布会11日在索马里驻华大使馆举行。发布会上宣布，“2026非洲日文化节”将于5月23日在北京朝阳公园举行。 据介绍，今年恰逢中非开启外交关系70周年，同时也是“中非人文交流年”。在这一重要背景下，文化节不仅是一场汇聚非洲文化魅力的盛会，更是深化中非友谊、促进民心相通、加强文明交流互鉴的重要平台。 “非洲是一片充满活力、
+发布时间：2026年06月18日 13:02 来源：中国新闻网 第28届上海国际电影节期间，金爵奖纪录片单元评委、哲学家刘擎接受采访时分享了自己的观点。 在刘擎看来，纪录片不可替代的核心，在于创作者独特的观察视角、问题意识与独立创作抉择，镜头记录鲜活真实的普通人生活，留存最本真的人间百态。同时纪录片也肩负公民教育的社会使命，要聚焦弱势群体，打破大众认知偏见，推动社会理解与共情。
 
 ## 正文
 
-中新网北京5月11日电 (记者 余湛奕)2026非洲日新闻发布会11日在索马里驻华大使馆举行。
+发布时间：2026年06月18日 13:02 来源：中国新闻网 第28届上海国际电影节期间，金爵奖纪录片单元评委、哲学家刘擎接受采访时分享了自己的观点。
 
-发布会上宣布，“2026非洲日文化节”将于5月23日在北京朝阳公园举行。
+在刘擎看来，纪录片不可替代的核心，在于创作者独特的观察视角、问题意识与独立创作抉择，镜头记录鲜活真实的普通人生活，留存最本真的人间百态。
 
-据介绍，今年恰逢中非开启外交关系70周年，同时也是“中非人文交流年”。
+同时纪录片也肩负公民教育的社会使命，要聚焦弱势群体，打破大众认知偏见，推动社会理解与共情。
 
-在这一重要背景下，文化节不仅是一场汇聚非洲文化魅力的盛会，更是深化中非友谊、促进民心相通、加强文明交流互鉴的重要平台。
-
-“非洲是一片充满活力、创造力与发展机遇的大陆。
-
-文化节将通过文化交流、互动体验与共同庆祝，为中国朋友打开一扇感知非洲、了解非洲走近非洲的窗口。
-
-”非洲驻华使团团长、喀麦隆驻华大使马丁·姆帕纳表示，文化节旨在进一步促进中非民心相通，让中国公众更加深入、立体地了解真实、多彩的非洲。
-
-据悉，活动由非洲各国驻华使馆联合举办，将通过国家展区、文化展示和互动体验等形式，集中呈现非洲传统文化底蕴与当代创新活力。
+（娄瀚锟） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 05:30 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 05:52 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 05:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 05:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-30 05:43 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 05:30 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 06:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 05:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 05:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 05:50 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 05:30 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 05:58 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-30 06:01 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 05:59 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 05:53 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 05:40 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 06:03 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 05:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 05:44 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 06:03 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 05:40 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 05:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 05:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/5691201562.shtml)
-- 2026-06-30 05:36 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/00973968283.shtml)
-- 2026-06-30 05:38 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/59789255.shtml)
-- 2026-06-30 05:56 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/23797606676.shtml)
-- 2026-06-30 05:48 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/5660102524.shtml)
-- 2026-06-30 05:37 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/345123884948.shtml)
-- 2026-06-30 05:30 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/99278158.shtml)
-- 2026-06-30 05:54 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/85191456000.shtml)
-- 2026-06-30 05:41 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/85630134.shtml)
-- 2026-06-30 05:43 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/3877482.shtml)
-- 2026-06-30 05:55 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/581170.shtml)
-- 2026-06-30 05:33 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/40484350.shtml)
-- 2026-06-30 05:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/5761577.shtml)
-- 2026-06-30 05:44 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/51051.shtml)
-- 2026-06-30 05:47 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/614288.shtml)
+- 2026-06-30 05:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/22193384.shtml)
+- 2026-06-30 05:50 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/40253475.shtml)
+- 2026-06-30 05:38 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/40425609.shtml)
+- 2026-06-30 06:02 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/26656.shtml)
+- 2026-06-30 05:58 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/59183483114.shtml)
+- 2026-06-30 05:42 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/22915.shtml)
+- 2026-06-30 06:04 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/0134330.shtml)
+- 2026-06-30 05:41 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/91601.shtml)
+- 2026-06-30 06:04 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/8441556.shtml)
+- 2026-06-30 05:41 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/520959657.shtml)
+- 2026-06-30 06:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/91659.shtml)
+- 2026-06-30 05:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/2315999302.shtml)
+- 2026-06-30 05:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/94307.shtml)
+- 2026-06-30 05:58 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/169820.shtml)
+- 2026-06-30 05:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/377906.shtml)

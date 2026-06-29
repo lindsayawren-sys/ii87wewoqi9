@@ -1,56 +1,55 @@
-# 半导体产业整合拉开帷幕！港股硬科技锐度闪耀，规模最大港股通信息技术ETF华宝（159131）十日吸金超2.3亿元
+# 五月上海开具离境退税申请单同比大增3.6倍
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 近期全球芯片半导体热度飙升，“硬科技”来到市场聚光灯下。在港股科技赛道，代表港股硬科技的中证港股通信息技术指数，自3月31日触底反弹以来累计涨幅已超30%，显著跑赢同期恒生科技（8.88%）、港股通科技（8.07%），锐度和弹性遥遥领先，被市场称为“恒生科技加强版”。 统计区间：2026.3.31-2026.5.11。港股通信息
+中新社上海6月17日电 (记者 姜煜)记者17日从上海市税务局获悉，今年5月，上海开具离境退税申请单与去年同期相比增长3.6倍，离境退税销售额同比增长83.9%。 据上海市商务委当天介绍，截至5月底，第七届上海“五五购物节”举办了21个重点IP活动以及百余场促消费活动，有效带动入境消费持续增长。 今年上海“五五购物节”亮点纷呈：升级“五五购物节—爱购上海全球大直播”，以“城市漫
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 近期全球芯片半导体热度飙升，“硬科技”来到市场聚光灯下。
+中新社上海6月17日电 (记者 姜煜)记者17日从上海市税务局获悉，今年5月，上海开具离境退税申请单与去年同期相比增长3.6倍，离境退税销售额同比增长83.9%。
 
-在港股科技赛道，代表港股硬科技的中证港股通信息技术指数，自3月31日触底反弹以来累计涨幅已超30%，显著跑赢同期恒生科技（8.88%）、港股通科技（8.07%），锐度和弹性遥遥领先，被市场称为“恒生科技加强版”。
+据上海市商务委当天介绍，截至5月底，第七届上海“五五购物节”举办了21个重点IP活动以及百余场促消费活动，有效带动入境消费持续增长。
 
-统计区间：2026.3.31-2026.5.11。
+今年上海“五五购物节”亮点纷呈：升级“五五购物节—爱购上海全球大直播”，以“城市漫游+实景直播+全域购物”新模式，带领海内外消费者沉浸式打卡申城首店、商业地标与文旅场景，深度解锁“文商旅体展”融合新体验；上海国际花卉节激活“赏花经济”，以参与花卉节为目的游览各会场的活动核心人群规模为202.63万人次，直接带动消费25.72亿元人民币，活动辐射的15个商圈展期内累计实现线下零售餐饮消费总计85.45亿元，同比增长16.1%；上海国际咖啡文化节主会场打造北外滩2.3公里岸线沉浸式消费场景，活动期间累计接待市民游客105.6万人次。
 
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
+今年“五五购物节”期间，“环球小黄人调香实验室”全球首店、MUSINSA STANDARD中国旗舰店、万代南梦宫中国首家线下旗舰店、Vitra全国首家旗舰店、方寸黄金全国首店等多家高能级首店亮相上海。
 
-指数过往业绩不预示未来表现。
+同期，“巨肺装置艺术展”在上海首秀、GRAFF格拉夫珠宝亚洲巡展亮相上海、百老汇现象级音乐剧《梦断花都》在上海举行中国首秀，首发首秀经济持续赋能上海消费升级。
 
-与此同时，港股硬科技的弹性优势持续吸引资金青睐。
-
-全市场首只、同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）近5日合计获资金净流入超1.18亿元，近10日获资金净流入超2.3亿元。
-
-以半导体为核心的硬科技何以受到市场热捧？
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 05:45 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 05:38 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 05:33 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 05:45 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 05:58 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 05:40 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 05:53 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 05:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 05:55 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 05:51 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 05:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 05:48 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 06:01 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 05:54 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 06:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 05:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-30 05:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 05:54 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 05:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 05:55 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 05:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 05:57 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/425158521314.shtml)
-- 2026-06-30 06:00 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/02104332.shtml)
-- 2026-06-30 05:33 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/15791.shtml)
-- 2026-06-30 05:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/013134548.shtml)
-- 2026-06-30 05:52 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/69896003553.shtml)
-- 2026-06-30 05:35 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/6591944.shtml)
-- 2026-06-30 05:59 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/9288690.shtml)
-- 2026-06-30 05:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/2754933336.shtml)
-- 2026-06-30 05:31 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/7092129.shtml)
-- 2026-06-30 05:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/394962173484.shtml)
-- 2026-06-30 05:56 - [月亮](http://www.blog.kurohicncr.top/Article/details/66412576172.shtml)
-- 2026-06-30 05:34 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/939429.shtml)
-- 2026-06-30 05:50 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/6973447524.shtml)
-- 2026-06-30 05:33 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/476062923347.shtml)
-- 2026-06-30 05:32 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/3105268.shtml)
+- 2026-06-30 05:51 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/36773.shtml)
+- 2026-06-30 05:46 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/8822549.shtml)
+- 2026-06-30 05:52 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/418144041.shtml)
+- 2026-06-30 05:51 - [安切洛蒂 换人](http://www.share.minike.top/Article/details/701473944.shtml)
+- 2026-06-30 05:59 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/02764.shtml)
+- 2026-06-30 05:45 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/268190754700.shtml)
+- 2026-06-30 05:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/29745.shtml)
+- 2026-06-30 05:58 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/5311096.shtml)
+- 2026-06-30 05:56 - [日本16强魔咒](https://www.blog.minike.top/Article/details/6519444.shtml)
+- 2026-06-30 05:45 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/1856439146.shtml)
+- 2026-06-30 05:52 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/849759.shtml)
+- 2026-06-30 05:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/687812.shtml)
+- 2026-06-30 05:45 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/33916.shtml)
+- 2026-06-30 06:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/08600.shtml)
+- 2026-06-30 06:02 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/25542502378.shtml)

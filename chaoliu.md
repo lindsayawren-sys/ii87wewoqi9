@@ -1,57 +1,49 @@
-# TMC与Allseas签署协议，共建首套商业深海结核回收系统
+# 美元跃升至日内高点 18名FOMC成员中9人预计2026年将加息
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。 该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。 该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。 TM
+专题：美联储维持利率不变，精简声明以移除降息偏向 彭博美元指数跃升至日内高点，此前美联储维持政策利率不变并删除宽松倾向相关措辞，18名FOMC成员中有9人预计2026年将加息。 彭博美元指数一度上涨0.3%；多数G10货币日内下跌，日元基本持平。责任编辑：李桐
 
 ## 正文
 
-The Metals Company（TMC）已与海上承包商Allseas签署商业协议，共同开发和运营双方所称的首套商业深海结核回收系统。
+专题：美联储维持利率不变，精简声明以移除降息偏向 彭博美元指数跃升至日内高点，此前美联储维持政策利率不变并删除宽松倾向相关措辞，18名FOMC成员中有9人预计2026年将加息。
 
-该协议涵盖了结核收集系统的开发、调试和运行，旨在为太平洋克拉里昂-克利珀顿区的海上回收作业做准备。
+彭博美元指数一度上涨0.3%；多数G10货币日内下跌，日元基本持平。
 
-该商业生产系统的额定年产能为300万湿吨，将使用两台在超过4公里深度的水下运行的收集车，将结核输送至水面支持船Hidden Gem号。
-
-TMC表示，该系统还将包括布放回收系统、立管系统以及一艘转运船。
-
-TMC称，关键长周期设备（包括立管和脐带缆系统）的概念设计和基础工程已经完成，预计在2026年第三季度末启动供应商接洽和分包合同授予。
-
-公司预计海上系统的调试将于2027年第四季度开始。
-
-根据协议，Allseas将承担部分开发成本，并通过未来的生产收入回收。
-
-TMC董事长兼首席执行官杰拉德·巴伦表示：“与Allseas的这份协议现在是我们与Allseas战略联盟的合同基石：它建立了一个清晰的商业框架，规定了我们如何完成首套商业规模结核回收系统的开发和调试，并启动海上结核回收作业。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 05:45 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 05:40 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 05:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 05:57 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 05:33 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 05:35 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 05:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 05:53 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 05:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 05:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-30 05:39 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 06:00 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 05:58 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 05:43 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 05:44 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 05:56 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 05:40 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 05:42 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 05:42 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 05:57 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 05:40 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 05:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 05:42 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/895972.shtml)
-- 2026-06-30 05:45 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/2560130.shtml)
-- 2026-06-30 05:32 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/48114014083.shtml)
-- 2026-06-30 05:37 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/315862.shtml)
-- 2026-06-30 05:48 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/496003.shtml)
-- 2026-06-30 05:36 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/673415.shtml)
-- 2026-06-30 05:33 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/66487913066.shtml)
-- 2026-06-30 05:54 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/15995283.shtml)
-- 2026-06-30 05:46 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/419978.shtml)
-- 2026-06-30 05:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/134540267562.shtml)
-- 2026-06-30 05:42 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/049319501.shtml)
-- 2026-06-30 05:42 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/198457237.shtml)
-- 2026-06-30 05:46 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/61839104.shtml)
-- 2026-06-30 05:52 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/3444440804.shtml)
-- 2026-06-30 05:37 - [逃狱兄弟](http://www.share.minike.top/Article/details/90839.shtml)
+- 2026-06-30 05:38 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/31495922.shtml)
+- 2026-06-30 05:36 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/07030615652.shtml)
+- 2026-06-30 05:44 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/58765860802.shtml)
+- 2026-06-30 06:04 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/4677919861.shtml)
+- 2026-06-30 05:59 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/0432668.shtml)
+- 2026-06-30 05:36 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/0557156339.shtml)
+- 2026-06-30 05:56 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/10888145.shtml)
+- 2026-06-30 05:56 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.minike.top/Article/details/92413989.shtml)
+- 2026-06-30 05:42 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/379112752034.shtml)
+- 2026-06-30 05:55 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/68643572.shtml)
+- 2026-06-30 05:48 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/05318.shtml)
+- 2026-06-30 05:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/9194692.shtml)
+- 2026-06-30 05:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/394897064.shtml)
+- 2026-06-30 05:42 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/162270.shtml)
+- 2026-06-30 05:36 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/182390.shtml)

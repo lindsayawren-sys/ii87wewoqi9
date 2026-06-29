@@ -1,60 +1,57 @@
-# 特朗普拒绝了德黑兰的回应，称伊朗停火协议“岌岌可危”
+# 5000美元“长”成5万棵树，一笔捐款背后的中国治沙力量
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-美国总统唐纳德·特朗普周一表示，与伊朗的停火协议“岌岌可危”，此前他称德黑兰对美国和平提议的回应“愚蠢”。 特朗普周日迅速拒绝伊朗的回应，加剧了外界对这场已持续十周的冲突可能继续拖延、并继续导致霍尔木兹海峡航运瘫痪的担忧。 “我会说，现在（停火）是最脆弱的时候。看了他们发给我们的那份垃圾，我甚至都没读完，”特朗普谈到停火协议时说，“它岌岌可危。” 在华盛顿提出一项旨在重启谈判的
+发布时间：2026年06月17日 19:13 来源：中国新闻网 6月17日是世界防治荒漠化与干旱日。前阵子，60岁的中国治沙人殷玉珍终于找到了20多年前资助她的美国教师赛考斯。27年前，赛考斯在电视上看到殷玉珍在毛乌素沙地种树治沙的报道，深受触动，四处筹款，寄来了5000美元。时光飞逝，当年殷玉珍用筹款购买的小树苗，如今已长成5万多棵树，蔓延成一片森林。 毛乌素沙地是中国四大沙
 
 ## 正文
 
-美国总统唐纳德·特朗普周一表示，与伊朗的停火协议“岌岌可危”，此前他称德黑兰对美国和平提议的回应“愚蠢”。
+发布时间：2026年06月17日 19:13 来源：中国新闻网 6月17日是世界防治荒漠化与干旱日。
 
-特朗普周日迅速拒绝伊朗的回应，加剧了外界对这场已持续十周的冲突可能继续拖延、并继续导致霍尔木兹海峡航运瘫痪的担忧。
+前阵子，60岁的中国治沙人殷玉珍终于找到了20多年前资助她的美国教师赛考斯。
 
-“我会说，现在（停火）是最脆弱的时候。
+27年前，赛考斯在电视上看到殷玉珍在毛乌素沙地种树治沙的报道，深受触动，四处筹款，寄来了5000美元。
 
-看了他们发给我们的那份垃圾，我甚至都没读完，”特朗普谈到停火协议时说，“它岌岌可危。
+时光飞逝，当年殷玉珍用筹款购买的小树苗，如今已长成5万多棵树，蔓延成一片森林。
 
-” 在华盛顿提出一项旨在重启谈判的提议几天后，伊朗周日发布了一份回应，重点要求在所有战线结束战争，包括黎巴嫩——在那里，美国的盟友以色列正在与伊朗支持的真主党武装作战。
+毛乌素沙地是中国四大沙地之一，曾被称为不毛之地。
 
-德黑兰还要求赔偿战争损失，强调其对霍尔木兹海峡的主权，并要求美国解除海上封锁、保证不再发动袭击、取消制裁并解除对伊朗石油销售的禁令。
+曾经，这里风沙肆虐，黄沙漫天。
 
-周一，特朗普还声称，伊朗愿意向美国交出“核粉尘”（指伊朗浓缩铀库存）。
+如今，毛乌素治理率已超过80%，流动沙丘面积缩减了93%。
 
-责任编辑：丁文武
+党的十八大以来，中国53%的可治理沙化土地得到有效治理，成为全球增绿最多最快的国家。
 
 ## 相关推荐
 
-- 2026-06-30 05:56 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 05:51 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 05:50 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 05:53 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 05:33 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 05:43 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 05:57 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 05:45 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 05:33 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 05:41 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 05:57 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 05:53 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 05:39 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 05:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 06:05 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 05:58 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 05:59 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 06:04 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 06:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 05:49 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 05:57 - [日本领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 06:01 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 05:48 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 05:50 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
+- 2026-06-30 05:41 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [天道](https://www.share.minike.top/Article/details/91670.shtml)
-- 2026-06-30 05:43 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/26204475.shtml)
-- 2026-06-30 05:47 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/4968952.shtml)
-- 2026-06-30 05:58 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/160981268965.shtml)
-- 2026-06-30 05:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/19966103872.shtml)
-- 2026-06-30 05:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/3592545714.shtml)
-- 2026-06-30 05:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/998699.shtml)
-- 2026-06-30 05:34 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/74579.shtml)
-- 2026-06-30 05:56 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/625719721905.shtml)
-- 2026-06-30 05:51 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/454966085.shtml)
-- 2026-06-30 05:49 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/959194.shtml)
-- 2026-06-30 05:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/63082500.shtml)
-- 2026-06-30 05:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/3721480.shtml)
-- 2026-06-30 05:50 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/145117480.shtml)
-- 2026-06-30 05:58 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/8444603870.shtml)
+- 2026-06-30 05:45 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/47175803927.shtml)
+- 2026-06-30 06:01 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/524970.shtml)
+- 2026-06-30 06:03 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/417169240404.shtml)
+- 2026-06-30 05:47 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/20222788.shtml)
+- 2026-06-30 05:51 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/8816999.shtml)
+- 2026-06-30 05:53 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/713000085507.shtml)
+- 2026-06-30 05:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/04702665.shtml)
+- 2026-06-30 05:45 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/392544929.shtml)
+- 2026-06-30 06:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/90196335.shtml)
+- 2026-06-30 05:38 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/320746264.shtml)
+- 2026-06-30 05:41 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/38635653685.shtml)
+- 2026-06-30 05:36 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/0760096.shtml)
+- 2026-06-30 05:57 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/521534.shtml)
+- 2026-06-30 05:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/11929914621.shtml)
+- 2026-06-30 06:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/534569.shtml)

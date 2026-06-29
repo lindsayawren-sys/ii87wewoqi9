@@ -1,56 +1,54 @@
-# 张薇薇：以绳结为桥，铺就残障群体就业路
+# 美商务部暂缓将多家中国公司列入实体清单，外交部：一贯反对美方滥用实体清单等工具
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网沈阳5月11日电(姜月恒)指尖绕线，绳结生韵。作为省级非物质文化遗产辽西绳结技艺第五代传承人、锦州市残疾人非遗文创项目负责人，张薇薇多年来深耕绳结文创设计与推广，携手残障手艺人潜心创作，让平凡指尖凝结的匠心之作走出辽宁、亮相北京故宫。在传承非遗文脉的同时，为残障群体撑起一片就业增收、实现自我价值的天地。 非遗传承与助残同行的路上，藏着太多暖心动容的瞬间。工作室里，灯光常年
+6月17日，外交部发言人林剑主持例行记者会。法新社记者提问，美国商务部为避免与中国紧张关系升级，暂缓将包括深度求索（DeepSeek）和一家大型芯片制造商在内的多家中国公司列入实体清单。请问外交部对此有何评论？ 林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。美方应停止将经贸科技问题政治化、工具化、武器化。责任编辑：刘万里 SF014
 
 ## 正文
 
-中新网沈阳5月11日电(姜月恒)指尖绕线，绳结生韵。
+6月17日，外交部发言人林剑主持例行记者会。
 
-作为省级非物质文化遗产辽西绳结技艺第五代传承人、锦州市残疾人非遗文创项目负责人，张薇薇多年来深耕绳结文创设计与推广，携手残障手艺人潜心创作，让平凡指尖凝结的匠心之作走出辽宁、亮相北京故宫。
+法新社记者提问，美国商务部为避免与中国紧张关系升级，暂缓将包括深度求索（DeepSeek）和一家大型芯片制造商在内的多家中国公司列入实体清单。
 
-在传承非遗文脉的同时，为残障群体撑起一片就业增收、实现自我价值的天地。
+请问外交部对此有何评论？
 
-非遗传承与助残同行的路上，藏着太多暖心动容的瞬间。
+林剑表示，中方一贯反对美方泛化国家安全概念，滥用实体清单等出口管制的工具，遏制打压中方企业。
 
-工作室里，灯光常年柔和明亮，既有肢体残疾的手艺人端坐桌前，指尖缓慢却专注地编织着绳结；也有听障手艺人围坐在一起，手中握着纸笔，一笔一画交流技艺、敲定配色纹样。
+美方应停止将经贸科技问题政治化、工具化、武器化。
 
-起初，沟通的不便让学习进度格外缓慢，但没有一人轻言放弃。
-
-“我印象最深刻的是残疾人苏世昆，他因先天条件导致手部受限、手指短小僵硬。
-
-初学精细编绳时，线都难以攥稳，常常刚编好的绳结又松散开来。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 05:45 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 05:55 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 05:38 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 05:54 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 05:59 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 05:56 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 05:41 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 05:55 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 05:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 05:42 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 06:05 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 05:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 06:00 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 06:04 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 05:51 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-30 05:43 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 05:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 05:38 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 05:53 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 05:48 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 06:02 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 05:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/66431.shtml)
-- 2026-06-30 05:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/871271404.shtml)
-- 2026-06-30 05:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/59845606713.shtml)
-- 2026-06-30 05:57 - [千与千寻](http://www.share.minike.top/Article/details/894439200.shtml)
-- 2026-06-30 05:48 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/8262228.shtml)
-- 2026-06-30 05:36 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/30426803.shtml)
-- 2026-06-30 05:31 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/0464448.shtml)
-- 2026-06-30 05:39 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/9313221757.shtml)
-- 2026-06-30 05:59 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/33286430.shtml)
-- 2026-06-30 05:42 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/45276.shtml)
-- 2026-06-30 05:37 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/9706673.shtml)
-- 2026-06-30 05:34 - [月亮](https://www.blog.kurohicncr.top/Article/details/8263650.shtml)
-- 2026-06-30 05:53 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/362174292549.shtml)
-- 2026-06-30 05:44 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/9605635886.shtml)
-- 2026-06-30 05:48 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/31917733512.shtml)
+- 2026-06-30 05:55 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/11495309239.shtml)
+- 2026-06-30 05:45 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/08940363.shtml)
+- 2026-06-30 05:50 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/77019251.shtml)
+- 2026-06-30 05:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/142982827.shtml)
+- 2026-06-30 05:58 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/702336044.shtml)
+- 2026-06-30 05:51 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/2298512204.shtml)
+- 2026-06-30 05:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/2966440.shtml)
+- 2026-06-30 05:38 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/55347663.shtml)
+- 2026-06-30 05:40 - [日本进球](http://www.share.kurohicncr.top/Article/details/40274.shtml)
+- 2026-06-30 05:38 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/10941603567.shtml)
+- 2026-06-30 06:04 - [日本进球](https://www.share.minike.top/Article/details/008665066670.shtml)
+- 2026-06-30 05:45 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/354050962.shtml)
+- 2026-06-30 05:59 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/315123173.shtml)
+- 2026-06-30 05:53 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/4900262259.shtml)
+- 2026-06-30 06:03 - [扬名立万](https://www.blog.minike.top/Article/details/646963024970.shtml)

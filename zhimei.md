@@ -1,48 +1,58 @@
-# 日本央行一名审议委员：可能在下次政策会议上加息
+# 新加坡冬海集团悄然进军美国市场 测试AI聊天机器人Migoo
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-根据周二发布的4月27日至28日政策会议意见摘要，日本央行一名审议委员表示，央行完全有可能在下次会议或之后的会议上加息。一名委员表示，如果通胀上行风险加大，当局需要以更快速度加息；一名委员表示，如果伊朗冲突持续，需要将政策利率提高至中性水平；一名委员表示，除非经济出现明确放缓迹象，否则央行应尽快加息；一名委员指出，日本实际利率处于全球最低水平之列；一名委员表示，根据经济和通胀形
+在美股上市的新加坡互联网领军企业冬海集团（Sea Ltd．）正在包括美国在内的地区推出一款生成式人工智能（AI）聊天机器人，这是该公司首次进军竞争激烈的美国消费市场，加快AI布局。 知情人士透露，这款名为Migoo的AI陪伴聊天机器人已经上线，可能很快会进行更大规模发布。Migoo的网站和应用并未提及冬海为所有者。该应用直接接入苹果iMessage等平台，旨在充当高度个性化的陪
 
 ## 正文
 
-根据周二发布的4月27日至28日政策会议意见摘要，日本央行一名审议委员表示，央行完全有可能在下次会议或之后的会议上加息。
+在美股上市的新加坡互联网领军企业冬海集团（Sea Ltd．）正在包括美国在内的地区推出一款生成式人工智能（AI）聊天机器人，这是该公司首次进军竞争激烈的美国消费市场，加快AI布局。
 
-一名委员表示，如果通胀上行风险加大，当局需要以更快速度加息；一名委员表示，如果伊朗冲突持续，需要将政策利率提高至中性水平；一名委员表示，除非经济出现明确放缓迹象，否则央行应尽快加息；一名委员指出，日本实际利率处于全球最低水平之列；一名委员表示，根据经济和通胀形势发展来上调利率是合适的；一名委员表示，经济面临的主要下行风险来自通胀；另一名委员表示，鉴于中东冲突，央行需要观望。
+知情人士透露，这款名为Migoo的AI陪伴聊天机器人已经上线，可能很快会进行更大规模发布。
 
-责任编辑：王永生
+Migoo的网站和应用并未提及冬海为所有者。
+
+该应用直接接入苹果iMessage等平台，旨在充当高度个性化的陪伴型聊天机器人，能够记住用户的喜好和习惯。
+
+该项目是冬海迄今进军AI领域最重要的举措之一。
+
+冬海运营热门线上零售平台虾皮和游戏平台Garena，过去一年股价下跌逾40%，因其在AI领域落后于阿里巴巴和腾讯控股等亚洲同行。
+
+知情人士称，在美国，冬海的目标是利润丰厚且竞争激烈的Z世代AI市场，该市场由OpenAI和字节跳等公司主导。
+
+知情人士因讨论非公开计划而要求匿名。
 
 ## 相关推荐
 
-- 2026-06-30 05:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 05:34 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 05:54 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 05:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 05:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 05:43 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 05:34 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 05:57 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 05:31 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 05:57 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:53 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 05:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 05:36 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 05:57 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 06:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-30 05:36 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 06:05 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 05:53 - [日本进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 05:43 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 05:40 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 05:41 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 06:00 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 05:44 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 05:48 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:33 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/350036.shtml)
-- 2026-06-30 05:36 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/12353897249.shtml)
-- 2026-06-30 05:42 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/357070.shtml)
-- 2026-06-30 05:57 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/594078155975.shtml)
-- 2026-06-30 05:56 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/98787527.shtml)
-- 2026-06-30 05:30 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/431508204138.shtml)
-- 2026-06-30 05:59 - [巴西扳平比分](http://www.blog.minike.top/Article/details/50939463.shtml)
-- 2026-06-30 05:36 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/2784671353.shtml)
-- 2026-06-30 05:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/0884514036.shtml)
-- 2026-06-30 05:35 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/0061747858.shtml)
-- 2026-06-30 05:34 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/2949583638.shtml)
-- 2026-06-30 05:30 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/6785075082.shtml)
-- 2026-06-30 05:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/669919407291.shtml)
-- 2026-06-30 05:42 - [小娘惹](http://www.blog.minike.top/Article/details/42299.shtml)
-- 2026-06-30 05:39 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/63985269.shtml)
+- 2026-06-30 05:38 - [周生如故](http://www.share.minike.top/Article/details/0480769.shtml)
+- 2026-06-30 05:51 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/330420765.shtml)
+- 2026-06-30 06:01 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/5880019393.shtml)
+- 2026-06-30 05:59 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/91299.shtml)
+- 2026-06-30 05:38 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/52769889175.shtml)
+- 2026-06-30 05:58 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/4384356983.shtml)
+- 2026-06-30 05:43 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/567413509052.shtml)
+- 2026-06-30 05:39 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/421609956.shtml)
+- 2026-06-30 06:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/0893133757.shtml)
+- 2026-06-30 05:55 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/3285788345.shtml)
+- 2026-06-30 06:00 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/682553.shtml)
+- 2026-06-30 05:55 - [王欣瑜2-1击败科恰雷托](http://www.blog.kurohicncr.top/Article/details/7580385.shtml)
+- 2026-06-30 05:47 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/763832880.shtml)
+- 2026-06-30 05:59 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/289794403.shtml)
+- 2026-06-30 06:01 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/802411.shtml)

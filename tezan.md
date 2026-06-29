@@ -1,58 +1,58 @@
-# 一场“无电视”的发布会，揭开海信视像第二增长曲线
+# Cyberstarts凭借Cyera项目斩获丰厚回报，拟募集新一期基金
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。 50余年，海信沉淀了最硬核的显示底色。2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。正是循着这个战略，海信开始了全场景生态的探索。 “未来的智能硬件，屏幕
+在上周宣布完成 6 亿美元融资后，网络安全初创企业 Cyera 投后估值达到 120 亿美元，足以看出资本市场对这家聚焦人工智能赛道的网安企业抱有极高投资热情。这家成立五年的公司主打企业数据防护软件，可抵御黑客借助性能日益强大的人工智能工具发起的攻击，此前 Anthropic 也曾针对其 Mythos 大模型具备的网络攻击能力发出安全警示，侧面印证了该类威胁的现实性。 对于风投
 
 ## 正文
 
-5月8日，海信召开全场景新品发布会，推出涵盖海信和Vidda两大品牌的六款3C智能硬件新品。
+在上周宣布完成 6 亿美元融资后，网络安全初创企业 Cyera 投后估值达到 120 亿美元，足以看出资本市场对这家聚焦人工智能赛道的网安企业抱有极高投资热情。
 
-这是海信成立50多年来，海信视像第一次召开没有“电视”的发布会。
+这家成立五年的公司主打企业数据防护软件，可抵御黑客借助性能日益强大的人工智能工具发起的攻击，此前 Anthropic 也曾针对其 Mythos 大模型具备的网络攻击能力发出安全警示，侧面印证了该类威胁的现实性。
 
-50余年，海信沉淀了最硬核的显示底色。
+对于风投基金 Cyberstarts 而言，继去年从 Wiz 项目实现大额退出后，本次 Cyera 融资再次为其增添亮眼投资战绩。
 
-2019年，“海信电器”正式升级为“海信视像”，战略发展也更加笃定：要让屏幕突破物理边界，为用户提供有温度的陪伴。
+五年前，该基金向 Cyera 开出首轮 420 万美元种子轮投资，彼时企业估值仅 1500 万美元。
 
-正是循着这个战略，海信开始了全场景生态的探索。
+Cyberstarts 创始人吉利・拉安南表示，账面测算下来，这笔初始投资的回报倍率已经超过 224 倍。
 
-“未来的智能硬件，屏幕不再是配件，而是感知的核⼼入口。
+加上后续多轮追加投资，该机构持有 Cyera 股权的总市值现已突破 12 亿美元。
 
-既然技术走到了这里，海信作为显示龙头，就必须出现在这里！
+亮眼的投资业绩，将助力 Cyberstarts 为旗下第八期基金募资。
 
-”海信视像科技总裁李炜在发布会上公开了海信的发展逻辑：不是海信进⼊了3C，而是3C终于进⼊了“显示智能”时代。
+据知情人士透露，这家投资机构计划募集规模约 6000 万美元的种子基金。
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 05:47 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 05:42 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 05:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 05:34 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 05:47 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-30 05:45 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 05:40 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 05:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 05:41 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 05:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 05:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 05:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 06:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 05:42 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 05:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 05:50 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 05:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 05:58 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 05:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 05:59 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 05:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 05:40 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 05:36 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/149247.shtml)
-- 2026-06-30 05:43 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/80416903196.shtml)
-- 2026-06-30 05:50 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/97538470.shtml)
-- 2026-06-30 05:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/18415137040.shtml)
-- 2026-06-30 05:51 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/0625501.shtml)
-- 2026-06-30 05:54 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/91403733.shtml)
-- 2026-06-30 05:33 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/11553.shtml)
-- 2026-06-30 05:35 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/129016055.shtml)
-- 2026-06-30 05:51 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/39691645.shtml)
-- 2026-06-30 05:43 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/24159516.shtml)
-- 2026-06-30 05:53 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/3813736.shtml)
-- 2026-06-30 05:31 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/3683094299.shtml)
-- 2026-06-30 05:55 - [千香](https://www.share.minike.top/Article/details/8575266.shtml)
-- 2026-06-30 05:32 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/825579378974.shtml)
-- 2026-06-30 05:33 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/553693150467.shtml)
+- 2026-06-30 05:46 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/12308.shtml)
+- 2026-06-30 05:41 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/993055785275.shtml)
+- 2026-06-30 05:57 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/3675951832.shtml)
+- 2026-06-30 05:52 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/568530.shtml)
+- 2026-06-30 05:59 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/36260106707.shtml)
+- 2026-06-30 05:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/13873732.shtml)
+- 2026-06-30 06:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/5706768290.shtml)
+- 2026-06-30 05:50 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/39717.shtml)
+- 2026-06-30 05:42 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/12789387.shtml)
+- 2026-06-30 05:53 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/9896097864.shtml)
+- 2026-06-30 06:00 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/701246.shtml)
+- 2026-06-30 05:58 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/6196758852.shtml)
+- 2026-06-30 05:42 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/887378792506.shtml)
+- 2026-06-30 05:37 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/53529784.shtml)
+- 2026-06-30 05:41 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/133478000928.shtml)

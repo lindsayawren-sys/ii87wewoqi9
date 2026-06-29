@@ -1,57 +1,58 @@
-# 油市波动而非价格飙升将主导石油巨头战略
+# 中信银行新行长吕天贵，股东支持率出来了
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-石油巨头们正准备迎接能源市场的长期动荡，这应会抑制它们在伊朗战争后增加支出的任何冲动。如今最大的担忧不是错过下一轮上涨，而是站在必然到来的回落的反面。 中东冲突以及霍尔木兹海峡自2月28日以来近乎完全关闭，引发了一场前所未有的油气供应危机，将原油价格推高至每桶100美元以上，并引发全球范围内对替代供应的争夺。 即使美伊和平协议很快达成，损害也已经造成。全球超过13%的石油供应和
+来源：银瑞社 作者：许淑敏 回归中信银行一个月时间，吕天贵还未有太多对外公开活动。 他把更多时间，放在了内部经营事务上面。 吕天贵担任中信银行行长的任职资格，亦很快批复。 从中信银行5月20日官宣聘任吕天贵为行长及首席合规官，到6月15日监管批复任职资格，间隔不到一个月。 眼下，吕天贵又进入了中信银行董事会，担任执行董事一职。 6 月17日，中信银行举行了2025年年度股东会，
 
 ## 正文
 
-石油巨头们正准备迎接能源市场的长期动荡，这应会抑制它们在伊朗战争后增加支出的任何冲动。
+来源：银瑞社 作者：许淑敏 回归中信银行一个月时间，吕天贵还未有太多对外公开活动。
 
-如今最大的担忧不是错过下一轮上涨，而是站在必然到来的回落的反面。
+他把更多时间，放在了内部经营事务上面。
 
-中东冲突以及霍尔木兹海峡自2月28日以来近乎完全关闭，引发了一场前所未有的油气供应危机，将原油价格推高至每桶100美元以上，并引发全球范围内对替代供应的争夺。
+吕天贵担任中信银行行长的任职资格，亦很快批复。
 
-即使美伊和平协议很快达成，损害也已经造成。
+从中信银行5月20日官宣聘任吕天贵为行长及首席合规官，到6月15日监管批复任职资格，间隔不到一个月。
 
-全球超过13%的石油供应和约五分之一的液化天然气流量的损失，加上海湾地区能源基础设施的大面积破坏，可能会产生长期后果，为未来几年的价格奠定底部。
+眼下，吕天贵又进入了中信银行董事会，担任执行董事一职。
 
-从表面上看，这应是英国石油、雪佛龙、埃克森美孚、壳牌和道达尔能源等能源巨头增加支出、扩大生产和抢占市场份额的理想背景。
+6 月17日，中信银行举行了2025年年度股东会，其中通过了选举吕天贵为中信银行第七届董事会执行董事的议案。
 
-这五大巨头第一季度盈利均超出预期。
+很多人好奇，股东们对吕天贵是什么想法。
 
-然而，迄今为止该行业的反应却异常克制。
+从表决情况来看，A股股东同意票数326.4亿，占比99.96%，反对票数1223.37万，比例0.033%；H股股东同意票数78.92亿，比例98.7%，反对票数1.03亿，比例1.29%。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 05:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 05:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-30 05:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 05:32 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 05:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 05:50 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 05:34 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 05:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 05:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-30 05:52 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 06:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 05:40 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 06:01 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 05:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 05:49 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 05:54 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 06:01 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 05:58 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 05:47 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 05:54 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 05:36 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 05:56 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/761919.shtml)
-- 2026-06-30 05:56 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/31595796.shtml)
-- 2026-06-30 05:33 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/80003760132.shtml)
-- 2026-06-30 05:54 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/593321861.shtml)
-- 2026-06-30 05:33 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/684047600.shtml)
-- 2026-06-30 05:45 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/2763122022.shtml)
-- 2026-06-30 05:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/302218096998.shtml)
-- 2026-06-30 05:54 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/96789.shtml)
-- 2026-06-30 05:48 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/801310.shtml)
-- 2026-06-30 05:47 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/8346520.shtml)
-- 2026-06-30 05:34 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/641212928.shtml)
-- 2026-06-30 05:50 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/75527464295.shtml)
-- 2026-06-30 05:50 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/692276178057.shtml)
-- 2026-06-30 05:50 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/68666781411.shtml)
-- 2026-06-30 05:36 - [千与千寻](https://www.blog.minike.top/Article/details/9466457617.shtml)
+- 2026-06-30 05:38 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/9361360.shtml)
+- 2026-06-30 06:00 - [啊啊啊](http://www.blog.minike.top/Article/details/87910182735.shtml)
+- 2026-06-30 06:05 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/545370050.shtml)
+- 2026-06-30 05:49 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/545514.shtml)
+- 2026-06-30 05:51 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/106061448176.shtml)
+- 2026-06-30 06:01 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/426886634639.shtml)
+- 2026-06-30 05:39 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/007479.shtml)
+- 2026-06-30 05:55 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/87933.shtml)
+- 2026-06-30 05:52 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/115425970.shtml)
+- 2026-06-30 05:58 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/991303.shtml)
+- 2026-06-30 05:47 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/45646.shtml)
+- 2026-06-30 06:04 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/0038323267.shtml)
+- 2026-06-30 05:58 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/777723.shtml)
+- 2026-06-30 05:58 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/88199604.shtml)
+- 2026-06-30 05:55 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/04513108.shtml)

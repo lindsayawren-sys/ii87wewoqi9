@@ -1,57 +1,56 @@
-# 抗震救灾综合实战演练在西藏林芝拉开帷幕
+# 孟广禄、杭间、孙晓云分别当选新一届中国剧协、中国民协、中国书协主席
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网拉萨5月12日电 (费贤浩 刘远福 杨海涛)近日，“应急练兵·林芝2026”抗震救灾综合实战演练在林芝市拉开帷幕。模拟西藏林芝市发生5.6级地震，震源深度12千米，瞬间“造成”民房倒塌、人员被埋、道路与通信三断—真实感拉满的灾情设定。 林芝消防救援机动支队闻令即动，50名指战员、16台救援车辆、800余件专业装备火速集结，按“全要素、全流程、全实战”标准，第一时间挺进“灾
+新华社北京6月18日电(记者王思北)中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会18日分别在京闭幕。孟广禄当选中国戏剧家协会第十届主席、杭间当选中国民间文艺家协会第十一届主席、孙晓云当选中国书法家协会第九届主席。王勇、王馗、王红丽、王滨梅、尹晓东、田沁鑫、冯俐、冯远征、李梅、谷好好、陈涌泉、陈智林、曾小敏、谢涛当选中
 
 ## 正文
 
-中新网拉萨5月12日电 (费贤浩 刘远福 杨海涛)近日，“应急练兵·林芝2026”抗震救灾综合实战演练在林芝市拉开帷幕。
+新华社北京6月18日电(记者王思北)中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会18日分别在京闭幕。
 
-模拟西藏林芝市发生5.6级地震，震源深度12千米，瞬间“造成”民房倒塌、人员被埋、道路与通信三断—真实感拉满的灾情设定。
+孟广禄当选中国戏剧家协会第十届主席、杭间当选中国民间文艺家协会第十一届主席、孙晓云当选中国书法家协会第九届主席。
 
-林芝消防救援机动支队闻令即动，50名指战员、16台救援车辆、800余件专业装备火速集结，按“全要素、全流程、全实战”标准，第一时间挺进“灾区”。
+王勇、王馗、王红丽、王滨梅、尹晓东、田沁鑫、冯俐、冯远征、李梅、谷好好、陈涌泉、陈智林、曾小敏、谢涛当选中国剧协第十届副主席。
 
-但这次演练的亮点，远不止“快”。
+伊和白乙拉、刘晓春、安德明、孙立新、张宇、林继富、郑春辉、姚建萍、徐粤春、郭崇林、彭恒礼、谢亚平、蔡葩、漆凌云当选中国民协第十一届副主席。
 
-演练现场，除了传统的破拆、搜救、森林灭火和水域救援科目，无人机灭火与无人机投送物资成为最大看点。
+马勇明、王瑞、叶培贵、刘月卯、沈浩、张继、张红春、周斌、孟庆星、徐海、韩戾军、漆钢、颜奕端、潘善助当选中国书协第九届副主席。
 
-只见一架重型无人机吊载灭火弹精准扑灭模拟火点；另一架则穿越“断路”区域，将急救包、卫星电话等物资空投至“孤岛”被困人员手中——高原复杂地形下的“最后一公里”，被科技打通。
+中国戏剧家协会第十次全国代表大会、中国民间文艺家协会第十一次全国代表大会、中国书法家协会第九次全国代表大会于6月17日至18日在北京召开。
 
-海拔高、含氧低、路况险，历来是高原救援的痛点。
-
-此次演练重点检验了队伍在高海拔环境下的快速响应、力量投送与协同作战能力。
+与会代表分别审议通过了工作报告，修订了《中国戏剧家协会章程》《中国民间文艺家协会章程》《中国书法家协会章程》，选举产生了中国戏剧家协会、中国民间文艺家协会、中国书法家协会新一届领导机构。
 
 ## 相关推荐
 
-- 2026-06-30 05:40 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 05:48 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 05:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 05:51 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 05:46 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 05:51 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 05:56 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 05:31 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 05:35 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 05:59 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 05:34 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 05:44 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 05:44 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 06:02 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 05:37 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 05:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 05:36 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 05:59 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 05:58 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 05:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 05:53 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 05:42 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 05:42 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:45 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/90222337615.shtml)
-- 2026-06-30 05:54 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/88836349412.shtml)
-- 2026-06-30 05:53 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/689831.shtml)
-- 2026-06-30 05:34 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/02660863127.shtml)
-- 2026-06-30 05:32 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/047306091180.shtml)
-- 2026-06-30 05:36 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/39181001153.shtml)
-- 2026-06-30 05:38 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/459841.shtml)
-- 2026-06-30 05:45 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/8260112.shtml)
-- 2026-06-30 05:41 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/89285.shtml)
-- 2026-06-30 05:42 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/768583341.shtml)
-- 2026-06-30 05:45 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/8268330.shtml)
-- 2026-06-30 05:58 - [千香](https://www.blog.kurohicncr.top/Article/details/63528577.shtml)
-- 2026-06-30 05:36 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/08573622.shtml)
-- 2026-06-30 05:46 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/01794050.shtml)
-- 2026-06-30 05:59 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/061111974822.shtml)
+- 2026-06-30 05:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/868881048.shtml)
+- 2026-06-30 06:01 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/442266400.shtml)
+- 2026-06-30 05:51 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/477478230971.shtml)
+- 2026-06-30 05:36 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/116517237575.shtml)
+- 2026-06-30 05:59 - [森保一 保守](http://www.share.minike.top/Article/details/1020365664.shtml)
+- 2026-06-30 06:03 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/568412.shtml)
+- 2026-06-30 05:40 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/268249.shtml)
+- 2026-06-30 06:05 - [孙兴慜道歉](http://www.share.minike.top/Article/details/2617587.shtml)
+- 2026-06-30 05:49 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/88948032971.shtml)
+- 2026-06-30 05:58 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/87979254.shtml)
+- 2026-06-30 05:45 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/27352894.shtml)
+- 2026-06-30 05:52 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/6708083012.shtml)
+- 2026-06-30 06:05 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/36736.shtml)
+- 2026-06-30 05:53 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/37032.shtml)
+- 2026-06-30 05:55 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/28075756.shtml)

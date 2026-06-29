@@ -1,61 +1,60 @@
-# 凌晨直线拉升！美伊谈判突变！特朗普最新发声
+# 甘肃前5个月对东盟出口量质齐升 新能源装备精密五金等持续扩容
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-美伊停火谈判陷入僵局。 今日（12日）凌晨，据新华社消息，美国总统特朗普当地时间5月11日表示，目前美国同伊朗的停火协议“极其脆弱”，正处于“岌岌可危”的状态。他称美方方案核心是“伊朗绝不能拥有核武器”，但伊方未作此承诺。受此影响，国际油价直线拉升，WTI原油期货6月合约收涨2.78%，布伦特原油期货7月合约收涨2.88%。 另外，一名伊朗官员当地时间11日表示，伊朗与美国之间
+【东盟专线】甘肃前5个月对东盟出口量质齐升 新能源装备精密五金等持续扩容 中新社兰州6月17日电 (记者 冯志军)中国兰州海关17日发布消息称，今年前5个月，甘肃省对东盟国家出口15.5亿元(人民币，下同)，同比增长22.4%。据统计，该省对东盟出口农产品3.1亿元，高附加值特色农产品占比持续提升；出口机电产品4.8亿元，同比增长87.4%。 “新能源装备、精密五金、农用机械等
 
 ## 正文
 
-美伊停火谈判陷入僵局。
+【东盟专线】甘肃前5个月对东盟出口量质齐升 新能源装备精密五金等持续扩容 中新社兰州6月17日电 (记者 冯志军)中国兰州海关17日发布消息称，今年前5个月，甘肃省对东盟国家出口15.5亿元(人民币，下同)，同比增长22.4%。
 
-今日（12日）凌晨，据新华社消息，美国总统特朗普当地时间5月11日表示，目前美国同伊朗的停火协议“极其脆弱”，正处于“岌岌可危”的状态。
+据统计，该省对东盟出口农产品3.1亿元，高附加值特色农产品占比持续提升；出口机电产品4.8亿元，同比增长87.4%。
 
-他称美方方案核心是“伊朗绝不能拥有核武器”，但伊方未作此承诺。
+“新能源装备、精密五金、农用机械等新兴出口品类持续扩容，甘肃对东盟出口产业结构持续优化。
 
-受此影响，国际油价直线拉升，WTI原油期货6月合约收涨2.78%，布伦特原油期货7月合约收涨2.88%。
+”据兰州海关介绍，今年以来立足甘肃特色农业、新能源装备、有色金属加工等优势产业，企业精准对接东盟市场刚需，全链条保障“甘肃造”产品高效出海。
 
-另外，一名伊朗官员当地时间11日表示，伊朗与美国之间的谈判在浓缩铀的处置、暂停铀浓缩活动期限以及战争赔偿等问题上存在严重分歧。
+近年来，作为内陆省份，甘肃充分发挥与东盟在种子、新鲜果蔬、矿产品、轴承等产品双边贸易方面的互补优势，不断增进双方贸易往来，强化互联互通。
 
-目前，美股市场似乎对油价、局势的相关动态呈现“免疫”态势。
+目前，甘肃对东盟贸易呈现“资源进口、特色出口”双向发力的良好格局。
 
-受AI热潮持续推动，美股三大指数均小幅收涨，其中标普500指数、纳指再度创出历史新高。
+兰州海关表示，针对甘肃鲜果蔬菜、道地中药材等鲜活易腐农食产品，以及光伏组件、储能电池等特色产品，未来将持续优化监管作业模式，推广远程属地查检、汇总申报等便利化举措，助力甘肃企业进一步深耕东盟市场。
 
-美股全线收涨 美东时间5月11日，美股三大指数集体收涨，道指涨0.19%，纳指涨0.1%，标普500指数涨0.19%。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 05:35 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 05:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 05:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 05:51 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 05:39 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 05:56 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 05:45 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 05:33 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 05:44 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 05:57 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 05:34 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 05:56 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 05:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 05:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 05:41 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-30 05:46 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 05:57 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 05:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 05:50 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 05:51 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 05:44 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 05:55 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 06:05 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 05:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 05:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 05:37 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 05:49 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 06:04 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:52 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/22685179.shtml)
-- 2026-06-30 05:32 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/01098699243.shtml)
-- 2026-06-30 05:51 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/49801361495.shtml)
-- 2026-06-30 05:54 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/49673074178.shtml)
-- 2026-06-30 05:49 - [啊啊啊](http://www.blog.minike.top/Article/details/048034803617.shtml)
-- 2026-06-30 05:54 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/347236.shtml)
-- 2026-06-30 05:31 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/6788267179.shtml)
-- 2026-06-30 05:45 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/529994.shtml)
-- 2026-06-30 05:44 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/5920697.shtml)
-- 2026-06-30 05:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/60000.shtml)
-- 2026-06-30 05:56 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/72292015987.shtml)
-- 2026-06-30 05:37 - [流金岁月](http://www.share.kurohicncr.top/Article/details/336182.shtml)
-- 2026-06-30 05:53 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/8368721.shtml)
-- 2026-06-30 05:41 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/9009054953.shtml)
-- 2026-06-30 05:41 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/037288797177.shtml)
+- 2026-06-30 05:51 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/4640920972.shtml)
+- 2026-06-30 05:52 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/17033427097.shtml)
+- 2026-06-30 05:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/39171.shtml)
+- 2026-06-30 06:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/736576.shtml)
+- 2026-06-30 06:05 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/540506563483.shtml)
+- 2026-06-30 05:44 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/99755.shtml)
+- 2026-06-30 05:54 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/19678186.shtml)
+- 2026-06-30 06:02 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/95756470.shtml)
+- 2026-06-30 05:38 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/02148129.shtml)
+- 2026-06-30 05:40 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/4747230347.shtml)
+- 2026-06-30 05:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/86848.shtml)
+- 2026-06-30 05:57 - [扫黑风暴](https://www.share.minike.top/Article/details/3293754357.shtml)
+- 2026-06-30 05:44 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/36631464753.shtml)
+- 2026-06-30 05:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/67811250.shtml)
+- 2026-06-30 05:41 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/96231347.shtml)

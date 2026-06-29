@@ -1,61 +1,47 @@
-# 406亿！科创板史上最大规模并购重组案过会！
+# 肯特股份：公司PEEK制品主要应用于通用机械、新能源等领域
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 5月11日晚间，上交所官网显示，中芯国际（688981）筹划的并购重组事项获并购重组审核委员会审议通过。按照约406亿元的交易价格，该交易系科创板史上最大规模并购重组案。 据上交所官网，中芯国际并购重组事项于2026年2月25日获得受理，3月9日进入问询阶段。 重大资产重组报告书显示，中芯国
+证券日报网讯 6月18日，肯特股份在互动平台回答投资者提问时表示，公司PEEK制品主要应用于通用机械、新能源等领域，PEEK等高分子材料可应用于机器人轻量化解决方案，具体业务情况请关注公司的定期报告。（文章来源：证券日报）
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+证券日报网讯 6月18日，肯特股份在互动平台回答投资者提问时表示，公司PEEK制品主要应用于通用机械、新能源等领域，PEEK等高分子材料可应用于机器人轻量化解决方案，具体业务情况请关注公司的定期报告。
 
-来源：资本秘闻 5月11日晚间，上交所官网显示，中芯国际（688981）筹划的并购重组事项获并购重组审核委员会审议通过。
-
-按照约406亿元的交易价格，该交易系科创板史上最大规模并购重组案。
-
-据上交所官网，中芯国际并购重组事项于2026年2月25日获得受理，3月9日进入问询阶段。
-
-重大资产重组报告书显示，中芯国际拟向国家集成电路基金、集成电路投资中心、亦庄国投、中关村发展、北京工投发行股份购买其所持有的中芯北方49%股权，交易价格约为406亿元。
-
-中芯国际表示，中芯北方主要为客户提供不同工艺平台的12英寸集成电路晶圆代工及配套服务。
-
-本次交易完成后，公司将持有中芯北方100%的股权，中芯北方将成为公司的全资子公司。
-
-文/资本秘闻责任编辑：杨红卜
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 05:52 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 05:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 05:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 05:35 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 05:55 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 05:34 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 05:51 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 05:38 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 05:39 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 05:38 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 05:30 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 05:53 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 05:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 05:38 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 05:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 05:47 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 05:55 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 05:49 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 06:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 05:55 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 05:44 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 05:45 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 06:01 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 05:56 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 05:47 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 05:51 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 05:41 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:43 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/4806797145.shtml)
-- 2026-06-30 05:43 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/90422.shtml)
-- 2026-06-30 05:46 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/605701.shtml)
-- 2026-06-30 05:51 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/28732726.shtml)
-- 2026-06-30 05:33 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/37192304225.shtml)
-- 2026-06-30 05:51 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/144016.shtml)
-- 2026-06-30 05:37 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/25634251955.shtml)
-- 2026-06-30 05:54 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/0965363607.shtml)
-- 2026-06-30 05:44 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/40916847937.shtml)
-- 2026-06-30 05:57 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/45214.shtml)
-- 2026-06-30 05:54 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/86963059241.shtml)
-- 2026-06-30 05:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/033613303.shtml)
-- 2026-06-30 05:58 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/890512391.shtml)
-- 2026-06-30 05:58 - [内马尔替补](http://www.blog.minike.top/Article/details/0836017661.shtml)
-- 2026-06-30 05:32 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/4622074820.shtml)
+- 2026-06-30 05:56 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/1277335402.shtml)
+- 2026-06-30 06:03 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/624748012.shtml)
+- 2026-06-30 05:49 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/94512092684.shtml)
+- 2026-06-30 05:46 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/250734870.shtml)
+- 2026-06-30 05:52 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/97055.shtml)
+- 2026-06-30 05:53 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/57291.shtml)
+- 2026-06-30 05:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/29045184523.shtml)
+- 2026-06-30 05:53 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/494768106189.shtml)
+- 2026-06-30 05:38 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/35839708151.shtml)
+- 2026-06-30 05:49 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/11238706.shtml)
+- 2026-06-30 06:03 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/358725932.shtml)
+- 2026-06-30 05:37 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/67121417938.shtml)
+- 2026-06-30 06:04 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/55530146744.shtml)
+- 2026-06-30 05:42 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/12481495991.shtml)
+- 2026-06-30 05:42 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/79356848519.shtml)

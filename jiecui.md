@@ -1,59 +1,56 @@
-# 紫金银行2025年业绩“失速”：净利骤降、息差垫底、资产质量走弱
+# 酒价内参6月18日价格发布：国窖1573下跌5元
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-近日，紫金银行（601860.SH）披露2025年年报及2026年一季报显示，该行经营面临多重压力，业绩出现明显失速，净息差持续收窄且处于行业垫底水平，资产质量承压下不良率实现三连升，同时现金流与资本充足率指标呈现波动下滑态势。 证券之星注意到，尽管管理层已推出多项举措试图改善经营状况，2026年一季度出现边际企稳迹象，但在银行业资产荒与息差收窄的大背景下，区域性农商行的转型突
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月18日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9907元，较昨日下跌18元，连续三日回落并创下四天以来最低。今日除飞天茅台与青花郎上涨外，其余品种均回落，终端交投情绪环比明显降温。 今日11大白酒单品二涨九跌，输家
 
 ## 正文
 
-近日，紫金银行（601860.SH）披露2025年年报及2026年一季报显示，该行经营面临多重压力，业绩出现明显失速，净息差持续收窄且处于行业垫底水平，资产质量承压下不良率实现三连升，同时现金流与资本充足率指标呈现波动下滑态势。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月18日整体温和回落。
 
-证券之星注意到，尽管管理层已推出多项举措试图改善经营状况，2026年一季度出现边际企稳迹象，但在银行业资产荒与息差收窄的大背景下，区域性农商行的转型突围仍面临严峻挑战。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9907元，较昨日下跌18元，连续三日回落并创下四天以来最低。
 
-业绩失速，息差持续收窄 根据紫金银行财报显示，2025年年度营业收入41.18亿元，同比下降7.72%；归母净利润为12.44亿元，同比下降23.35%；基本每股收益为0.34元/股，同比下降22.73%。
+今日除飞天茅台与青花郎上涨外，其余品种均回落，终端交投情绪环比明显降温。
 
-财报显示，该行净息差2025年降至1.13%，较2024年的1.42%大幅下降0.29个百分点，在10家A股上市农商行中排名垫底，也是唯一一家净息差低于1.20%的银行。
+今日11大白酒单品二涨九跌，输家数量占据绝对优势。
 
-这一数值不仅远低于2025年商业银行1.42%的平均净息差水平，与农商行1.60%的行业均值更是存在显著差距。
+上涨方面，青花郎涨幅居前，上涨9元/瓶，创下近一月最大单日涨幅，连续两日上涨并升至近一月最高位；飞天茅台小幅上涨2元/瓶。
 
-进入2026年一季度，这一趋势仍未得到扭转，净息差进一步下探至1.08%，在A股上市银行中垫底。
+下跌方面，五粮液普五八代的跌幅居前，下跌7元/瓶，创近一月最大单日跌幅，重新回落至810元下方；国窖1573下跌5元/瓶，连续三日回落，价格跌至近一月次低位；精品茅台下跌4元/瓶，亦滑落至近一月次低位；青花汾20与古井贡古20均下跌3元/瓶，其中前者连续三日回落并创下近一月最低价；五粮液1618、洋河梦之蓝M6+与习酒君品均下跌2元/瓶；水晶剑南春小幅下跌1元/瓶，平进入六月以来的最低价纪录。
 
-净息差的持续收窄直接导致利息净收入大幅萎缩。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-2025年，紫金银行实现利息净收入31.09亿元，同比下降15.37%，成为营收下滑的最主要原因。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 05:32 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 05:30 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 05:53 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 05:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 05:52 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 05:57 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 05:52 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 05:37 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 05:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 05:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-30 05:43 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 05:34 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 05:39 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 05:46 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 06:05 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 05:46 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 05:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 05:57 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 05:54 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 05:44 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 06:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 05:58 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:38 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/1141445.shtml)
-- 2026-06-30 05:36 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/016079702.shtml)
-- 2026-06-30 05:51 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/8695777.shtml)
-- 2026-06-30 05:35 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/09923.shtml)
-- 2026-06-30 05:30 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/9057370.shtml)
-- 2026-06-30 05:31 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/9607384462.shtml)
-- 2026-06-30 05:56 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/293098195161.shtml)
-- 2026-06-30 05:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/85934.shtml)
-- 2026-06-30 05:48 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/19358844.shtml)
-- 2026-06-30 05:46 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/095821.shtml)
-- 2026-06-30 05:49 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/42649.shtml)
-- 2026-06-30 05:46 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/05791.shtml)
-- 2026-06-30 05:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/399352.shtml)
-- 2026-06-30 05:58 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/1957517.shtml)
-- 2026-06-30 05:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/92169214.shtml)
+- 2026-06-30 05:55 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/72820.shtml)
+- 2026-06-30 06:02 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/8420500384.shtml)
+- 2026-06-30 05:56 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/4972598.shtml)
+- 2026-06-30 06:00 - [锐评T1零封KC](https://www.share.minike.top/Article/details/71083121217.shtml)
+- 2026-06-30 06:03 - [85花告别古偶](https://www.blog.minike.top/Article/details/85641.shtml)
+- 2026-06-30 05:41 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/98206001.shtml)
+- 2026-06-30 06:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/990371.shtml)
+- 2026-06-30 06:02 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/241747742910.shtml)
+- 2026-06-30 05:59 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/03670.shtml)
+- 2026-06-30 05:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/6490855536.shtml)
+- 2026-06-30 05:44 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/748973282838.shtml)
+- 2026-06-30 05:59 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/1535709.shtml)
+- 2026-06-30 05:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/881516857.shtml)
+- 2026-06-30 05:48 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/9483511.shtml)
+- 2026-06-30 05:54 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/29796261.shtml)

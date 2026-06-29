@@ -1,58 +1,55 @@
-# 知名牛散举牌！603052，“一字”涨停
+# 大肠面线、深坑臭豆腐、香葱肉卷……这些台湾小吃亮相北京市集
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月12日开盘，可川科技（603052）“一字”涨停。 5月11日晚间，可川科技公告称，屠文斌、屠施恩、施玉庆通过集中竞价交易合计增持公司股份940.41万股，持股比例达到5%，触及举牌线。 屠施恩为屠文斌之子，施玉庆为屠文斌的配偶，三人为一致行动人。 公告显示，此次增持区间为2026年4月13日至5月11日。其中，屠文斌增持2
+发布时间：2026年06月17日 17:10 来源：中国新闻网 “美丽乡村·洽洽GO”六月市集6月16日在北京开市，三十多家台湾小吃摊集中亮相。现场既有大肠包小肠、蚵仔煎、大肠面线等传统小吃，也有香葱肉卷等“新式创造”。 来自桃园市的摊主徐惠美带着徒弟姚坤廷一同出摊，一人卖面线，一人卖铜锣烧和鸡蛋仔。徐惠美介绍了加入“山珍海味”的大肠面线，她希望更多台湾青年能来大陆看看，“大陆
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 5月12日开盘，可川科技（603052）“一字”涨停。
+发布时间：2026年06月17日 17:10 来源：中国新闻网 “美丽乡村·洽洽GO”六月市集6月16日在北京开市，三十多家台湾小吃摊集中亮相。
 
-5月11日晚间，可川科技公告称，屠文斌、屠施恩、施玉庆通过集中竞价交易合计增持公司股份940.41万股，持股比例达到5%，触及举牌线。
+现场既有大肠包小肠、蚵仔煎、大肠面线等传统小吃，也有香葱肉卷等“新式创造”。
 
-屠施恩为屠文斌之子，施玉庆为屠文斌的配偶，三人为一致行动人。
+来自桃园市的摊主徐惠美带着徒弟姚坤廷一同出摊，一人卖面线，一人卖铜锣烧和鸡蛋仔。
 
-公告显示，此次增持区间为2026年4月13日至5月11日。
+徐惠美介绍了加入“山珍海味”的大肠面线，她希望更多台湾青年能来大陆看看，“大陆市场很大，创业机会也比较多”。
 
-其中，屠文斌增持287万股，占总股本的比例为1.53%；屠施恩增持376.41万股，占比2%；施玉庆增持277万股，占比1.47%。
-
-三人此前均未持有可川科技股份。
-
-权益变动报告书称，本次增持后公司控股股东、实际控制人未发生变化，三人所持股份均为无限售流通股，无质押或冻结情况。
-
-信息披露义务人表示，未来12个月内不排除根据市场情况进一步增减持的可能。
+(姜姿屹 张杨彬 制作 王佳琪） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 05:47 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 05:37 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 05:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 05:43 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 05:32 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 05:36 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 05:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 05:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 05:33 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 05:51 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 05:50 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-30 05:34 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 05:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 05:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 05:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 05:46 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 05:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 05:51 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 05:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 05:40 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 05:37 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 05:51 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 06:05 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 05:55 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-30 05:46 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 05:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 05:42 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:30 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/0063809.shtml)
-- 2026-06-30 05:30 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/58334528053.shtml)
-- 2026-06-30 05:54 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/08271615456.shtml)
-- 2026-06-30 05:59 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/96683257985.shtml)
-- 2026-06-30 05:54 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/92007133.shtml)
-- 2026-06-30 05:34 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/550704954914.shtml)
-- 2026-06-30 05:45 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/563580309832.shtml)
-- 2026-06-30 05:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/0976543.shtml)
-- 2026-06-30 05:32 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/499579.shtml)
-- 2026-06-30 05:40 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/458445.shtml)
-- 2026-06-30 05:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/39803880.shtml)
-- 2026-06-30 05:36 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/09064916.shtml)
-- 2026-06-30 05:34 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/186154042799.shtml)
-- 2026-06-30 05:48 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/2610171188.shtml)
-- 2026-06-30 05:36 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/30853159.shtml)
+- 2026-06-30 06:00 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/16362.shtml)
+- 2026-06-30 05:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/73911664379.shtml)
+- 2026-06-30 05:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/05026805163.shtml)
+- 2026-06-30 05:55 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/0259861576.shtml)
+- 2026-06-30 05:44 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/4167925499.shtml)
+- 2026-06-30 05:45 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/81317972.shtml)
+- 2026-06-30 05:44 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/77493953.shtml)
+- 2026-06-30 05:54 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/85834998.shtml)
+- 2026-06-30 05:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/13072889894.shtml)
+- 2026-06-30 05:47 - [扬名立万](https://www.share.minike.top/Article/details/776614947154.shtml)
+- 2026-06-30 05:42 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/36207572074.shtml)
+- 2026-06-30 05:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/6734338793.shtml)
+- 2026-06-30 06:04 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/38261.shtml)
+- 2026-06-30 06:03 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/8730808.shtml)
+- 2026-06-30 05:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/547717360.shtml)

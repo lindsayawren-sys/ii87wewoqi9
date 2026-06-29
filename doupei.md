@@ -1,61 +1,49 @@
-# 中国“两高”发文明确非法占用耕地建房、建坟等合约无效
+# 电投能源：基于经营发展需要，公司本部已于2026年5月末搬迁至内蒙古自治区呼和浩特市
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新社北京5月11日电 (记者 张素)中国最高人民法院、最高人民检察院11日发布的司法解释明确，当事人约定占用耕地建房、建窑、建坟等，以及约定买卖、租赁建在耕地上的房屋等内容违反土地管理法的禁止性规定的，人民法院应当认定该约定无效。为正确办理非法占用耕地案件，保障国家粮食安全，“两高”发布关于办理非法占用耕地案件适用法律若干问题的规定。这部综合性司法解释共21条，自今年5月18
+证券日报网讯 6月18日，电投能源在互动平台回答投资者提问时表示，基于经营发展需要，公司本部已于2026年5月末搬迁至内蒙古自治区呼和浩特市。公司始终致力于长期健康发展，通过扎实的经营业绩回报广大投资者。（文章来源：证券日报）
 
 ## 正文
 
-中新社北京5月11日电 (记者 张素)中国最高人民法院、最高人民检察院11日发布的司法解释明确，当事人约定占用耕地建房、建窑、建坟等，以及约定买卖、租赁建在耕地上的房屋等内容违反土地管理法的禁止性规定的，人民法院应当认定该约定无效。
+证券日报网讯 6月18日，电投能源在互动平台回答投资者提问时表示，基于经营发展需要，公司本部已于2026年5月末搬迁至内蒙古自治区呼和浩特市。
 
-为正确办理非法占用耕地案件，保障国家粮食安全，“两高”发布关于办理非法占用耕地案件适用法律若干问题的规定。
+公司始终致力于长期健康发展，通过扎实的经营业绩回报广大投资者。
 
-这部综合性司法解释共21条，自今年5月18日起施行。
-
-记者从11日举行的新闻发布会上获悉，2020年至2025年，全国法院共审结耕地保护领域行政案件23.98万余件、民事案件39.97万余件、刑事案件45667件，并办结耕地保护领域执行案件14361件。
-
-最高人民法院行政审判庭庭长耿宝建表示，新的司法解释明确非法占用耕地合同的效力及相应法律后果，依法追究非法占用耕地行为人的民事法律责任。
-
-另据统计，2023年以来，全国检察机关共办理非法占用耕地，导致破坏生态环境和资源保护的公益诉讼案件1.7万余件，监督保护耕地46.87万亩，督促缴纳耕地修复费用16.05亿元人民币。
-
-最高人民检察院法律政策研究室主任杨剑波表示，此次发布的司法解释为统一法律适用、依法保护耕地奠定了坚实基础。
-
-(完)
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 05:55 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 05:53 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 05:36 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 05:47 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 05:35 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 05:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 05:57 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 05:55 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 05:57 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 05:45 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 05:30 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 05:57 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 05:58 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 05:37 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 05:32 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 05:38 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 05:50 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 05:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 05:47 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 05:39 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 05:56 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 06:01 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 05:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 05:45 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 05:42 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 06:01 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 05:59 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 05:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:49 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/543255.shtml)
-- 2026-06-30 05:48 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/714337451.shtml)
-- 2026-06-30 05:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/138738876892.shtml)
-- 2026-06-30 05:33 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/735908249838.shtml)
-- 2026-06-30 05:42 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/097088.shtml)
-- 2026-06-30 05:46 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/18895007510.shtml)
-- 2026-06-30 05:45 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/032963525.shtml)
-- 2026-06-30 05:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/517933.shtml)
-- 2026-06-30 05:57 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/2754887344.shtml)
-- 2026-06-30 05:37 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/80811285.shtml)
-- 2026-06-30 05:59 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/84139597.shtml)
-- 2026-06-30 05:51 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/64566999.shtml)
-- 2026-06-30 05:46 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/70856.shtml)
-- 2026-06-30 05:59 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/0233528357.shtml)
-- 2026-06-30 05:34 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/7889090679.shtml)
+- 2026-06-30 05:40 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/2290248.shtml)
+- 2026-06-30 05:39 - [女心理师](http://www.share.kurohicncr.top/Article/details/92859.shtml)
+- 2026-06-30 05:59 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/0170993.shtml)
+- 2026-06-30 05:39 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/2275815.shtml)
+- 2026-06-30 05:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/4594416436.shtml)
+- 2026-06-30 05:48 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/228292.shtml)
+- 2026-06-30 05:38 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/4478243660.shtml)
+- 2026-06-30 05:44 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/06119.shtml)
+- 2026-06-30 06:02 - [沉睡花园](http://www.blog.minike.top/Article/details/6780210291.shtml)
+- 2026-06-30 06:00 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/06432.shtml)
+- 2026-06-30 06:01 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/5414848.shtml)
+- 2026-06-30 06:03 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/56420722.shtml)
+- 2026-06-30 05:46 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/03010.shtml)
+- 2026-06-30 05:48 - [斛珠夫人](https://www.share.minike.top/Article/details/998813149.shtml)
+- 2026-06-30 05:37 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/6520445.shtml)

@@ -1,60 +1,57 @@
-# AI短剧冲击下，红果保底15亿扶持真人剧
+# 上海波音航空改装维修工程有限公司新机库启用
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。 这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。 5月12日，抖音集团短剧版权中心举办首届短剧产业大会。红果短剧总编辑乐力的很多观点围
+中新网上海6月17日电 (记者 殷立勤)6月17日，上海波音航空改装维修工程有限公司(以下简称“上海波音”)全新的先进机库正式启用。这标志着以上海浦东国际机场为基地、已为全球航空业服务20年的上海波音在产能扩张上迈出了重要一步。 新机库位于上海自贸区临港新片区的洋山特殊综合保税区，可同时容纳四架宽体机和两架窄体机。该设施配备了先进的部件修理车间，并遵循高标准的安全与质量要求，使
 
 ## 正文
 
-界面新闻记者 | 伍洋宇 界面新闻编辑 | 文姝琪 在一个兴起不久便开始经历某种结构性调整的内容产业里，来自抖音集团短剧版权中心的态度很明确：加大对真人短剧的投入与扶持，加强对AI漫剧的治理与管控。
+中新网上海6月17日电 (记者 殷立勤)6月17日，上海波音航空改装维修工程有限公司(以下简称“上海波音”)全新的先进机库正式启用。
 
-这的确能够提升内容质量，但对行业中的众多从业者而言，这对他们正在经历的挑战可能起不了什么作用。
+这标志着以上海浦东国际机场为基地、已为全球航空业服务20年的上海波音在产能扩张上迈出了重要一步。
 
-5月12日，抖音集团短剧版权中心举办首届短剧产业大会。
+新机库位于上海自贸区临港新片区的洋山特殊综合保税区，可同时容纳四架宽体机和两架窄体机。
 
-红果短剧总编辑乐力的很多观点围绕对真人短剧的判断。
+该设施配备了先进的部件修理车间，并遵循高标准的安全与质量要求，使上海波音能继续提供全方位的服务，包括保税飞机维修与改装、工程服务以及飞机物料管理。
 
-他表示，真人短剧的价值在于对人和生活的贴近，背后的真情实感仍然是行业发展的核心。
+与之前的设施相比，作为中国同类型中最大单跨结构的上海波音新机库，将以更强的产能和实力满足全球及国内航空公司对高效服务日益增长的需求。
 
-乐力透露，短剧版权中心近期推出了多项真人短剧扶持计划。
+上海波音首席执行官马克·西森(Mark Sisson)表示：“这座新机库体现了波音公司对卓越运营和客户合作的长期承诺。
 
-例如，针对真人剧核心品类调高内容分成比例。
+团队已经准备好以更快的周转时间和更强的技术深度为航空公司提供支持。
 
-该中心5月11日发布的新政策公告显示，自然流量场景下，真人剧付费内容分成比例从70%调高至80%，免费内容广告分成预算同等调高。
+”(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:52 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-30 05:41 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 05:34 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-30 05:38 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 05:45 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 05:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 05:56 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 05:42 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 05:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-30 05:36 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 05:52 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-30 05:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 05:31 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 05:48 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 05:44 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 05:46 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 05:39 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 06:03 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 06:04 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 05:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 05:43 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 06:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 05:50 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 05:53 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 05:44 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/94400116749.shtml)
-- 2026-06-30 05:42 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/677243407.shtml)
-- 2026-06-30 05:32 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/89595446.shtml)
-- 2026-06-30 05:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/566346210524.shtml)
-- 2026-06-30 05:39 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/950721.shtml)
-- 2026-06-30 05:50 - [速度与激情9](https://www.share.minike.top/Article/details/184562051.shtml)
-- 2026-06-30 05:35 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/874594438424.shtml)
-- 2026-06-30 05:38 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/88453532224.shtml)
-- 2026-06-30 05:56 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/82875440.shtml)
-- 2026-06-30 05:31 - [急先锋](https://www.blog.minike.top/Article/details/722306.shtml)
-- 2026-06-30 05:47 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/632247212.shtml)
-- 2026-06-30 05:54 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.kurohicncr.top/Article/details/9633400765.shtml)
-- 2026-06-30 05:52 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/03445658.shtml)
-- 2026-06-30 05:49 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/63080680.shtml)
-- 2026-06-30 05:52 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/0795906.shtml)
+- 2026-06-30 05:46 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/87599351837.shtml)
+- 2026-06-30 06:03 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/1930430716.shtml)
+- 2026-06-30 06:05 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/94280001555.shtml)
+- 2026-06-30 05:47 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/433732.shtml)
+- 2026-06-30 05:57 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/0825339.shtml)
+- 2026-06-30 05:42 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/320015.shtml)
+- 2026-06-30 05:38 - [金刚川](https://www.share.kurohicncr.top/Article/details/6010469.shtml)
+- 2026-06-30 05:42 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/7372723345.shtml)
+- 2026-06-30 06:05 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/701496425.shtml)
+- 2026-06-30 05:59 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/68751484597.shtml)
+- 2026-06-30 05:39 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/111731.shtml)
+- 2026-06-30 05:41 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/934228712.shtml)
+- 2026-06-30 05:41 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/55616.shtml)
+- 2026-06-30 05:51 - [斛珠夫人](https://www.share.minike.top/Article/details/33199065.shtml)
+- 2026-06-30 05:39 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/34584992794.shtml)

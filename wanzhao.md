@@ -1,59 +1,58 @@
-# 溯源南岛语族 共续海洋文脉：2026两岸海洋文化交流平台走进平潭
+# 美联储“放鹰”，金价一度“闪跌”
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。 全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中
+当地时间周三，美联储结束本月议息会议后宣布维持利率不变，利率决议符合市场预期。不过，新任主席沃什主导的政策声明已经明显转向鹰派，不再重申“密切关注就业和通胀两方面风险”，而是强调以“稳定物价”为首要目标。 此外， 美联储删除了以往的利率路径前瞻指引。利率“点阵图”中，半数决策者预计今年将至少加息一次。 受美联储“鹰派”信号影响，所有期限美债收益率全线上行，令风险资产价格承压，标
 
 ## 正文
 
-中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。
+当地时间周三，美联储结束本月议息会议后宣布维持利率不变，利率决议符合市场预期。
 
-活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。
+不过，新任主席沃什主导的政策声明已经明显转向鹰派，不再重申“密切关注就业和通胀两方面风险”，而是强调以“稳定物价”为首要目标。
 
-全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。
+此外， 美联储删除了以往的利率路径前瞻指引。
 
-2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中华海洋文化传承等议题开展交流，有助于两岸同胞把握潮流大势、坚守民族大义、厚植历史自信。
+利率“点阵图”中，半数决策者预计今年将至少加息一次。
 
-台盟坚持继承和弘扬台湾同胞爱国爱乡光荣传统，矢志推动两岸关系和平发展、推进祖国统一大业，通过搭建海洋文化交流平台等举措，促进两岸交流交往交融。
+受美联储“鹰派”信号影响，所有期限美债收益率全线上行，令风险资产价格承压，标普500指数十一大板块全数下跌，通信服务板块和非必需消费品板块领跌， 美国三大股指周三全线收跌 。
 
-她期盼本次活动助力平潭建设两岸共同市场先行区域，加快建成经济发展、社会和谐、环境优美、独具特色的两岸同胞共同家园。
+截至收盘，道指下跌0.98%，标普500指数下跌1.21%，纳指下跌1.34%。
 
-全国政协常委、港澳台侨委员会主任刘赐贵表示，全国政协港澳台侨委员会始终把深化两岸各领域交流合作、促进两岸同胞心灵契合作为重要履职方向。
+热门个股方面，周三SpaceX上市以来首次收跌，跌幅4.95%。
 
-委员会坚定支持台盟等民主党派发挥特色优势，开展形式多样的对台交流活动，为两岸同胞交流交往交融搭建更多平台、创造更好条件。
+美债收益率上行压制高成长股估值。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 05:39 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 05:41 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-30 05:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 05:37 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 05:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 05:31 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 05:36 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 05:43 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 05:30 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 05:48 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 05:53 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-30 05:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 05:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 05:42 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 05:50 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 05:39 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 05:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 05:40 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 05:44 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 05:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 05:42 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 05:46 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-30 05:42 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 05:51 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/07257541.shtml)
-- 2026-06-30 05:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/5283456.shtml)
-- 2026-06-30 05:30 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/03641924.shtml)
-- 2026-06-30 05:33 - [月亮](https://www.share.kurohicncr.top/Article/details/58709.shtml)
-- 2026-06-30 05:35 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/57156295993.shtml)
-- 2026-06-30 05:47 - [女心理师](http://www.blog.kurohicncr.top/Article/details/684672046955.shtml)
-- 2026-06-30 05:44 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/1563170.shtml)
-- 2026-06-30 05:52 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/552859.shtml)
-- 2026-06-30 05:43 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/6076630.shtml)
-- 2026-06-30 05:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/859072.shtml)
-- 2026-06-30 05:40 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/91705412.shtml)
-- 2026-06-30 05:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/713266894.shtml)
-- 2026-06-30 05:55 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/70444545916.shtml)
-- 2026-06-30 05:40 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/60321327529.shtml)
-- 2026-06-30 05:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/629038.shtml)
+- 2026-06-30 05:51 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/645603.shtml)
+- 2026-06-30 05:37 - [美股](http://www.blog.kurohicncr.top/Article/details/25345556.shtml)
+- 2026-06-30 05:49 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/68940652574.shtml)
+- 2026-06-30 05:47 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/3797254.shtml)
+- 2026-06-30 05:36 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/470367520.shtml)
+- 2026-06-30 05:53 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/784989.shtml)
+- 2026-06-30 05:53 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/98356063.shtml)
+- 2026-06-30 05:41 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/86220.shtml)
+- 2026-06-30 06:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/39826868.shtml)
+- 2026-06-30 05:56 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/320339898.shtml)
+- 2026-06-30 05:36 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/568214.shtml)
+- 2026-06-30 05:50 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/45696513.shtml)
+- 2026-06-30 05:51 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/868254754.shtml)
+- 2026-06-30 05:54 - [美股](https://www.share.kurohicncr.top/Article/details/40359271.shtml)
+- 2026-06-30 05:59 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/257537730.shtml)

@@ -1,61 +1,58 @@
-# 2026上海国际花卉节落幕 8座“共创花园”将“漂流”至市民身边
+# 傅帆：打造再保险的离岸枢纽和在岸中心互补格局
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网上海5月11日电 (陈少颖 许婧)为期23天的2026上海国际花卉节10日落下帷幕。江风裹着花香，在徐汇滨江，8座由13个辖区街道居民设计搭建的“共创花园”沿江绽放，吸睛无数。 此次“社区花园共创计划”由同济大学社区花园与社区营造实验中心和徐汇区共同发起，让市民从“赏花人”变成“种花人”，让花卉美景真正融入日常城市生活。 该项目自今年3月启动，经过筛选和辅导，最终8组方案
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛于今日召开，中国太平洋保险（集团）股份有限公司董事长、执行董事傅帆出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。 傅帆指出，当前中资企业出海，呈现了新的趋势。市场的布局更加多元，产业向高端化、智能化、绿色化跃升。模式也从以前比较普遍的工程承包拓展至海外研发、生
 
 ## 正文
 
-中新网上海5月11日电 (陈少颖 许婧)为期23天的2026上海国际花卉节10日落下帷幕。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，2026陆家嘴论坛于今日召开，中国太平洋保险（集团）股份有限公司董事长、执行董事傅帆出席“全体大会四：沪港金融协同发展赋能高水平金融开放”并发言。
 
-江风裹着花香，在徐汇滨江，8座由13个辖区街道居民设计搭建的“共创花园”沿江绽放，吸睛无数。
+傅帆指出，当前中资企业出海，呈现了新的趋势。
 
-此次“社区花园共创计划”由同济大学社区花园与社区营造实验中心和徐汇区共同发起，让市民从“赏花人”变成“种花人”，让花卉美景真正融入日常城市生活。
+市场的布局更加多元，产业向高端化、智能化、绿色化跃升。
 
-该项目自今年3月启动，经过筛选和辅导，最终8组方案落地实施。
+模式也从以前比较普遍的工程承包拓展至海外研发、生产和区域总部的落地。
 
-从绘制设计图、挑选花种到亲手栽植布置，怀揣花园梦想，各行各业市民相聚滨江，在同济大学专业团队指导下，一步步将创意构想变为实景。
+沪港保险业完全可以发挥协同优势，助力企业“走出去”，应对新型复杂的和属地的风险。
 
-参与者自发组队，或依托社群集体参与，全程集思广益、协作共建。
+傅帆表示，一是深化境外保险服务网络和服务能力的建设。
 
-在徐汇滨江约3公里公共空间内，8座“共创花园”主题各异、特色鲜明，涵盖AI共生、代际交流、宠物友好、可食花园等多元创意，尽显市民的巧思与想象力。
+以香港作为支点，依托香港的人才优势和全球保险服务的经验，可以提升全球保单的供给能力，满足出海企业首次一张保单覆盖多国家、多场景的综合保障需求。
 
-部分团队还配套设计互动环节，提升作品体验感与参与度。
+同时也应该积极融入香港，为出海企业打造的专业服务平台，提供属地化的法规适配、市场调研、落地合作等跨境服务。
 
 ## 相关推荐
 
-- 2026-06-30 05:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 05:59 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 05:52 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 05:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 05:36 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 05:45 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 05:38 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 05:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 05:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 05:42 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 05:35 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 05:55 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 05:59 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 05:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 05:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 05:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-30 05:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 06:00 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 05:51 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 05:50 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-30 06:03 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 05:43 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 05:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 06:02 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 05:53 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 05:56 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 05:49 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/71776.shtml)
-- 2026-06-30 05:57 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/9435270512.shtml)
-- 2026-06-30 05:56 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/320265157.shtml)
-- 2026-06-30 05:48 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/96996451794.shtml)
-- 2026-06-30 05:31 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/31335566.shtml)
-- 2026-06-30 05:57 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/75186.shtml)
-- 2026-06-30 05:57 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/7551381.shtml)
-- 2026-06-30 05:35 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/6643151907.shtml)
-- 2026-06-30 05:38 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/177825445.shtml)
-- 2026-06-30 05:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/015928718615.shtml)
-- 2026-06-30 05:54 - [日本16强魔咒](http://www.blog.minike.top/Article/details/3320170125.shtml)
-- 2026-06-30 05:37 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/315829672.shtml)
-- 2026-06-30 05:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/926970.shtml)
-- 2026-06-30 05:59 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/70680419.shtml)
-- 2026-06-30 05:49 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/67662817.shtml)
+- 2026-06-30 05:36 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/95938226168.shtml)
+- 2026-06-30 05:36 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/5940328774.shtml)
+- 2026-06-30 05:48 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/485225.shtml)
+- 2026-06-30 05:52 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/755609.shtml)
+- 2026-06-30 05:53 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/73146180.shtml)
+- 2026-06-30 05:50 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/728857765567.shtml)
+- 2026-06-30 05:54 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/556738.shtml)
+- 2026-06-30 05:54 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/248790736.shtml)
+- 2026-06-30 05:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/9568907784.shtml)
+- 2026-06-30 05:39 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/84438.shtml)
+- 2026-06-30 06:04 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/707697.shtml)
+- 2026-06-30 05:46 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/06048.shtml)
+- 2026-06-30 05:41 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/879021341574.shtml)
+- 2026-06-30 05:48 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/3048047.shtml)
+- 2026-06-30 05:43 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/4652067008.shtml)

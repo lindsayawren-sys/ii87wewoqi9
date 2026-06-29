@@ -1,50 +1,50 @@
-# 职业教育展示 看学生打造“微景观”如何“变废为宝”
+# 美加墨世界杯首轮小组赛结束 只有一场比赛没进球
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 19:14 来源：中国新闻网 5月10日，2026年职业教育活动周首场活动暨“楚怡”校园阅读推进会在湖南怀化启动，以“一技在手，一生无忧”为主题集中展示职业教育改革发展成果。现场设置的职业技能体验区人气爆棚，中方县职业中等专业学校打造的“微景观制作”展示区，一个个小巧玲珑的微景观错落摆放，废旧轮胎变身承载绿意的容器，玻璃瓶、塑料盒里，青苔铺就“
+发布时间：2026年06月18日 12:27 来源：中国新闻网 美加墨世界杯首轮小组赛于北京时间18日全部结束。24场比赛中，分差最大的一场是德国队7比1大胜库拉索队，而西班牙队0比0佛得角队是唯一没有进球的比赛。 责任编辑：【岳川】
 
 ## 正文
 
-发布时间：2026年05月12日 19:14 来源：中国新闻网 5月10日，2026年职业教育活动周首场活动暨“楚怡”校园阅读推进会在湖南怀化启动，以“一技在手，一生无忧”为主题集中展示职业教育改革发展成果。
+发布时间：2026年06月18日 12:27 来源：中国新闻网 美加墨世界杯首轮小组赛于北京时间18日全部结束。
 
-现场设置的职业技能体验区人气爆棚，中方县职业中等专业学校打造的“微景观制作”展示区，一个个小巧玲珑的微景观错落摆放，废旧轮胎变身承载绿意的容器，玻璃瓶、塑料盒里，青苔铺就“草坪”，多肉舒展叶片，搭配小巧的碎石、摆件，勾勒出层次分明的“方寸天地”，每一件作品都构思精巧、绿意盎然，尽显学生们的巧思与匠心。
+24场比赛中，分差最大的一场是德国队7比1大胜库拉索队，而西班牙队0比0佛得角队是唯一没有进球的比赛。
 
-(付敬懿 杨森 制作 王嘉怡) 责任编辑：【刘湃】
+责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-30 05:54 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 05:32 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 05:42 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 05:30 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 05:47 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 05:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 05:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 05:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 05:50 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 05:57 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 05:35 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 05:39 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 05:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 05:44 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 05:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 06:05 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 06:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 06:00 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 05:37 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 05:48 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-30 05:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-30 05:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 05:57 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 05:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 05:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 06:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 05:45 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 05:56 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/80516.shtml)
-- 2026-06-30 05:40 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/00164032381.shtml)
-- 2026-06-30 05:46 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/7677127.shtml)
-- 2026-06-30 05:37 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/364210.shtml)
-- 2026-06-30 05:30 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.minike.top/Article/details/10395067233.shtml)
-- 2026-06-30 05:59 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/6705477.shtml)
-- 2026-06-30 05:58 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/72427351.shtml)
-- 2026-06-30 05:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/391673954.shtml)
-- 2026-06-30 05:52 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/4007923.shtml)
-- 2026-06-30 05:40 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/10163644.shtml)
-- 2026-06-30 05:30 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/1922398.shtml)
-- 2026-06-30 05:50 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/651667888224.shtml)
-- 2026-06-30 05:30 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/2429242.shtml)
-- 2026-06-30 05:39 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/69393943306.shtml)
-- 2026-06-30 05:41 - [《共患难》](http://www.share.minike.top/Article/details/9404111.shtml)
+- 2026-06-30 05:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/12232352535.shtml)
+- 2026-06-30 05:54 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/230314.shtml)
+- 2026-06-30 05:39 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/355238123.shtml)
+- 2026-06-30 06:03 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/20294.shtml)
+- 2026-06-30 05:42 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/932550.shtml)
+- 2026-06-30 05:46 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/890977.shtml)
+- 2026-06-30 06:00 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.minike.top/Article/details/49658.shtml)
+- 2026-06-30 05:51 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/8518920.shtml)
+- 2026-06-30 05:55 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/734806.shtml)
+- 2026-06-30 05:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/742113874.shtml)
+- 2026-06-30 05:40 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/069520.shtml)
+- 2026-06-30 06:03 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/909585318905.shtml)
+- 2026-06-30 05:37 - [女心理师](https://www.share.minike.top/Article/details/859393.shtml)
+- 2026-06-30 05:43 - [勇敢的心第二部](https://www.share.minike.top/Article/details/696739.shtml)
+- 2026-06-30 05:53 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/59157.shtml)

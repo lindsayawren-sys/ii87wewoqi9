@@ -1,60 +1,53 @@
-# 午后突发！华宝基金药ETF异动拉涨1%！港股通创新药翻红，520880放量溢价，成交逾4.2亿元大超上日全天
+# ZFX山海证券:制造业走弱托住金价表现
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-11日午后，AH创新药突然发力。场内唯一药ETF华宝（562050）*快速拉升逾1%，创新药概念股君实生物-U领涨逾8%，普洛药业、百济神州A股大涨6.74%。 港股通创新药亦活跃，100%创新药研发标的——港股通创新药ETF华宝（520880）成功翻红，场内放量溢价，成交逾4.2亿元大超上日全天。权重股中国生物制药涨超3%，翰森制药、荣昌生物超1%。 据财联社5月11日最新消
+6月17日，美国地区制造业调查回落后，ZFX山海证券表示黄金在日内高位附近保持韧性，说明偏弱的经济信号仍能为贵金属带来一定支撑。 从市场反应看，ZFX山海证券认为数据降温有助于缓和利率上行预期，这让黄金此前承受的估值压力暂时得到释放。 不过，金价若想把短线走强转化为更完整的修复，仍需要更多宏观数据配合，否则高位整理的时间可能继续拉长。 综合而言，ZFX山海证券分析称当前更值得关
 
 ## 正文
 
-11日午后，AH创新药突然发力。
+6月17日，美国地区制造业调查回落后，ZFX山海证券表示黄金在日内高位附近保持韧性，说明偏弱的经济信号仍能为贵金属带来一定支撑。
 
-场内唯一药ETF华宝（562050）*快速拉升逾1%，创新药概念股君实生物-U领涨逾8%，普洛药业、百济神州A股大涨6.74%。
+从市场反应看，ZFX山海证券认为数据降温有助于缓和利率上行预期，这让黄金此前承受的估值压力暂时得到释放。
 
-港股通创新药亦活跃，100%创新药研发标的——港股通创新药ETF华宝（520880）成功翻红，场内放量溢价，成交逾4.2亿元大超上日全天。
+不过，金价若想把短线走强转化为更完整的修复，仍需要更多宏观数据配合，否则高位整理的时间可能继续拉长。
 
-权重股中国生物制药涨超3%，翰森制药、荣昌生物超1%。
+综合而言，ZFX山海证券分析称当前更值得关注的是后续数据是否延续偏弱态势，这将直接影响黄金能否稳住当前反弹成果。
 
-据财联社5月11日最新消息，香港特区行政长官李家超出席亚洲医疗健康高峰论坛2026。
-
-李家超在致辞时提到，国家“十五五”规划提出优化创新药与临床急需药品审评审批，并支持其临床应用。
-
-香港在推动医疗创新方面与国家“十五五”规划所制定的策略相辅相成，目标是将香港发展成国际医疗创新枢纽。
-
-政策面，国家医保局9日发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件，并向社会公开征求意见。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 05:51 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 05:52 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-30 05:47 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-30 05:59 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 05:51 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 05:44 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 05:58 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 05:30 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 05:40 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 05:42 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 05:56 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 05:58 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 05:48 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 05:41 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 05:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 05:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 06:02 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 05:48 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 06:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 05:42 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 06:04 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 05:43 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 05:50 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 05:40 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 05:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-30 05:53 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 05:46 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:34 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/84567120362.shtml)
-- 2026-06-30 05:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/24801.shtml)
-- 2026-06-30 05:33 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/96067.shtml)
-- 2026-06-30 05:47 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/599867275.shtml)
-- 2026-06-30 05:41 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/861979.shtml)
-- 2026-06-30 05:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/09250131.shtml)
-- 2026-06-30 05:40 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/0676011.shtml)
-- 2026-06-30 05:55 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/422456476.shtml)
-- 2026-06-30 05:40 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/34068.shtml)
-- 2026-06-30 05:55 - [世界杯](https://www.blog.minike.top/Article/details/31721496.shtml)
-- 2026-06-30 05:35 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/0817152608.shtml)
-- 2026-06-30 05:40 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/4296615303.shtml)
-- 2026-06-30 05:43 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/154185114.shtml)
-- 2026-06-30 05:34 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/34924572.shtml)
-- 2026-06-30 05:42 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/60032.shtml)
+- 2026-06-30 05:38 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/708985526.shtml)
+- 2026-06-30 05:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/46246635.shtml)
+- 2026-06-30 05:47 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/2331199.shtml)
+- 2026-06-30 05:45 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/974395.shtml)
+- 2026-06-30 06:03 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/0717116804.shtml)
+- 2026-06-30 05:57 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/01510958805.shtml)
+- 2026-06-30 05:45 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/11985062.shtml)
+- 2026-06-30 05:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/0108797.shtml)
+- 2026-06-30 05:48 - [乔家的儿女](http://www.blog.minike.top/Article/details/162320.shtml)
+- 2026-06-30 05:49 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/1315790495.shtml)
+- 2026-06-30 05:43 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/517059453811.shtml)
+- 2026-06-30 05:43 - [千香](https://www.blog.kurohicncr.top/Article/details/607887.shtml)
+- 2026-06-30 06:00 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/9768548837.shtml)
+- 2026-06-30 05:55 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/08991204275.shtml)
+- 2026-06-30 05:51 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/43528.shtml)

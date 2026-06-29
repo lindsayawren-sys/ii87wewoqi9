@@ -1,58 +1,56 @@
-# 科蓝软件（300663）索赔案启动，任子行（300311）已被判决向投资者赔偿484万元
+# 酒价内参6月18日价格发布：精品茅台下跌4元
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，科蓝软件（维权）（300663）涉嫌虚假陈述引发的投资者索赔案已经启动。（许峰律师专栏） 2026年4月30日晚，科蓝软件公告收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司立案。 许峰律师认为，暂定在2026年5月1日之
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月18日整体温和回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9907元，较昨日下跌18元，连续三日回落并创下四天以来最低。今日除飞天茅台与青花郎上涨外，其余品种均回落，终端交投情绪环比明显降温。 今日11大白酒单品二涨九跌，输家
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海久诚律师事务所股票索赔律师许峰提示，科蓝软件（维权）（300663）涉嫌虚假陈述引发的投资者索赔案已经启动。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月18日整体温和回落。
 
-（许峰律师专栏） 2026年4月30日晚，科蓝软件公告收到证监会下发的《立案告知书》，因公司涉嫌信息披露违法违规，根据《证券法》《行政处罚法》等法律法规，证监会决定对公司立案。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9907元，较昨日下跌18元，连续三日回落并创下四天以来最低。
 
-许峰律师认为，暂定在2026年5月1日之前买入科蓝软件股票，并且在2026年5月1日后卖出或继续持有股票的投资者，目前已可准备发起索赔。
+今日除飞天茅台与青花郎上涨外，其余品种均回落，终端交投情绪环比明显降温。
 
-（科蓝软件维权入口） 除了科蓝软件投资者索赔案启动，任子行（300311）2025年年报披露，基于证监会处罚事实，部分投资者以公司证券虚假陈述致使原告在证券交易中遭受经济损失为由，要求公司给予赔偿。
+今日11大白酒单品二涨九跌，输家数量占据绝对优势。
 
-截至本财务报表批准报出日止，根据《民事判决书》（2025）粤03民初365号等案件，公司证券虚假陈述责任纠纷案所涉诉讼一审判决金额为484.14万元，应承担的诉讼费为8.98万，公司对此确认了预计负债493.12万元，同时按照相关程序提起上诉，二审法院已受理但尚未开庭审理。
+上涨方面，青花郎涨幅居前，上涨9元/瓶，创下近一月最大单日涨幅，连续两日上涨并升至近一月最高位；飞天茅台小幅上涨2元/瓶。
 
-日前已经收到传票，2026年5月26日，许峰律师代理的任子行投资者索赔案二审将在广东省高级人民法院开庭审理，前期已经收到法院送达的投资者投资者一审胜诉判决。
+下跌方面，五粮液普五八代的跌幅居前，下跌7元/瓶，创近一月最大单日跌幅，重新回落至810元下方；国窖1573下跌5元/瓶，连续三日回落，价格跌至近一月次低位；精品茅台下跌4元/瓶，亦滑落至近一月次低位；青花汾20与古井贡古20均下跌3元/瓶，其中前者连续三日回落并创下近一月最低价；五粮液1618、洋河梦之蓝M6+与习酒君品均下跌2元/瓶；水晶剑南春小幅下跌1元/瓶，平进入六月以来的最低价纪录。
 
-律师团队同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-2025年7月18日，任子行公告收到《行政处罚决定书》的公告，经查明，任子行存在如下违法事实： 通过相关方式，2020年至2022年上半年，任子行虚增营业收入36，951，333.48元、48，435，351.70元、26，929，607.08元，分别占当期报告记载金额的4.21%、6.97%、10.81%；虚增利润总额19，406，901.32元、37，317，431.71元、16，560，909.58元，分别占当期报告记载金额绝对值的85.93%、70.03%、30.79%。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台（5月16日上调至2359元/瓶），这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 05:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 05:43 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 05:58 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 05:39 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 05:59 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 05:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 05:47 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 05:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 05:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 05:43 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 05:37 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 06:03 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 05:49 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 05:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 05:40 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 05:56 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 05:41 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 05:41 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 05:36 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 05:50 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 05:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:51 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/9325505.shtml)
-- 2026-06-30 05:58 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/33042620.shtml)
-- 2026-06-30 05:42 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/88496.shtml)
-- 2026-06-30 05:57 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/213675.shtml)
-- 2026-06-30 05:36 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/8311587267.shtml)
-- 2026-06-30 05:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/566158.shtml)
-- 2026-06-30 05:52 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/27882.shtml)
-- 2026-06-30 05:43 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/79791.shtml)
-- 2026-06-30 05:44 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/43515.shtml)
-- 2026-06-30 05:32 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/4399973.shtml)
-- 2026-06-30 05:35 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/007812298312.shtml)
-- 2026-06-30 05:52 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/19364.shtml)
-- 2026-06-30 05:51 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/874558013378.shtml)
-- 2026-06-30 05:58 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/199488926576.shtml)
-- 2026-06-30 05:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/39425309187.shtml)
+- 2026-06-30 06:04 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/9439059975.shtml)
+- 2026-06-30 05:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/251998573477.shtml)
+- 2026-06-30 05:38 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/026790761.shtml)
+- 2026-06-30 05:48 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/61027767886.shtml)
+- 2026-06-30 05:48 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/3386283.shtml)
+- 2026-06-30 06:04 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/4537429752.shtml)
+- 2026-06-30 05:42 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/1262777525.shtml)
+- 2026-06-30 05:44 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/4908115.shtml)
+- 2026-06-30 05:57 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/01716747.shtml)
+- 2026-06-30 06:01 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/316543793.shtml)
+- 2026-06-30 05:46 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/168904587179.shtml)
+- 2026-06-30 05:50 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/144372.shtml)
+- 2026-06-30 05:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/627817052621.shtml)
+- 2026-06-30 06:05 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/749438.shtml)
+- 2026-06-30 06:02 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/8044923904.shtml)

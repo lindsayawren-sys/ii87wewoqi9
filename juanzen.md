@@ -1,56 +1,60 @@
-# 从共鸣到共创 台知名人士指文化因交流更精彩
+# 159瓶茅台被跨省查扣，3年后多瓶茅台缺失，警方回应
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新社北京5月12日电 (记者 朱贺 张晓曦)“两岸文化同源不只存在于历史课本中，也在日常的语言、饮食和节日里。文化不因距离而改变，会因交流而更精彩。”在北京举行的一场两岸交流活动上，两岸企业家峰会文创小组台方召集人薛香川如是说。从找寻文化根脉、激发情感共鸣到共创文化产品，11日起在此间举行的第三届海峡两岸中华文化峰会上，多位与会台湾嘉宾接受中新社记者采访时表示，两岸同源在现代
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 据大风新闻报道，四川宜宾珙县警方2023年赴沈阳查假五粮液（维权），扣走159瓶茅台酒，酒商今年查验发现被扣押的茅台酒多瓶缺失或出现空瓶。6月17日，宜宾市公安局督审支队回应澎湃新闻，正内部调查。 6月16日，辽宁沈阳的酒商何先生夫妻反映，2023年四川宜宾珙县警方前往沈阳查假五粮液，扣走其159瓶茅台，此后警方以何先生
 
 ## 正文
 
-中新社北京5月12日电 (记者 朱贺 张晓曦)“两岸文化同源不只存在于历史课本中，也在日常的语言、饮食和节日里。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 据大风新闻报道，四川宜宾珙县警方2023年赴沈阳查假五粮液（维权），扣走159瓶茅台酒，酒商今年查验发现被扣押的茅台酒多瓶缺失或出现空瓶。
 
-文化不因距离而改变，会因交流而更精彩。
+6月17日，宜宾市公安局督审支队回应澎湃新闻，正内部调查。
 
-”在北京举行的一场两岸交流活动上，两岸企业家峰会文创小组台方召集人薛香川如是说。
+6月16日，辽宁沈阳的酒商何先生夫妻反映，2023年四川宜宾珙县警方前往沈阳查假五粮液，扣走其159瓶茅台，此后警方以何先生涉嫌销售假酒移送检方起诉。
 
-从找寻文化根脉、激发情感共鸣到共创文化产品，11日起在此间举行的第三届海峡两岸中华文化峰会上，多位与会台湾嘉宾接受中新社记者采访时表示，两岸同源在现代生活的细微处鲜活呈现。
+今年5月20日，何先生夫妻二人在代理律师的陪同下，前往珙县公安局食药环侦大队查验发现，多瓶高价茅台酒缺失，部分茅台酒已被开启变成空瓶。
 
-联结常始于对共同根脉的追寻。
+对于这一情况，现场民警未能给出合理解释。
 
-去年暑假，台湾演员李志希带儿子来了一趟北京卢沟桥。
+对于珙县警方行为是否存在违规违纪情况，6月17日，宜宾市公安局督审支队工作人员回应澎湃新闻“正进行内部调查”。
 
-“现在台湾课纲呈现的部分历史，与过去有些不同。
+澎湃新闻记者拨打珙县公安局政工室电话，工作人员称“采访需经过省厅批准”。
 
-我想让他看看‘七七事变’发生地，理清近代史的脉络。
+据大风新闻报道，该案历经8次庭审，目前仍在审理过程中，由于作为物证的茅台酒存在大量缺失，何先生曾申请对其真伪进行鉴定。
 
 ## 相关推荐
 
-- 2026-06-30 05:53 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 05:41 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 05:36 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 05:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 05:33 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 05:47 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 05:51 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 05:44 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 05:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 05:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 06:05 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 05:56 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 05:45 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 05:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 05:41 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 05:36 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 05:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 05:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 05:36 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 05:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 05:50 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 05:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 05:44 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 05:45 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:50 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/7347615276.shtml)
-- 2026-06-30 05:31 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/909867.shtml)
-- 2026-06-30 05:31 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/1079978317.shtml)
-- 2026-06-30 05:42 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/57190123.shtml)
-- 2026-06-30 05:34 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/840155.shtml)
-- 2026-06-30 05:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/99328345815.shtml)
-- 2026-06-30 05:53 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/777166514530.shtml)
-- 2026-06-30 05:44 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/8136763060.shtml)
-- 2026-06-30 05:33 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/2024056.shtml)
-- 2026-06-30 05:53 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/99993061.shtml)
-- 2026-06-30 05:30 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/5512560.shtml)
-- 2026-06-30 05:31 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/57652963209.shtml)
-- 2026-06-30 05:48 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/843665.shtml)
-- 2026-06-30 05:54 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/929772223681.shtml)
-- 2026-06-30 05:47 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/65868.shtml)
+- 2026-06-30 05:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/0218202355.shtml)
+- 2026-06-30 06:03 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/314311.shtml)
+- 2026-06-30 05:53 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/362983251.shtml)
+- 2026-06-30 05:46 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/955649639.shtml)
+- 2026-06-30 05:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/729352100505.shtml)
+- 2026-06-30 05:39 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/674071193756.shtml)
+- 2026-06-30 06:00 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/24819503767.shtml)
+- 2026-06-30 05:40 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/216202.shtml)
+- 2026-06-30 05:55 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/8531137085.shtml)
+- 2026-06-30 05:41 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/749173.shtml)
+- 2026-06-30 05:57 - [天道](https://www.blog.kurohicncr.top/Article/details/7992589299.shtml)
+- 2026-06-30 05:51 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/0810311555.shtml)
+- 2026-06-30 05:41 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/186535773524.shtml)
+- 2026-06-30 05:40 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/0277041.shtml)
+- 2026-06-30 05:47 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/552920899714.shtml)

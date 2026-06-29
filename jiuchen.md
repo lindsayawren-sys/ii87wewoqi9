@@ -1,58 +1,59 @@
-# 香港举办首届具身智能产业峰会 沪企将在港设立国际研发总部
+# 中信建投期货：6月18日能化早报
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新社香港5月12日电 (记者 刘玥晴)抓取精密零件、分拣物流包裹、讲解零售产品、多语种指引带路……10余款已投入实际使用的机器人各司其职，有条不紊地执行特定环境指令，集中亮相12日举行的首届香港具身智能产业峰会暨2026智元合作伙伴大会(香港)。 当天，海内外人工智能(AI)产业界、学术界、科研界及金融界代表，围绕具身智能产业发展、真实场景应用、产学研合作开展深入交流，共议科
+橡胶：反转或仍需等待 周三，国产全乳胶18000/吨，环比上日下跌250元/吨；泰国20号混合胶17480元/吨，环比上日下跌220元/吨。 原料端：昨日泰国胶水报收86.5泰铢/公斤，环比上日下跌0.5泰铢/公斤，泰国杯胶报收73.5 泰铢/公斤，环比上日上涨0.5泰铢/公斤；云南胶水报收16.4元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日上涨0.1元/公斤
 
 ## 正文
 
-中新社香港5月12日电 (记者 刘玥晴)抓取精密零件、分拣物流包裹、讲解零售产品、多语种指引带路……10余款已投入实际使用的机器人各司其职，有条不紊地执行特定环境指令，集中亮相12日举行的首届香港具身智能产业峰会暨2026智元合作伙伴大会(香港)。
+橡胶：反转或仍需等待 周三，国产全乳胶18000/吨，环比上日下跌250元/吨；泰国20号混合胶17480元/吨，环比上日下跌220元/吨。
 
-当天，海内外人工智能(AI)产业界、学术界、科研界及金融界代表，围绕具身智能产业发展、真实场景应用、产学研合作开展深入交流，共议科技企业全球化布局机遇。
+原料端：昨日泰国胶水报收86.5泰铢/公斤，环比上日下跌0.5泰铢/公斤，泰国杯胶报收73.5 泰铢/公斤，环比上日上涨0.5泰铢/公斤；云南胶水报收16.4元/公斤，环比上日持平；海南胶水报收15.8元/公斤，环比上日上涨0.1元/公斤。
 
-香港特区行政长官李家超在会上致辞表示，香港具有高度国际化、文化多元而空间紧凑的城市环境，为具身智能提供了理想的试验与应用场景，无论是商业服务、医疗护理，还是工业制造领域，都颇具挑战性，有助于相关技术优化并对接国际市场。
+截至2026年6月14日，中国天然橡胶社会库存124.5万吨，环比下降2.5万吨，降幅2%。
 
-香港贸易发展局主席马时亨表示，随着国家AI产业不断壮大，越来越多内地人工智能企业加速拓展海外市场，作为“超级联系人”和“超级增值人”的香港，是协助企业“走出去”的优质平台。
+中国深色胶社会总库存为85.4万吨，环比下降2.2%。
 
-上海首家人形机器人量产企业——智元创新(上海)科技股份有限公司(下称“智元机器人”)合伙人、联席总裁姜青松接受中新社等媒体采访时指出，香港不仅拥有国际化的营商环境，高校科研实力也十分雄厚，正吸引全球科技企业和高端人才集聚，能为具身智能从研发到生产提供良好基础。
+其中青岛现货库存降2.2%；云南降1.4%；越南10环比降1.6；NR库存小计环比降6.7%。
 
-“企业要想拓展海外市场，数据合规这个难题是绕不开的。
+中国浅色胶社会总库存为39.1万吨，环比降1.5%。
 
-”姜青松直言，香港成熟的专业服务体系与普通法制度优势，既能护航跨境数据有序合规流通，又能保障数据与隐私安全，有助于企业稳健开展针对不同国家和地区的业务布局与本地化适配。
+其中老全乳胶环比降1.6%，3L环比降11%，RU库存小计增0.9%。
 
-会上，智元机器人宣布，计划在香港成立国际研发总部，与更多香港高校和科研机构合作，将成立数个产学研联合实验室，并投资香港科技公司，助力香港创新企业发展壮大。
+观点：近期，尽管泰国等全球主产区存在普遍的高温现象，但根据目前的气象数据来看，目前的气温并未达到对橡胶树造成持续负面影响影响的程度，对产量的短期判断暂时没有变化，相对稳定的状态，全球产量的季节性或不会出现特殊的超预期延迟。
 
 ## 相关推荐
 
-- 2026-06-30 05:39 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 05:44 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 05:58 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 05:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 05:42 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 05:34 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 05:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 05:38 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-30 05:33 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-30 05:32 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 05:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 05:55 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 05:54 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 05:58 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 05:51 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 05:48 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 05:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 05:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 05:36 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 05:39 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-30 06:03 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 05:47 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 06:03 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 05:48 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 05:58 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/7581620352.shtml)
-- 2026-06-30 05:45 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/7966720.shtml)
-- 2026-06-30 05:40 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/728047453542.shtml)
-- 2026-06-30 05:53 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/88288.shtml)
-- 2026-06-30 05:31 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/9020409917.shtml)
-- 2026-06-30 05:43 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/80232.shtml)
-- 2026-06-30 05:40 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/08969245.shtml)
-- 2026-06-30 05:31 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/97400.shtml)
-- 2026-06-30 06:00 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/03539.shtml)
-- 2026-06-30 05:36 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/7498998.shtml)
-- 2026-06-30 05:36 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/1007377.shtml)
-- 2026-06-30 05:45 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/69635.shtml)
-- 2026-06-30 05:58 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/67349405667.shtml)
-- 2026-06-30 05:56 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/12020.shtml)
-- 2026-06-30 05:46 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/469987415.shtml)
+- 2026-06-30 05:56 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/960973292.shtml)
+- 2026-06-30 05:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/094141.shtml)
+- 2026-06-30 05:57 - [德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/317818343.shtml)
+- 2026-06-30 05:47 - [张凌赫 客串](https://www.share.minike.top/Article/details/93472770.shtml)
+- 2026-06-30 05:54 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/613350.shtml)
+- 2026-06-30 05:37 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/90003755.shtml)
+- 2026-06-30 05:49 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/66825539.shtml)
+- 2026-06-30 05:38 - [女心理师](https://www.blog.minike.top/Article/details/35687736.shtml)
+- 2026-06-30 05:57 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/09582.shtml)
+- 2026-06-30 06:03 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/255875046.shtml)
+- 2026-06-30 05:40 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/34890578345.shtml)
+- 2026-06-30 05:58 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/67448726.shtml)
+- 2026-06-30 05:50 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/266686018390.shtml)
+- 2026-06-30 05:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/7519735037.shtml)
+- 2026-06-30 05:53 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/9890965.shtml)

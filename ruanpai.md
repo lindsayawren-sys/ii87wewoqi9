@@ -1,56 +1,48 @@
-# 曾被罚没7700万元的牛散，全家举牌可川科技！公司股价年内已涨超2倍，光模块子公司去年营收仅6万余元
+# 天水秦州长银村镇银行被罚22.2万元：违反金融统计管理规定等
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！一字涨停！曾被罚没7700万元的牛散，全家举牌可川科技！公司股价年内已涨超2倍，光模块子公司去年营收仅6万余元，亏损超2000万元 今日，可川科技（603052.SH）一字涨停，报收95.35元/股，总市值179.2亿元。 5月11日盘后，可川科技公告称，股东屠文斌、屠施恩、施玉庆通过二级市场集中竞价方式，
+6月18日金融一线消息，中国人民银行天水市分行行政处罚决定信息公示表显示，天水秦州长银村镇银行股份有限公司因违反金融统计管理规定、违反支付结算管理规定、违反货币金银管理规定、违反金融科技管理规定，被给予警告，并处罚款22.2万元。 责任编辑：王馨茹
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月18日金融一线消息，中国人民银行天水市分行行政处罚决定信息公示表显示，天水秦州长银村镇银行股份有限公司因违反金融统计管理规定、违反支付结算管理规定、违反货币金银管理规定、违反金融科技管理规定，被给予警告，并处罚款22.2万元。
 
-一字涨停！
-
-曾被罚没7700万元的牛散，全家举牌可川科技！
-
-公司股价年内已涨超2倍，光模块子公司去年营收仅6万余元，亏损超2000万元 今日，可川科技（603052.SH）一字涨停，报收95.35元/股，总市值179.2亿元。
-
-5月11日盘后，可川科技公告称，股东屠文斌、屠施恩、施玉庆通过二级市场集中竞价方式，合计增持公司股份940.41万股，占公司总股本的5%，触发举牌线。
-
-其中，屠施恩为屠文斌的儿子，施玉庆为屠文斌的配偶，三人为一致行动人。
-
-公告显示，屠文斌一家建仓时间为4月13日至5月11日；按5月12日收盘价计算，本次举牌持仓市值约8.97亿元。
-
-值得注意的是，屠文斌、施玉庆夫妇为A股知名“牛散”，曾于2022年6月至8月两度举牌宝馨科技（*ST宝馨（维权），002514.SZ），引发市场广泛关注。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 05:41 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 06:00 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 05:54 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 05:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 05:40 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 05:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 05:35 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 05:44 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 05:52 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 05:42 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 05:37 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-30 05:58 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 05:51 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 06:02 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 05:46 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 05:56 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-30 06:01 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 06:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-30 05:50 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 05:38 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 05:48 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 05:45 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 05:55 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 05:37 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:31 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/78648918221.shtml)
-- 2026-06-30 05:52 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/59204448562.shtml)
-- 2026-06-30 05:32 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/532293072435.shtml)
-- 2026-06-30 05:36 - [月亮](https://www.blog.kurohicncr.top/Article/details/2177710.shtml)
-- 2026-06-30 05:50 - [金牌调解](http://www.share.kurohicncr.top/Article/details/86253.shtml)
-- 2026-06-30 05:45 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/192235152752.shtml)
-- 2026-06-30 05:55 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/31998.shtml)
-- 2026-06-30 05:52 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/5902461603.shtml)
-- 2026-06-30 05:43 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/775494424995.shtml)
-- 2026-06-30 05:34 - [小娘惹](http://www.share.minike.top/Article/details/7537154148.shtml)
-- 2026-06-30 05:33 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/97304644627.shtml)
-- 2026-06-30 05:30 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/71889532918.shtml)
-- 2026-06-30 05:51 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/88954.shtml)
-- 2026-06-30 05:38 - [日本反击率先破门](https://www.share.kurohicncr.top/Article/details/484389912.shtml)
-- 2026-06-30 05:46 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/88418721921.shtml)
+- 2026-06-30 05:48 - [巴西补时绝杀日本](http://www.share.minike.top/Article/details/3466828.shtml)
+- 2026-06-30 05:51 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/05830.shtml)
+- 2026-06-30 05:54 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/482768.shtml)
+- 2026-06-30 06:02 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/4398110895.shtml)
+- 2026-06-30 05:42 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/720655842532.shtml)
+- 2026-06-30 05:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/212739231.shtml)
+- 2026-06-30 05:36 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/467712.shtml)
+- 2026-06-30 05:42 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/75555427413.shtml)
+- 2026-06-30 05:54 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/6641500.shtml)
+- 2026-06-30 05:56 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/99527215867.shtml)
+- 2026-06-30 05:52 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/12839.shtml)
+- 2026-06-30 05:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/355836198891.shtml)
+- 2026-06-30 06:02 - [曝詹姆斯即将与勇士会面](http://www.blog.minike.top/Article/details/976960531.shtml)
+- 2026-06-30 05:39 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/4930780955.shtml)
+- 2026-06-30 05:53 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/311023386.shtml)

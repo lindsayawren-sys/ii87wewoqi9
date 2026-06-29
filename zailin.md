@@ -1,55 +1,60 @@
-# 摩洛哥驻华大使：中国经济实力雄厚 希望进一步深化双边关系
+# 美国未宣布延长俄罗斯石油制裁豁免，是否重启制裁尚不明朗
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。中国
+美国财政部周三并未宣布延长针对俄罗斯海运原油的制裁豁免——该豁免已于午夜到期——但特朗普及政府官员均未说明，这是否意味着相关制裁将重新实施。 在与伊朗发生冲突期间，特朗普政府曾豁免对俄罗斯石油的制裁，以帮助脆弱经济体应对能源危机。随着华盛顿与德黑兰达成结束对伊制裁的谅解备忘录，中东石油得以重新进入全球市场，这一情况可能发生变化。 周三，特朗普对美国是否会重新对俄罗斯实施制裁未置
 
 ## 正文
 
-发布时间：2026年05月11日 15:28 来源：中国新闻网 为纪念摩洛哥国王穆罕默德六世访华十周年，摩洛哥驻华大使馆于5月10日晚举办了“摩洛哥-中国体育与文化节”活动，活动邀请了来自经济、文化、学术和艺术界的300多名嘉宾参与。
+美国财政部周三并未宣布延长针对俄罗斯海运原油的制裁豁免——该豁免已于午夜到期——但特朗普及政府官员均未说明，这是否意味着相关制裁将重新实施。
 
-活动间隙，摩洛哥驻华大使阿卜杜勒卡德尔·安萨里在接受中新社记者采访时表示，我们对摩中双边关系抱有很高的期许，在经贸层面、合作投资方面皆是如此。
+在与伊朗发生冲突期间，特朗普政府曾豁免对俄罗斯石油的制裁，以帮助脆弱经济体应对能源危机。
 
-中国是摩洛哥全球第三大贸易伙伴，也是摩洛哥在亚洲的第一大经济合作伙伴。
+随着华盛顿与德黑兰达成结束对伊制裁的谅解备忘录，中东石油得以重新进入全球市场，这一情况可能发生变化。
 
-希望继续把摩中关系提升到更高水平，中国经济实力雄厚，是全球第二大经济体，我们也期待进一步深化两国关系。
+周三，特朗普对美国是否会重新对俄罗斯实施制裁未置可否。
 
-阿卜杜勒卡德尔·安萨里介绍，摩洛哥自身具备诸多优势和引资优惠政策，完全有条件成为中国企业的投资目的地，比如摩洛哥地理位置优越、互联互通体系完善、劳动力人才储备充足，且紧邻终端消费市场。
+“我们正在考虑这个问题。
 
-凭借这些得天独厚的条件，摩洛哥的目标是让中国成为摩方的重要合作伙伴，在当前基础上更上一层楼。
+我们正在观察油价会降到什么程度，它真的在暴跌，”他在法国举行的七国集团（G7）峰会上对记者说。
 
-(记者 谢龙飞 实习生 林倬安 制作 乐小敏） 责任编辑：【刘湃】
+周二，特朗普暗示，美国可以通过终止豁免来重新实施制裁。
+
+“我们很快就能做到这一点，因为石油现在正从中东源源不断地流出，”他说。
 
 ## 相关推荐
 
-- 2026-06-30 05:46 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 05:38 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 05:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 05:55 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 05:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 05:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 05:31 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 05:50 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 05:38 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 05:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 05:39 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 05:53 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 05:55 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 05:59 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 05:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 05:49 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 05:43 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 06:01 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 05:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 05:48 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 05:48 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 05:57 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 05:51 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 05:49 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:59 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/470322.shtml)
-- 2026-06-30 05:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/09458851709.shtml)
-- 2026-06-30 05:57 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/03402146.shtml)
-- 2026-06-30 05:37 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/62347483246.shtml)
-- 2026-06-30 05:30 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/439860698482.shtml)
-- 2026-06-30 05:37 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/6116749.shtml)
-- 2026-06-30 05:48 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/939881643.shtml)
-- 2026-06-30 05:57 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/730376338195.shtml)
-- 2026-06-30 05:47 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/727421042.shtml)
-- 2026-06-30 05:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/46710691.shtml)
-- 2026-06-30 05:34 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/571301416900.shtml)
-- 2026-06-30 05:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/70218208360.shtml)
-- 2026-06-30 05:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/632286.shtml)
-- 2026-06-30 05:48 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/93999836799.shtml)
-- 2026-06-30 05:36 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/31215.shtml)
+- 2026-06-30 05:49 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/80650697143.shtml)
+- 2026-06-30 05:59 - [金刚川](http://www.blog.kurohicncr.top/Article/details/5001798.shtml)
+- 2026-06-30 06:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/92216372.shtml)
+- 2026-06-30 06:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/032032.shtml)
+- 2026-06-30 05:43 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/59235.shtml)
+- 2026-06-30 06:00 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/41002.shtml)
+- 2026-06-30 05:40 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/96159794616.shtml)
+- 2026-06-30 05:41 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/022615.shtml)
+- 2026-06-30 05:48 - [巴西绝杀日本](http://www.share.minike.top/Article/details/61966.shtml)
+- 2026-06-30 05:41 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/603995361548.shtml)
+- 2026-06-30 06:04 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/262954.shtml)
+- 2026-06-30 05:58 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/470939.shtml)
+- 2026-06-30 05:41 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/65458.shtml)
+- 2026-06-30 06:05 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/8518411717.shtml)
+- 2026-06-30 05:44 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/8141804.shtml)

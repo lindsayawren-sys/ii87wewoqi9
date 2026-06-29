@@ -1,59 +1,57 @@
-# 里夫斯盟友认为：若斯塔默下台，财政大臣应留任
+# 王信：以可持续金融及国际合作促进国际金融治理体系改革
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-英国财政大臣蕾切尔·里夫斯的盟友认为，如果首相基尔·斯塔默在日益严重的领导层危机中被赶下台，里夫斯应当继续担任财政大臣。在工党遭遇灾难性的地方选举结果后，斯塔默正面临日益高涨的辞职呼声，这引发了人们对首相职位可能易主的猜测。里夫斯的支持者认为，她在经济管理方面已建立了信誉，应继续担任财政大臣以确保政策连贯性。 盟友力挺：里夫斯是经济稳定的保障 尽管斯塔默面临压力，但里夫斯被视为
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，中国人民银行研究局（参事室）局长（主任）王信参加2026陆家嘴论坛并表示，可持续金融的发展和国际合作可以促进国际金融治理的改革。 王信表示，可持续金融发展及相关国际合作，可从四大维度发力，推动国际金融治理改革，助力构建更加公平、包容且更具韧性的国际金融治理体系。 首先，在国际货币体系层面，绿色
 
 ## 正文
 
-英国财政大臣蕾切尔·里夫斯的盟友认为，如果首相基尔·斯塔默在日益严重的领导层危机中被赶下台，里夫斯应当继续担任财政大臣。
+专题：2026陆家嘴论坛：央行、金融监管总局、证监会领导演讲 6月17日金融一线消息，中国人民银行研究局（参事室）局长（主任）王信参加2026陆家嘴论坛并表示，可持续金融的发展和国际合作可以促进国际金融治理的改革。
 
-在工党遭遇灾难性的地方选举结果后，斯塔默正面临日益高涨的辞职呼声，这引发了人们对首相职位可能易主的猜测。
+王信表示，可持续金融发展及相关国际合作，可从四大维度发力，推动国际金融治理改革，助力构建更加公平、包容且更具韧性的国际金融治理体系。
 
-里夫斯的支持者认为，她在经济管理方面已建立了信誉，应继续担任财政大臣以确保政策连贯性。
+首先，在国际货币体系层面，绿色低碳转型将带动大规模投融资活动，涵盖碳市场、能源市场、电力市场的互联互通建设，新能源关键矿产贸易往来，跨境绿色投融资扩容等内容。
 
-盟友力挺：里夫斯是经济稳定的保障 尽管斯塔默面临压力，但里夫斯被视为财政政策的稳定力量，投资者已对她产生了信心。
+同时，多国陆续发行绿色主权债券，进一步增加全球安全资产供给。
 
-一位与财政大臣关系密切的盟友表示：“财政大臣正在开展一项重要工作，以修复英国经济的基础。
+各类绿色投融资与贸易活动，将持续发挥货币定价、结算、贸易流通、投融资结算及价值储藏等职能。
 
-在动荡时期，她必须继续留任以提供稳定。
+绿色低碳转型成效显著、可持续金融发展领先的经济体，其货币在国际货币体系中将获得更大发挥空间。
 
-” 他们补充说，改变财政领导将“对政府造成毁灭性打击”，并破坏已开始在英国债券市场建立信誉的“来之不易的稳定叙事”。
+与此同时，国际货币体系的演进，也需要及时、充分适配绿色低碳转型带来的全球金融发展新格局。
 
-另一位熟悉里夫斯盟友想法的人士指出：“她是让市场对工党经济政策放心的关键人物。
+第二，在全球金融稳定体系层面，目前各界已形成共识，气候变化、生态环境恶化、生物多样性减少等问题，会通过经济金融渠道引发金融风险，主要分为物理风险和转型风险两类。
 
 ## 相关推荐
 
-- 2026-06-30 05:49 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 05:34 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 05:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 05:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 05:30 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 05:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 05:39 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 05:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 05:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 05:45 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 05:50 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 05:56 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 05:30 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 05:43 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 06:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:38 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 05:37 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 05:56 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 05:49 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 05:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 05:48 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 05:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
+- 2026-06-30 05:37 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 05:53 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:57 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/6015710898.shtml)
-- 2026-06-30 05:33 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/796041440.shtml)
-- 2026-06-30 05:53 - [内马尔中场休息积极鼓励队友](https://www.share.kurohicncr.top/Article/details/04717353655.shtml)
-- 2026-06-30 05:57 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/65024034.shtml)
-- 2026-06-30 05:46 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/5201898821.shtml)
-- 2026-06-30 05:53 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/44402.shtml)
-- 2026-06-30 05:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/103769526968.shtml)
-- 2026-06-30 05:35 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/6712802041.shtml)
-- 2026-06-30 05:44 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/24864.shtml)
-- 2026-06-30 05:42 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/117971677805.shtml)
-- 2026-06-30 05:39 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/1354392913.shtml)
-- 2026-06-30 05:40 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/1229568.shtml)
-- 2026-06-30 05:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/38468.shtml)
-- 2026-06-30 05:43 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/8230238.shtml)
-- 2026-06-30 05:40 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/7328721042.shtml)
+- 2026-06-30 06:03 - [毒液2](https://www.blog.kurohicncr.top/Article/details/107381.shtml)
+- 2026-06-30 05:38 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/03513.shtml)
+- 2026-06-30 05:57 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/314814574.shtml)
+- 2026-06-30 05:50 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/7730635.shtml)
+- 2026-06-30 05:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/756101481497.shtml)
+- 2026-06-30 05:55 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/87378.shtml)
+- 2026-06-30 05:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/614762300167.shtml)
+- 2026-06-30 05:37 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/299763031.shtml)
+- 2026-06-30 05:50 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/75496.shtml)
+- 2026-06-30 05:56 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/1736153254.shtml)
+- 2026-06-30 05:36 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/046187.shtml)
+- 2026-06-30 05:37 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/186811.shtml)
+- 2026-06-30 05:57 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/10061.shtml)
+- 2026-06-30 06:04 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/3775666557.shtml)
+- 2026-06-30 05:36 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/2286017.shtml)

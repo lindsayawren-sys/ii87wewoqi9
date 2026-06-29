@@ -1,49 +1,47 @@
-# 蒙商银行股份有限公司党委副书记、工会主席、董事廉斌接受纪律审查和监察调查
+# 祝贺！徐嘉余50米仰泳破亚洲纪录夺冠
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中央纪委国家监委网站讯 据内蒙古自治区纪委监委消息：蒙商银行股份有限公司党委副书记、工会主席、董事廉斌涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。 （内蒙古自治区纪委监委）责任编辑：李琳琳
+今天(17日) 2026全国游泳冠军赛 徐嘉余在男子50米仰泳决赛中 以23秒92的成绩夺冠同时刷新由日本选手古贺淳也 保持17年的24秒24亚洲纪录 徐嘉余 好样的 (央视新闻客户端)
 
 ## 正文
 
-中央纪委国家监委网站讯 据内蒙古自治区纪委监委消息：蒙商银行股份有限公司党委副书记、工会主席、董事廉斌涉嫌严重违纪违法，目前正接受内蒙古自治区纪委监委纪律审查和监察调查。
-
-（内蒙古自治区纪委监委）责任编辑：李琳琳
+今天(17日) 2026全国游泳冠军赛 徐嘉余在男子50米仰泳决赛中 以23秒92的成绩夺冠同时刷新由日本选手古贺淳也 保持17年的24秒24亚洲纪录 徐嘉余 好样的 (央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 05:30 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 05:30 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-30 05:49 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-30 05:42 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 05:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 05:39 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 05:33 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 05:45 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 05:41 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 05:32 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 05:30 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 05:33 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 05:53 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 05:35 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 05:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 05:56 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 05:53 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 05:56 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 05:52 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 05:38 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 05:52 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 05:44 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 06:05 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 05:38 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 05:37 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 05:40 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 06:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 05:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 05:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:53 - [送你一朵小红花](http://www.blog.minike.top/Article/details/1779880984.shtml)
-- 2026-06-30 05:59 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/24401135487.shtml)
-- 2026-06-30 05:55 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/02936.shtml)
-- 2026-06-30 05:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/3651110.shtml)
-- 2026-06-30 05:45 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/371642744.shtml)
-- 2026-06-30 05:43 - [扬名立万](http://www.blog.minike.top/Article/details/87674.shtml)
-- 2026-06-30 05:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/32202904711.shtml)
-- 2026-06-30 05:32 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/5089351708.shtml)
-- 2026-06-30 05:50 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/852728.shtml)
-- 2026-06-30 05:50 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/693335508.shtml)
-- 2026-06-30 05:38 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/34763211909.shtml)
-- 2026-06-30 05:43 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/537685417.shtml)
-- 2026-06-30 05:41 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/7400316238.shtml)
-- 2026-06-30 05:30 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/168382997.shtml)
-- 2026-06-30 05:42 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/260075350419.shtml)
+- 2026-06-30 05:55 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/585930.shtml)
+- 2026-06-30 06:05 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/7770992165.shtml)
+- 2026-06-30 05:50 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/173204.shtml)
+- 2026-06-30 05:38 - [恋与深空 日服](http://www.blog.minike.top/Article/details/9747894621.shtml)
+- 2026-06-30 05:36 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/7510010.shtml)
+- 2026-06-30 05:43 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/46311270210.shtml)
+- 2026-06-30 05:38 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/267099619801.shtml)
+- 2026-06-30 05:53 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/94757.shtml)
+- 2026-06-30 05:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/339870076.shtml)
+- 2026-06-30 06:00 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/852004.shtml)
+- 2026-06-30 06:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/0796043.shtml)
+- 2026-06-30 05:50 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/609202428.shtml)
+- 2026-06-30 05:41 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/23877808577.shtml)
+- 2026-06-30 05:48 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/677845.shtml)
+- 2026-06-30 06:01 - [天道](https://www.share.kurohicncr.top/Article/details/236561360.shtml)

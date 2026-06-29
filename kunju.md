@@ -1,52 +1,56 @@
-# 特朗普驳回伊朗对和平提议的回应，美国国债收益率走高
+# 新闻多一点｜永远的“四大队”
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-亚洲交易时段，受油价上涨提振，美债收益率走高；新一周开局之际，霍尔木兹海峡仍处于关闭状态。 国债短端收益率涨幅大于长端，延续上周五非农就业数据向好后的上行走势。此外，特朗普总统拒绝接受伊朗对美国和平提案的回应，称其“完全不可接受”，也对美债收益率构成上行压力。 布伦特原油价格上涨4.3%，报每桶105.66美元，进一步推高美债收益率。据全球交易经纪商Tradeweb数据，2年期
+在中国共产党成立105周年之际，习近平总书记在给新华社102岁老党员张连生回信中表示：“您在信中说，要永远跟党走，做永远的‘四大队’队员，这饱含着真挚深厚的信党爱党之情。” “四大队”的历史，是新华社历史、中国新闻史乃至中国共产党党史上的一段红色传奇。 1947年3月，为粉碎国民党军队的重点进攻，中共中央主动撤离延安，毛主席率中央纵队转战陕北，指挥全国各战场的作战。其间，新华社
 
 ## 正文
 
-亚洲交易时段，受油价上涨提振，美债收益率走高；新一周开局之际，霍尔木兹海峡仍处于关闭状态。
+在中国共产党成立105周年之际，习近平总书记在给新华社102岁老党员张连生回信中表示：“您在信中说，要永远跟党走，做永远的‘四大队’队员，这饱含着真挚深厚的信党爱党之情。
 
-国债短端收益率涨幅大于长端，延续上周五非农就业数据向好后的上行走势。
+” “四大队”的历史，是新华社历史、中国新闻史乃至中国共产党党史上的一段红色传奇。
 
-此外，特朗普总统拒绝接受伊朗对美国和平提案的回应，称其“完全不可接受”，也对美债收益率构成上行压力。
+1947年3月，为粉碎国民党军队的重点进攻，中共中央主动撤离延安，毛主席率中央纵队转战陕北，指挥全国各战场的作战。
 
-布伦特原油价格上涨4.3%，报每桶105.66美元，进一步推高美债收益率。
+其间，新华社一分为二，一是社长廖承志率领新华社大多数人员转移到太行地区；二是副总编辑范长江率领一支工作队跟随党中央转战陕北，承担新闻通讯联络职责。
 
-据全球交易经纪商Tradeweb数据，2年期美债收益率上行3.3个基点，报3.925%；10年期美债收益率走高3个基点，报4.393%。
+当时，中央纵队代号“三支队”，下辖4个大队，由范长江带队的新华社工作队，由编辑、翻译、电务和后勤等人员组成，正式定名“四大队”，最初40多人，后来发展到100余人。
 
-责任编辑：江学思
+“中央留在陕北靠文武两条线指挥全国的革命斗争。
+
+武的一条线是通过电台指挥打仗，文的一条线是通过新华社指导舆论。
+
+”毛主席后来的这句回忆，深刻揭示了“四大队”的独特地位。
 
 ## 相关推荐
 
-- 2026-06-30 05:58 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 05:36 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-30 05:45 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 05:35 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 05:48 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-30 05:47 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 05:42 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 05:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 05:42 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 05:32 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-30 05:50 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 05:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 05:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 05:58 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 05:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:36 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-30 05:39 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 05:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 05:36 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 05:45 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:40 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/92432635.shtml)
-- 2026-06-30 05:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/527378.shtml)
-- 2026-06-30 05:47 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/928235363.shtml)
-- 2026-06-30 05:40 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/012568.shtml)
-- 2026-06-30 05:47 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/95728.shtml)
-- 2026-06-30 05:56 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/900782252.shtml)
-- 2026-06-30 05:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/5164516.shtml)
-- 2026-06-30 05:34 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/70990.shtml)
-- 2026-06-30 05:53 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/306686602100.shtml)
-- 2026-06-30 05:45 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/019389.shtml)
-- 2026-06-30 05:58 - [日本 高位逼抢](https://www.share.minike.top/Article/details/832767.shtml)
-- 2026-06-30 05:33 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/612972094.shtml)
-- 2026-06-30 05:53 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/751786031.shtml)
-- 2026-06-30 05:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/188261138.shtml)
-- 2026-06-30 05:43 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/94572233.shtml)
+- 2026-06-30 06:03 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/003702383665.shtml)
+- 2026-06-30 05:51 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/673571753.shtml)
+- 2026-06-30 06:02 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/907608560.shtml)
+- 2026-06-30 05:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/4556074.shtml)
+- 2026-06-30 06:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/96609.shtml)
+- 2026-06-30 05:43 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/76185.shtml)
+- 2026-06-30 05:59 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/84173.shtml)
+- 2026-06-30 05:41 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/422046522558.shtml)
+- 2026-06-30 05:36 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/74416015230.shtml)
+- 2026-06-30 05:59 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/74879241.shtml)
+- 2026-06-30 05:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/75489.shtml)
+- 2026-06-30 05:53 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/00267.shtml)
+- 2026-06-30 06:00 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/85023782916.shtml)
+- 2026-06-30 05:52 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/5924980.shtml)
+- 2026-06-30 05:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/3455460.shtml)

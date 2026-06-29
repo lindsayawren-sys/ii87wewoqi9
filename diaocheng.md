@@ -1,49 +1,58 @@
-# 亚洲股市涨跌互现 芯片股上涨
+# 北京推出多彩促消费活动庆端午
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-韩国Kospi指数创下新高，SK海力士领涨，涨幅超过11%；而由于伊朗紧张局势导致油价上涨，日本任天堂下跌8%。责任编辑：张俊 SF065
+中新网北京6月18日电 (记者 吕少威)记者18日从北京市商务局获悉，今年端午小长假期间，北京重点商圈商超、特色餐饮、文旅休闲、体育赛事、非遗体验等优质资源集中发力，推出众多应时应景的主题活动，从潮流购物到特色美食街区，从民俗游园雅趣、文艺展演到全民运动狂欢，将端午传统民俗文化与夜间经济深度融合，为市民游客打造沉浸式夏日消费新体验。 端午假期，北京各大商圈将延长营业时间，叠加节
 
 ## 正文
 
-韩国Kospi指数创下新高，SK海力士领涨，涨幅超过11%；而由于伊朗紧张局势导致油价上涨，日本任天堂下跌8%。
+中新网北京6月18日电 (记者 吕少威)记者18日从北京市商务局获悉，今年端午小长假期间，北京重点商圈商超、特色餐饮、文旅休闲、体育赛事、非遗体验等优质资源集中发力，推出众多应时应景的主题活动，从潮流购物到特色美食街区，从民俗游园雅趣、文艺展演到全民运动狂欢，将端午传统民俗文化与夜间经济深度融合，为市民游客打造沉浸式夏日消费新体验。
 
-责任编辑：张俊 SF065
+端午假期，北京各大商圈将延长营业时间，叠加节日专属折扣、主题活动、IP互动、会员福利等多重玩法，打造全天候、沉浸式夜购空间。
+
+东城、西城、朝阳、丰台、顺义、延庆、平谷、通州等多区域商场轮番推出力度十足的促销活动。
+
+此外，今年端午小长假恰逢2026年美加墨世界杯赛事，双重热点将带动各大商场人气攀升。
+
+朝阳大悦城一层户外广场落地的 FanTown世界杯豪门 IP官方授权快闪展，复刻的大力神杯、七大国家队正版周边悉数亮相，将吸引更多端午假期外出休闲的球迷驻足打卡；荟聚购物中心一层中庭也打造了沉浸式足球嘉年华，专区售卖 FIFA2026世界杯官方授权好物，正版球衣、吉祥物玩偶挂件预计成为热销单品，场地还设置了大屏实时直播赛事，氛围感十足的冠军围巾墙，也将成为市民端午逛街拍照打卡的热门点位，进一步丰富端午假日多元消费场景。
+
+本次端午假期，北京深挖舌尖上的消费潜力，串联特色美食街区、主题美食节、深夜食堂、民俗小吃主题活动。
+
+作为京城美食名片，第八届簋街不夜节持续火热。
+
+端午期间，街区全体商户推出满减、特惠套餐，凭影院票根还可享堂食优惠。
 
 ## 相关推荐
 
-- 2026-06-30 05:44 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 05:41 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 05:45 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 05:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 05:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 05:49 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 05:31 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 05:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:30 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 05:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 05:47 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 05:57 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 05:48 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-30 05:49 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-30 05:53 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 05:58 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 05:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 05:46 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 05:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 05:46 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 05:44 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 05:48 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-30 06:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 06:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 05:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 05:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 05:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/272183059534.shtml)
-- 2026-06-30 05:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/3448286034.shtml)
-- 2026-06-30 05:53 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/6011293244.shtml)
-- 2026-06-30 05:35 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/1233760.shtml)
-- 2026-06-30 05:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/61714416941.shtml)
-- 2026-06-30 05:40 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/3123159572.shtml)
-- 2026-06-30 05:36 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/198266672710.shtml)
-- 2026-06-30 05:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/0279590.shtml)
-- 2026-06-30 05:42 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/60505730400.shtml)
-- 2026-06-30 05:42 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/054783.shtml)
-- 2026-06-30 05:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/8053557377.shtml)
-- 2026-06-30 05:41 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/5016016.shtml)
-- 2026-06-30 05:48 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/624648.shtml)
-- 2026-06-30 05:55 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/27132625.shtml)
-- 2026-06-30 05:31 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/230102.shtml)
+- 2026-06-30 05:43 - [蔚来车主罚站](http://www.share.minike.top/Article/details/131687949.shtml)
+- 2026-06-30 05:51 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/482998504742.shtml)
+- 2026-06-30 06:01 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/8536327.shtml)
+- 2026-06-30 05:53 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/219052265781.shtml)
+- 2026-06-30 05:43 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/6548787.shtml)
+- 2026-06-30 05:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/3776425.shtml)
+- 2026-06-30 05:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/5001793.shtml)
+- 2026-06-30 05:44 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/21119167719.shtml)
+- 2026-06-30 06:04 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/743182376306.shtml)
+- 2026-06-30 05:45 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/646150176249.shtml)
+- 2026-06-30 06:01 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/0115180.shtml)
+- 2026-06-30 05:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/513362.shtml)
+- 2026-06-30 05:50 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/37789.shtml)
+- 2026-06-30 05:40 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/34576351.shtml)
+- 2026-06-30 06:00 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/71441817711.shtml)

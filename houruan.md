@@ -1,57 +1,47 @@
-# 华泰期货：节后蛋价超预期上涨，淘汰鸡变动决定短期供需走向
+# 美国加州和佛州发生林火火灾
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-鸡蛋市场要闻与重要数据 期货方面2026年5月8日收盘鸡蛋期货主力2606合约收盘3461元/500千克，环比上涨66，涨幅1.94%。现货方面，辽宁地区鸡蛋现货价格3.90元/斤，环比上涨0.167元/斤，现货基差JD06+439，环比上涨101；河北地区鸡蛋现货价格3.99元/斤，环比上涨0.157元/斤，现货基差JD06+526，环比上涨91；山东地区鸡蛋现货价格4.10
+发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
 
 ## 正文
 
-鸡蛋市场要闻与重要数据 期货方面2026年5月8日收盘鸡蛋期货主力2606合约收盘3461元/500千克，环比上涨66，涨幅1.94%。
-
-现货方面，辽宁地区鸡蛋现货价格3.90元/斤，环比上涨0.167元/斤，现货基差JD06+439，环比上涨101；河北地区鸡蛋现货价格3.99元/斤，环比上涨0.157元/斤，现货基差JD06+526，环比上涨91；山东地区鸡蛋现货价格4.10元/斤，环比上涨0.30元/斤，现货基差JD06+639，环比上涨234。
-
-供应方面，3月全国在产蛋鸡存栏量约为13.08亿只，环比增幅0.93%，同比增幅5.31%。
-
-本周淘汰鸡出栏量35.37万只，环比减少0.76%；周平均出栏日龄504天，较上周持平。
-
-需求方面，节前一周北京市场到货82车，较上周到车量减少3车，减幅为3.53%；广东市场到货381车，较上周到车量减少135车，减幅为26.16%。
-
-库存方面，本周全国重点地区生产环节库存为0.73天，较上周减幅16.09%；流通环节库存为0.90天，较上周减幅18.92%。
-
-参考咨询来源：钢联数据 市场分析 五一节日期间鸡蛋现货价格表现偏强，且趋势延续至节后，整体价格在5月初仍上涨超市场预期。
-
-节前市场普遍预期节后蛋价或有阶段性回调需求，但在下游刚性补库以及整体环节库存压力不大支撑下，蛋价继续偏强运行，全国多地价格已涨破4.0区间。
+发布时间：2026年06月18日 09:03 来源：央视综合 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 05:37 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 06:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 05:35 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 05:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 05:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 05:34 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 05:52 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 05:35 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 05:48 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 05:42 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 05:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 05:39 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 05:53 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-30 05:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 05:49 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 05:40 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:55 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 05:49 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 06:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 06:01 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 06:04 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 05:58 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 05:40 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 06:01 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:40 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 05:55 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/27848048974.shtml)
-- 2026-06-30 05:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/5455281.shtml)
-- 2026-06-30 05:35 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/50877863.shtml)
-- 2026-06-30 05:36 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/806674.shtml)
-- 2026-06-30 05:57 - [科技牛市下的最大考验是什么](http://www.blog.minike.top/Article/details/8772712.shtml)
-- 2026-06-30 05:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/248751.shtml)
-- 2026-06-30 05:45 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/26264085.shtml)
-- 2026-06-30 05:42 - [美股](https://www.blog.kurohicncr.top/Article/details/01098.shtml)
-- 2026-06-30 05:43 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/68642034433.shtml)
-- 2026-06-30 05:38 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/2045050.shtml)
-- 2026-06-30 05:53 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/56483507.shtml)
-- 2026-06-30 05:35 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/74156310833.shtml)
-- 2026-06-30 05:50 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/781505257930.shtml)
-- 2026-06-30 05:52 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/58469235.shtml)
-- 2026-06-30 05:40 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/653883760755.shtml)
+- 2026-06-30 05:41 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/33497671.shtml)
+- 2026-06-30 05:51 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/49559092934.shtml)
+- 2026-06-30 06:05 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/47302.shtml)
+- 2026-06-30 05:56 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/0517042911.shtml)
+- 2026-06-30 05:56 - [沙丘](http://www.blog.minike.top/Article/details/3803865.shtml)
+- 2026-06-30 05:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/990562524.shtml)
+- 2026-06-30 05:43 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/57950936.shtml)
+- 2026-06-30 05:37 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/58068860305.shtml)
+- 2026-06-30 05:53 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/32261336.shtml)
+- 2026-06-30 05:51 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/59178175.shtml)
+- 2026-06-30 05:40 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/62383.shtml)
+- 2026-06-30 05:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/3821760.shtml)
+- 2026-06-30 05:54 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/27103880.shtml)
+- 2026-06-30 05:42 - [极限挑战第一季](https://www.share.minike.top/Article/details/09639.shtml)
+- 2026-06-30 05:54 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/0876951991.shtml)

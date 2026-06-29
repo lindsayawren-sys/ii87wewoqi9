@@ -1,48 +1,56 @@
-# 花旗：日本或将动用最高30万亿日元进行外汇干预
+# 欧洲央行行长拉加德发出警告 称AI对金融稳定构成巨大风险
 
-> 更新时间：2026-06-30 06:00:03 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-花旗策略师认为，在此前可能已斥资10万亿日元进行汇市干预之后，日本当局在干预方面的累计投入最终可能高达30万亿日元。 Osamu Takashima等策略师在一份研报中写道，日本的外汇储备规模超过1.3万亿日元，如果日本财务省“已做好准备，接受本轮外储下降幅度与2022年至2024年期间大致相当”，那么它可能会买入约30万亿日元。 不过，考虑到与美国的关系，日本财务省“将尽最大
+欧洲央行行长克里斯蒂娜·拉加德表示，人工智能可能引发危险的金融危机，该行决心确保这种情况不会发生。 “即使有我们稳健的监管，我们也无法阻止人工智能，”她周三在威尼斯发表演讲时说。“不过，我们能做的是做好准备，让我们的居民能够从中受益，并免受其所带来危险的伤害，而这正是我们正在做的事情。” 她警告称，真正的风险并不是人工智能本身，而是在这样一个具有颠覆性的新变量出现之后可能引发的
 
 ## 正文
 
-花旗策略师认为，在此前可能已斥资10万亿日元进行汇市干预之后，日本当局在干预方面的累计投入最终可能高达30万亿日元。
+欧洲央行行长克里斯蒂娜·拉加德表示，人工智能可能引发危险的金融危机，该行决心确保这种情况不会发生。
 
-Osamu Takashima等策略师在一份研报中写道，日本的外汇储备规模超过1.3万亿日元，如果日本财务省“已做好准备，接受本轮外储下降幅度与2022年至2024年期间大致相当”，那么它可能会买入约30万亿日元。
+“即使有我们稳健的监管，我们也无法阻止人工智能，”她周三在威尼斯发表演讲时说。
 
-不过，考虑到与美国的关系，日本财务省“将尽最大努力避免对美国国债市场产生直接影响” 如果干预措施迫使美元兑日元汇率跌破155，则可能会遏制日本进口商，包括中小企业对美元的潜在买盘需求 鉴于供需状况改善以及当前的干预措施，美元兑日元上行突破158–160区间的动能正在减弱责任编辑：王永生
+“不过，我们能做的是做好准备，让我们的居民能够从中受益，并免受其所带来危险的伤害，而这正是我们正在做的事情。
+
+” 她警告称，真正的风险并不是人工智能本身，而是在这样一个具有颠覆性的新变量出现之后可能引发的动荡。
+
+拉加德表示：“在近代史上，有一种力量摧毁的就业岗位、吞噬的储蓄比科技还要多，这种力量就是金融危机。
+
+”“随着这些系统变得更加强大，它们正在越来越深入地扩展到经济之中。
+
+” 拉加德表示，我们这个时代的重大问题，是理解这项新技术可能对金融稳定意味着什么，以及如何保护居民和企业。
+
+欧洲央行已经让109家银行接受了一项重大网络攻击情景测试，所发现的大多数弱点已经得到解决。
 
 ## 相关推荐
 
-- 2026-06-30 05:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 05:37 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 05:38 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 05:45 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 05:54 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 05:50 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 05:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 05:33 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-30 05:50 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 05:58 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 05:41 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 05:50 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 05:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 05:40 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 05:51 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 05:48 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 05:51 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
+- 2026-06-30 05:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 06:04 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 05:44 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 05:36 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-30 05:57 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:47 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/78245081705.shtml)
-- 2026-06-30 05:55 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/738401104092.shtml)
-- 2026-06-30 05:51 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/058974540.shtml)
-- 2026-06-30 05:45 - [巴西绝杀日本](http://www.share.minike.top/Article/details/0201385339.shtml)
-- 2026-06-30 05:53 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/53418971.shtml)
-- 2026-06-30 05:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/179735083481.shtml)
-- 2026-06-30 05:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/462648815053.shtml)
-- 2026-06-30 05:55 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/360171103.shtml)
-- 2026-06-30 05:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/66274714.shtml)
-- 2026-06-30 05:39 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/346618.shtml)
-- 2026-06-30 05:40 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/18720.shtml)
-- 2026-06-30 05:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/780318818.shtml)
-- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/94721.shtml)
-- 2026-06-30 05:42 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/311349667.shtml)
-- 2026-06-30 05:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/8283986307.shtml)
+- 2026-06-30 06:03 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/46949933.shtml)
+- 2026-06-30 05:56 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/36035.shtml)
+- 2026-06-30 05:36 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/2754664.shtml)
+- 2026-06-30 05:36 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/03626.shtml)
+- 2026-06-30 05:39 - [一生一世](http://www.blog.kurohicncr.top/Article/details/4270885.shtml)
+- 2026-06-30 05:50 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/388661.shtml)
+- 2026-06-30 06:00 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/993946.shtml)
+- 2026-06-30 05:57 - [送你一朵小红花](https://www.share.minike.top/Article/details/04231.shtml)
+- 2026-06-30 05:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/36970.shtml)
+- 2026-06-30 05:58 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/508480223.shtml)
+- 2026-06-30 05:41 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/5898627151.shtml)
+- 2026-06-30 05:36 - [庆祝中国共产党成立105周年大会将举行](https://www.share.minike.top/Article/details/747881955158.shtml)
+- 2026-06-30 05:45 - [85花告别古偶](https://www.share.minike.top/Article/details/306887261.shtml)
+- 2026-06-30 06:03 - [巴西扳平比分](http://www.blog.minike.top/Article/details/48942155940.shtml)
+- 2026-06-30 05:40 - [恋与深空制作组回应近期争议](https://www.blog.kurohicncr.top/Article/details/620593.shtml)

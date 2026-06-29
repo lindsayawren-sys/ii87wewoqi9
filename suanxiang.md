@@ -1,59 +1,58 @@
-# 澳大利亚一士兵在跳伞训练事故中身亡
+# 兰州未来五年造林绿化240万亩 呵护黄河水体健康
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新社悉尼5月12日电(记者 薄雯雯)澳大利亚国防部12日证实，该国一名士兵11日在跳伞训练事故中身亡。 澳大利亚国防部当天发表声明称，特种空勤团(Special Air Service Regiment)二级准尉拉克兰·马德尔(Lachlan Muddle)于11日晚在跳伞训练事故中不幸身亡。国防部对马德尔的离世表示哀悼，并向其家属、朋友及所属部队致以慰问，同时恳请外界在此期
+中新网兰州6月18日电 (记者 闫姣)甘肃省政府新闻办18日举办新闻发布会披露，黄河之滨兰州市计划在未来五年完成造林绿化240万亩以上，森林覆盖率提升至13%以上，治理水土流失面积达到75万亩、水土保持率提升至73%以上，以此在保持黄河水体健康方面先发力、带好头。 兰州是中国唯一黄河穿城而过的省会城市，具有独特“两山夹一河”地貌，黄河兰州段总长150.7公里，串联起百里黄河风情
 
 ## 正文
 
-中新社悉尼5月12日电(记者 薄雯雯)澳大利亚国防部12日证实，该国一名士兵11日在跳伞训练事故中身亡。
+中新网兰州6月18日电 (记者 闫姣)甘肃省政府新闻办18日举办新闻发布会披露，黄河之滨兰州市计划在未来五年完成造林绿化240万亩以上，森林覆盖率提升至13%以上，治理水土流失面积达到75万亩、水土保持率提升至73%以上，以此在保持黄河水体健康方面先发力、带好头。
 
-澳大利亚国防部当天发表声明称，特种空勤团(Special Air Service Regiment)二级准尉拉克兰·马德尔(Lachlan Muddle)于11日晚在跳伞训练事故中不幸身亡。
+兰州是中国唯一黄河穿城而过的省会城市，具有独特“两山夹一河”地貌，黄河兰州段总长150.7公里，串联起百里黄河风情线整条城市景观带。
 
-国防部对马德尔的离世表示哀悼，并向其家属、朋友及所属部队致以慰问，同时恳请外界在此期间尊重国防人员及其家属的隐私。
+当日，兰州市委常委、常务副市长潘喆在“开局起步‘十五五’——奋力谱写中国式现代化甘肃篇章”主题系列新闻发布会(兰州专场)上表示，将持续深入打好污染防治攻坚战，巩固提升3022个入河排污口整治成效，扩大河湖“清四乱”成果，确保黄河干支流断面水质达标率100%，做到“一河净水送下游”。
 
-声明还称，澳大利亚国防军已暂时中止所有跳伞训练。
+潘喆说，同时提速实施黄河干流防洪二期、13条中小河流、247条重点山洪沟道综合治理，持续完善以水库、河道堤防、山洪灾害防治为重点的点线面相结合的防洪工程体系，守护黄河长久安澜。
 
-据澳大利亚广播公司报道，当地时间11日下午5时40分左右，马德尔在跳伞训练过程中与另一名澳大利亚陆军士兵在空中相撞，随后坠地身亡。
+“加力实施黄河文化工程，加快推进黄河国家文化公园兰州段建设，扩大黄河母亲雕塑、中山桥、白塔山公园、水车博览园等文化地标影响力，构建具有兰州辨识度的文化标识体系。
 
-另一名士兵受伤，但无需住院治疗。
+”潘喆说，将提质升级“夜游黄河”等特色文旅产品，培育“黄河文化+”新业态。
 
-澳大利亚总理阿尔巴尼斯12日在社交媒体上发表声明，对马德尔的不幸离世表示哀悼，并祝愿伤者早日康复。
-
-报道称，这是澳大利亚近年来发生的第二起因跳伞训练事故导致士兵死亡的事件。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 05:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 05:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 05:30 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 05:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-30 05:33 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-30 05:45 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 05:59 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 05:51 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 05:44 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 05:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 05:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 05:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 05:44 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 05:49 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 05:42 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 05:50 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 05:46 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-30 06:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 05:56 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 06:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 06:03 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 05:41 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 05:50 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 06:02 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 06:04 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 05:47 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:37 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/16290156.shtml)
-- 2026-06-30 05:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/903013.shtml)
-- 2026-06-30 05:44 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/825125761.shtml)
-- 2026-06-30 05:51 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/7749578509.shtml)
-- 2026-06-30 05:55 - [天道](http://www.blog.minike.top/Article/details/0466535.shtml)
-- 2026-06-30 05:54 - [日本 高位逼抢](http://www.share.minike.top/Article/details/036304.shtml)
-- 2026-06-30 05:32 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/302890006.shtml)
-- 2026-06-30 05:34 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/21358427.shtml)
-- 2026-06-30 05:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/91022.shtml)
-- 2026-06-30 05:43 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/935301976.shtml)
-- 2026-06-30 05:41 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/0332447.shtml)
-- 2026-06-30 05:40 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/93305884943.shtml)
-- 2026-06-30 05:36 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/646806553.shtml)
-- 2026-06-30 05:30 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/6177257143.shtml)
-- 2026-06-30 05:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/70819700184.shtml)
+- 2026-06-30 05:45 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/0636590233.shtml)
+- 2026-06-30 05:36 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/512349.shtml)
+- 2026-06-30 05:58 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/87024331950.shtml)
+- 2026-06-30 05:47 - [第一炉香](https://www.blog.minike.top/Article/details/1465129591.shtml)
+- 2026-06-30 05:40 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/388980865803.shtml)
+- 2026-06-30 06:05 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/3423696.shtml)
+- 2026-06-30 05:53 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/899273723.shtml)
+- 2026-06-30 05:36 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/690049267798.shtml)
+- 2026-06-30 05:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/1137281.shtml)
+- 2026-06-30 05:52 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/595435424238.shtml)
+- 2026-06-30 06:00 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/763785.shtml)
+- 2026-06-30 06:05 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/18124374.shtml)
+- 2026-06-30 06:04 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/974988420.shtml)
+- 2026-06-30 05:37 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/19578905.shtml)
+- 2026-06-30 05:55 - [爱很美味](http://www.blog.minike.top/Article/details/842925907.shtml)

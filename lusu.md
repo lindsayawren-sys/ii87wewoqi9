@@ -1,45 +1,46 @@
-# 江苏省水利厅原一级巡视员朱海生接受审查调查
+# 6月18日人民币对美元中间价报6.8130 下调34个基点
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据江苏省纪委监委消息：江苏省水利厅原一级巡视员朱海生涉嫌严重违纪违法，目前正接受江苏省纪委监委纪律审查和监察调查。
+中新网6月18日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月18日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8130元，下调34个基点。
 
 ## 正文
 
-中新网5月11日电 据江苏省纪委监委消息：江苏省水利厅原一级巡视员朱海生涉嫌严重违纪违法，目前正接受江苏省纪委监委纪律审查和监察调查。
+中新网6月18日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年6月18日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8130元，下调34个基点。
 
 ## 相关推荐
 
-- 2026-06-30 05:33 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 05:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 05:32 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 05:51 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 05:44 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 05:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 05:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 05:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 05:31 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 05:33 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 05:39 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 05:40 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 05:55 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 06:04 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:41 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 05:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 05:47 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 06:04 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 05:51 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 05:41 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 06:05 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 05:47 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 05:38 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 05:58 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 06:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 05:57 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 05:39 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/6731601.shtml)
-- 2026-06-30 05:37 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.minike.top/Article/details/6048594915.shtml)
-- 2026-06-30 05:36 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/4057994033.shtml)
-- 2026-06-30 05:56 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/075042049.shtml)
-- 2026-06-30 05:31 - [一生一世](https://www.share.kurohicncr.top/Article/details/819376645153.shtml)
-- 2026-06-30 05:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/24764961.shtml)
-- 2026-06-30 05:58 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/947864.shtml)
-- 2026-06-30 05:54 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/9222890634.shtml)
-- 2026-06-30 05:51 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/971018577653.shtml)
-- 2026-06-30 05:42 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/023491893746.shtml)
-- 2026-06-30 05:54 - [美股](http://www.share.kurohicncr.top/Article/details/5622111.shtml)
-- 2026-06-30 05:56 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/85955984443.shtml)
-- 2026-06-30 05:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/6457029.shtml)
-- 2026-06-30 05:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/342993677.shtml)
-- 2026-06-30 05:50 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/461212942209.shtml)
+- 2026-06-30 05:50 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/516281987162.shtml)
+- 2026-06-30 06:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/127506180187.shtml)
+- 2026-06-30 06:00 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/30634.shtml)
+- 2026-06-30 05:46 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/690234660722.shtml)
+- 2026-06-30 05:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/937509364.shtml)
+- 2026-06-30 05:41 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/76529945010.shtml)
+- 2026-06-30 05:53 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/03842253027.shtml)
+- 2026-06-30 06:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/2449320957.shtml)
+- 2026-06-30 06:03 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/575676093.shtml)
+- 2026-06-30 05:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/38746.shtml)
+- 2026-06-30 05:39 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/5333621.shtml)
+- 2026-06-30 05:39 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/62319995.shtml)
+- 2026-06-30 05:37 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/8410322.shtml)
+- 2026-06-30 05:58 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/66244.shtml)
+- 2026-06-30 05:59 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/0130895043.shtml)

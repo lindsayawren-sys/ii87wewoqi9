@@ -1,60 +1,60 @@
-# 全球最高端的飞机 “收债人”，正在批量回收精神航空客机
+# 首艘平陆运河智能船舶示范船建成试航
 
-> 更新时间：2026-06-30 06:00:02 UTC+8
+> 更新时间：2026-06-30 06:06:02 UTC+8
 
 ## 摘要
 
-航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。 彼时精神航空仍在正常运营、航班还在天上飞行。但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。 艾伦说：“我只有 6 个小时，紧急凑齐 20
+中新网贵港6月17日电(黄艳梅 莫卫华 吴昊)由广西西江重工有限责任公司建造的首艘平陆运河5000吨级绿色智能示范船“北港运河002”，17日在广西贵港顺利完成试航，标志着平陆运河智能船舶正式从建造阶段迈向运营应用。 前述船舶集成智能航行、智能能效、船岸协同等先进技术，是广西航运智能化、绿色化转型的重要里程碑。 贵港海事局强化试航监管与服务保障，全力护航智能船舶安全试航。试航前
 
 ## 正文
 
-航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？
+中新网贵港6月17日电(黄艳梅 莫卫华 吴昊)由广西西江重工有限责任公司建造的首艘平陆运河5000吨级绿色智能示范船“北港运河002”，17日在广西贵港顺利完成试航，标志着平陆运河智能船舶正式从建造阶段迈向运营应用。
 
-” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。
+前述船舶集成智能航行、智能能效、船岸协同等先进技术，是广西航运智能化、绿色化转型的重要里程碑。
 
-彼时精神航空仍在正常运营、航班还在天上飞行。
+贵港海事局强化试航监管与服务保障，全力护航智能船舶安全试航。
 
-但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。
+试航前，该局第一时间对接船东、造船企业和试航团队，严格审查试航方案及安全保障措施，严格落实试航报备制度，联合相关单位同步开展船舶、船员试航前检查，重点审核智能船舶航行系统的内河适配性，同时实施试航分级分类风险管控，提前防范化解试航通航安全风险。
 
-艾伦说：“我只有 6 个小时，紧急凑齐 20 名飞行员。
+试航过程中，贵港海事局派出执法力量现场驻守监督检查、调度海巡船现场护航，疏导过往船舶，保障试航水域通航秩序稳定，并通过线上监控对该船进行全流程跟踪，“线上+线下”联动为船舶试航保驾护航。
 
-” 他创立的游牧航空集团，数月来一直在待命，密切关注精神航空的破产动向。
+随着平陆运河等重大工程加速推进，西江干线航运向智能、绿色方向转型升级步伐持续加快。
 
-艾伦与联合创始人史蒂夫・乔尔达诺迅速组建飞行员队伍，其中大多是曾在精神航空任职的老员工。
+此次建成试航的智能船舶示范船，集成了四大核心智能系统：智能集成平台作为船舶“中枢大脑”，整合航行、能效、监测等核心数据，实现船岸一体化调度；智能航行系统融合多传感器与航道实时感知功能，具备障碍物预警、航线智能规划能力，有效降低碰撞、搁浅风险；智能能效系统动态监测燃料消耗并优化能耗，契合平陆运河省水船闸高效运行理念；监测报警系统对动力、应急、防污染等关键设备实现24小时全覆盖监控，异常响应不超过3秒，故障定位精度达95%，从源头防范安全隐患。
 
-他们建了一个 WhatsApp 群组，很快扩充到 40 人。
+该示范船的建成试航，不仅能够验证内河大型智能船舶的技术可行性，更推动传统运输工具向“航运数据节点”演进。
 
 ## 相关推荐
 
-- 2026-06-30 05:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-30 05:31 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 05:49 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 05:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 05:38 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 05:46 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 05:46 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 05:43 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-30 05:33 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 05:41 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 05:51 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 05:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 05:37 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 05:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 05:38 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 05:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 05:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 05:55 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 05:38 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 05:52 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 05:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-30 05:38 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 05:52 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 05:44 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 05:44 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 06:05 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 05:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 05:39 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/477957.shtml)
-- 2026-06-30 05:32 - [日本16强魔咒](https://www.blog.minike.top/Article/details/733758973181.shtml)
-- 2026-06-30 05:53 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/535421.shtml)
-- 2026-06-30 05:54 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/220989205275.shtml)
-- 2026-06-30 05:47 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/69631620458.shtml)
-- 2026-06-30 05:53 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/340257.shtml)
-- 2026-06-30 05:42 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/530798398561.shtml)
-- 2026-06-30 05:32 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/70931.shtml)
-- 2026-06-30 05:45 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/7769533855.shtml)
-- 2026-06-30 05:35 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/0624328.shtml)
-- 2026-06-30 05:42 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/80495691687.shtml)
-- 2026-06-30 05:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/256258.shtml)
-- 2026-06-30 05:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/065563485458.shtml)
-- 2026-06-30 05:58 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/168147344.shtml)
-- 2026-06-30 05:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/78079.shtml)
+- 2026-06-30 06:04 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/662942.shtml)
+- 2026-06-30 05:54 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/8164707152.shtml)
+- 2026-06-30 06:00 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/368994411275.shtml)
+- 2026-06-30 05:46 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/224271029.shtml)
+- 2026-06-30 05:51 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/54077.shtml)
+- 2026-06-30 05:59 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/0950580.shtml)
+- 2026-06-30 06:02 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/321985981.shtml)
+- 2026-06-30 05:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/3997708.shtml)
+- 2026-06-30 05:52 - [美人鱼](http://www.blog.minike.top/Article/details/371684321.shtml)
+- 2026-06-30 06:00 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/605115595845.shtml)
+- 2026-06-30 05:37 - [补时绝杀 巴西2-1淘汰日本](http://www.share.minike.top/Article/details/754221.shtml)
+- 2026-06-30 05:56 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/709121915470.shtml)
+- 2026-06-30 06:01 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/9759055.shtml)
+- 2026-06-30 05:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/740793.shtml)
+- 2026-06-30 05:54 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/506435646740.shtml)
