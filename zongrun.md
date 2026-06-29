@@ -1,50 +1,57 @@
-# 中国软件国际获Bank of Communications Trustee Limited增持900万股 每股作价约3.73港元
+# 江西省羽毛球超级联赛总决赛上演“南昌德比”
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月29日，Bank of Communications Trustee Limited增持中国软件国际（00354）900万股，每股作价3.7316港元，总金额为3358.44万港元。增持后最新持股数目约为2.48亿股，最新持股比例为9.07%。责任编辑：卢昱君
+美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！“世界杯魔咒”失灵了？一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？新能源
 
 ## 正文
 
-香港联交所最新资料显示，5月29日，Bank of Communications Trustee Limited增持中国软件国际（00354）900万股，每股作价3.7316港元，总金额为3358.44万港元。
+美国又对全球通讯命脉“卡脖子”，遭殃的可能是美企张凌赫喊话台胞：海峡的距离，挡不住同胞走亲走近的交流步伐加盟店前股东借款超千万失联，周大福回应人类首位万亿美元富豪诞生，资本市场风险浮出水面比赛首日，全球各大市场同步走高！
 
-增持后最新持股数目约为2.48亿股，最新持股比例为9.07%。
+“世界杯魔咒”失灵了？
 
-责任编辑：卢昱君
+一封侨批、一声“唐山”，何以承载海外侨胞百年家国梦？
+
+为何今年东北冷涡存在感这么强 背后原因有这几个特朗普提名的下任国家情报总监是谁？
+
+新能源汽车该做“体重管理”了霍尔木兹海峡再度封锁，美伊博弈或迎重要转折谒“一代草圣”于右任墓：长眠高山，遥望故土史上最贵世界杯背后的沉重账单揭幕战红牌比进球多！
+
+世界杯开幕日，创多项纪录警惕"科技红利"等幌子 以投资RWA名义诈骗等套路曝光蜜雪冰城旁的正新鸡排，要上市“搏命”？
+
+鸡蛋价格连涨7周后多平台限购 专家：不必大量囤货“鹅腿变鸭腿”争议里，人们在意的从不只是一只腿湖南同日打落多名官员，此前烟花爆炸事故致37人死亡掷纸飞机、彩虹跑！
+
+长沙高考毕业生花式庆祝毕业重庆冷冻浓缩果汁首次自营出口欧盟再见了按钮！
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 18:38 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 18:34 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 18:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
-- 2026-06-29 18:36 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 18:51 - [花万元相亲对象是50元雇的演员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 18:33 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 18:42 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 18:47 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 18:44 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 18:35 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 18:48 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-29 18:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 18:38 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 18:57 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 18:57 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 18:50 - [官媒首曝六代机？大V解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 18:51 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 18:46 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 18:53 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 18:59 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 18:40 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 19:03 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 19:03 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 18:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/83930.shtml)
-- 2026-06-29 18:39 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/8417533922.shtml)
-- 2026-06-29 18:51 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/3524772089.shtml)
-- 2026-06-29 18:52 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/428568831880.shtml)
-- 2026-06-29 18:42 - [V8](https://www.share.minike.top/Article/details/8625929954.shtml)
-- 2026-06-29 18:37 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/3671728.shtml)
-- 2026-06-29 18:42 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/628656467122.shtml)
-- 2026-06-29 18:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/70909314.shtml)
-- 2026-06-29 18:48 - [韩国队启程回国 全员羞愧低头](http://www.share.minike.top/Article/details/386407627.shtml)
-- 2026-06-29 18:46 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/423467650.shtml)
-- 2026-06-29 18:58 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/16354.shtml)
-- 2026-06-29 18:42 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/47229508369.shtml)
-- 2026-06-29 18:49 - [世界杯1/16决赛对阵出炉](http://www.blog.minike.top/Article/details/786834.shtml)
-- 2026-06-29 18:33 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/2124733.shtml)
-- 2026-06-29 18:36 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/063264109386.shtml)
+- 2026-06-29 18:48 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/4906590.shtml)
+- 2026-06-29 18:54 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/623535031364.shtml)
+- 2026-06-29 18:48 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/116569125181.shtml)
+- 2026-06-29 18:50 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/52702320263.shtml)
+- 2026-06-29 18:58 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/552327.shtml)
+- 2026-06-29 18:45 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/2508903138.shtml)
+- 2026-06-29 19:00 - [逃狱兄弟](http://www.share.minike.top/Article/details/9198913494.shtml)
+- 2026-06-29 18:47 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.minike.top/Article/details/832541072417.shtml)
+- 2026-06-29 18:54 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/35562867572.shtml)
+- 2026-06-29 18:43 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/1576665007.shtml)
+- 2026-06-29 18:59 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/87721479.shtml)
+- 2026-06-29 18:53 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/683653268.shtml)
+- 2026-06-29 18:54 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/437044144891.shtml)
+- 2026-06-29 18:51 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/164395401374.shtml)
+- 2026-06-29 18:40 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/68161630.shtml)

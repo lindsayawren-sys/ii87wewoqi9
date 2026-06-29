@@ -1,58 +1,56 @@
-# 永利澳门早盘涨超4% 瑞银维持“买入”评级
+# 全球半导体设备市场单季度销售额创历史新高！科创半导体设备ETF华泰柏瑞（588710）单日逆势“吸金”6800万
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-永利澳门（01128）早盘涨超4%，截至发稿，股价上涨4.59%，现报5.92港元，成交额1235.43万港元。 瑞银发布研报称，维持对永利澳门及新濠博亚娱乐的“买入”评级，并列为行业首选股。 根据其渠道调查，澳门5月首十天（包括五一黄金周）日均博彩收入约7.8亿澳门元，与去年同期持平，主要受贵宾厅赢率偏低影响。若以3%至3.3%的理论贵宾厅赢率计算，瑞银估计日均博彩收入将达8
+上周五，此前在震荡市中表现强势的半导体材料设备板块出现回落。不过，在AI扩产潮、国产化提速等多重利好持续积累的背景下，此次调整或为中长期布局提供窗口，相关ETF交投热度不减。Wind与交易所数据显示，科创半导体设备ETF华泰柏瑞（588710）上周五单日成交额达6.46亿元，环比增长50%，同日逆势获6800万元资金净流入。产品最新规模21.74亿元，流动性优势较突出。 国际半
 
 ## 正文
 
-永利澳门（01128）早盘涨超4%，截至发稿，股价上涨4.59%，现报5.92港元，成交额1235.43万港元。
+上周五，此前在震荡市中表现强势的半导体材料设备板块出现回落。
 
-瑞银发布研报称，维持对永利澳门及新濠博亚娱乐的“买入”评级，并列为行业首选股。
+不过，在AI扩产潮、国产化提速等多重利好持续积累的背景下，此次调整或为中长期布局提供窗口，相关ETF交投热度不减。
 
-根据其渠道调查，澳门5月首十天（包括五一黄金周）日均博彩收入约7.8亿澳门元，与去年同期持平，主要受贵宾厅赢率偏低影响。
+Wind与交易所数据显示，科创半导体设备ETF华泰柏瑞（588710）上周五单日成交额达6.46亿元，环比增长50%，同日逆势获6800万元资金净流入。
 
-若以3%至3.3%的理论贵宾厅赢率计算，瑞银估计日均博彩收入将达8.5亿至9亿澳门元，同比增长10%至15%。
+产品最新规模21.74亿元，流动性优势较突出。
 
-其中，中场日均博彩收入环比增长17%至20%，贵宾厅博彩量环比增长18%至22%，但贵宾厅实际赢率仅为2%至2.3%。
+国际半导体产业协会（SEMI）最新《全球半导体设备市场统计报告》显示，2026年第一季度全球半导体设备销售额达365.5亿美元，环比增1%、同比增14%，创单季历史新高。
 
-该行指出，市场预计5月余下21天的日均博彩收入将达约7.01亿澳门元，才能令5月整体日均博彩收入达到市场预期的约7.27亿澳门元，即同比增长6.3%。
+SEMI表示，市场持续受益于AI投资热潮，全球企业加码扩产与技术升级，资金主要投向先进逻辑、DRAM及先进封装领域，持续拉动设备市场走高。
 
-目前澳门博彩股估值相当于2026年预测企业价值倍数（EV/EBITDA）约8.3倍，较两年平均水平低0.75个标准差。
+交银国际指出，全球半导体设备市场或正迎来新一轮上修，预计2026/2027年规模将达1680亿和2010亿美元，同比增长24%与20%。
 
-责任编辑：卢昱君
+中国内地市场同步上调至572亿和650亿美元，国产设备渗透率持续提升，进口占比已从2023年的74.9%降至2025年的62.5%。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 18:38 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 18:50 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 18:55 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 18:57 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 18:48 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 18:31 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-29 18:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 18:48 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 18:49 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 18:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 18:52 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 19:01 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 19:05 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 18:41 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 18:56 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 18:36 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 18:59 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 18:37 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 18:54 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 18:49 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 18:52 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:55 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/255585888777.shtml)
-- 2026-06-29 18:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/648291143.shtml)
-- 2026-06-29 18:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/1718778.shtml)
-- 2026-06-29 18:48 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/29421.shtml)
-- 2026-06-29 18:53 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/8171108.shtml)
-- 2026-06-29 18:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/308752748.shtml)
-- 2026-06-29 18:47 - [金牌调解](https://www.share.minike.top/Article/details/09209.shtml)
-- 2026-06-29 18:41 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/7211500163.shtml)
-- 2026-06-29 18:54 - [官方通报一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/82395823462.shtml)
-- 2026-06-29 18:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/30880194.shtml)
-- 2026-06-29 18:35 - [徐昕暂不参加NBA夏季联赛](https://www.share.minike.top/Article/details/78676449.shtml)
-- 2026-06-29 18:38 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/935708699.shtml)
-- 2026-06-29 18:35 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/00765452.shtml)
-- 2026-06-29 18:45 - [疑似吴建豪老婆正脸照](http://www.blog.kurohicncr.top/Article/details/65316095.shtml)
-- 2026-06-29 18:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/498088.shtml)
+- 2026-06-29 18:48 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/54772724.shtml)
+- 2026-06-29 18:51 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/56070245.shtml)
+- 2026-06-29 18:49 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/19832.shtml)
+- 2026-06-29 18:41 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/502902888.shtml)
+- 2026-06-29 18:41 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/098701.shtml)
+- 2026-06-29 18:58 - [网红小徐直播时突遇地震](https://www.blog.kurohicncr.top/Article/details/370731234771.shtml)
+- 2026-06-29 18:36 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/90507314.shtml)
+- 2026-06-29 18:57 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/936307.shtml)
+- 2026-06-29 18:47 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/387764400592.shtml)
+- 2026-06-29 18:48 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/4088367678.shtml)
+- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/70821.shtml)
+- 2026-06-29 18:42 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/158397918.shtml)
+- 2026-06-29 18:36 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/38726.shtml)
+- 2026-06-29 18:46 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/07079247242.shtml)
+- 2026-06-29 18:57 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/86009148657.shtml)

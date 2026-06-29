@@ -1,61 +1,54 @@
-# 白银短期反弹不改调整结构，等待方向选择为主
+# SpaceX高管早早抵达纳斯达克交易所
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 现货白银（XAG/USD）周二亚洲交易时段出现技术性反弹，价格回升至76.50美元附近，日内涨幅超过2%。在经历此前连续调整后，部分低位买盘重新入场，推动银价短线企稳回升。 不过，从整体走势来看，白银目前仍未摆脱整理格局。虽然价格重新站上75美元关口，但市场尚未形成有效突破，短期运行区间依旧保持完整。近期贵金属市场整体受到多重因素影响。一方面，中东局势持续紧
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 纳斯达克本次为SpaceX的IPO仪式布置十分简约。交易所身处时代广场，平日里游客络绎不绝，但现场没有布置任何标识牌或大型显示屏来烘托这场重磅上市活动。 一街之隔的摩根士丹利总部弥补了这份冷清，竖起巨型广告牌，画面以火星为主题，还打出倒计时标语：“SPCX蓄势升空”。 早上7点30分（北京时间19点30）左
 
 ## 正文
 
-文章来源：汇通财经 现货白银（XAG/USD）周二亚洲交易时段出现技术性反弹，价格回升至76.50美元附近，日内涨幅超过2%。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 纳斯达克本次为SpaceX的IPO仪式布置十分简约。
 
-在经历此前连续调整后，部分低位买盘重新入场，推动银价短线企稳回升。
+交易所身处时代广场，平日里游客络绎不绝，但现场没有布置任何标识牌或大型显示屏来烘托这场重磅上市活动。
 
-不过，从整体走势来看，白银目前仍未摆脱整理格局。
+一街之隔的摩根士丹利总部弥补了这份冷清，竖起巨型广告牌，画面以火星为主题，还打出倒计时标语：“SPCX蓄势升空”。
 
-虽然价格重新站上75美元关口，但市场尚未形成有效突破，短期运行区间依旧保持完整。
+早上7点30分（北京时间19点30）左右，几名SpaceX高管从侧门快步走进交易所；一旁一小群摄影、摄像工作人员早已架好设备，等候抓拍一众知名高管的画面。
 
-近期贵金属市场整体受到多重因素影响。
-
-一方面，中东局势持续紧张以及全球经济不确定性为避险资产提供支撑；另一方面，市场对于美联储维持高利率环境的预期仍然存在，对贵金属形成压制。
-
-与黄金相比，白银除了具备避险属性之外，还兼具工业金属特征。
-
-因此，其价格不仅受到货币政策和美元走势影响，也与全球制造业活动和工业需求变化密切相关。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 18:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 18:46 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 18:33 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 18:31 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-29 18:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 18:44 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 18:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 18:49 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 18:57 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 18:43 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-29 18:46 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 18:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 18:58 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 18:57 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 18:50 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 18:43 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 18:51 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 18:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 18:59 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 18:38 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 18:50 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 18:38 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 19:04 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-29 18:42 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 19:05 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 18:47 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 18:43 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 18:42 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 18:49 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [河南高院审委会原委员曲海滨被查](http://www.share.minike.top/Article/details/398384896.shtml)
-- 2026-06-29 18:57 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/137233459741.shtml)
-- 2026-06-29 18:54 - [许建琼任湖南省检察院副检察长](http://www.share.kurohicncr.top/Article/details/25458285.shtml)
-- 2026-06-29 18:57 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/41489.shtml)
-- 2026-06-29 18:33 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/40520239.shtml)
-- 2026-06-29 18:52 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/950351629788.shtml)
-- 2026-06-29 18:46 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/76832288.shtml)
-- 2026-06-29 18:56 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/3630889677.shtml)
-- 2026-06-29 18:46 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/1882534.shtml)
-- 2026-06-29 18:30 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/65350051136.shtml)
-- 2026-06-29 18:48 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/421462.shtml)
-- 2026-06-29 18:41 - [CORTIS 小牌大耍](http://www.blog.kurohicncr.top/Article/details/25850.shtml)
-- 2026-06-29 18:59 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/376869459041.shtml)
-- 2026-06-29 18:44 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/3310333.shtml)
-- 2026-06-29 18:40 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/5871675.shtml)
+- 2026-06-29 18:57 - [小娘惹](https://www.blog.minike.top/Article/details/036109295229.shtml)
+- 2026-06-29 18:58 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/388929274464.shtml)
+- 2026-06-29 18:59 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.kurohicncr.top/Article/details/553141374.shtml)
+- 2026-06-29 18:46 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/667343633878.shtml)
+- 2026-06-29 18:50 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/86166019.shtml)
+- 2026-06-29 18:46 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/36924640.shtml)
+- 2026-06-29 18:58 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/0756780572.shtml)
+- 2026-06-29 18:43 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/48067940.shtml)
+- 2026-06-29 18:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/8407764.shtml)
+- 2026-06-29 18:45 - [日本偶像龟梨和也宣布结婚](https://www.share.minike.top/Article/details/5835378159.shtml)
+- 2026-06-29 18:43 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/88222179.shtml)
+- 2026-06-29 18:44 - [V8](https://www.share.kurohicncr.top/Article/details/82036.shtml)
+- 2026-06-29 18:39 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/99286205.shtml)
+- 2026-06-29 18:58 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/503157025.shtml)
+- 2026-06-29 18:40 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/761574090830.shtml)

@@ -1,59 +1,58 @@
-# 网暴抗洪救灾村支书的涉事人员被查处（2026·06·02）
+# TVB航空职业剧《飞常日志 2》在广州路演
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-辟谣 “湖北安陆府河洪水冲断了桥梁”不实 详情：近日，有网传视频配文称“湖北安陆府河洪水冲断了桥梁”，引发关注。经当地网信、公安部门核查，网民杨某于5月25日拍摄安陆市大坝泄洪现场视频，为博取网络关注，刻意编造“湖北安陆府河洪水冲断了桥梁”的虚假文字，并将视频发布至短视频平台，造成不良影响。经民警核查询问，杨某如实供述虚构事实、散布谣言的违法行为。目前，公安机关已依法对其作出行
+中新网广州6月13日电(记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，直观展现粤港澳大湾区空陆海多式联运的便捷优势。 作为聚焦航空行业的剧集，《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港机场不同岗位从业者的工作日常与职业成长，也生动呈
 
 ## 正文
 
-辟谣 “湖北安陆府河洪水冲断了桥梁”不实 详情：近日，有网传视频配文称“湖北安陆府河洪水冲断了桥梁”，引发关注。
+中新网广州6月13日电(记者 蔡敏婕)TVB航空职业剧《飞常日志2》主创团队13日在广州举办粉丝见面会，一众演员现场分享拍摄故事，直观展现粤港澳大湾区空陆海多式联运的便捷优势。
 
-经当地网信、公安部门核查，网民杨某于5月25日拍摄安陆市大坝泄洪现场视频，为博取网络关注，刻意编造“湖北安陆府河洪水冲断了桥梁”的虚假文字，并将视频发布至短视频平台，造成不良影响。
+作为聚焦航空行业的剧集，《飞常日志2》讲述杨尚伟(马国明饰)、吕芷珊(高海宁饰)、陈杰(洪永城饰)、李胜祥(徐荣饰)四位机场骨干迎来职涯新阶段，刻画了香港机场不同岗位从业者的工作日常与职业成长，也生动呈现大湾区互联互通的发展成果。
 
-经民警核查询问，杨某如实供述虚构事实、散布谣言的违法行为。
+出行便利化是湾区融通最直观的体现。
 
-目前，公安机关已依法对其作出行政处罚。
+TVB艺人高海宁结合自身出行体验表示，香港国际机场联动湾区构建的立体交通体系完善，旅客一下飞机即可换乘各类交通工具通达湾区多个城市，缩减出行耗时，日常往返便捷高效。
 
-(来源：“湖北网络辟谣”微信公众号、诗画安陆) 辟谣 “安徽芜湖澛港发生大火”不实 详情：近日，有网民在网络平台发布标题为“澛港大火”的视频，视频发布后迅速传播，引发部分市民恐慌。
+高效便捷的跨境交通网络，不仅便利了旅客出行，更深度激活湾区人才流动活力。
 
-经当地警方核查，“澛港大火”纯属虚假信息，网传视频画面系张某某为博取关注恶意拼接剪辑，辖区内并无相关火情事故发生。
+TVB艺人洪永城说：“我在拍戏时发现，有不少来自珠海、东莞等地居民选择前往香港国际机场就业，湾区人才融合持续加深。
 
-目前，公安机关已依法对违法行为人张某某作出处罚。
+” 针对跨境中转出行的便民服务，TVB艺人刘颖镟重点介绍“经珠港飞”联程服务，旅客飞抵广东珠海后，乘坐接驳巴士经港珠澳大桥可达香港国际机场，免去香港方面的出入境查验环节，提高通关效率，“这项服务支持双向通行，无论是内地居民出境环游世界，还是海外旅客经香港进入内地城市，都能实现高效中转”。
 
-(来源：@安徽网络举报) 误区 “限制网约车司机驾驶时间”是对新规的误读 真相：《机动车驾驶人疲劳驾驶认定规则》6月1日起实施。
+在跨境物流领域，湾区联运体系同样实现跨越式升级。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 18:56 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 18:55 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 18:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 18:45 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 18:31 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 18:58 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 18:45 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 18:36 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 18:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 18:45 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 18:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 18:35 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 18:54 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 18:36 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 18:43 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 18:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 18:45 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 18:46 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 19:04 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 18:49 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 19:03 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 18:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 18:39 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 19:02 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/3708985309.shtml)
-- 2026-06-29 18:31 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/2592289.shtml)
-- 2026-06-29 18:59 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/74965123822.shtml)
-- 2026-06-29 18:56 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/628001503428.shtml)
-- 2026-06-29 18:41 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/03284001.shtml)
-- 2026-06-29 18:36 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/42197.shtml)
-- 2026-06-29 18:54 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/105268.shtml)
-- 2026-06-29 18:57 - [许建琼任湖南省检察院副检察长](http://www.share.minike.top/Article/details/2812065.shtml)
-- 2026-06-29 18:30 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/3500267.shtml)
-- 2026-06-29 18:30 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/537474481.shtml)
-- 2026-06-29 18:48 - [一生一世](https://www.share.minike.top/Article/details/32914863676.shtml)
-- 2026-06-29 18:51 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/12344622729.shtml)
-- 2026-06-29 18:59 - [赵今麦时隔五年再演李诗情](http://www.share.kurohicncr.top/Article/details/31178540624.shtml)
-- 2026-06-29 18:34 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/0506353408.shtml)
-- 2026-06-29 18:30 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/0260487522.shtml)
+- 2026-06-29 18:38 - [官方通报一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/19795614732.shtml)
+- 2026-06-29 18:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/57063401175.shtml)
+- 2026-06-29 18:50 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/359683.shtml)
+- 2026-06-29 18:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/64460354.shtml)
+- 2026-06-29 19:04 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/51663397.shtml)
+- 2026-06-29 18:53 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/2487602.shtml)
+- 2026-06-29 18:41 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/98523795.shtml)
+- 2026-06-29 18:53 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/82516.shtml)
+- 2026-06-29 18:54 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/6228264.shtml)
+- 2026-06-29 18:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/6739830.shtml)
+- 2026-06-29 18:49 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/77334832.shtml)
+- 2026-06-29 18:46 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/79774461.shtml)
+- 2026-06-29 18:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/6134067.shtml)
+- 2026-06-29 18:55 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/731918162.shtml)
+- 2026-06-29 19:00 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/52096956130.shtml)

@@ -1,56 +1,47 @@
-# 两部门开展2026年“才聚文旅 职引未来”人才招聘专项行动
+# 四川省广元市委原常委、统战部原部长陈正永接受审查调查
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-日前，教育部、文化和旅游部印发通知，面向文旅行业各类用人单位、高校应届毕业生及离校2年内未就业毕业生，联合开展2026年“才聚文旅 职引未来”人才招聘专项行动，5月—7月、9月—11月分两批次开展。 1、组织系列专场招聘 国家大学生就业服务平台(https://www.ncss.cn)设立“全国文旅行业面向高校毕业生网上招聘”专区，集中归集发布各地文旅行业用人单位岗位招聘信息。
+中新网6月12日电 据四川省纪委监委消息：四川省广元市委原常委、统战部原部长陈正永涉嫌严重违纪违法，目前正接受四川省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-日前，教育部、文化和旅游部印发通知，面向文旅行业各类用人单位、高校应届毕业生及离校2年内未就业毕业生，联合开展2026年“才聚文旅 职引未来”人才招聘专项行动，5月—7月、9月—11月分两批次开展。
-
-1、组织系列专场招聘 国家大学生就业服务平台(https://www.ncss.cn)设立“全国文旅行业面向高校毕业生网上招聘”专区，集中归集发布各地文旅行业用人单位岗位招聘信息。
-
-支持各地各高校和文旅企事业单位开展直播带岗、视频双选会、企业云宣讲等活动。
-
-主动邀请文旅领域用人单位进校招聘或联合举办区域性、行业性专场招聘会。
-
-鼓励结合文旅消费促进、产业供需对接等各类文旅活动，组织人才供需对接，探索高校毕业生招聘会进景区、旅游休闲街区、夜间文旅消费集聚区、文化产业园区。
-
-针对季节性用工需求，举办“小而优、专而精”的专项招聘活动，健全区域就业协作机制，推进校企对接、就业信息共享。
-
-2、做好定向访企拓岗结合开展高校书记校长“访企拓岗”行动，组织学科专业对口高校校院两级领导班子成员，主动走进文化产业园区、大型文旅项目、重点文旅企业及景区、夜间文旅消费集聚区等，深入开展定向访企拓岗。
-
-重点挖掘旅游演艺、游戏动漫、数字文旅、沉浸式体验、文化创意设计、非遗保护传承、艺术表演、新媒体营销、文旅投融资、文旅供应链金融等领域人才需求，鼓励将访企拓岗与招商引资、项目调研相结合，实现产业发展与人才引进互促共进。
+中新网6月12日电 据四川省纪委监委消息：四川省广元市委原常委、统战部原部长陈正永涉嫌严重违纪违法，目前正接受四川省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 18:34 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 18:55 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 18:57 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 18:58 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 18:56 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 18:46 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 18:42 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 18:51 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 18:56 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 19:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 18:37 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 18:59 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 18:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 18:49 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 18:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 18:44 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 19:04 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 18:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 18:46 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 18:54 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 18:51 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 18:57 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 18:53 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 18:37 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:30 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/6065225.shtml)
-- 2026-06-29 18:45 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/75286506255.shtml)
-- 2026-06-29 18:46 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/3707911.shtml)
-- 2026-06-29 18:52 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/522307165.shtml)
-- 2026-06-29 18:30 - [美人鱼](https://www.share.minike.top/Article/details/198593313.shtml)
-- 2026-06-29 18:45 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/2694572.shtml)
-- 2026-06-29 18:49 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/918607996.shtml)
-- 2026-06-29 18:37 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/991628374530.shtml)
-- 2026-06-29 18:36 - [扩军害了世界杯吗](https://www.blog.minike.top/Article/details/568958676.shtml)
-- 2026-06-29 18:34 - [歼-15型舰载机为何被歼-15T替代](http://www.blog.minike.top/Article/details/823515506584.shtml)
-- 2026-06-29 18:57 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/08023650369.shtml)
-- 2026-06-29 18:45 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/769472.shtml)
-- 2026-06-29 18:47 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/620063.shtml)
-- 2026-06-29 18:35 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/871483218816.shtml)
-- 2026-06-29 18:39 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/01737483.shtml)
+- 2026-06-29 18:56 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/897008611.shtml)
+- 2026-06-29 18:47 - [起风了](http://www.share.kurohicncr.top/Article/details/10668.shtml)
+- 2026-06-29 18:44 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/08397325.shtml)
+- 2026-06-29 19:01 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/0150850469.shtml)
+- 2026-06-29 19:05 - [绘画区你赢了](http://www.blog.minike.top/Article/details/729032.shtml)
+- 2026-06-29 18:53 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/94251.shtml)
+- 2026-06-29 18:52 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/42350162.shtml)
+- 2026-06-29 18:55 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/74942405702.shtml)
+- 2026-06-29 18:49 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/537954798371.shtml)
+- 2026-06-29 18:41 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/944523.shtml)
+- 2026-06-29 18:57 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/71906.shtml)
+- 2026-06-29 19:03 - [7款高价创新药有望降价](https://www.share.kurohicncr.top/Article/details/99345166910.shtml)
+- 2026-06-29 19:04 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/267330.shtml)
+- 2026-06-29 18:52 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/8245297.shtml)
+- 2026-06-29 18:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/101343982597.shtml)

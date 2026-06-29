@@ -1,60 +1,57 @@
-# 韩正会见英国外交大臣库珀
+# 国际篮联洲际杯将连续三年落地北京 本土球队蓄势待发
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新社北京6月2日电 6月2日，中国国家副主席韩正在北京会见英国外交大臣库珀。 韩正表示，今年1月，习近平主席同斯塔默首相一致同意发展中英长期稳定的全面战略伙伴关系，开启两国关系新篇章。中英关系改善发展符合两国人民利益。双方要携手承担大国责任，加强战略沟通，巩固双边关系良好势头，不断挖掘新机遇，孕育新动能，促进人文交流和民心相通。共同践行真正的多边主义，携手推进全球治理体系改革
+今天(6月12日)下午，国际篮球联合会(FIBA)正式宣布：北京市成功获得2026年至2028年国际篮联洲际杯承办权。这是自2019年国际篮联篮球世界杯之后，世界顶级篮球赛事再度落地北京。 国际篮联洲际杯是国际篮联旗下年度全球俱乐部锦标赛，代表世界俱乐部篮球的最高荣誉。赛事每年举办一届，汇集BCL欧洲冠军、BCL美洲冠军、BCL亚洲冠军、BAL非洲冠军、NBL大洋洲冠军及NBA
 
 ## 正文
 
-中新社北京6月2日电 6月2日，中国国家副主席韩正在北京会见英国外交大臣库珀。
+今天(6月12日)下午，国际篮球联合会(FIBA)正式宣布：北京市成功获得2026年至2028年国际篮联洲际杯承办权。
 
-韩正表示，今年1月，习近平主席同斯塔默首相一致同意发展中英长期稳定的全面战略伙伴关系，开启两国关系新篇章。
+这是自2019年国际篮联篮球世界杯之后，世界顶级篮球赛事再度落地北京。
 
-中英关系改善发展符合两国人民利益。
+国际篮联洲际杯是国际篮联旗下年度全球俱乐部锦标赛，代表世界俱乐部篮球的最高荣誉。
 
-双方要携手承担大国责任，加强战略沟通，巩固双边关系良好势头，不断挖掘新机遇，孕育新动能，促进人文交流和民心相通。
+赛事每年举办一届，汇集BCL欧洲冠军、BCL美洲冠军、BCL亚洲冠军、BAL非洲冠军、NBL大洋洲冠军及NBA G联赛的六大联赛代表队，这些顶级俱乐部的队伍将同台竞技，上演巅峰对决。
 
-共同践行真正的多边主义，携手推进全球治理体系改革，为世界注入更多稳定性和确定性。
+更令国内球迷期待的是，自2027年起，赛事将扩军至7至8支队伍，并特别邀请一支北京本土球队参赛。
 
-库珀表示，英中在经贸投资、人工智能、绿色发展、应对气变等领域拥有广泛共同利益和合作潜力。
+这一创新举措将提升赛事的观赏性与竞技悬念，更能让国内球迷有机会在家门口为自己家乡的球队呐喊助威。
 
-英方愿同中方推进落实两国领导人达成的重要共识，开展建设性对话和合作，共同应对挑战。
-
-(完)
+(总台记者 张河运 付胜斌)
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 18:36 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 18:31 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 18:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 18:36 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 18:44 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 18:57 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 18:37 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 18:42 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 18:31 - [税务总局披露5起合规申报个税案例](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 18:36 - [专家预计全球央行加息节奏将出现反复](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 18:48 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 18:47 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 18:39 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 18:48 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 18:37 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 18:52 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 18:41 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 18:50 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 18:37 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 18:41 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 18:44 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 18:43 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 19:04 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 18:57 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 19:04 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 18:39 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/45046943.shtml)
-- 2026-06-29 18:33 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/8349316865.shtml)
-- 2026-06-29 18:47 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/45039.shtml)
-- 2026-06-29 18:30 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/038612607.shtml)
-- 2026-06-29 18:51 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/02794628189.shtml)
-- 2026-06-29 18:50 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/953383727.shtml)
-- 2026-06-29 18:54 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/06375707.shtml)
-- 2026-06-29 18:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/9774277791.shtml)
-- 2026-06-29 18:51 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/01447.shtml)
-- 2026-06-29 18:42 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/66490074948.shtml)
-- 2026-06-29 18:47 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/81530.shtml)
-- 2026-06-29 18:40 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/27759459050.shtml)
-- 2026-06-29 18:47 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/269261298495.shtml)
-- 2026-06-29 18:57 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.kurohicncr.top/Article/details/44491.shtml)
-- 2026-06-29 18:39 - [我和我的家乡](http://www.blog.minike.top/Article/details/141137239134.shtml)
+- 2026-06-29 19:05 - [看大国重器“云端穿针引线”](http://www.blog.minike.top/Article/details/076565182026.shtml)
+- 2026-06-29 19:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/16661.shtml)
+- 2026-06-29 18:57 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/6789696941.shtml)
+- 2026-06-29 18:41 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/886657764.shtml)
+- 2026-06-29 19:01 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/16442250607.shtml)
+- 2026-06-29 18:53 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/80256.shtml)
+- 2026-06-29 18:56 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/665595433903.shtml)
+- 2026-06-29 19:00 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/1149352706.shtml)
+- 2026-06-29 18:44 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/83412069.shtml)
+- 2026-06-29 18:52 - [媒体评恋与深空用“引狼入室”台词](https://www.blog.kurohicncr.top/Article/details/46086123.shtml)
+- 2026-06-29 18:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/76159845126.shtml)
+- 2026-06-29 18:41 - [逃狱兄弟](https://www.share.minike.top/Article/details/100599171150.shtml)
+- 2026-06-29 18:47 - [AG 宫斗](http://www.share.minike.top/Article/details/962834157620.shtml)
+- 2026-06-29 18:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/803183.shtml)
+- 2026-06-29 18:56 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.minike.top/Article/details/61649.shtml)

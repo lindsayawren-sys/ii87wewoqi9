@@ -1,60 +1,57 @@
-# 金丝为骨塑珐琅 釉彩作魂续古风
+# 东西问丨郝鲁怡：以发展权赋能气候正义 深化中欧绿色伙伴关系
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网宜昌6月3日电 题：金丝为骨塑珐琅 釉彩作魂续古风 作者 杨雪 宋莹 董晓斌 “这叫掐丝，是撑起整幅画的魂。”初夏时节，在湖北省兴山县格物空间非遗工坊，负责人谭玲一边教授体验者制作掐丝珐琅画，一边娓娓道出其中的门道。 掐丝珐琅画是国家级非物质文化遗产代表性项目景泰蓝的平面化创新，既延续了宫廷工艺的华贵质感，又适配现代审美，更贴合大众传播与日常体验。 今年47岁的谭玲自幼喜
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。《宣言》的达成，将发展权正式确立为一项人权。《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。在当前全球气候危机加剧的背景下，发展权
 
 ## 正文
 
-中新网宜昌6月3日电 题：金丝为骨塑珐琅 釉彩作魂续古风 作者 杨雪 宋莹 董晓斌 “这叫掐丝，是撑起整幅画的魂。
+中新社北京6月14日电 题：以发展权赋能气候正义深化中欧绿色伙伴关系 作者 郝鲁怡 中国社会科学院国际法研究所研究员 2026年是联合国《发展权利宣言》通过40周年。
 
-”初夏时节，在湖北省兴山县格物空间非遗工坊，负责人谭玲一边教授体验者制作掐丝珐琅画，一边娓娓道出其中的门道。
+《宣言》的达成，将发展权正式确立为一项人权。
 
-掐丝珐琅画是国家级非物质文化遗产代表性项目景泰蓝的平面化创新，既延续了宫廷工艺的华贵质感，又适配现代审美，更贴合大众传播与日常体验。
+《宣言》亦强调，发展应当秉持“以人为本”的理念，要求全体人民和所有个人确保有意义地参与发展，公平分配发展成果，并为此采取持久的行动。
 
-今年47岁的谭玲自幼喜好绘画，打下了扎实的功底。
+在当前全球气候危机加剧的背景下，发展权所蕴含的以人为中心、公平发展、可持续性、自决原则和国际合作等内涵，为推动公平有序的全球气候治理行动提供重要依据。
 
-2018年，她在参观游览北京园博园时，被掐丝珐琅画金丝勾勒的灵动与釉彩斑斓的质感深深吸引，从此结缘。
+气候变化是人类当前面临的最严峻挑战之一。
 
-之后，谭玲赴北京学习掐丝珐琅画创作。
+联合国人权理事会曾指出，气候变化不仅对一些国家构成生存威胁，而且已经对充分实现各项人权产生了不利影响。
 
-由于制作工艺复杂，加上天然矿物釉料等耗材成本较高，求学之路困难重重。
+据联合国难民署2025年的统计，过去十年间约有2.5亿人因气候相关因素被迫迁移，最不发达国家承受着与自身历史排放责任极不相称的气候代价，妇女、儿童等脆弱群体的基本权利受到严重冲击。
 
-为此，她不断查阅书籍、走访珐琅艺人，潜心研习金丝掐制、釉料调配、点蓝封胶等技艺，最终熟练掌握了核心技法。
+在此背景下，“气候正义”概念正从边缘走向全球核心议程。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 18:51 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 18:43 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 18:54 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 18:47 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 18:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 18:58 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 18:34 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 18:35 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 18:39 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 18:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 18:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 18:39 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 18:53 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 18:53 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 18:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 18:36 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 18:59 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 18:56 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 18:47 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 18:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 19:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 18:45 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 19:02 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 18:38 - [伊朗足球队将启程回国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/794923919.shtml)
-- 2026-06-29 18:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/514822478765.shtml)
-- 2026-06-29 18:37 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/2367045443.shtml)
-- 2026-06-29 18:53 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/816743.shtml)
-- 2026-06-29 18:40 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/56214030.shtml)
-- 2026-06-29 18:43 - [时光音乐会](https://www.blog.minike.top/Article/details/943616.shtml)
-- 2026-06-29 18:37 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/553955512080.shtml)
-- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/627034.shtml)
-- 2026-06-29 18:39 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.minike.top/Article/details/28451938.shtml)
-- 2026-06-29 18:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/27877.shtml)
-- 2026-06-29 18:41 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/491308374940.shtml)
-- 2026-06-29 18:34 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/144448.shtml)
-- 2026-06-29 18:57 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.minike.top/Article/details/897880.shtml)
-- 2026-06-29 18:51 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/039986439300.shtml)
-- 2026-06-29 18:57 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.minike.top/Article/details/8150070.shtml)
+- 2026-06-29 19:00 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.minike.top/Article/details/50718891.shtml)
+- 2026-06-29 18:45 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/2450718266.shtml)
+- 2026-06-29 18:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/465051673.shtml)
+- 2026-06-29 19:03 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/771006922876.shtml)
+- 2026-06-29 18:43 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/297043.shtml)
+- 2026-06-29 18:44 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/76132.shtml)
+- 2026-06-29 18:49 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.kurohicncr.top/Article/details/357546261779.shtml)
+- 2026-06-29 18:45 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/3457570.shtml)
+- 2026-06-29 18:51 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/76065.shtml)
+- 2026-06-29 19:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/91614.shtml)
+- 2026-06-29 18:56 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/399875796764.shtml)
+- 2026-06-29 18:43 - [人形机器人](https://www.share.minike.top/Article/details/3205273.shtml)
+- 2026-06-29 18:41 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/3927989872.shtml)
+- 2026-06-29 18:37 - [张杰我九岁就跟你了](https://www.share.kurohicncr.top/Article/details/35659118628.shtml)
+- 2026-06-29 19:02 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/4705931.shtml)

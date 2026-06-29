@@ -1,58 +1,61 @@
-# 裕信银行对德国商业银行的收购要约跨过关键的持股比例门槛
+# 巴西广东同乡总会在圣保罗与深圳大学代表团座谈
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-裕信银行对德国商业银行的收购要约已获足够多投资者接受，一旦取得相关股份所有权，持股比例将达到34%。这为其持续已久的收购这家德国竞争对手的行动增添了动能。 周二的一份文件显示，截至6月2日，相当于德国商业银行7.58%股本的股份已经交售。对裕信银行首席执行官Andrea Orcel而言，这意味着他的影响力进一步增强，也让他更加势不可挡，尽管德国政府反对这项386亿欧元（450亿
+中新网圣保罗6月15日电 巴西广东同乡总会日前在巴西圣保罗举行座谈会，欢迎由深圳大学党委书记徐波一行到访。 中国驻圣保罗总领馆领侨处主任荣强、侨务领事梁荣乾，巴西华人协会会长叶周永，巴西广东同乡总会会长苏新效及该会主要理监事、侨社代表、教育界人士和留学生代表出席活动。座谈会由巴西广东同乡总会副秘书长刘淑仪主持。 苏新效在致辞中对代表团的到来表示诚挚欢迎，介绍巴西广东同乡总会职责
 
 ## 正文
 
-裕信银行对德国商业银行的收购要约已获足够多投资者接受，一旦取得相关股份所有权，持股比例将达到34%。
+中新网圣保罗6月15日电 巴西广东同乡总会日前在巴西圣保罗举行座谈会，欢迎由深圳大学党委书记徐波一行到访。
 
-这为其持续已久的收购这家德国竞争对手的行动增添了动能。
+中国驻圣保罗总领馆领侨处主任荣强、侨务领事梁荣乾，巴西华人协会会长叶周永，巴西广东同乡总会会长苏新效及该会主要理监事、侨社代表、教育界人士和留学生代表出席活动。
 
-周二的一份文件显示，截至6月2日，相当于德国商业银行7.58%股本的股份已经交售。
+座谈会由巴西广东同乡总会副秘书长刘淑仪主持。
 
-对裕信银行首席执行官Andrea Orcel而言，这意味着他的影响力进一步增强，也让他更加势不可挡，尽管德国政府反对这项386亿欧元（450亿美元）的收购要约。
+苏新效在致辞中对代表团的到来表示诚挚欢迎，介绍巴西广东同乡总会职责与圣保罗华人学者与留学生群体的发展现状，并表示，总会愿持续发挥桥梁纽带作用，全力支持中国高校与巴西各界开展更深层次的务实合作。
 
-在接受期仍剩数周的情况下，此番对收购要约的接受情况表明，尽管该要约的隐含估值低于德国商业银行当前市价，但至少有部分投资者对这一提议感兴趣。
+叶周永介绍巴西华人协会成立发展情况并表示，巴西广东同乡总会作为当地侨胞人数最多的侨团，多年来始终为促进中巴友好往来提供坚实支撑，期许广东会利用自身优势，继续推动深圳大学与巴西知名高校建立常态化联系，拓展校际合作空间。
 
-Orcel此前曾表示，这一偏低的报价旨在把裕信银行的持股比例提高到略高于30%的水平；按照德国法律，持股达到这一水平原本会触发一次性强制要约，以便他之后可以更灵活地在市场上逐步增持。
+荣强在致辞中指出，今年5月起中巴互免签证政策正式实施，进一步便利了双方人员往来与交流合作。
 
-裕信银行在声明中表示，该行已实现目标，从而“在收购要约完成后，能够在机会出现时进一步买入股份，保留灵活选择空间”。
+圣保罗是拉美地区华人最集中的城市，旅巴华人中半数以上来自广东，为两地交流创造了天然优势。
 
-截至法兰克福时间周二下午4点29分，德国商业银行股价上涨1.5%；裕信银行在米兰上涨0.7%。
+祝愿深圳大学代表团此行收获丰硕成果，也期待巴西广东同乡总会继续当好国内高校与巴西社会之间的“桥梁”，搭建稳定沟通渠道，不断夯实中巴友好的民意根基。
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-29 18:43 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 18:51 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 18:51 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 18:41 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 18:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 18:41 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 18:52 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 18:36 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 18:30 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 18:32 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 18:46 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 18:48 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 19:02 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 18:44 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 18:45 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 18:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 18:52 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 19:04 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-29 18:45 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 18:58 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 19:02 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 18:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 18:37 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 18:51 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 18:59 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 18:36 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:54 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/47139899.shtml)
-- 2026-06-29 18:41 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/05317095449.shtml)
-- 2026-06-29 18:57 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/8258673.shtml)
-- 2026-06-29 18:49 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/34058487.shtml)
-- 2026-06-29 18:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/67184.shtml)
-- 2026-06-29 18:45 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/9497379667.shtml)
-- 2026-06-29 18:48 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/75937.shtml)
-- 2026-06-29 18:42 - [王楚钦开门红](http://www.share.minike.top/Article/details/060721989056.shtml)
-- 2026-06-29 18:31 - [刘嘉玲为64岁梁朝伟庆生](http://www.share.kurohicncr.top/Article/details/035358722.shtml)
-- 2026-06-29 18:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/33885.shtml)
-- 2026-06-29 18:37 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/6213829.shtml)
-- 2026-06-29 18:39 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/32686.shtml)
-- 2026-06-29 18:45 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.kurohicncr.top/Article/details/385333856674.shtml)
-- 2026-06-29 18:31 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/2256711286.shtml)
-- 2026-06-29 18:58 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/02277555.shtml)
+- 2026-06-29 19:01 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/935652.shtml)
+- 2026-06-29 18:38 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/68704609362.shtml)
+- 2026-06-29 18:43 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/09440.shtml)
+- 2026-06-29 19:03 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/82388.shtml)
+- 2026-06-29 18:44 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/52389649334.shtml)
+- 2026-06-29 18:57 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/21650.shtml)
+- 2026-06-29 19:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/721212820762.shtml)
+- 2026-06-29 19:03 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/843929.shtml)
+- 2026-06-29 18:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/7911356.shtml)
+- 2026-06-29 18:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/948694522.shtml)
+- 2026-06-29 18:56 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/119838.shtml)
+- 2026-06-29 18:57 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/25449418913.shtml)
+- 2026-06-29 18:40 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/306194.shtml)
+- 2026-06-29 18:39 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/4022189.shtml)
+- 2026-06-29 19:02 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.minike.top/Article/details/3914031928.shtml)

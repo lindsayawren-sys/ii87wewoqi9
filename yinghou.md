@@ -1,51 +1,60 @@
-# “78元一锅，变78元半斤” 丽江一餐厅诱骗消费者被罚1万元
+# Silvercorp旗下营矿区储量大幅增长，银资源增加20%
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电(吴家驹)国家企业信用信息公示系统显示，近日，古城区新玖柒餐厅因利用虚假的或者使人误解的价格手段，诱骗消费者或者其他经营者与其进行交易的行为，被丽江古城区市场监督管理局罚款1万元。 主要违法事实显示，当事人于店铺门口醒目位置突出标注“腊排骨火锅78元/锅 赠送4个素菜”价格宣传标识，但其店内纸质菜单未将该“78元/锅腊排骨套餐”与店内其他“纳西腊排骨火锅”同类菜
+Silvercorp Metals Inc．周五发布了其位于中国河南省的营矿区最新技术报告，报告显示，截至2025年12月31日，该矿区的探明及控制矿石储量较上一份报告大幅增长50%，所含银金属量增长20%。 据媒体发布的新闻稿，该技术报告由AMC Mining Consultants （Canada） Ltd．依照加拿大NI 43-101标准编制，涵盖营矿区七座在产地下矿山及
 
 ## 正文
 
-中新网6月2日电(吴家驹)国家企业信用信息公示系统显示，近日，古城区新玖柒餐厅因利用虚假的或者使人误解的价格手段，诱骗消费者或者其他经营者与其进行交易的行为，被丽江古城区市场监督管理局罚款1万元。
+Silvercorp Metals Inc．周五发布了其位于中国河南省的营矿区最新技术报告，报告显示，截至2025年12月31日，该矿区的探明及控制矿石储量较上一份报告大幅增长50%，所含银金属量增长20%。
 
-主要违法事实显示，当事人于店铺门口醒目位置突出标注“腊排骨火锅78元/锅 赠送4个素菜”价格宣传标识，但其店内纸质菜单未将该“78元/锅腊排骨套餐”与店内其他“纳西腊排骨火锅”同类菜品统一归类、并列公示，反而刻意将该低价腊排骨套餐菜品划分归类至“特色菌汤锅底”类目下进行摆放标注，刻意割裂同类菜品价格展示区域，刻意混淆菜品品类，致使消费者无法直观比对同类腊排骨火锅实际售价，极易对菜品品类及消费价格产生错误认知。
+据媒体发布的新闻稿，该技术报告由AMC Mining Consultants （Canada） Ltd．依照加拿大NI 43-101标准编制，涵盖营矿区七座在产地下矿山及一座新启动矿山。
 
-该行为违反了《中华人民共和国价格法》第十四条第一款第(四)项“经营者不得有下列不正当价格行为：(四)利用虚假的或者使人误解的价格手段，诱骗消费者或者其他经营者与其进行交易；”之规定，属于利用使人误解的价格手段，诱骗消费者进店消费的行为。
+报告显示，该矿区目前探明及概略储量为1900万吨，银品位174克/吨，金品位0.17克/吨，铅品位2.47%，锌品位0.80%。
 
-据媒体报道，今年5月，有游客反映，在丽江古城区一餐厅吃饭时遭遇不合理收费，店外广告牌上“腊排骨火锅”标注“78元/锅”，收费时却被告知“78元半斤”。
+与2024年技术报告相比，探明储量吨数增长45%，概略储量吨数增长55%，所含金属量中银增长20%，金增长52%，铅增长16%，锌增长22%。
 
-(完)
+储量增长的主要原因是报告采用的银价假设从每盎司21美元上调至28美元，从而降低了边界品位，使更多低品位资源具备经济开采价值。
+
+与此同时，从2024年6月至2025年12月期间，该矿区共采出约980万盎司银、1.26万盎司金、3.86万吨铅和0.51万吨锌，新增储量已完全弥补同期开采消耗。
+
+在资源量方面，营矿区的探明及控制资源量为4218万吨，银品位146克/吨，含银1.98亿盎司，吨数较2024年报告增长90%，银金属量增长37%。
+
+推断资源吨数增长54%。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 18:50 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 18:32 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 18:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 18:43 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 18:57 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 18:32 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 18:34 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 18:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 18:51 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 18:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-29 18:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 18:43 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 18:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 18:59 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 18:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 18:38 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 18:57 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 18:51 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 18:56 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 19:01 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 18:48 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 18:49 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 18:41 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 18:52 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/963660776.shtml)
-- 2026-06-29 18:49 - [岛内舆论呼吁民进党放弃“台独”党纲](https://www.blog.kurohicncr.top/Article/details/5167932.shtml)
-- 2026-06-29 18:56 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/184104747.shtml)
-- 2026-06-29 18:45 - [伊朗足球队将启程回国](https://www.share.kurohicncr.top/Article/details/7365053.shtml)
-- 2026-06-29 18:44 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/76412884315.shtml)
-- 2026-06-29 18:37 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/07160.shtml)
-- 2026-06-29 18:46 - [宜宾地震后铁路工作人员叫停列车](https://www.share.minike.top/Article/details/06043.shtml)
-- 2026-06-29 18:35 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/932705.shtml)
-- 2026-06-29 18:38 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/07792551368.shtml)
-- 2026-06-29 18:32 - [TLAW零封DCG MSI](http://www.share.minike.top/Article/details/07595886963.shtml)
-- 2026-06-29 18:51 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.blog.kurohicncr.top/Article/details/28255.shtml)
-- 2026-06-29 18:41 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.minike.top/Article/details/2040048120.shtml)
-- 2026-06-29 18:55 - [啊啊啊](http://www.share.minike.top/Article/details/58960475.shtml)
-- 2026-06-29 18:43 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/504261.shtml)
-- 2026-06-29 18:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/36103.shtml)
+- 2026-06-29 18:59 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/506020950.shtml)
+- 2026-06-29 19:02 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/04626041.shtml)
+- 2026-06-29 18:42 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/877195.shtml)
+- 2026-06-29 19:02 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/370225.shtml)
+- 2026-06-29 18:52 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/23323135978.shtml)
+- 2026-06-29 18:45 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/56733957.shtml)
+- 2026-06-29 19:04 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/9409160182.shtml)
+- 2026-06-29 19:05 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/86483067069.shtml)
+- 2026-06-29 18:53 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/767437917400.shtml)
+- 2026-06-29 19:04 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/8532822241.shtml)
+- 2026-06-29 18:38 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/91189731.shtml)
+- 2026-06-29 18:36 - [田曦薇 女装牛仔裤](https://www.share.kurohicncr.top/Article/details/73024096.shtml)
+- 2026-06-29 19:05 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/5597002.shtml)
+- 2026-06-29 18:37 - [V8](http://www.share.kurohicncr.top/Article/details/92169.shtml)
+- 2026-06-29 19:04 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/28434520.shtml)

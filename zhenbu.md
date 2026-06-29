@@ -1,60 +1,57 @@
-# 超百家险资机构扎堆调研 5月汇川技术获30家险资到访 科技、制造赛道持续受宠
+# ATFX:伊美谅解备忘录细节发布 原油即将突破近三月低点
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-财联社6月2日讯（记者高萍） 5月保险公司及保险资管公司对A股上市公司的调研热情不减。受五一假期等因素影响，整体调研上市公司数量环比4月有所回落，电子元件、工业机械、集成电路、电气部件与设备等高端制造与科技赛道成为核心关注领域，汇川技术、胜宏科技等获得险资密集调研。 “公司关注长期稳健增长的蓝筹品种，并深入挖掘科技创新、消费升级等具有广阔发展空间的优质赛道，加强投研能力建设。”
+专题：ATFX外汇专栏投稿 6月12日，ATFX：继特朗普宣布停止对伊朗打击，并称伊朗协议已经基本完成后，伊朗媒体发布伊朗与美国14点谅解备忘录细节。其中包括，美国解除对伊朗的制裁、解除海上封锁等内容。作为比较，今日02：24之前，伊朗的官方媒体还援引消息人士的话称，伊朗“尚未批准任何与美国达成的初步谅解备忘录文本”。如今谅解备忘落地，国际原油再遭重创。 上图是美原油5分钟级别
 
 ## 正文
 
-财联社6月2日讯（记者高萍） 5月保险公司及保险资管公司对A股上市公司的调研热情不减。
+专题：ATFX外汇专栏投稿 6月12日，ATFX：继特朗普宣布停止对伊朗打击，并称伊朗协议已经基本完成后，伊朗媒体发布伊朗与美国14点谅解备忘录细节。
 
-受五一假期等因素影响，整体调研上市公司数量环比4月有所回落，电子元件、工业机械、集成电路、电气部件与设备等高端制造与科技赛道成为核心关注领域，汇川技术、胜宏科技等获得险资密集调研。
+其中包括，美国解除对伊朗的制裁、解除海上封锁等内容。
 
-“公司关注长期稳健增长的蓝筹品种，并深入挖掘科技创新、消费升级等具有广阔发展空间的优质赛道，加强投研能力建设。
+作为比较，今日02：24之前，伊朗的官方媒体还援引消息人士的话称，伊朗“尚未批准任何与美国达成的初步谅解备忘录文本”。
 
-”一家大型险企人士对财联社记者表示。
+如今谅解备忘落地，国际原油再遭重创。
 
-受访行业人士对财联社记者表示，险资依然高度聚焦电子、半导体、高端制造等具备长期成长逻辑的赛道，体现了险资作为长期资金，对科技创新、产业升级相关优质资产的持续关注。
+上图是美原油5分钟级别走势图-ATFX▲ 第一轮下跌出现在01：25之后的十分钟，这是美国总统特朗普表态美国将停止对伊朗的打击，并收到卡塔尔转交的伊朗协议草案的时间点。
 
-聚焦制造与科技相关赛道汇川技术、胜宏科技等获扎堆调研 根据Wind统计数据，5月共计有245家上市公司获得险资调研，环比4月有所减少。
+第二轮下跌出现在15：30之后的，持续至16：25。
 
-尽管整体调研频次有所回落，险资的调研依然呈现出明显的聚焦性，硬科技与先进制造相关赛道占据主导地位。
+这轮下跌的幅度3美元左右，与第一轮下跌基本持平。
 
-从行业分布来看，5月险资调研热度最高的十大行业中，电子元件行业以累计94家机构调研位居首位；工业机械行业以70家机构调研位列第二；电气部件与设备行业以66家机构调研位列第三；集成电路行业以58家机构调研位列第四。
+15：30正是欧盘开始的时间，同时也是伊朗媒体披露谅解备忘录细节的时间点。
 
 ## 相关推荐
 
-- 2026-06-29 18:46 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-29 18:42 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 18:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 18:47 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 18:47 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 18:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 18:59 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 18:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 18:45 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 18:40 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 18:48 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 18:59 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 18:59 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 18:53 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 18:56 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 18:36 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 18:54 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 19:01 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 18:59 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 18:56 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 18:42 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 18:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 18:37 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 18:53 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 18:43 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:54 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/55759688.shtml)
-- 2026-06-29 18:47 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/2989800.shtml)
-- 2026-06-29 18:31 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/511407.shtml)
-- 2026-06-29 18:53 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/46434192.shtml)
-- 2026-06-29 18:31 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/74530.shtml)
-- 2026-06-29 18:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/063115.shtml)
-- 2026-06-29 18:49 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/84549082517.shtml)
-- 2026-06-29 18:47 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/6511986.shtml)
-- 2026-06-29 18:53 - [中国创新药股价要反攻了吗](http://www.blog.minike.top/Article/details/509798283.shtml)
-- 2026-06-29 18:54 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/51348480335.shtml)
-- 2026-06-29 18:50 - [沉睡花园](http://www.blog.minike.top/Article/details/74007429.shtml)
-- 2026-06-29 18:55 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/4368986.shtml)
-- 2026-06-29 18:58 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/1755339014.shtml)
-- 2026-06-29 18:30 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/26710686923.shtml)
-- 2026-06-29 18:40 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/7783372.shtml)
+- 2026-06-29 19:00 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/93627.shtml)
+- 2026-06-29 18:47 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/421082443.shtml)
+- 2026-06-29 18:57 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/653594.shtml)
+- 2026-06-29 18:54 - [沙特外交大臣将访华](http://www.share.kurohicncr.top/Article/details/31253520.shtml)
+- 2026-06-29 18:50 - [东方风云榜](http://www.share.minike.top/Article/details/4018981055.shtml)
+- 2026-06-29 18:36 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/067966162194.shtml)
+- 2026-06-29 18:53 - [虞书欣好辣的剧宣](https://www.blog.minike.top/Article/details/188821472377.shtml)
+- 2026-06-29 18:47 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/389791196.shtml)
+- 2026-06-29 18:45 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/104765860943.shtml)
+- 2026-06-29 18:48 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/198107.shtml)
+- 2026-06-29 18:43 - [四川地震前夕 街头电线上站满燕子](http://www.blog.kurohicncr.top/Article/details/065825490803.shtml)
+- 2026-06-29 19:01 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/94552688215.shtml)
+- 2026-06-29 18:40 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/6961214216.shtml)
+- 2026-06-29 18:51 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/233320.shtml)
+- 2026-06-29 19:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/926750590855.shtml)

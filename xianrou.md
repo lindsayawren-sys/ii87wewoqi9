@@ -1,56 +1,56 @@
-# SpaceX拟筹资750亿美元创美股上市纪录 与承销商谈判压低费率
+# （聚焦海峡论坛）海峡论坛·妈祖文化活动周在福建湄洲岛开幕
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，美国太空探索技术公司（SpaceX）正与负责其首次公开募股（IPO）的承销商行就削减服务费用进行谈判，计划将此次上市的承销费率压低至0.75%以下。 报道称，SpaceX计划于本月内完成首次公开募股，募集资金规模约750亿美元，折合企业估值约1.75万亿美元。如果这一计划顺利实施，将创下全球资本市场历史上规模最大的首次公开募股纪录。尽管费率可能大幅调低，但由于募
+中新网莆田6月12日电 (叶秋云)12日上午，以“中华妈祖情 两岸一家亲”为主题的第十八届海峡论坛·妈祖文化活动周在福建莆田湄洲岛开幕。开幕式吸引了近400名台湾嘉宾参加。 莆田市委副书记郭宋玉说，莆田与台湾隔海相望，地缘相近、血缘相亲、文缘相承。妈祖文化活动周作为海峡论坛的子活动，见证了两岸同胞心更近、情更深、意更浓。 与会台湾嘉宾纷纷表示，只有两岸常来常往，多走动、多交流，
 
 ## 正文
 
-据知情人士透露，美国太空探索技术公司（SpaceX）正与负责其首次公开募股（IPO）的承销商行就削减服务费用进行谈判，计划将此次上市的承销费率压低至0.75%以下。
+中新网莆田6月12日电 (叶秋云)12日上午，以“中华妈祖情 两岸一家亲”为主题的第十八届海峡论坛·妈祖文化活动周在福建莆田湄洲岛开幕。
 
-报道称，SpaceX计划于本月内完成首次公开募股，募集资金规模约750亿美元，折合企业估值约1.75万亿美元。
+开幕式吸引了近400名台湾嘉宾参加。
 
-如果这一计划顺利实施，将创下全球资本市场历史上规模最大的首次公开募股纪录。
+莆田市委副书记郭宋玉说，莆田与台湾隔海相望，地缘相近、血缘相亲、文缘相承。
 
-尽管费率可能大幅调低，但由于募资基数庞大，由全球顶级投资银行组成的承销团预计仍将斩获总计约5亿美元的承销收入。
+妈祖文化活动周作为海峡论坛的子活动，见证了两岸同胞心更近、情更深、意更浓。
 
-目前，高盛集团、摩根士丹利、美银证券、花旗集团和摩根大通担任此次IPO的联合账簿管理人，并领导一个由20余家全球投资银行组成的承销银团。
+与会台湾嘉宾纷纷表示，只有两岸常来常往，多走动、多交流，才能增进了解、化解隔阂，让和平发展的红利真正惠及每一位两岸同胞。
 
-其中，作为联席主承销商的高盛集团与摩根士丹利预计将获得大部分佣金份额。
+开幕式上还举行了“文脉同源 数藏同心”妈祖数藏发布仪式、微短剧《小屿大爱》宣发仪式、首届“青创杯”妈祖文化创意产品设计大赛颁奖仪式等活动，两名台胞代表分享了两岸融合发展故事。
 
-截至目前，SpaceX和摩根士丹利尚未就此发表评论，高盛集团则拒绝发表评论。
+微短剧《小屿大爱》是一部妈祖文化主题文旅微短剧，以创新形式传承千年妈祖信俗。
 
-根据目前披露的上市日程，SpaceX计划于6月4日正式启动面向机构投资者的路演宣传，并最早于6月12日正式在证券交易所挂牌上市。
+湄洲妈祖祖庙董事会董事长林金赞表示，妈祖文化是两岸同胞共有的精神家园与情感纽带。
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 18:35 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 18:54 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 18:47 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 18:49 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 18:35 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 18:59 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 18:54 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 18:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:31 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 18:36 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 18:55 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 19:02 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 18:42 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 18:58 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 18:38 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 18:43 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 18:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 18:41 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 19:04 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/99800.shtml)
-- 2026-06-29 18:56 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/029013286722.shtml)
-- 2026-06-29 18:42 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/5551297851.shtml)
-- 2026-06-29 18:40 - [T1 3-0 KC赛后数据](http://www.blog.minike.top/Article/details/25932722496.shtml)
-- 2026-06-29 18:30 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/1334158.shtml)
-- 2026-06-29 18:39 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/1000225606.shtml)
-- 2026-06-29 18:30 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/0371521.shtml)
-- 2026-06-29 18:41 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/772989882.shtml)
-- 2026-06-29 18:34 - [斗破苍穹](https://www.blog.minike.top/Article/details/94378688.shtml)
-- 2026-06-29 18:33 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/3276266.shtml)
-- 2026-06-29 18:42 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/27674536.shtml)
-- 2026-06-29 18:57 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.minike.top/Article/details/267788.shtml)
-- 2026-06-29 18:58 - [大学专业未来如何洗牌](http://www.blog.minike.top/Article/details/00837652333.shtml)
-- 2026-06-29 18:43 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/3467294.shtml)
-- 2026-06-29 18:48 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/602818511.shtml)
+- 2026-06-29 19:01 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/40611.shtml)
+- 2026-06-29 19:04 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/628916172779.shtml)
+- 2026-06-29 18:53 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/27282618.shtml)
+- 2026-06-29 18:57 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/55556.shtml)
+- 2026-06-29 18:38 - [杨紫视后第一场线下活动](http://www.share.kurohicncr.top/Article/details/64825276.shtml)
+- 2026-06-29 18:38 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.minike.top/Article/details/6152750805.shtml)
+- 2026-06-29 19:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/6872994101.shtml)
+- 2026-06-29 18:54 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/843744270548.shtml)
+- 2026-06-29 18:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/25409.shtml)
+- 2026-06-29 18:46 - [王冰冰向全网安利哈兰德](http://www.share.minike.top/Article/details/306754130.shtml)
+- 2026-06-29 18:51 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/777275303.shtml)
+- 2026-06-29 18:54 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/321077697.shtml)
+- 2026-06-29 18:53 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/625944099225.shtml)
+- 2026-06-29 19:01 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/518979165083.shtml)
+- 2026-06-29 18:53 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/092840593.shtml)

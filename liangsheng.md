@@ -1,56 +1,58 @@
-# 观点汇总|国联民生孔蓉：全球科技进入“黄金时间”，存储超级周期延续，两大新科技方向值得关注
+# 特朗普政府禁止境外主体获取Anthropic旗下最强人工智能模型
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，围绕“越涨越怕”的市场心态、全球科技股分化格局以及下半年投资主线进行深度解析。她指出，AI商业化已出现非线性的收入增长，科技板块调整之后依然是配置机会；韩国股市的史诗级上涨由存储超级周期驱动，恒生科技指数跑输全球同类资产的核心原因在于腾讯、阿里等权重股的“AI叙事”尚未打动市场，但港股整体估值“实在
+特朗普政府禁止境外政府、企业及个人使用Anthropic旗下最先进的人工智能模型。 此举意味着美国进一步将尖端人工智能系统视作国家安全核心资产，相关管控再度升级。 Anthropic被列入美国国防部黑名单，美方认为其模型风险过高，连美国政府自身都不宜使用；同时该模型也被纳入商务部许可管控体系，严禁境外主体使用。 美国商务部长霍华德・卢特尼克于周五致信安索帕首席执行官达里奥・阿莫
 
 ## 正文
 
-6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，围绕“越涨越怕”的市场心态、全球科技股分化格局以及下半年投资主线进行深度解析。
+特朗普政府禁止境外政府、企业及个人使用Anthropic旗下最先进的人工智能模型。
 
-她指出，AI商业化已出现非线性的收入增长，科技板块调整之后依然是配置机会；韩国股市的史诗级上涨由存储超级周期驱动，恒生科技指数跑输全球同类资产的核心原因在于腾讯、阿里等权重股的“AI叙事”尚未打动市场，但港股整体估值“实在太便宜”，后续修复空间可观。
+此举意味着美国进一步将尖端人工智能系统视作国家安全核心资产，相关管控再度升级。
 
-视频直播>> AI商业化非线性增长已现，调整后仍是配置机会 面对“越涨越怕”的市场焦虑，孔蓉给出了明确的判断。
+Anthropic被列入美国国防部黑名单，美方认为其模型风险过高，连美国政府自身都不宜使用；同时该模型也被纳入商务部许可管控体系，严禁境外主体使用。
 
-她表示，科技板块会经历一定程度的调整，但对于后续行情依然看好，根本原因在于AI商业化的实质性进展。
+美国商务部长霍华德・卢特尼克于周五致信安索帕首席执行官达里奥・阿莫代伊，明确Mythos 5与Fable 5两款模型将实施出口管制，禁止输出至美国境外，同时也不允许美国境内的外籍人员使用。
 
-她以Anthropic和OpenAI为例指出，这两家公司的年度经常性收入在持续快速增长，AI已经呈现出比较强的商业化能力，这将继续支撑接下来的科技行情。
+一名政府官员向媒体透露，此前有其他企业宣称成功破解Mythos模型，这令美方对潜在国家安全风险产生警惕，商务部随即出台上述管控措施。
 
-孔蓉认为，过去三年市场更多是在“期待”，而今年投资者终于看到了AI从投入期走向产出期。
+该官员表示，美方此前曾要求Anthropic暂停发布最新模型，但未能如愿，因此最终发出出口管制函。
 
-“从原有大家期待了三年，到今年看到AI商业化呈现出比较强的能力，这就是最大的不同。
+美方称，在美国国家安全体系完成加固前，这些模型必须严格管控，相关工作预计在未来数周内落地。
 
-”她将当前阶段定义为“全球科技的黄金时间”，强调调整之后依然可以去配置。
+Anthropic暂未就此置评。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 18:39 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 18:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 18:40 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 18:50 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 18:38 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 18:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 19:00 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 18:41 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 18:40 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 18:56 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 18:36 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 18:44 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 18:51 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 19:02 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 18:49 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 19:02 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 18:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 18:56 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 18:53 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 18:39 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 19:01 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [齐思钧回复孙怡](https://www.share.minike.top/Article/details/734540628.shtml)
-- 2026-06-29 18:30 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/28386346.shtml)
-- 2026-06-29 18:57 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/7218898.shtml)
-- 2026-06-29 18:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/89566.shtml)
-- 2026-06-29 18:56 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/20706854.shtml)
-- 2026-06-29 18:42 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/86039.shtml)
-- 2026-06-29 18:59 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/1983984.shtml)
-- 2026-06-29 18:58 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/8076874239.shtml)
-- 2026-06-29 18:34 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/51304603933.shtml)
-- 2026-06-29 18:40 - [截瘫男子心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/335164.shtml)
-- 2026-06-29 18:32 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/47048947638.shtml)
-- 2026-06-29 18:31 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/584560441.shtml)
-- 2026-06-29 18:31 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/0364454.shtml)
-- 2026-06-29 18:32 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/600681207.shtml)
-- 2026-06-29 18:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/965142.shtml)
+- 2026-06-29 18:43 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/423753376983.shtml)
+- 2026-06-29 19:01 - [世界杯在中国观看最多的比赛](http://www.blog.kurohicncr.top/Article/details/6594271.shtml)
+- 2026-06-29 19:04 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/2241558.shtml)
+- 2026-06-29 18:54 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/2886908.shtml)
+- 2026-06-29 19:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.kurohicncr.top/Article/details/410131.shtml)
+- 2026-06-29 18:41 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/70745.shtml)
+- 2026-06-29 18:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/14266.shtml)
+- 2026-06-29 19:01 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/30809.shtml)
+- 2026-06-29 18:42 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/635164866624.shtml)
+- 2026-06-29 18:58 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/7547929.shtml)
+- 2026-06-29 18:58 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/5398946.shtml)
+- 2026-06-29 18:40 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/5678512.shtml)
+- 2026-06-29 18:54 - [一生一世](http://www.share.minike.top/Article/details/17331606.shtml)
+- 2026-06-29 18:39 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/6710452719.shtml)
+- 2026-06-29 18:57 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/86685.shtml)

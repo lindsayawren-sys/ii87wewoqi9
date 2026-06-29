@@ -1,57 +1,60 @@
-# 康宝莱CFO将出席东海岸IDEAS会议 解读战略转型进展
+# 路虎卖不动了？ 新车跌到18万，50家经销商退网，国产车抢走80%份额
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-康宝莱公司周二宣布，首席财务官John DeSimone将于6月11日出席在东海岸举行的IDEAS会议并发表演讲。此次亮相正值这家营养品巨头完成多项战略布局、业绩持续改善的关键时期。 根据公司公告，DeSimone的演讲定于6月11日（周四）上午10时35分（美国东部时间）举行。投资者可通过康宝莱官网投资者关系页面观看现场网络直播，会议结束后回放将在网站上保留六个月。 此次会议
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文|《次世代车研所》栏目 闫妍 曾几何时，路虎揽胜极光是中国高端SUV市场中最具话题性的车型之一。官方指导价五十多万元，热门配色加价二十万依然一车难求，落地直奔七八十万元，成为“有钱人”的标志。 而到今天，这个商业故事已被彻底改写。近日，市场消息显示，2026款路虎揽胜极光L官方指导价42.98万元，如今终
 
 ## 正文
 
-康宝莱公司周二宣布，首席财务官John DeSimone将于6月11日出席在东海岸举行的IDEAS会议并发表演讲。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次亮相正值这家营养品巨头完成多项战略布局、业绩持续改善的关键时期。
+文|《次世代车研所》栏目 闫妍 曾几何时，路虎揽胜极光是中国高端SUV市场中最具话题性的车型之一。
 
-根据公司公告，DeSimone的演讲定于6月11日（周四）上午10时35分（美国东部时间）举行。
+官方指导价五十多万元，热门配色加价二十万依然一车难求，落地直奔七八十万元，成为“有钱人”的标志。
 
-投资者可通过康宝莱官网投资者关系页面观看现场网络直播，会议结束后回放将在网站上保留六个月。
+而到今天，这个商业故事已被彻底改写。
 
-此次会议召开之际，康宝莱正处于战略转型的加速期。
+近日，市场消息显示，2026款路虎揽胜极光L官方指导价42.98万元，如今终端裸车价已跌至19万元，部分经销商甚至报出17.98万起的底价，相当于打了4折。
 
-公司5月发布的第一季度财报显示，净销售额达13亿美元，同比增长7.8%，超出此前指引；调整后EBITDA为1.757亿美元，同样超越预期。
+曾经加价都买不到的“英伦贵族”，如今价格已遭“膝斩”。
 
-亚太和拉美市场表现强劲，分别增长17.3%和17.1%，但中国市场销售额同比下降12%，成为唯一连续下滑的核心市场。
+与此同时，捷豹路虎在中国市场的经销商网络正在经历一场洗牌。
 
-在战略层面，康宝莱近期完成了多项关键布局。
+随着在华销量的锐减，据媒体不完全统计，过去一年多时间，全国已有近50家捷豹路虎经销商宣布退网（经销网络），其中约三成是因为长期亏损、难以为继。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 18:42 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 18:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 18:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 18:43 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 18:37 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 18:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 18:34 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 18:53 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 18:32 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 18:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 18:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 18:42 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 19:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 19:00 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 18:41 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 18:44 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 18:46 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 18:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 18:37 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 18:46 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-29 18:54 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 18:38 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 19:05 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:57 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/10562.shtml)
-- 2026-06-29 18:49 - [韩国小学生都来吐槽了](http://www.share.kurohicncr.top/Article/details/417957.shtml)
-- 2026-06-29 18:52 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/88633407233.shtml)
-- 2026-06-29 18:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/610331410.shtml)
-- 2026-06-29 18:40 - [沙特外交大臣将访华](http://www.share.minike.top/Article/details/4960016482.shtml)
-- 2026-06-29 18:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/078066224.shtml)
-- 2026-06-29 18:55 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/075773.shtml)
-- 2026-06-29 18:38 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/35239631644.shtml)
-- 2026-06-29 18:56 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/0445420.shtml)
-- 2026-06-29 18:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/22831373.shtml)
-- 2026-06-29 18:33 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/20684416563.shtml)
-- 2026-06-29 18:47 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/46011693.shtml)
-- 2026-06-29 18:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/889103.shtml)
-- 2026-06-29 18:45 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/7968665849.shtml)
-- 2026-06-29 18:37 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/59728001598.shtml)
+- 2026-06-29 18:53 - [沙特外交大臣将访华](http://www.blog.minike.top/Article/details/46516.shtml)
+- 2026-06-29 19:01 - [扩军害了世界杯吗](http://www.share.kurohicncr.top/Article/details/2684306478.shtml)
+- 2026-06-29 18:59 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/2686429.shtml)
+- 2026-06-29 18:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/99125.shtml)
+- 2026-06-29 19:02 - [105岁女红军看到自己长征时的模样](https://www.share.kurohicncr.top/Article/details/88596946185.shtml)
+- 2026-06-29 19:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/5997671.shtml)
+- 2026-06-29 18:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/4342769.shtml)
+- 2026-06-29 18:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/874841532.shtml)
+- 2026-06-29 18:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/294978052.shtml)
+- 2026-06-29 18:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/04650992861.shtml)
+- 2026-06-29 19:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/402740280.shtml)
+- 2026-06-29 18:42 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/557481.shtml)
+- 2026-06-29 18:59 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/8327841.shtml)
+- 2026-06-29 18:57 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/3715993.shtml)
+- 2026-06-29 18:47 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/3803367.shtml)

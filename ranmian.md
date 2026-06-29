@@ -1,57 +1,57 @@
-# 东北亚具身智能创新中心在沈阳正式运营
+# 2026北京白塔文化周开幕
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网沈阳6月2日电 (记者 李晛 赵桂华)6月2日，2026沈阳机器人大会具身智能产学研融合与产业赋能论坛，在沈阳市浑南区举办。 论坛现场完成了沈阳市具身智能专家委员会成立、联创实验室达成战略合作等一系列关键落地动作，标志着东北亚具身智能创新中心正式投入运营，覆盖技术研发、人才培养、产业转化到场景应用的全链条创新生态正式启动。 东北亚具身智能创新中心由沈阳产业投资集团与浑南区
+发布时间：2026年06月13日 20:42 来源：中国新闻网 6月13日，2026北京白塔文化周在北京白塔寺开幕。本届文化周由北京市文物局主办，首都博物馆与北京市白塔寺管理处承办，旨在以塔为媒，续写中尼两国跨越喜马拉雅的深厚情谊。 当日，专题展览“西天梵相——阿尼哥和他的艺术时代”对外开放。展览以阿尼哥为核心，通过三大篇章汇聚各时期珍贵佛造像，辅以多媒体互动装置，生动还原元代
 
 ## 正文
 
-中新网沈阳6月2日电 (记者 李晛 赵桂华)6月2日，2026沈阳机器人大会具身智能产学研融合与产业赋能论坛，在沈阳市浑南区举办。
+发布时间：2026年06月13日 20:42 来源：中国新闻网 6月13日，2026北京白塔文化周在北京白塔寺开幕。
 
-论坛现场完成了沈阳市具身智能专家委员会成立、联创实验室达成战略合作等一系列关键落地动作，标志着东北亚具身智能创新中心正式投入运营，覆盖技术研发、人才培养、产业转化到场景应用的全链条创新生态正式启动。
+本届文化周由北京市文物局主办，首都博物馆与北京市白塔寺管理处承办，旨在以塔为媒，续写中尼两国跨越喜马拉雅的深厚情谊。
 
-东北亚具身智能创新中心由沈阳产业投资集团与浑南区联合共建，定位为沈阳市具身智能创新发展公共服务平台、国家级创新平台与国际化交流平台。
+当日，专题展览“西天梵相——阿尼哥和他的艺术时代”对外开放。
 
-中心锚定具身智能领域国际前沿技术方向，以产业真实应用场景为牵引，深度融合数字技术与沈阳本土制造优势、市场优势，为机器人企业、科研院所及智慧城市建设赋能，推动沈阳市具身智能产业链上下游企业协同创新、联动发展，助力“数字沈阳、智造强市”建设。
+展览以阿尼哥为核心，通过三大篇章汇聚各时期珍贵佛造像，辅以多媒体互动装置，生动还原元代佛教艺术中国化的历程，深刻诠释中华文明开放包容、兼收并蓄的文化品格。
 
-中心按照“一平台、两实验室、三中心”的总体发展格局布局建设，打造具身智能基础实验室与联合创新实验室，配套设立具身智能机器人数采中心(训练场)、人才培养认证中心与具身智能产业孵化中心。
+展览将持续至10月11日。
 
-未来将围绕应用场景需求，联合本地高校开展高端人才培养与实训，同时依托沈阳产投集团的产业投资优势，为初创企业成长赋能、为龙头企业升级助力。
-
-活动现场，东北亚具身智能创新中心展厅首次对外开放，展厅覆盖工业应用、商业服务、特种作业、本体生态等多个核心领域，包括人形机器人、协作机械臂、四足机器狗、VR交互设备等30余种多样态的创新展品集体亮相，全方位展现了沈阳具身智能产业的最新成果。
-
-当天，沈阳市具身智能专家委员会正式宣告成立，6位来自产学研界的专家代表现场获颁聘书，为产业业态创新、跨主体协作搭建起高端智力纽带。
+(记者 赵文宇 徐婧 制作 刘鹏） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 18:35 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 18:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 18:38 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 18:36 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 18:42 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 18:56 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 18:37 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 18:39 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-29 18:56 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 18:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 18:49 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 18:43 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 19:04 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 18:59 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 18:46 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 18:55 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 18:57 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 18:41 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 18:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 19:05 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 18:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 18:52 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 19:05 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 18:59 - [世界杯预测史上最不吃压力之物](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 19:05 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 18:37 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:39 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.minike.top/Article/details/5933131.shtml)
-- 2026-06-29 18:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/33297577062.shtml)
-- 2026-06-29 18:45 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/40251.shtml)
-- 2026-06-29 18:53 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/368814539660.shtml)
-- 2026-06-29 18:46 - [法生态部长反对装空调却自己吹空调](https://www.blog.kurohicncr.top/Article/details/5872337339.shtml)
-- 2026-06-29 18:36 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/2535733896.shtml)
-- 2026-06-29 18:39 - [依法管制阻遏日方军事化危险动向](https://www.share.kurohicncr.top/Article/details/3278635.shtml)
-- 2026-06-29 18:49 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/2228800833.shtml)
-- 2026-06-29 18:30 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/975110.shtml)
-- 2026-06-29 18:35 - [主力抛售电子和通信板块](https://www.blog.minike.top/Article/details/8491515.shtml)
-- 2026-06-29 18:53 - [爱很美味](http://www.blog.minike.top/Article/details/15928.shtml)
-- 2026-06-29 18:44 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/028507801.shtml)
-- 2026-06-29 18:39 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/0163678.shtml)
-- 2026-06-29 18:37 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/658256446.shtml)
-- 2026-06-29 18:51 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/42617771.shtml)
+- 2026-06-29 19:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/607839256768.shtml)
+- 2026-06-29 18:47 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/4151441.shtml)
+- 2026-06-29 18:39 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/6226069471.shtml)
+- 2026-06-29 18:45 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/691418511505.shtml)
+- 2026-06-29 19:01 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/6787822284.shtml)
+- 2026-06-29 18:47 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/982562.shtml)
+- 2026-06-29 19:05 - [河南高院审委会原委员曲海滨被查](https://www.blog.minike.top/Article/details/045283842064.shtml)
+- 2026-06-29 18:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/80956738.shtml)
+- 2026-06-29 19:05 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/102198.shtml)
+- 2026-06-29 18:40 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/754927357529.shtml)
+- 2026-06-29 18:43 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/700739738.shtml)
+- 2026-06-29 18:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/0967993437.shtml)
+- 2026-06-29 18:50 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/66554.shtml)
+- 2026-06-29 18:44 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/4430659478.shtml)
+- 2026-06-29 18:54 - [啊啊啊](http://www.blog.minike.top/Article/details/005033.shtml)

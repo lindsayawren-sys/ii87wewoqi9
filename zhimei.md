@@ -1,60 +1,61 @@
-# 内蒙古出台稳定房地产11条措施
+# 飞行中客舱内充电宝突冒浓烟，天津航空回应
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据内蒙古自治区人民政府网站消息，内蒙古自治区人民政府办公厅日前印发《内蒙古自治区着力稳定房地产市场的若干措施》(以下简称《措施》)，提出11项工作举措。 具体内容如下： 内蒙古自治区着力稳定房地产市场的若干措施 为贯彻党中央、国务院关于着力稳定房地产市场的决策部署，紧紧围绕铸牢中华民族共同体意识工作主线，认真落实自治区党委“1571”工作部署，更好满足群众刚性
+针对航班在飞行过程中客舱内突冒浓烟一事，天津航空作出回应。 6月15日，天津航空在社交平台发文称，当日，由天津飞往揭阳的GS7829航班，一名旅客携带的充电宝出现冒烟情况，机组人员第一时间发现并立即按程序妥善处置，期间机上无人员受伤，机上设施设备无损伤，航班平安落地。 天津航空提醒旅客称，在乘机出行时，优先选择不携带充电宝，如需携带，按照符合“3C认证”等相关要求检查充电宝。
 
 ## 正文
 
-中新网6月2日电 据内蒙古自治区人民政府网站消息，内蒙古自治区人民政府办公厅日前印发《内蒙古自治区着力稳定房地产市场的若干措施》(以下简称《措施》)，提出11项工作举措。
+针对航班在飞行过程中客舱内突冒浓烟一事，天津航空作出回应。
 
-具体内容如下： 内蒙古自治区着力稳定房地产市场的若干措施 为贯彻党中央、国务院关于着力稳定房地产市场的决策部署，紧紧围绕铸牢中华民族共同体意识工作主线，认真落实自治区党委“1571”工作部署，更好满足群众刚性和改善性住房需求，结合自治区实际，提出如下措施。
+6月15日，天津航空在社交平台发文称，当日，由天津飞往揭阳的GS7829航班，一名旅客携带的充电宝出现冒烟情况，机组人员第一时间发现并立即按程序妥善处置，期间机上无人员受伤，机上设施设备无损伤，航班平安落地。
 
-一、加大购房补贴支持力度 鼓励各地区安排资金对购买新建商品住房的人员发放购房补贴，补贴标准和方式由各地区结合实际自行确定。
+天津航空提醒旅客称，在乘机出行时，优先选择不携带充电宝，如需携带，按照符合“3C认证”等相关要求检查充电宝。
 
-二、提高住房公积金贷款额度 支持各地区结合实际将住房公积金贷款最高额度上浮不低于30%，高层次人才、多子女家庭购买商品住房可再上浮不低于20%。
+同日稍早之前，有网友发帖称，其乘坐的航班在飞行过程中客舱内突然冒烟。
 
-申请人家庭贷款额度不受账户余额限制。
+视频显示，客舱内有明显的烟雾，多位机务人员正在进行处置，广播提醒：“客舱内出现火情，正在组织灭火，请大家不要惊慌”。
 
-三、优化住房公积金贷款条件 将住房公积金贷款套数认定范围调整为购房地旗县(市、区)。
+视频发布者在接受极目新闻采访时介绍，自己乘坐的是6月15日早上从天津飞往广东揭阳的GS7829航班。
 
-使用住房公积金贷款购买商品住房的，最低首付款比例按20%执行。
+事发时，其已收起小桌板，飞机将要落地，“最开始我没有注意，后面声音有点大，我一看烟已经比较浓了，没有看到明火，但味道很重。
 
-使用住房公积金和商业银行“组合贷”购买商品住房的，最低首付款比例按15%执行。
+”该发布者表示，在空中，机务人员就进行了紧急处置。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 18:51 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 18:35 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 18:36 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 18:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 18:59 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 18:41 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 18:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 18:44 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 18:53 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 18:47 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 18:35 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-29 18:46 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-29 18:55 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 18:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 18:39 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 18:46 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 18:50 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 18:49 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 18:51 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 18:37 - [王俊凯命名方式](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 18:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 18:49 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 18:59 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 18:45 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 18:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 18:44 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 18:50 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 18:57 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/6185106.shtml)
-- 2026-06-29 18:39 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/51417.shtml)
-- 2026-06-29 18:47 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/1408092.shtml)
-- 2026-06-29 18:40 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/75120489.shtml)
-- 2026-06-29 18:43 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/878214058.shtml)
-- 2026-06-29 18:56 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/545182387.shtml)
-- 2026-06-29 18:59 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/71539762.shtml)
-- 2026-06-29 18:55 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/80497440.shtml)
-- 2026-06-29 18:59 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/940223.shtml)
-- 2026-06-29 18:50 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/194343687367.shtml)
-- 2026-06-29 18:43 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/412216224417.shtml)
-- 2026-06-29 18:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/275239610758.shtml)
-- 2026-06-29 18:43 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/8693298874.shtml)
-- 2026-06-29 18:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/528729992.shtml)
-- 2026-06-29 18:30 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.minike.top/Article/details/619483.shtml)
+- 2026-06-29 18:44 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/85617287.shtml)
+- 2026-06-29 18:42 - [小众羞耻点是吃麻辣烫](http://www.blog.kurohicncr.top/Article/details/04797.shtml)
+- 2026-06-29 18:46 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/830728704.shtml)
+- 2026-06-29 18:45 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/066039059555.shtml)
+- 2026-06-29 18:48 - [CORTIS 小牌大耍](https://www.share.kurohicncr.top/Article/details/5207998.shtml)
+- 2026-06-29 18:54 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/47481.shtml)
+- 2026-06-29 18:46 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/993640328343.shtml)
+- 2026-06-29 18:48 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/168149742881.shtml)
+- 2026-06-29 18:55 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/709991106.shtml)
+- 2026-06-29 18:55 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/51191343.shtml)
+- 2026-06-29 18:51 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/155238656499.shtml)
+- 2026-06-29 18:55 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/3408792.shtml)
+- 2026-06-29 18:40 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/273120.shtml)
+- 2026-06-29 18:38 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/69124.shtml)
+- 2026-06-29 19:03 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/72355992332.shtml)

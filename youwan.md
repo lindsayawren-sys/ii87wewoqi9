@@ -1,61 +1,60 @@
-# 二审胜诉！ST任子行300311需赔偿股民，符合条件股民可登记索赔
+# 比赛首日，全球各大市场同步走高！“世界杯魔咒”失灵了？
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 近日，赵敬国律师团队代理的投资者诉任子行网络技术股份有限公司（以下简称“ST任子行（维权）”或“公司”）证券虚假陈述责任纠纷案件迎来新进展，投资者收获二审胜诉判决，目前本案仍在诉讼时效内，符合索赔条件的股民仍可继续参与。上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2021年4月27日-2
+中新经纬6月12日电 (张澍楠)北京时间12日凌晨3点，2026年世界杯拉开帷幕。“世界杯魔咒”随即成为资本市场热议焦点。 比赛首日，全球各大市场同步走高。 美国三大股指大幅上扬；欧股集体高开，截至发稿，德国DAX指数、法国CAC40指数、欧洲斯托克50指数涨逾1%，英国富时100指数涨近1%；日韩股市集体收涨；A股三大指数同样集体飘红。 此番全线飘红行情，不禁让人疑惑，所谓的
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 近日，赵敬国律师团队代理的投资者诉任子行网络技术股份有限公司（以下简称“ST任子行（维权）”或“公司”）证券虚假陈述责任纠纷案件迎来新进展，投资者收获二审胜诉判决，目前本案仍在诉讼时效内，符合索赔条件的股民仍可继续参与。
+中新经纬6月12日电 (张澍楠)北京时间12日凌晨3点，2026年世界杯拉开帷幕。
 
-上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2021年4月27日-2024年8月9日期间买入且有持仓，无论在2024年8月10日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+“世界杯魔咒”随即成为资本市场热议焦点。
 
-（赵敬国律师专栏） 回顾本案，2024年8月9日收到中国证券监督管理委员会（以下简称“中国证监会”）下发的《立案告知书》（证监立案字007202428号），因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
+比赛首日，全球各大市场同步走高。
 
-2025 年 7 月 18 日，公司收到中国证监会下发的《行政处罚决定书》（〔2025〕7 号）。
+美国三大股指大幅上扬；欧股集体高开，截至发稿，德国DAX指数、法国CAC40指数、欧洲斯托克50指数涨逾1%，英国富时100指数涨近1%；日韩股市集体收涨；A股三大指数同样集体飘红。
 
-经查明，任子行存在以下违法事实：2020 年至 2022 年上半年，任子行虚增营业收入 36，951，333.48元、48，435，351.70元、26，929，607.08元，分别占当期报告记载金额的4.21%、6.97%、10.81%；虚增利润总额 19，406，901.32 元、37，317，431.71 元、16，560，909.58 元，分别占当期报告记载金额绝对值的 85.93%、70.03%、30.79%。
+此番全线飘红行情，不禁让人疑惑，所谓的“世界杯魔咒”难道失效了？
 
-任子行披露的《2020年年度报告》《2021 年年度报告》《2022 年半年度报告》存在虚假记载。
+“魔咒”是规律还是巧合？
 
-信本股民索赔团队提醒，ST任子行股民索赔案件已有二审胜诉案例，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+天风首席策略吴开达表示，世界杯期间并不存在一致性的同步下跌规律，更多体现为年份和市场之间的分化。
 
-索赔条件： ST任子行：于2021年4月27日-2024年8月9日期间买入且有持仓，无论在2024年8月10日及之后是否卖出。
+图片源自微信号：开达策略知行 全球股市方面，机构复盘历史数据显示，2002年和2018年全球弱势较明显，港股、德国DAX、韩国KOSPI、日经225等多个市场在赛事期间下跌；但2006、2022年多数市场表现并不弱，港股、英国富时100、德国DAX、韩国KOSPI、日经225等在部分窗口均录得上涨。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-29 18:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 18:44 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 18:37 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 18:49 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 18:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 18:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 18:34 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 18:49 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 18:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 18:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 18:44 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 18:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 18:41 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 18:57 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 18:38 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 18:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 18:56 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 18:38 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 18:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 19:02 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 18:50 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-29 18:59 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 18:56 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 18:48 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 18:53 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 18:43 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 18:58 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 18:42 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:55 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.minike.top/Article/details/068408282299.shtml)
-- 2026-06-29 18:34 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/3380893.shtml)
-- 2026-06-29 18:43 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/953499779550.shtml)
-- 2026-06-29 18:40 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.minike.top/Article/details/1283350.shtml)
-- 2026-06-29 18:34 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/679856.shtml)
-- 2026-06-29 18:36 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/49875083772.shtml)
-- 2026-06-29 18:58 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/97476694.shtml)
-- 2026-06-29 18:48 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/21291.shtml)
-- 2026-06-29 18:32 - [王安宇尊重田曦薇的一切选择](http://www.share.minike.top/Article/details/61910508.shtml)
-- 2026-06-29 18:57 - [海清4次陪跑白玉兰](http://www.blog.kurohicncr.top/Article/details/083762.shtml)
-- 2026-06-29 18:46 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/999134800.shtml)
-- 2026-06-29 18:40 - [学者：建设性战略稳定重塑中美关系](http://www.share.minike.top/Article/details/02584.shtml)
-- 2026-06-29 18:35 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/0500213419.shtml)
-- 2026-06-29 18:39 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/01471127506.shtml)
-- 2026-06-29 18:53 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/736889.shtml)
+- 2026-06-29 19:00 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/06243264.shtml)
+- 2026-06-29 18:53 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/984611.shtml)
+- 2026-06-29 18:50 - [曝屠颖去世和酒店失责有关](https://www.share.minike.top/Article/details/495682.shtml)
+- 2026-06-29 18:45 - [千与千寻](http://www.share.minike.top/Article/details/0468939344.shtml)
+- 2026-06-29 18:40 - [女生每天戴耳机18小时突发耳聋](https://www.blog.kurohicncr.top/Article/details/2052045795.shtml)
+- 2026-06-29 18:50 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/51677685.shtml)
+- 2026-06-29 18:39 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/022056143224.shtml)
+- 2026-06-29 18:40 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/588863016.shtml)
+- 2026-06-29 18:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/347992347.shtml)
+- 2026-06-29 19:04 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/76937.shtml)
+- 2026-06-29 18:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/614033.shtml)
+- 2026-06-29 18:54 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/08335.shtml)
+- 2026-06-29 18:58 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/7187044.shtml)
+- 2026-06-29 18:40 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/704739.shtml)
+- 2026-06-29 18:52 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/589643342891.shtml)

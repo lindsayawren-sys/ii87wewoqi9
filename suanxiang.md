@@ -1,49 +1,59 @@
-# 伊朗媒体：伊朗仍在讨论结束与美国战争谅解备忘录的“最终文本”
+# 完善广告监管制度体系 市场监管总局出台《广告引证内容执法指南》
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-伊朗半官方媒体报道，一位接近谈判团队的知情人士表示，“伊朗的最终文本仍在德黑兰进行讨论，尚未发出回应。” 报道称，由于美国此前违背信任，伊朗秉承着“严格”立场。责任编辑：何云
+中新网6月12日电 据“市说新语”微信公众号消息，近日，市场监管总局聚焦商业广告引证内容，出台《广告引证内容执法指南》(以下简称《指南》)，旨在进一步完善广告监管制度体系，规范市场监管部门广告引证内容监管工作，帮助广告活动主体提升广告引证内容合规能力。明确适用范围。《指南》明确“广告引证内容”“引证广告”等概念及其应当遵守的一般性原则，强调广告主依法应当对引证内容等广告内容的真
 
 ## 正文
 
-伊朗半官方媒体报道，一位接近谈判团队的知情人士表示，“伊朗的最终文本仍在德黑兰进行讨论，尚未发出回应。
+中新网6月12日电 据“市说新语”微信公众号消息，近日，市场监管总局聚焦商业广告引证内容，出台《广告引证内容执法指南》(以下简称《指南》)，旨在进一步完善广告监管制度体系，规范市场监管部门广告引证内容监管工作，帮助广告活动主体提升广告引证内容合规能力。
 
-” 报道称，由于美国此前违背信任，伊朗秉承着“严格”立场。
+明确适用范围。
 
-责任编辑：何云
+《指南》明确“广告引证内容”“引证广告”等概念及其应当遵守的一般性原则，强调广告主依法应当对引证内容等广告内容的真实性、准确性、合法性负责，并依法承担举证责任。
+
+规范引证内容。
+
+《指南》针对实验测量、统计调查、文献资料等不同情形，细化不同类型引证内容的规范性要求，并对广告引证内容构成虚假广告的情形等作出分类说明，回应社会关切。
+
+细化监管规则。
+
+对“大字吸睛，小字免责”的广告，从正反两个方面对广告内容作出具体明确的要求，并对借绝对化用语等导致消费者对其市场地位、竞争优势产生错误认知的违法情形作细化列举，以进一步健全广告监管制度体系。
+
+下一步，市场监管总局将指导地方市场监管部门，结合当前正在开展的广告提示性用语乱象清理整治工作，进一步遏制“大字吸睛、小字免责”“先射箭后画靶”等违法广告，缓解广告主“营销焦虑”，引导其主动摈弃“文字游戏”式广告，切实防范通过制造所谓“萝卜坑赛道冠军”等手段加剧“内卷式”竞争。
 
 ## 相关推荐
 
-- 2026-06-29 18:45 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 18:37 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 18:39 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 18:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 18:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 18:44 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 18:33 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 18:57 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 18:55 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 18:50 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 18:45 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 18:49 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 18:44 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 18:37 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 19:00 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 19:00 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 18:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 18:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 18:45 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 18:44 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 19:05 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 18:55 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 18:37 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 18:59 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 18:59 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 18:36 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [许建琼任湖南省检察院副检察长](https://www.share.minike.top/Article/details/662195281.shtml)
-- 2026-06-29 18:30 - [挪威王储妃长子两次强奸获刑](http://www.share.kurohicncr.top/Article/details/1422183.shtml)
-- 2026-06-29 18:46 - [沉睡花园](https://www.blog.minike.top/Article/details/970895114017.shtml)
-- 2026-06-29 18:33 - [CORTIS 小牌大耍](http://www.share.minike.top/Article/details/91753.shtml)
-- 2026-06-29 18:45 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/597930781.shtml)
-- 2026-06-29 18:45 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/8265179.shtml)
-- 2026-06-29 18:43 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/03117.shtml)
-- 2026-06-29 18:52 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/80356852491.shtml)
-- 2026-06-29 18:39 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/98042328587.shtml)
-- 2026-06-29 18:58 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.minike.top/Article/details/7426344877.shtml)
-- 2026-06-29 18:35 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/4215620.shtml)
-- 2026-06-29 18:35 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/901891054621.shtml)
-- 2026-06-29 18:46 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/190489615286.shtml)
-- 2026-06-29 18:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/27532092.shtml)
-- 2026-06-29 18:55 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/5543798.shtml)
+- 2026-06-29 18:44 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/6056826.shtml)
+- 2026-06-29 18:47 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/43336946683.shtml)
+- 2026-06-29 18:48 - [1个视频看懂2026志愿填报新专业](http://www.share.minike.top/Article/details/747106423337.shtml)
+- 2026-06-29 18:49 - [中国空间站为什么要升级扩容](https://www.share.minike.top/Article/details/627471908869.shtml)
+- 2026-06-29 18:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/49853900916.shtml)
+- 2026-06-29 18:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/218223126.shtml)
+- 2026-06-29 18:43 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/11602046386.shtml)
+- 2026-06-29 18:52 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/53304289618.shtml)
+- 2026-06-29 18:40 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/56593.shtml)
+- 2026-06-29 18:43 - [中国战机大片上新](http://www.share.minike.top/Article/details/2869553281.shtml)
+- 2026-06-29 18:41 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/3235106.shtml)
+- 2026-06-29 18:50 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/7508170.shtml)
+- 2026-06-29 18:40 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/2686177.shtml)
+- 2026-06-29 19:00 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/31000157.shtml)
+- 2026-06-29 18:50 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/04350956.shtml)

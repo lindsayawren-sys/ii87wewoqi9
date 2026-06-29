@@ -1,56 +1,58 @@
-# 华贵人寿年内净现金流-3.43亿，资本消耗加速，将帅双双撤退？
+# （乡村行·看振兴）湖北利川：一片“粽叶”串起富民产业链
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|萧晓 自带“茅台光环”，华贵人寿依托大股东品牌势能一度实现快速发展，短暂跻身盈利赛道。然而，受投资波动、负债成本高、利率环境变化等影响，公司一度深陷亏损泥潭，直至2025年才艰难实现扭亏为盈。 业绩回暖的曙光尚未稳固之际，公司高层却突发人事大震荡。仅两周时间，公司董事长、总经理先后请辞。这背后，是组织人事调动
+中新网恩施6月12日电 题：湖北利川：一片“粽叶”串起富民产业链 作者 杨紫娟 董晓斌 税浪 临近端午，在湖北省利川市元堡乡的四方山上，漫山遍野的箬竹郁郁葱葱，村民们正忙着采摘箬叶，为当地食品企业制作粽子提供原料。 箬叶是中国南方地区制作粽子的常见植物叶片，其叶片宽大、质地柔韧、气味芳香且含天然防腐成分。利川市地处鄂西武陵山区，平均海拔在1000米以上，适宜箬竹生长，元堡乡箬竹
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：燕梳师院 文|萧晓 自带“茅台光环”，华贵人寿依托大股东品牌势能一度实现快速发展，短暂跻身盈利赛道。
+中新网恩施6月12日电 题：湖北利川：一片“粽叶”串起富民产业链 作者 杨紫娟 董晓斌 税浪 临近端午，在湖北省利川市元堡乡的四方山上，漫山遍野的箬竹郁郁葱葱，村民们正忙着采摘箬叶，为当地食品企业制作粽子提供原料。
 
-然而，受投资波动、负债成本高、利率环境变化等影响，公司一度深陷亏损泥潭，直至2025年才艰难实现扭亏为盈。
+箬叶是中国南方地区制作粽子的常见植物叶片，其叶片宽大、质地柔韧、气味芳香且含天然防腐成分。
 
-业绩回暖的曙光尚未稳固之际，公司高层却突发人事大震荡。
+利川市地处鄂西武陵山区，平均海拔在1000米以上，适宜箬竹生长，元堡乡箬竹种植面积达5000余亩。
 
-仅两周时间，公司董事长、总经理先后请辞。
+走进利川市浓香碧潭农副产品加工厂的车间里，工人们在对采摘回来的箬叶进行分级、清洗、裁剪。
 
-这背后，是组织人事调动与正常退休，还是暗藏着对公司紧绷的资本压力与未来战略走向的深层考量？
+该加工厂负责人陈代平介绍，加工的箬叶在端午节期间主要供应国内市场，农历五月过后则以出口为主，主要销往东南亚等地。
 
-01 经营底盘不牢 从业务基本盘来看，截至一季度末，华贵人寿实现保险业务收入7.35亿元，总资产225.91亿元，净资产11.09亿元。
+“今年箬叶的出口订单基本不缺，年前就把第二年的订单订完了。
 
-具体而言，一季度规模保费同比增速为-9.64%，相较于上个季度20.83%的高增长已经出现了断崖式的下滑，业务扩张的动能出现乏力。
+”陈代平说，去年工厂全年产值在400万元左右，30余名工人一年四季都有活干。
 
-短期盈利与投资收益近乎停滞。
+元堡村村民陈露介绍，一斤箬叶能卖1.5元到2元左右，一天能摘50余斤。
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 18:39 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:34 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 18:30 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-29 18:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 18:50 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-29 18:52 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 18:40 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 18:49 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 18:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 18:53 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 18:55 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 18:44 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 18:51 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 19:04 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 19:01 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 19:05 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 18:38 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 19:05 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-29 18:45 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 19:05 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 18:43 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/10772.shtml)
-- 2026-06-29 18:55 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/64505.shtml)
-- 2026-06-29 18:32 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/045696332.shtml)
-- 2026-06-29 18:45 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/2807010020.shtml)
-- 2026-06-29 18:58 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.minike.top/Article/details/4666957476.shtml)
-- 2026-06-29 18:39 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/7080822.shtml)
-- 2026-06-29 18:57 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/714277550.shtml)
-- 2026-06-29 18:41 - [天道](http://www.share.kurohicncr.top/Article/details/65179.shtml)
-- 2026-06-29 18:37 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/569011961317.shtml)
-- 2026-06-29 18:32 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/875627980205.shtml)
-- 2026-06-29 18:33 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.minike.top/Article/details/042416.shtml)
-- 2026-06-29 18:45 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/95570.shtml)
-- 2026-06-29 18:52 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/82391.shtml)
-- 2026-06-29 18:40 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/386318409.shtml)
-- 2026-06-29 18:55 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/807229161716.shtml)
+- 2026-06-29 18:53 - [小娘惹](http://www.share.kurohicncr.top/Article/details/15715.shtml)
+- 2026-06-29 18:54 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/62883389089.shtml)
+- 2026-06-29 18:54 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/626750348632.shtml)
+- 2026-06-29 18:45 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/286084508014.shtml)
+- 2026-06-29 18:39 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/360553681181.shtml)
+- 2026-06-29 18:50 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/55943379.shtml)
+- 2026-06-29 19:02 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/7061583.shtml)
+- 2026-06-29 19:02 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/250438.shtml)
+- 2026-06-29 18:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/0988510.shtml)
+- 2026-06-29 19:05 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/7102342404.shtml)
+- 2026-06-29 19:03 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/9570080160.shtml)
+- 2026-06-29 18:44 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/1294719441.shtml)
+- 2026-06-29 18:56 - [外交部谈对日出口管制措施](http://www.share.minike.top/Article/details/6087884241.shtml)
+- 2026-06-29 19:01 - [章若楠包场白敬亭特立独行](http://www.share.minike.top/Article/details/217708369.shtml)
+- 2026-06-29 18:51 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/408986328794.shtml)

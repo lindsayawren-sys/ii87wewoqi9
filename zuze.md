@@ -1,58 +1,61 @@
-# A股IPO月报|承销格局从“三中一华”变成“三国杀” 甬兴证券连撤两单储备数量归0
+# 6月13日外盘头条：美国和伊朗暗示和平协议即将达成 SpaceX首日上涨19.22% 市值破2万亿美元跃居全球第六
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年5月，A股IPO市场有19家公司首发上会，18家过会，名义过会率94.74%。6家企业撤回IPO申请，其中甬兴证券保荐的就有两家。连撤两单后，甬兴证券储备的IPO项目数量为0。 发行情况，5月份合计有13家新股上市，合计募资111.1亿元，
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美国和伊朗暗示和平协议即将达成，德黑兰方面宣称取得胜利 2、欧洲央行官员Kazimir称需进一步加息以遏制通胀 3、SpaceX股票收于160.95美元，创纪录IPO首日上涨19.22%，市值突破2万亿美元 4、SpaceX上市抽走氧气 其他太空股集体重挫 5、交易员对美元看涨程度升至逾一年来最高水平 6、美国应急储备原油出口
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+全球财经媒体昨夜今晨共同关注的头条新闻主要有： 1、美国和伊朗暗示和平协议即将达成，德黑兰方面宣称取得胜利 2、欧洲央行官员Kazimir称需进一步加息以遏制通胀 3、SpaceX股票收于160.95美元，创纪录IPO首日上涨19.22%，市值突破2万亿美元 4、SpaceX上市抽走氧气 其他太空股集体重挫 5、交易员对美元看涨程度升至逾一年来最高水平 6、美国应急储备原油出口飙升至历史新高 战争扰乱供应 美国和伊朗暗示和平协议即将达成，德黑兰方面宣称取得胜利 美国与伊朗周五均表示，结束两国间战争的协议即将达成。
 
-出品：新浪财经上市公司研究院 作者：IPO再融资组/图灵 2026年5月，A股IPO市场有19家公司首发上会，18家过会，名义过会率94.74%。
+一名美国政府高级官员称，双方已就文本达成一致，华盛顿预计未来几天内将签署初步协议。
 
-6家企业撤回IPO申请，其中甬兴证券保荐的就有两家。
+伊朗外长阿巴斯·阿拉格奇表示，仍可能存在修改，但这份临时协议明确表明，伊朗已在冲突中变得更加强大。
 
-连撤两单后，甬兴证券储备的IPO项目数量为0。
+阿拉格奇在国家电视台表示：“伊朗是美伊战争的胜利者。
 
-发行情况，5月份合计有13家新股上市，合计募资111.1亿元，较4月份环比大幅下降47.52%。
+” 据协议各方消息人士称，这份所谓的谅解备忘录要求重新开放霍尔木兹海峡，并解除美国对伊朗港口的封锁。
 
-今年前五个月，中金公司、国泰海通、中信证券在承销规模、承销数量以及佣金收入方面排名前三，牢牢占据第一梯队。
+有关伊朗核计划的谈判——美国总统唐纳德·特朗普声称这是发动战争的理由——将在之后进行。
 
-中信建投、华泰联合证券前五个月的A股首发承销金额分别位列第8名、第12名，较第一梯队有很大差距，今年后半年能否发力待检。
+欧洲央行官员Kazimir称需进一步加息以遏制通胀 欧洲央行管理委员会成员Peter Kazimir表示，通胀在整个经济领域的蔓延将迫使欧洲央行进一步提高利率。
 
-上会审核情况：华盛雷达遭暂缓表决 Wind数据显示，今年5月份，总共迎来19家A股拟IPO企业上会接受审核，除了浙江华盛雷达股份有限公司（下称“华盛雷达”）被暂缓审议外，其余18家企业全部过会，名义过会率为94.74%。
+这位斯洛伐克央行行长认为，价格压力在没有干预的情况下不会缓解。
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 18:40 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-29 18:46 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 18:52 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 18:55 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 18:34 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 18:54 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 18:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 18:47 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 18:46 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 18:43 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 18:36 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 18:57 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 18:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 18:45 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 19:03 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 18:40 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 18:56 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 18:49 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 19:03 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 18:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 18:59 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 18:56 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 18:54 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 19:05 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 18:57 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 19:04 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/1044659845.shtml)
-- 2026-06-29 18:44 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/66491.shtml)
-- 2026-06-29 18:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/48802262496.shtml)
-- 2026-06-29 18:38 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/25513056.shtml)
-- 2026-06-29 18:30 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/82327500.shtml)
-- 2026-06-29 18:44 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/31701439138.shtml)
-- 2026-06-29 18:53 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/150302.shtml)
-- 2026-06-29 18:32 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/019420619294.shtml)
-- 2026-06-29 18:47 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/40707100.shtml)
-- 2026-06-29 18:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/8473025.shtml)
-- 2026-06-29 18:46 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/080847069.shtml)
-- 2026-06-29 18:54 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/804784783839.shtml)
-- 2026-06-29 18:35 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/7134029.shtml)
-- 2026-06-29 18:34 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/484818916100.shtml)
-- 2026-06-29 18:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/2341944.shtml)
+- 2026-06-29 19:00 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/84037251.shtml)
+- 2026-06-29 18:37 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/0312624603.shtml)
+- 2026-06-29 18:54 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/08398651269.shtml)
+- 2026-06-29 19:01 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/78810.shtml)
+- 2026-06-29 18:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/9844809.shtml)
+- 2026-06-29 18:43 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/2787355.shtml)
+- 2026-06-29 18:45 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/45940.shtml)
+- 2026-06-29 18:52 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/016879932188.shtml)
+- 2026-06-29 18:51 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/3754453567.shtml)
+- 2026-06-29 18:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/747268788073.shtml)
+- 2026-06-29 19:04 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/944091.shtml)
+- 2026-06-29 18:39 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.minike.top/Article/details/986843.shtml)
+- 2026-06-29 18:38 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/416878522.shtml)
+- 2026-06-29 18:44 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/093401866486.shtml)
+- 2026-06-29 19:04 - [博主：AI泡沫必须破灭](http://www.blog.minike.top/Article/details/7040345351.shtml)

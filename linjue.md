@@ -1,49 +1,57 @@
-# 现场视频！老挝人革党中央总书记、国家主席通伦抵达杭州开始访华
+# （经济观察）荣昌何以成为青年“梦工厂”？透视青春主理人扎根实践
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 11:54 来源：中国新闻网 现场视频！老挝人革党中央总书记、国家主席通伦抵达杭州开始访华 责任编辑：【李光伟】
+中新网重庆6月15日电 题：荣昌何以成为青年“梦工厂”？透视青春主理人扎根实践 作者 马佳欣 当大城市“卷”不动的声音此起彼伏，一群年轻人却在荣昌找到了自己的舞台。 在重庆荣昌，安陶小镇、夏布小镇、万灵古镇等地近年来涌现出一批青春主理人。他们或是返乡青年，或是外来创业者，扎根荣昌学习非遗技艺、玩转创意运营、深耕乡土文旅，在小镇开辟出专属的创业舞台，也让这座千年历史文化名城焕发“
 
 ## 正文
 
-发布时间：2026年06月02日 11:54 来源：中国新闻网 现场视频！
+中新网重庆6月15日电 题：荣昌何以成为青年“梦工厂”？
 
-老挝人革党中央总书记、国家主席通伦抵达杭州开始访华 责任编辑：【李光伟】
+透视青春主理人扎根实践 作者 马佳欣 当大城市“卷”不动的声音此起彼伏，一群年轻人却在荣昌找到了自己的舞台。
+
+在重庆荣昌，安陶小镇、夏布小镇、万灵古镇等地近年来涌现出一批青春主理人。
+
+他们或是返乡青年，或是外来创业者，扎根荣昌学习非遗技艺、玩转创意运营、深耕乡土文旅，在小镇开辟出专属的创业舞台，也让这座千年历史文化名城焕发“逆生长”的青春活力。
+
+小镇何以成为青年“梦工厂”？
+
+当地如何系统性吸引和扶持青年人才？
+
+中新网近日深入荣昌走访调研，试图寻找答案。
+
+扎下去：小镇来了“新掌柜” 安陶小镇是重庆首批非遗特色小镇，也是国家级非遗荣昌陶发源地，集聚非遗工坊、大师工作室，集观光、陶艺体验、研学、文创展销于一体，是成渝特色陶文化文旅地标。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 18:45 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 18:51 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 18:33 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 18:55 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 18:56 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 18:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 18:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 18:36 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 18:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-29 18:45 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 18:43 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 18:54 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 18:51 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 18:34 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 18:41 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 18:41 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 18:43 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 18:45 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 18:52 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 18:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 18:39 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 19:01 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 18:54 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 18:44 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 19:05 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [青春环游记第三季](https://www.share.minike.top/Article/details/282826438569.shtml)
-- 2026-06-29 18:31 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/7734624539.shtml)
-- 2026-06-29 18:51 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/95940.shtml)
-- 2026-06-29 18:43 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/31170401662.shtml)
-- 2026-06-29 18:39 - [娜扎搂着我的腰和我合照](http://www.blog.minike.top/Article/details/76311.shtml)
-- 2026-06-29 18:50 - [天道](https://www.blog.minike.top/Article/details/9276323300.shtml)
-- 2026-06-29 18:55 - [森保一坚信日本能赢巴西](http://www.share.kurohicncr.top/Article/details/85712340.shtml)
-- 2026-06-29 18:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/45737.shtml)
-- 2026-06-29 18:36 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/6025282953.shtml)
-- 2026-06-29 18:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/170229892.shtml)
-- 2026-06-29 18:32 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/23746696346.shtml)
-- 2026-06-29 18:53 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/07732555719.shtml)
-- 2026-06-29 18:38 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/04675.shtml)
-- 2026-06-29 18:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/2960135.shtml)
-- 2026-06-29 18:45 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/364027488.shtml)
+- 2026-06-29 18:52 - [铜价上涨 日本住宅水表失窃严重](https://www.share.kurohicncr.top/Article/details/117975.shtml)
+- 2026-06-29 18:48 - [绘画区你赢了](https://www.blog.minike.top/Article/details/44959189459.shtml)
+- 2026-06-29 19:04 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/069592588761.shtml)
+- 2026-06-29 19:02 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/689855.shtml)
+- 2026-06-29 18:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/194678912412.shtml)
+- 2026-06-29 18:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/83586.shtml)
+- 2026-06-29 18:40 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/8187799.shtml)
+- 2026-06-29 18:37 - [2026世界杯谁能一黑到底](https://www.share.minike.top/Article/details/5622169638.shtml)
+- 2026-06-29 18:57 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/358555681374.shtml)
+- 2026-06-29 18:50 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/17800536.shtml)
+- 2026-06-29 18:59 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/594886.shtml)
+- 2026-06-29 18:53 - [河南四位大妈景区跳舞爆火](https://www.share.minike.top/Article/details/640128984.shtml)
+- 2026-06-29 18:59 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/259901473587.shtml)
+- 2026-06-29 18:56 - [周生如故](https://www.blog.kurohicncr.top/Article/details/16953.shtml)
+- 2026-06-29 18:40 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/222512.shtml)

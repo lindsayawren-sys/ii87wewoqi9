@@ -1,61 +1,55 @@
-# 响应投资者呼声，巴菲特接班人两天豪掷168亿美元投资AI和房地产
+# （活力中国调研行）机器人在中试验证平台“毕业” 从实验室走向市场
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-伯克希尔哈撒韦过去两天公布了自新CEO格雷格·阿贝尔上任以来最大的两笔交易，豪掷168亿美元，一部分用于收购住宅建筑商泰勒・莫里森家居公司，另一部分助力谷歌布局人工智能业务。 这些投资或许能够帮助满足投资者的诉求。自今年1月接替沃伦・巴菲特出任CEO以来，投资者一直希望阿贝尔能够更多地使用伯克希尔的闲置现金。 许多投资者和分析师表示，伯克希尔哈撒韦高达3802亿美元的现金储备（
+中新网北京6月12日电 (记者 陈杭 谢龙飞)北京人形机器人中试验证平台内，机器人正大步跑跳，进行出厂前最后测试工作。在这里，一台机器人从原材料出库、上线，到整机测试、装箱入库全流程约一天多时间。 中试，即中间试验，位于实验室和应用场之间的环节，是指在产品正式投产前，介于小试和工业生产之间的试验阶段，旨在对实验室研发成果进行放大验证和完善。 北京人形机器人创新中心生产负责人黄哲
 
 ## 正文
 
-伯克希尔哈撒韦过去两天公布了自新CEO格雷格·阿贝尔上任以来最大的两笔交易，豪掷168亿美元，一部分用于收购住宅建筑商泰勒・莫里森家居公司，另一部分助力谷歌布局人工智能业务。
+中新网北京6月12日电 (记者 陈杭 谢龙飞)北京人形机器人中试验证平台内，机器人正大步跑跳，进行出厂前最后测试工作。
 
-这些投资或许能够帮助满足投资者的诉求。
+在这里，一台机器人从原材料出库、上线，到整机测试、装箱入库全流程约一天多时间。
 
-自今年1月接替沃伦・巴菲特出任CEO以来，投资者一直希望阿贝尔能够更多地使用伯克希尔的闲置现金。
+中试，即中间试验，位于实验室和应用场之间的环节，是指在产品正式投产前，介于小试和工业生产之间的试验阶段，旨在对实验室研发成果进行放大验证和完善。
 
-许多投资者和分析师表示，伯克希尔哈撒韦高达3802亿美元的现金储备（截至3月31日）拖累了这家总部位于内布拉斯加州奥马哈的综合企业集团的股价。
+北京人形机器人创新中心生产负责人黄哲表示，以往许多企业和高校院所在实验室里做机器人，做一两台功能很强，但一旦面临量产——10台、100台、1000台甚至1万台，困难超乎想象。
 
-该公司的股价较2025年5月创下的历史高点下跌了13%，而同期标普500指数上涨了34%。
+记者注意到，平台共六层，依次为智慧库房、测试服务区、生产示范线、小批量试制线、关节生产示范线、办公区。
 
-加州科斯塔梅萨市切克资本管理公司（Check Capital Management）总裁史蒂文・切克表示：“所有人都在等着格雷格走出沃伦・巴菲特的光环，施展自己的投资手笔，如今我们终于看到了。
+黄哲说，过去一年，平台通过体系搭建和工艺工程能力建设，已具备试制生产和测试设备500台套，以及具身智能机器人年产能5000台套的能力，从而支撑机器人真正从实验室走向市场。
 
-这令人鼓舞。
-
-” 该公司管理着 24 亿美元资产，其中逾 7 亿美元投向伯克希尔的股票与期权产品。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 18:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 18:48 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 18:55 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-29 18:31 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 18:42 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 18:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 18:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 18:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 18:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 18:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 18:46 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 18:44 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 18:53 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 18:45 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-29 18:46 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 18:38 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 19:02 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 18:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 18:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 18:39 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 18:57 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 18:54 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-29 18:38 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 18:38 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 19:00 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/3124471.shtml)
-- 2026-06-29 18:41 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/30965.shtml)
-- 2026-06-29 18:32 - [世界杯在中国观看最多的比赛](http://www.share.minike.top/Article/details/60370376507.shtml)
-- 2026-06-29 18:54 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/57076.shtml)
-- 2026-06-29 18:34 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/43278.shtml)
-- 2026-06-29 18:50 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/9324248.shtml)
-- 2026-06-29 18:35 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/39849619269.shtml)
-- 2026-06-29 18:48 - [四川达州发生一起交通事故致2死](https://www.blog.kurohicncr.top/Article/details/09670.shtml)
-- 2026-06-29 18:59 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/97630.shtml)
-- 2026-06-29 18:41 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/63348376.shtml)
-- 2026-06-29 18:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/7321802175.shtml)
-- 2026-06-29 18:49 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/018717.shtml)
-- 2026-06-29 18:40 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/372596.shtml)
-- 2026-06-29 18:38 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/56582542.shtml)
-- 2026-06-29 18:50 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/40100.shtml)
+- 2026-06-29 18:36 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/969339575.shtml)
+- 2026-06-29 19:05 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/07746445.shtml)
+- 2026-06-29 18:55 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://www.blog.kurohicncr.top/Article/details/313336013639.shtml)
+- 2026-06-29 18:37 - [送你一朵小红花](https://www.share.minike.top/Article/details/866654.shtml)
+- 2026-06-29 18:42 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/2575394.shtml)
+- 2026-06-29 18:55 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/920687818.shtml)
+- 2026-06-29 19:04 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/967325318.shtml)
+- 2026-06-29 18:42 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/319603026.shtml)
+- 2026-06-29 18:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/2167346.shtml)
+- 2026-06-29 18:57 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/8612231.shtml)
+- 2026-06-29 19:04 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/51149638897.shtml)
+- 2026-06-29 18:52 - [世界杯预测史上最不吃压力之物](https://www.blog.kurohicncr.top/Article/details/41165.shtml)
+- 2026-06-29 18:53 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/988829.shtml)
+- 2026-06-29 18:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/23499457.shtml)
+- 2026-06-29 18:48 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/835792.shtml)

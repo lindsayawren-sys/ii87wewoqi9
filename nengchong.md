@@ -1,48 +1,44 @@
-# 赛力斯截至5月末累计回购164.827万股A股
+# 4月英国国内生产总值环比下降0.1%
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-赛力斯（09927）公布A股回购进展，截至 2026 年 5 月 31 日，公司通过上海证券交易所系统以集中竞价交易方式回购公司股份164.827万股，占公司总股本的 0.09%，回购的最高价为 91.00 元/ 股、最低价为 90.01 元/股，支付的总金额为约人民币1.49亿元（不含交易费用）。责任编辑：卢昱君
+发布时间：2026年06月12日 21:47 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-赛力斯（09927）公布A股回购进展，截至 2026 年 5 月 31 日，公司通过上海证券交易所系统以集中竞价交易方式回购公司股份164.827万股，占公司总股本的 0.09%，回购的最高价为 91.00 元/ 股、最低价为 90.01 元/股，支付的总金额为约人民币1.49亿元（不含交易费用）。
-
-责任编辑：卢昱君
+发布时间：2026年06月12日 21:47 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:35 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 18:41 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 18:33 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 18:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 18:53 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 18:53 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 18:35 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 18:52 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 18:43 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 18:57 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 18:51 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 18:34 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 18:47 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 18:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 18:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 18:50 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 18:42 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 18:59 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 19:00 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 18:50 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 18:59 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 18:38 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 18:55 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 18:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 18:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 18:50 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/64564.shtml)
-- 2026-06-29 18:49 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/925265015542.shtml)
-- 2026-06-29 18:36 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/877546.shtml)
-- 2026-06-29 18:56 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/65809574.shtml)
-- 2026-06-29 18:41 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/267489.shtml)
-- 2026-06-29 18:51 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/63379360025.shtml)
-- 2026-06-29 18:34 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/59079117.shtml)
-- 2026-06-29 18:41 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/070040711.shtml)
-- 2026-06-29 18:37 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/56443141.shtml)
-- 2026-06-29 18:48 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/144001556.shtml)
-- 2026-06-29 18:31 - [外交部回应中日经贸问题](https://www.blog.kurohicncr.top/Article/details/20745152640.shtml)
-- 2026-06-29 18:59 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.minike.top/Article/details/7909285.shtml)
-- 2026-06-29 18:38 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/675330307.shtml)
-- 2026-06-29 18:56 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/2557345.shtml)
-- 2026-06-29 18:32 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/8554678.shtml)
+- 2026-06-29 18:39 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/36924094.shtml)
+- 2026-06-29 18:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/01799979.shtml)
+- 2026-06-29 18:59 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/9572584219.shtml)
+- 2026-06-29 18:46 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/69973504.shtml)
+- 2026-06-29 19:04 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/12821886827.shtml)
+- 2026-06-29 18:40 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/05758.shtml)
+- 2026-06-29 19:03 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/09034532039.shtml)
+- 2026-06-29 18:41 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.minike.top/Article/details/246256867051.shtml)
+- 2026-06-29 18:57 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/36582808.shtml)
+- 2026-06-29 18:37 - [徐昕暂不参加NBA夏季联赛](http://www.share.minike.top/Article/details/973270714039.shtml)
+- 2026-06-29 18:53 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/50533728002.shtml)
+- 2026-06-29 18:43 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/37745.shtml)
+- 2026-06-29 19:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/01583105070.shtml)
+- 2026-06-29 18:49 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/33299.shtml)
+- 2026-06-29 18:42 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/56989.shtml)

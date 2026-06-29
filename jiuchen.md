@@ -1,55 +1,60 @@
-# 国台办：大陆海警部门在相关海域依法开展执法巡查是正常履职行为
+# 加密货币交易所借SpaceX热潮之势 推出IPO前衍生品
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-6月3日，国务院台办举行例行新闻发布会。有记者问，近日，福建海警位金门附近海域依法开展执法巡查。台海巡部门称，大陆海警“企图营造具有金门水域管辖权假象”。请问对此有何评论？ 发言人朱凤莲答问表示，海峡两岸同属一个中国，台、澎、金、马都是中国的一部分。大陆海警部门在相关海域依法开展执法巡查，维护海上作业秩序，保障两岸渔民的生命财产安全，是正常履职行为。(记者赵博、张泽钰)
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 在SpaceX上市之前，加密货币交易所已为交易者提供了一种对该公司未来股价进行高风险押注的途径。 数十亿美元资金涌入了被称为“IPO前永续期货”的金融工具，这些工具虽与标的股票没有直接关联，但其定价参考了SpaceX最新披露的IPO前估值。 这类被称为“永续合约”的衍生品，此前已被用于押注加密货币价格走势。
 
 ## 正文
 
-6月3日，国务院台办举行例行新闻发布会。
+专题：史上最大IPO本周来袭 马斯克旗下SpaceX拟募资750亿美元 在SpaceX上市之前，加密货币交易所已为交易者提供了一种对该公司未来股价进行高风险押注的途径。
 
-有记者问，近日，福建海警位金门附近海域依法开展执法巡查。
+数十亿美元资金涌入了被称为“IPO前永续期货”的金融工具，这些工具虽与标的股票没有直接关联，但其定价参考了SpaceX最新披露的IPO前估值。
 
-台海巡部门称，大陆海警“企图营造具有金门水域管辖权假象”。
+这类被称为“永续合约”的衍生品，此前已被用于押注加密货币价格走势。
 
-请问对此有何评论？
+它们可无限期展期，并允许投资者通过借贷进行更大规模的押注。
 
-发言人朱凤莲答问表示，海峡两岸同属一个中国，台、澎、金、马都是中国的一部分。
+这种新型IPO前永续合约（在币安、Coinbase和Hyperliquid等交易所交易）的流行，加剧了加密货币与华尔街之间的冲突，而在此之前，包括AI巨头Anthropic和OpenAI在内的一波重磅IPO即将到来。
 
-大陆海警部门在相关海域依法开展执法巡查，维护海上作业秩序，保障两岸渔民的生命财产安全，是正常履职行为。
+本周早些时候，美国监管机构将批准加密货币永续合约的消息，就足以令纽约证券交易所母公司洲际交易所的股价承压，因为投资者正权衡他们眼中对现有交易所构成的长期竞争威胁。
 
-(记者赵博、张泽钰)
+抛售潮延续至下一交易日，部分原因在于投资者担心此类合约将扩展至股票市场。
+
+“令人瞠目结舌”的交易量 全球市场正为埃隆·马斯克旗下SpaceX的首次公开募股（IPO）做准备。
 
 ## 相关推荐
 
-- 2026-06-29 18:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 18:54 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 18:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 18:55 - [RAY评乘风2026总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 18:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 18:54 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 18:45 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 18:32 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 18:48 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 18:40 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 18:58 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 18:54 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 18:48 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 18:58 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 18:51 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 18:45 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 18:51 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 18:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 18:50 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 18:40 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 18:54 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 19:03 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 18:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 19:05 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 18:36 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:46 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/287696425518.shtml)
-- 2026-06-29 18:30 - [大马同意延长马航370残骸搜寻工作](http://www.blog.minike.top/Article/details/357648985061.shtml)
-- 2026-06-29 18:48 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/717565325194.shtml)
-- 2026-06-29 18:36 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.kurohicncr.top/Article/details/298980866402.shtml)
-- 2026-06-29 18:36 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/521834.shtml)
-- 2026-06-29 18:32 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/9730121777.shtml)
-- 2026-06-29 18:51 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/0080394032.shtml)
-- 2026-06-29 18:33 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/276127.shtml)
-- 2026-06-29 18:42 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/94422.shtml)
-- 2026-06-29 18:58 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.kurohicncr.top/Article/details/202466992.shtml)
-- 2026-06-29 18:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/18657592651.shtml)
-- 2026-06-29 18:52 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.kurohicncr.top/Article/details/920316.shtml)
-- 2026-06-29 18:49 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/49781800517.shtml)
-- 2026-06-29 18:50 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/741751420.shtml)
-- 2026-06-29 18:30 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/678730.shtml)
+- 2026-06-29 18:53 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/538240.shtml)
+- 2026-06-29 18:36 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/709720.shtml)
+- 2026-06-29 18:47 - [一生一世](http://www.share.minike.top/Article/details/084076941361.shtml)
+- 2026-06-29 18:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/21922847918.shtml)
+- 2026-06-29 18:48 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/96910492.shtml)
+- 2026-06-29 19:00 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/99103678617.shtml)
+- 2026-06-29 18:40 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/883552.shtml)
+- 2026-06-29 18:55 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/748955566035.shtml)
+- 2026-06-29 18:46 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/53846.shtml)
+- 2026-06-29 18:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/5162498.shtml)
+- 2026-06-29 18:51 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/040848.shtml)
+- 2026-06-29 18:44 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/383717401.shtml)
+- 2026-06-29 18:56 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/71108.shtml)
+- 2026-06-29 18:48 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/549359.shtml)
+- 2026-06-29 18:58 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/774951410496.shtml)

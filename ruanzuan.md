@@ -1,56 +1,56 @@
-# 黄仁勋称Marvell为下一家万亿美元公司 股价应声暴涨25%
+# 专家学者深挖费孝通学术思想内涵 探索民族音乐学原创化发展路径
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-英伟达CEO黄仁勋的一席话再度引爆市场。当地时间周一，黄仁勋在公开场合表示，Marvell将成为“下一家万亿美元公司”，带动该公司股价周二盘前大幅上涨逾25%。 黄仁勋在发言中强调了连接技术在AI基础设施中的核心地位。“当你面对一个计算问题，把计算任务拆成许多部分，并分布到整个数据中心时，真正不可或缺的是连接能力，”黄仁勋表示，“这就是Marvell如此重要的原因。” Marv
+中新网南宁6月13日电 (林浩)6月13日，“费孝通学术思想与中国民族音乐学自主知识体系构建”学术论坛在广西南宁举办。 本次论坛结合费孝通先生《江村经济》发表90周年重要节点，吸引来自全国各地的30余位专家学者，深挖费孝通学术思想内涵，探索民族音乐学本土化、原创化发展路径。 此次论坛由中国艺术人类学学会音乐人类学专业委员会、中国艺术人类学学会“美美与共”文化创新发展专委会、广西
 
 ## 正文
 
-英伟达CEO黄仁勋的一席话再度引爆市场。
+中新网南宁6月13日电 (林浩)6月13日，“费孝通学术思想与中国民族音乐学自主知识体系构建”学术论坛在广西南宁举办。
 
-当地时间周一，黄仁勋在公开场合表示，Marvell将成为“下一家万亿美元公司”，带动该公司股价周二盘前大幅上涨逾25%。
+本次论坛结合费孝通先生《江村经济》发表90周年重要节点，吸引来自全国各地的30余位专家学者，深挖费孝通学术思想内涵，探索民族音乐学本土化、原创化发展路径。
 
-黄仁勋在发言中强调了连接技术在AI基础设施中的核心地位。
+此次论坛由中国艺术人类学学会音乐人类学专业委员会、中国艺术人类学学会“美美与共”文化创新发展专委会、广西艺术学院联合主办，搭建起集学术研讨、思想交流、成果展示于一体的高水平对话平台。
 
-“当你面对一个计算问题，把计算任务拆成许多部分，并分布到整个数据中心时，真正不可或缺的是连接能力，”黄仁勋表示，“这就是Marvell如此重要的原因。
+广西艺术学院副校长谢仁敏在开幕式致辞中表示，费孝通先生深入广西大瑶山开展田野调查的经历，阐释了其“从实求知”“多元一体格局”“各美其美，美人之美，美美与共，天下大同”等思想，对人文社科领域的发展具有深远价值。
 
-” Marvell是一家专注于设计全球数据基础设施高性能芯片的半导体公司，业务覆盖云计算、AI、企业网络、5G运营商网络和汽车系统等领域。
+谢仁敏介绍，作为华南地区综合性艺术高校，广西艺术学院深耕八桂民族艺术沃土，依托广西民族音乐博物馆等平台，长期致力于民族音乐文化传承与研究。
 
-随着AI进入推理阶段，算力重要性相对减弱，而大厂更加注重存储、CPU及互连领域的能力。
+希望本次论坛推动中国民族音乐学实现本土原创发展。
 
-Marvell在互联市场拥有相对领先的产品，尤其在光电互连领域具备全栈能力。
+据悉，此次论坛研讨环节内容丰富，设置六场专题学术发言与评议环节。
 
-值得注意的是，英伟达今年3月已宣布向Marvell战略投资20亿美元，双方通过NVLink Fusion平台深化合作。
+与会学者围绕费孝通先生提出的“民族走廊”“差序格局”“文化自觉”等经典学术理论，与民族音乐田野调查、区域音乐文化、礼俗音乐研究、区域国别音乐等问题展开互动思考，深入探讨民族音乐学理论体系本土化建构方法，分享田野实践成果，展现学科新生代的研究思考。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 18:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 18:39 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 18:44 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 18:47 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 18:59 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 18:32 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 18:31 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 18:31 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 18:43 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 18:43 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 18:47 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 19:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 18:44 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:04 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 18:57 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 18:57 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 18:57 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 18:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 18:47 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/86999.shtml)
-- 2026-06-29 18:56 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/46310528.shtml)
-- 2026-06-29 18:58 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/1615657.shtml)
-- 2026-06-29 18:39 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/5410427035.shtml)
-- 2026-06-29 18:36 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/92288.shtml)
-- 2026-06-29 18:50 - [毛朝晖任湖南省农业农村厅厅长](https://www.share.kurohicncr.top/Article/details/949349.shtml)
-- 2026-06-29 18:50 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/4915867104.shtml)
-- 2026-06-29 18:39 - [美人鱼](http://www.share.kurohicncr.top/Article/details/578055.shtml)
-- 2026-06-29 18:53 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/992861034.shtml)
-- 2026-06-29 18:34 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.blog.minike.top/Article/details/938993264805.shtml)
-- 2026-06-29 18:54 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/207146749.shtml)
-- 2026-06-29 18:54 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/322594.shtml)
-- 2026-06-29 18:31 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/485455831.shtml)
-- 2026-06-29 18:56 - [共享单车“价格刺客”79分钟30元](https://www.blog.kurohicncr.top/Article/details/34270.shtml)
-- 2026-06-29 18:37 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/907250637760.shtml)
+- 2026-06-29 18:42 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/689586.shtml)
+- 2026-06-29 18:36 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/2451893.shtml)
+- 2026-06-29 18:54 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/144245569945.shtml)
+- 2026-06-29 18:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/25525.shtml)
+- 2026-06-29 19:01 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/21707599.shtml)
+- 2026-06-29 18:37 - [沉睡花园](https://www.blog.minike.top/Article/details/294298.shtml)
+- 2026-06-29 18:58 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/2166017.shtml)
+- 2026-06-29 19:03 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/113897699.shtml)
+- 2026-06-29 18:51 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/088676058.shtml)
+- 2026-06-29 18:52 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/283278.shtml)
+- 2026-06-29 19:01 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/0547336.shtml)
+- 2026-06-29 18:45 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/611787862399.shtml)
+- 2026-06-29 18:52 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/37951.shtml)
+- 2026-06-29 18:39 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.minike.top/Article/details/533534105.shtml)
+- 2026-06-29 19:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/60800333236.shtml)

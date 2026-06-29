@@ -1,61 +1,45 @@
-# 金山云早盘涨逾7% 公司卡位AI云基础设施赛道 一季度智算云占比首破五成
+# 视频 | 马斯克转发巴伦预测Space X估值 “可达30万亿美元”，马斯克：“将成为银河系最大的公司”
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-金山云（03896）盘中涨超7%，截至发稿，股价上涨6.71%，报7.16港元，成交额5.08亿港元。 光大证券指出，金山云短期股价弹性主要来自AI算力订单与涨价预期的兑现，若头部客户新增训练或推理需求落地、GPU资源交付加快，公司营收有进一步上修可能。长期来看，公司卡位AI云基础设施赛道，受益于AI发展带来的持续算力需求扩容，预计伴随公司AI云收入占比的提升，公司有望从规模扩
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：电圈信息差 责任编辑：孙同怀
 
 ## 正文
 
-金山云（03896）盘中涨超7%，截至发稿，股价上涨6.71%，报7.16港元，成交额5.08亿港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-光大证券指出，金山云短期股价弹性主要来自AI算力订单与涨价预期的兑现，若头部客户新增训练或推理需求落地、GPU资源交付加快，公司营收有进一步上修可能。
-
-长期来看，公司卡位AI云基础设施赛道，受益于AI发展带来的持续算力需求扩容，预计伴随公司AI云收入占比的提升，公司有望从规模扩张转向估值中枢抬升。
-
-金山云此前发布的2026年Q1财报显示，公司Q1营收27.0亿元，同比增长37.2%。
-
-其中，公有云实现收入20.0亿元，同比增长47.5%。
-
-智算云账单收入同比高增90.1%，占公有云收入比重达50.1%，首次过半。
-
-行业云实现收入7.0亿元，同比增长14.7%。
-
-季度内，金山云还在互联网服务、通用模型、具身智能、智驾等领域实现业务突破，服务多家头部互联网企业的大模型Token业务。
+来源：电圈信息差 责任编辑：孙同怀
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 18:59 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 18:36 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 18:42 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-29 18:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 18:55 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 18:40 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 18:30 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 18:36 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 18:46 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 18:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 18:50 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 18:52 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
-- 2026-06-29 18:42 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 18:48 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 18:45 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 18:52 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 19:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 19:01 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 18:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 18:41 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 18:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 18:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 18:56 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 18:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 19:04 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/58556494.shtml)
-- 2026-06-29 18:30 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/794041607421.shtml)
-- 2026-06-29 18:31 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/39496763.shtml)
-- 2026-06-29 18:37 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/973660.shtml)
-- 2026-06-29 18:59 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/16471332.shtml)
-- 2026-06-29 18:49 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/48669.shtml)
-- 2026-06-29 18:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/89434209.shtml)
-- 2026-06-29 18:33 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/888697652.shtml)
-- 2026-06-29 18:59 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/75579192.shtml)
-- 2026-06-29 18:34 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/78952987.shtml)
-- 2026-06-29 18:39 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/602816328483.shtml)
-- 2026-06-29 18:31 - [RAY评乘风2026总决赛](https://www.blog.minike.top/Article/details/18096.shtml)
-- 2026-06-29 18:42 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/037216.shtml)
-- 2026-06-29 18:42 - [周生如故](http://www.share.minike.top/Article/details/217218.shtml)
-- 2026-06-29 18:57 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/569844977.shtml)
+- 2026-06-29 18:57 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/406797.shtml)
+- 2026-06-29 18:57 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/98632749690.shtml)
+- 2026-06-29 18:46 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/433265037279.shtml)
+- 2026-06-29 18:37 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/18629.shtml)
+- 2026-06-29 18:58 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/96728268939.shtml)
+- 2026-06-29 18:55 - [葛军透露高考出题思路](https://www.blog.kurohicncr.top/Article/details/47335.shtml)
+- 2026-06-29 18:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/701397994.shtml)
+- 2026-06-29 18:40 - [TFING全员黑西装](http://www.share.kurohicncr.top/Article/details/77648525.shtml)
+- 2026-06-29 19:02 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/157668.shtml)
+- 2026-06-29 18:36 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/012788937.shtml)
+- 2026-06-29 18:53 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/18757440.shtml)
+- 2026-06-29 18:47 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/044555530.shtml)
+- 2026-06-29 18:36 - [大马同意延长马航370残骸搜寻工作](http://www.share.minike.top/Article/details/1462531.shtml)
+- 2026-06-29 18:59 - [啊啊啊](http://www.blog.minike.top/Article/details/2632156554.shtml)
+- 2026-06-29 19:02 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/07743475.shtml)

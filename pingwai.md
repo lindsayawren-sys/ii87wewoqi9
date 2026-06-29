@@ -1,56 +1,53 @@
-# 中国驻日本大使馆举办“六一”国际儿童节庆祝活动
+# 顶点资本创始人：SpaceX将成为美国规模最大的超大规模AI算力服务商
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网东京6月2日电 (记者 朱晨曦)5月31日，中国驻日本大使馆举办“六一”国际儿童节庆祝活动。 中国驻日本大使吴江浩和夫人丁玥邀请第十二届“大使杯”中文朗诵比赛获奖选手、横滨山手中华学校、东京华侨总会、全日本华侨华人社团联合会、在日华校及日本本村小学近300名小朋友来馆，同使馆阳光学校学生共庆“六一”。施泳公使、赵宝钢公使、日本华文教育协会会长颜安、横滨山手中华学校校长张岩
+专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 顶点资本的布拉德・格斯特纳也参与了本次 SpaceX 新股认购，他十分看好公司在人工智能领域的发展潜力。 谈及 SpaceX 自建数据中心的实力，格斯特纳在 CNBC 采访中表示：“相信所有人都会认同，埃隆・马斯克与 SpaceX 团队的技术实力全球顶尖。” 他补充道：“数年之内，他们会成长为美国体量最大的超大规模
 
 ## 正文
 
-中新网东京6月2日电 (记者 朱晨曦)5月31日，中国驻日本大使馆举办“六一”国际儿童节庆祝活动。
+专题：马斯克旗下SpaceX登录纳斯达克 成为史上最大IPO 顶点资本的布拉德・格斯特纳也参与了本次 SpaceX 新股认购，他十分看好公司在人工智能领域的发展潜力。
 
-中国驻日本大使吴江浩和夫人丁玥邀请第十二届“大使杯”中文朗诵比赛获奖选手、横滨山手中华学校、东京华侨总会、全日本华侨华人社团联合会、在日华校及日本本村小学近300名小朋友来馆，同使馆阳光学校学生共庆“六一”。
+谈及 SpaceX 自建数据中心的实力，格斯特纳在 CNBC 采访中表示：“相信所有人都会认同，埃隆・马斯克与 SpaceX 团队的技术实力全球顶尖。
 
-施泳公使、赵宝钢公使、日本华文教育协会会长颜安、横滨山手中华学校校长张岩松、东京华侨总会会长钱江丽子、本村小学校长山崎高志、在日华文教育工作者及使馆各部门负责人出席。
+” 他补充道：“数年之内，他们会成长为美国体量最大的超大规模 AI 算力服务商。
 
-吴江浩大使为中文朗诵比赛获奖选手颁奖，向参加活动的中日两国小朋友致以节日祝福。
-
-丁玥鼓励在日华侨华人子女传承弘扬中华民族精神，期待日本小朋友以此次活动为契机进一步认识和了解中国。
-
-颜安感谢使馆连续3年精心打造“六一”庆祝活动，向孩子们传递祖国的温暖与关爱。
-
-现场进行了中国历史文化知识问答，小朋友们表演了舞蹈、京剧、艺术体操、武术等精彩节目。
-
-(完)
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 18:56 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 18:44 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 18:49 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 18:51 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 18:33 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 18:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 18:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 18:37 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 18:36 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 18:59 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:03 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 18:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 18:49 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 18:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 19:01 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 19:03 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 18:51 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 18:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 19:03 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 19:02 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 18:40 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 18:55 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 19:02 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 19:00 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 18:54 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/60454.shtml)
-- 2026-06-29 18:45 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/04314273.shtml)
-- 2026-06-29 18:42 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/671949.shtml)
-- 2026-06-29 18:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/16544.shtml)
-- 2026-06-29 18:49 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/451477.shtml)
-- 2026-06-29 18:38 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/747235180316.shtml)
-- 2026-06-29 18:49 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/40080379.shtml)
-- 2026-06-29 18:34 - [V8](https://www.blog.kurohicncr.top/Article/details/7137330638.shtml)
-- 2026-06-29 18:30 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/23767.shtml)
-- 2026-06-29 18:53 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/8100919673.shtml)
-- 2026-06-29 18:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/522299213144.shtml)
-- 2026-06-29 18:58 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/15084587344.shtml)
-- 2026-06-29 18:55 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/315457631.shtml)
-- 2026-06-29 18:54 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/381466.shtml)
-- 2026-06-29 18:48 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/07900.shtml)
+- 2026-06-29 18:59 - [中方向委方追加1亿元援助](https://www.blog.kurohicncr.top/Article/details/32700285.shtml)
+- 2026-06-29 19:03 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/8749984703.shtml)
+- 2026-06-29 18:53 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/1605657.shtml)
+- 2026-06-29 18:49 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/202097088.shtml)
+- 2026-06-29 19:02 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/2429495853.shtml)
+- 2026-06-29 19:03 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/996459413485.shtml)
+- 2026-06-29 18:47 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/21689.shtml)
+- 2026-06-29 19:03 - [天道](http://www.blog.minike.top/Article/details/262049803.shtml)
+- 2026-06-29 18:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/0540992139.shtml)
+- 2026-06-29 18:55 - [女心理师](http://www.blog.minike.top/Article/details/466661763.shtml)
+- 2026-06-29 18:44 - [直击委内瑞拉加拉加斯救援现场](https://www.share.kurohicncr.top/Article/details/8144061.shtml)
+- 2026-06-29 18:48 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/6473503390.shtml)
+- 2026-06-29 18:39 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/889875.shtml)
+- 2026-06-29 19:03 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/591619394.shtml)
+- 2026-06-29 18:57 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/82411820.shtml)

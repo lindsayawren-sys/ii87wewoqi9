@@ -1,57 +1,57 @@
-# 强制民众出售美元？韩国总统呼吁严惩散布假消息者
+# 种下一片绿 长出一方春——日喀则市萨嘎县筑牢绿色屏障、厚植生态底色
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-韩国总统李在明周二呼吁严惩那些明知故犯散布虚假信息的人。他援引警方正在调查的网络假新闻，该假新闻声称政府将强制民众出售美元。 李在明在其社交媒体账号上发出这一呼吁，并附上了一篇新闻报道，称警方已确认10名涉嫌散布假新闻的人员。这些假新闻声称政府将发布紧急命令，要求出售美元以应对中东冲突引发的经济危机。 李在明在账号上写道：“故意散布虚假信息，造成社会混乱和经济损失的行为，必须被
+西藏日报日喀则采访组 西藏是国家重要的生态安全屏障。守护好这里的每一寸绿，是“国之大者”。 在平均海拔4600米的日喀则市萨嘎县，这道屏障的构筑，靠的是一棵棵树苗扎根生长的倔强，是一阵阵风沙慢慢褪去带来的改变，是群众眼里藏不住的欢喜与自豪。 草木无言，浸润山河；生态为本，行稳致远。近年来，萨嘎县牢固树立“两山”理念，坚持生态优先、绿色发展，持之以恒植树造林、防沙治沙，在高原上种
 
 ## 正文
 
-韩国总统李在明周二呼吁严惩那些明知故犯散布虚假信息的人。
+西藏日报日喀则采访组 西藏是国家重要的生态安全屏障。
 
-他援引警方正在调查的网络假新闻，该假新闻声称政府将强制民众出售美元。
+守护好这里的每一寸绿，是“国之大者”。
 
-李在明在其社交媒体账号上发出这一呼吁，并附上了一篇新闻报道，称警方已确认10名涉嫌散布假新闻的人员。
+在平均海拔4600米的日喀则市萨嘎县，这道屏障的构筑，靠的是一棵棵树苗扎根生长的倔强，是一阵阵风沙慢慢褪去带来的改变，是群众眼里藏不住的欢喜与自豪。
 
-这些假新闻声称政府将发布紧急命令，要求出售美元以应对中东冲突引发的经济危机。
+草木无言，浸润山河；生态为本，行稳致远。
 
-李在明在账号上写道：“故意散布虚假信息，造成社会混乱和经济损失的行为，必须被查明并严惩。
+近年来，萨嘎县牢固树立“两山”理念，坚持生态优先、绿色发展，持之以恒植树造林、防沙治沙，在高原上种出了一片绿、守住了一方土、造福了一方人。
 
-” 他强调，散布损害公众利益的假新闻绝非言论自由，也绝不能容忍。
+初心如种，荒滩之上绿渐浓 高原之上，每一抹绿色的背后，都是加倍的付出与倔强的坚守。
 
-李在明指出：“任何伤害民众或破坏公共秩序和价值观的行为，都等同于严重犯罪，必须受到严惩，即使是出于玩笑。
+2016年，黄萌来到萨嘎县自然资源和林业草原局工作。
 
-” 当有关美元抛售的说法在网络社区和博客上流传时，韩国财政部驳斥这些说法是“假新闻”，称从未讨论过这样的措施。
+那时的萨嘎县，大风一起便尘土飞扬。
 
 ## 相关推荐
 
-- 2026-06-29 18:34 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 18:55 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 18:43 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 18:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 18:45 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 18:42 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 18:59 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 18:34 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 18:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-29 18:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 18:32 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 18:55 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 19:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 18:44 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 18:40 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 19:01 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 18:38 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 19:02 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 18:44 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 18:59 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 18:58 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 19:03 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/5141238.shtml)
-- 2026-06-29 18:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/5520501443.shtml)
-- 2026-06-29 18:42 - [毒液2](https://www.share.minike.top/Article/details/51382.shtml)
-- 2026-06-29 18:58 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/1772033989.shtml)
-- 2026-06-29 18:58 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/8378466.shtml)
-- 2026-06-29 18:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/91068016851.shtml)
-- 2026-06-29 18:41 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/9286016648.shtml)
-- 2026-06-29 18:50 - [货车司机雨中帮交警挪树获表扬](https://www.blog.kurohicncr.top/Article/details/58791792.shtml)
-- 2026-06-29 18:47 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/9039557.shtml)
-- 2026-06-29 18:31 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/1851170141.shtml)
-- 2026-06-29 18:32 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/9918893.shtml)
-- 2026-06-29 18:45 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/916649728029.shtml)
-- 2026-06-29 18:34 - [刘扬任湖南省副省长](http://www.blog.kurohicncr.top/Article/details/4105039.shtml)
-- 2026-06-29 18:31 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/3571213988.shtml)
-- 2026-06-29 18:48 - [斛珠夫人](https://www.share.minike.top/Article/details/354704680933.shtml)
+- 2026-06-29 19:02 - [吴建豪和老婆差20岁](https://www.blog.minike.top/Article/details/818030991500.shtml)
+- 2026-06-29 18:54 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/520188381.shtml)
+- 2026-06-29 18:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/89950.shtml)
+- 2026-06-29 18:56 - [女心理师](https://www.blog.minike.top/Article/details/735589075296.shtml)
+- 2026-06-29 19:01 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/3727714738.shtml)
+- 2026-06-29 19:05 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/61814472.shtml)
+- 2026-06-29 18:54 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/2323661.shtml)
+- 2026-06-29 18:55 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/718141715808.shtml)
+- 2026-06-29 18:58 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/479883182451.shtml)
+- 2026-06-29 18:40 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/850401.shtml)
+- 2026-06-29 18:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/58395740.shtml)
+- 2026-06-29 18:45 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/06226099169.shtml)
+- 2026-06-29 19:04 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/069483.shtml)
+- 2026-06-29 18:56 - [谢依霖夸杨幂靠谱](http://www.share.kurohicncr.top/Article/details/13567.shtml)
+- 2026-06-29 19:01 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/111701816.shtml)

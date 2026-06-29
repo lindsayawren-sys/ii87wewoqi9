@@ -1,56 +1,59 @@
-# 见证历史！中际旭创股价超茅台！CPO彻底引爆，高“光”创业板人工智能ETF华宝（159363）爆量涨超5%持续新高
+# 马斯克巨型抗议人偶现身时代广场，SpaceX IPO前夜遭遇抵制
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-6月3日早盘，光模块CPO彻底引爆，天孚通信暴涨超12%，新易盛、中际旭创、光库科技涨超8%，批量创历史新高。其中，中际旭创盘中最高价达1290元，超越贵州茅台。 热门ETF方面，光模块CPO含量超50%且“易中天”含量最高的创业板人工智能ETF华宝（159363）场内大涨超5%持续新高，实时成交额爆量11亿元，资金实时净申购6000万元。 消息面上，黄仁勋公开力挺合作伙伴迈威
+在SpaceX即将进行历史性IPO的前一天，纽约时代广场出现了一个高达40英尺的巨型充气人偶，造型为赤裸上身的埃隆·马斯克。这一抗议活动由名为“现在就保障AI安全”的组织发起，旨在向投资者发出警告。 人偶身上印有多处醒目纹身，胸口和后背赫然写着“Grok制造AI儿童色情内容”和“SpaceX拥有Grok”等标语。其手臂上还有一颗心形纹身，内嵌“氯胺酮”字样，意在讽刺马斯克公开承
 
 ## 正文
 
-6月3日早盘，光模块CPO彻底引爆，天孚通信暴涨超12%，新易盛、中际旭创、光库科技涨超8%，批量创历史新高。
+在SpaceX即将进行历史性IPO的前一天，纽约时代广场出现了一个高达40英尺的巨型充气人偶，造型为赤裸上身的埃隆·马斯克。
 
-其中，中际旭创盘中最高价达1290元，超越贵州茅台。
+这一抗议活动由名为“现在就保障AI安全”的组织发起，旨在向投资者发出警告。
 
-热门ETF方面，光模块CPO含量超50%且“易中天”含量最高的创业板人工智能ETF华宝（159363）场内大涨超5%持续新高，实时成交额爆量11亿元，资金实时净申购6000万元。
+人偶身上印有多处醒目纹身，胸口和后背赫然写着“Grok制造AI儿童色情内容”和“SpaceX拥有Grok”等标语。
 
-消息面上，黄仁勋公开力挺合作伙伴迈威尔科技 ，称其可能成为“下一家万亿美元公司”，迈威尔科技美股收盘大涨32%。
+其手臂上还有一颗心形纹身，内嵌“氯胺酮”字样，意在讽刺马斯克公开承认使用该药物的行为。
 
-公开资料显示，迈威尔科技作为上游芯片供应商，为中际旭创和新易盛这两家全球领先的光模块制造商提供光模块所需的核心DSP芯片。
+人偶背后的另一处纹身则模仿了马斯克在2025年特朗普就职典礼上引发争议的姿势。
 
-光互连巨头迈威尔科技（Marvell）首席执行官与黄仁勋共同认为：AI基础设施的下一个决定性战场，不是算力，不是内存，而是连接。
+抗议者选择在纳斯达克交易所和摩根大通办公楼前展开行动，这些地点正是SpaceX此次IPO的核心场所。
 
-黄仁勋明确指出，虽然能用铜缆的地方会尽量用，但随着传输距离和带宽超越物理极限，海量的光学器件（包括下一代CPO技术）将成为不可或缺的刚需。
+按照计划，SpaceX将于周五以每股135美元的价格上市，融资750亿美元，公司估值高达1.77万亿美元，创下历史之最。
 
-这极大地重构了CPO技术的未来估值想象空间。
+抗议的核心焦点是马斯克旗下xAI公司开发的Grok聊天机器人。
 
 ## 相关推荐
 
-- 2026-06-29 18:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 18:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 18:51 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 18:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 18:44 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 18:33 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 18:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 18:30 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 18:57 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 18:50 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 18:37 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 18:45 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 19:02 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 18:45 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 18:48 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 18:52 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 19:01 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 19:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 18:49 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 18:37 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 18:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 19:06 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 18:45 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:50 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/6812536419.shtml)
-- 2026-06-29 18:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/839637.shtml)
-- 2026-06-29 18:55 - [RAY评乘风2026总决赛](http://www.blog.kurohicncr.top/Article/details/131472.shtml)
-- 2026-06-29 18:46 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/0280871.shtml)
-- 2026-06-29 18:51 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/049328.shtml)
-- 2026-06-29 18:44 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/20670.shtml)
-- 2026-06-29 18:35 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/41563749477.shtml)
-- 2026-06-29 18:43 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/39264.shtml)
-- 2026-06-29 18:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/180639668.shtml)
-- 2026-06-29 18:48 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/41138263.shtml)
-- 2026-06-29 18:30 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/02795.shtml)
-- 2026-06-29 18:49 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/5365052944.shtml)
-- 2026-06-29 18:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/3671676.shtml)
-- 2026-06-29 18:49 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/197763840801.shtml)
-- 2026-06-29 18:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/898555.shtml)
+- 2026-06-29 19:02 - [我国多领域成果密集上新](http://www.blog.kurohicncr.top/Article/details/918366303495.shtml)
+- 2026-06-29 18:38 - [恋与深空各大应用商店评分](https://www.share.minike.top/Article/details/050375667.shtml)
+- 2026-06-29 18:39 - [恋与深空客服的回应](https://www.blog.kurohicncr.top/Article/details/79224.shtml)
+- 2026-06-29 19:02 - [穆祉丞东方风云榜红毯](http://www.blog.minike.top/Article/details/232517597784.shtml)
+- 2026-06-29 18:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/68536761553.shtml)
+- 2026-06-29 18:54 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/166077680903.shtml)
+- 2026-06-29 18:57 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/27049.shtml)
+- 2026-06-29 19:02 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/98054968075.shtml)
+- 2026-06-29 18:45 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/389093.shtml)
+- 2026-06-29 19:02 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/60795699759.shtml)
+- 2026-06-29 18:56 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/21488980.shtml)
+- 2026-06-29 18:52 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/846614.shtml)
+- 2026-06-29 18:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/7720955.shtml)
+- 2026-06-29 18:37 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/9547912613.shtml)
+- 2026-06-29 18:51 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/95733477355.shtml)

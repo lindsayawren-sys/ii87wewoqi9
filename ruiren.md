@@ -1,56 +1,56 @@
-# 预测市场加速进军华尔街，Polymarket达成首笔大宗交易
+# 青藏铁路首发满编满轴直达拉萨城际班列
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-核心要点 预测交易平台 Polymarket 独家向 CNBC 披露，公司已完成首笔围绕人工智能算力基建标的的大宗交易。 这笔六位数金额的交易由数字资产经纪商 FalconX 与交易科技初创公司 Anera Labs 促成，双方交易标的挂钩奥恩算力价格指数，该指数用来跟踪英伟达 H100 显卡的租赁报价。 Polymarket 机构流动性负责人布鲁克・里泽托在公告中表示：“预测
+中新社西宁6月12日电 (潘雨洁 周悦翔 杨春艳)中国铁路青藏集团有限公司(以下简称“青藏集团公司”)首趟实现满编满轴运输的进藏城际班列12日从青海省西宁市青藏铁路物流中心双寨铁路货场驶出，将直达1900余公里外的拉萨西站。 据悉，该趟班列满载汽车、冷链生鲜、日用百货、钢材、化肥等各类重点物资，编组共32辆，货物总重量达1407吨。 当前正值暑运关键阶段，客货运输交织、任务繁重
 
 ## 正文
 
-核心要点 预测交易平台 Polymarket 独家向 CNBC 披露，公司已完成首笔围绕人工智能算力基建标的的大宗交易。
+中新社西宁6月12日电 (潘雨洁 周悦翔 杨春艳)中国铁路青藏集团有限公司(以下简称“青藏集团公司”)首趟实现满编满轴运输的进藏城际班列12日从青海省西宁市青藏铁路物流中心双寨铁路货场驶出，将直达1900余公里外的拉萨西站。
 
-这笔六位数金额的交易由数字资产经纪商 FalconX 与交易科技初创公司 Anera Labs 促成，双方交易标的挂钩奥恩算力价格指数，该指数用来跟踪英伟达 H100 显卡的租赁报价。
+据悉，该趟班列满载汽车、冷链生鲜、日用百货、钢材、化肥等各类重点物资，编组共32辆，货物总重量达1407吨。
 
-Polymarket 机构流动性负责人布鲁克・里泽托在公告中表示：“预测市场正逐步成为机构大宗成交的核心场所之一，本次交易就是最好佐证。
+当前正值暑运关键阶段，客货运输交织、任务繁重。
 
-机构通过我们大规模对冲真实 GPU 算力价格敞口，正是我们长期布局的发展方向。
+“这趟班列‘一站式’直达拉萨，中途不再停靠进行编组作业，时效缩短至48小时内，实现运力和运输效益最大化。
 
-” 大宗交易指场外私下磋商的大额成交，一般绕开公开盘面交易以规避价格冲击，是华尔街股票业务的常规操作。
+”青藏集团公司物流事业部副总经理曾强介绍。
 
-就在本次官宣的一个多月前，Polymarket 的头号竞争对手 Kalshi 刚刚完成预测赛道首笔大宗交易；而 Polymarket 强调，自身这笔是预测行业首笔链上机构大宗交易，其海外平台搭建在 Polygon 公链之上。
+2026年是青藏铁路全线通车20周年。
 
-Polymarket 的海外交易所和美国本土平台相互独立：公司 2022 年因合规备案问题被美国叫停业务，直至同年 12 月美国站点重新上线。
+今年前五个月，双寨铁路货场每日开行1列进藏城际班列，已累计发运进藏物资约1500车、6.5万余吨，成为进出藏物资保供与商贸流通的重要载体。
 
-美国监管预测市场的商品期货交易委员会（CFTC）与司法部已于当年 7 月结束对该公司调查、不予起诉，目前由 CFTC 监管其美国业务。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 18:49 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 18:45 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 18:31 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 18:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 18:50 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 18:59 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 18:43 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 18:33 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 18:34 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 18:54 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 19:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 18:42 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 18:47 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 18:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 18:45 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 18:54 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-29 18:48 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 18:58 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 18:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-29 18:52 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:52 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/65131.shtml)
-- 2026-06-29 18:52 - [福建仙游一峡谷发生意外 5游客身亡](https://www.blog.minike.top/Article/details/0368370833.shtml)
-- 2026-06-29 18:52 - [大学专业未来如何洗牌](https://www.share.kurohicncr.top/Article/details/79664208.shtml)
-- 2026-06-29 18:40 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/34845333853.shtml)
-- 2026-06-29 18:30 - [1个视频看懂2026志愿填报新专业](https://www.share.minike.top/Article/details/39505400.shtml)
-- 2026-06-29 18:56 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/735318671.shtml)
-- 2026-06-29 18:42 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/90021.shtml)
-- 2026-06-29 18:44 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/694312.shtml)
-- 2026-06-29 18:34 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/741410.shtml)
-- 2026-06-29 18:40 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/07706.shtml)
-- 2026-06-29 18:47 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/0448073050.shtml)
-- 2026-06-29 18:43 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/2670820.shtml)
-- 2026-06-29 18:45 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/511933.shtml)
-- 2026-06-29 18:32 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/781118.shtml)
-- 2026-06-29 18:46 - [日本主教练回应迎战巴西](https://www.share.minike.top/Article/details/84379.shtml)
+- 2026-06-29 18:49 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/8228588501.shtml)
+- 2026-06-29 18:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/74321443129.shtml)
+- 2026-06-29 18:52 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.kurohicncr.top/Article/details/44515362527.shtml)
+- 2026-06-29 19:04 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/66559.shtml)
+- 2026-06-29 18:41 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/660315666963.shtml)
+- 2026-06-29 18:37 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/6890655715.shtml)
+- 2026-06-29 18:43 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/914931928591.shtml)
+- 2026-06-29 19:06 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/38923052724.shtml)
+- 2026-06-29 19:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/153768196.shtml)
+- 2026-06-29 19:03 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/0638403673.shtml)
+- 2026-06-29 18:48 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/114302053.shtml)
+- 2026-06-29 18:45 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/88871082502.shtml)
+- 2026-06-29 18:48 - [博主：AI泡沫必须破灭](https://www.share.minike.top/Article/details/002646.shtml)
+- 2026-06-29 18:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/14466166291.shtml)
+- 2026-06-29 18:53 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/462141825.shtml)

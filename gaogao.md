@@ -1,56 +1,61 @@
-# 中俄智库高端论坛（2026）在莫斯科召开
+# 文化和自然遗产日，“新艺中国”点亮东方明珠
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 6月1日至2日，中俄智库高端论坛(2026)“‘中国与俄罗斯：新时代合作’暨中俄建立战略协作伙伴关系30周年”在莫斯科召开。 中共中央政治局委员、外交部长王毅在贺信中指出，中俄智库高端论坛自创立以来，成为中俄两国间层次最高、覆盖面最广、影响力最大的智库交流平台，为助力中俄新时代全面战略协作伙伴关系发展作出积极贡献。希望两国专家学者以本届论坛为契机深入交流，
+浦江之畔，云端高处，千年非遗在都市天际线熠熠生辉。 6月13日是2026年文化和自然遗产日，全国新的社会阶层人士“新艺中国”服务团走进上海东方明珠电视塔，在263米高空观光层内举办“非遗传千年·新艺耀华夏”主题活动。 “新艺中国”服务团书画、文学、演艺、数字艺术、综合等分团代表参加活动，现场吸引数千名游客驻足观摩体验。 “非遗不是被束之高阁的文化符号，而是有温度、可以融入日常的
 
 ## 正文
 
-中新网北京6月2日电 6月1日至2日，中俄智库高端论坛(2026)“‘中国与俄罗斯：新时代合作’暨中俄建立战略协作伙伴关系30周年”在莫斯科召开。
+浦江之畔，云端高处，千年非遗在都市天际线熠熠生辉。
 
-中共中央政治局委员、外交部长王毅在贺信中指出，中俄智库高端论坛自创立以来，成为中俄两国间层次最高、覆盖面最广、影响力最大的智库交流平台，为助力中俄新时代全面战略协作伙伴关系发展作出积极贡献。
+6月13日是2026年文化和自然遗产日，全国新的社会阶层人士“新艺中国”服务团走进上海东方明珠电视塔，在263米高空观光层内举办“非遗传千年·新艺耀华夏”主题活动。
 
-希望两国专家学者以本届论坛为契机深入交流，以远见卓识赋能两国战略协作高质量发展，为维护世界和平稳定、促进人类共同进步贡献更多的思想和智慧。
+“新艺中国”服务团书画、文学、演艺、数字艺术、综合等分团代表参加活动，现场吸引数千名游客驻足观摩体验。
 
-俄罗斯外交部长拉夫罗夫在贺信中表示，当前，俄中关系不受意识形态差异和外部因素影响，也不针对任何第三方，已成为维护地区和世界稳定的积极力量。
+“非遗不是被束之高阁的文化符号，而是有温度、可以融入日常的存在。
 
-两国学术界和智库机构在深化相互认知、凝聚合作共识、完善对话机制方面发挥着重要作用，希望与会专家学者为推动俄中关系发展和国际秩序建设贡献更多智慧与力量。
+”这是“新艺中国”非遗分团牵头人施君一直倡导的理念。
 
-中国社会科学院院长高翔在视频致辞中表示，面向未来，中俄应共同捍卫国际体系，维护国际秩序；夯实经贸合作，促进互利共赢；加强人文交流，筑牢友好根基，以扎实举措将两国元首达成的重要共识落到实处。
+本次活动领队、“新艺中国”品牌活动组委会秘书长徐亦嘏说，非遗最动人的模样，并不在封存的标本中。
 
-双方应以高质量智库对话促进民心相通、推动务实合作，充分发挥智库桥梁作用，为推动中俄更高质量全面战略协作、推动构建人类命运共同体作出新贡献。
+全国各省(区、市)的“新艺中国”负责人带队在线“云游”。
 
-中国驻俄罗斯大使张汉晖表示，希望各位学者以中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年为契机，百尺竿头更进一步，结合最新国际形势和中俄发展振兴需要，共同探讨深化中俄战略协作、拓展务实合作、密切人文交往的新思路、新举措，为深化中俄新时代全面战略协作伙伴关系提供坚实智力支撑。
+小黑诸鸣、乌合麒麟、唐家三少、程野等网络知名人士向本次活动发来视频祝福。
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 18:32 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 18:51 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-29 18:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 18:56 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 18:30 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-29 18:37 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 18:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 18:51 - [V8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 18:56 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 19:00 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 18:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 18:48 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 18:53 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 18:54 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 18:56 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 18:57 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 18:53 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 18:38 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 18:53 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 18:51 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 18:49 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 18:41 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 18:49 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 18:52 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/8929654961.shtml)
-- 2026-06-29 18:53 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/9236324293.shtml)
-- 2026-06-29 18:34 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/95710290.shtml)
-- 2026-06-29 18:34 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/256169.shtml)
-- 2026-06-29 18:58 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/019386.shtml)
-- 2026-06-29 18:42 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/605351531.shtml)
-- 2026-06-29 18:51 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/76782.shtml)
-- 2026-06-29 18:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/656923397.shtml)
-- 2026-06-29 18:32 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/885335477824.shtml)
-- 2026-06-29 18:35 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/25342666.shtml)
-- 2026-06-29 18:43 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/6671079907.shtml)
-- 2026-06-29 18:59 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/944802.shtml)
-- 2026-06-29 18:55 - [女心理师](http://www.share.minike.top/Article/details/03367605323.shtml)
-- 2026-06-29 18:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/79137959.shtml)
-- 2026-06-29 18:54 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/03555.shtml)
+- 2026-06-29 18:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/84609.shtml)
+- 2026-06-29 19:04 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/030979338534.shtml)
+- 2026-06-29 18:49 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/90848801.shtml)
+- 2026-06-29 18:43 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/272597.shtml)
+- 2026-06-29 18:50 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/25877735521.shtml)
+- 2026-06-29 18:47 - [叠纸客服回应恋与深空新角色争议](https://www.share.minike.top/Article/details/8630514322.shtml)
+- 2026-06-29 18:46 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/0989041360.shtml)
+- 2026-06-29 18:47 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/604085.shtml)
+- 2026-06-29 19:01 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/526084845044.shtml)
+- 2026-06-29 18:45 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/60469799.shtml)
+- 2026-06-29 18:50 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/5384543705.shtml)
+- 2026-06-29 19:00 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/663839476899.shtml)
+- 2026-06-29 18:52 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/2766241.shtml)
+- 2026-06-29 18:37 - [日本在最东端离岛部署导弹发射装置](http://www.share.kurohicncr.top/Article/details/034868853.shtml)
+- 2026-06-29 18:40 - [流金岁月](https://www.share.minike.top/Article/details/0607674608.shtml)

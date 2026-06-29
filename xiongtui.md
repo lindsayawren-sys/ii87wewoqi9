@@ -1,56 +1,45 @@
-# 广州南沙发布楼市新政 补贴最高可达17万元
+# 山洪灾害气象预警：福建江西等6省区局地发生山洪灾害可能性较大
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新社广州6月2日电 (记者 王坚)《关于进一步推动南沙区房地产市场高质量发展的实施意见》(下称“南十条”)2日在广州南沙区发布。“南十条”提出，向符合条件的参与南沙区住房“以旧换新”的居民个人发放专项补贴，南沙区的补贴和广州市的补贴可以叠加，各项补贴累计最高可达17万元(人民币，下同)。南沙区政府介绍，“南十条”旨在更好激发住房消费活力，优化住房供应结构，提升居住配套品质，加
+中国天气网讯 水利部和中国气象局6月13日18时联合发布黄色山洪灾害气象预警： 预计，6月13日20时至6月14日20时，内蒙古东部、福建中西部、江西南部、广东东南部和北部、广西东部、四川南部、云南西部和北部等地部分地区可能发生山洪灾害(蓝色预警)，其中，福建中西部、江西东南部、广东东南部和北部、广西东部、四川南部、云南西部和北部局地发生山洪灾害可能性较大(黄色预警)。其他地区
 
 ## 正文
 
-中新社广州6月2日电 (记者 王坚)《关于进一步推动南沙区房地产市场高质量发展的实施意见》(下称“南十条”)2日在广州南沙区发布。
+中国天气网讯 水利部和中国气象局6月13日18时联合发布黄色山洪灾害气象预警： 预计，6月13日20时至6月14日20时，内蒙古东部、福建中西部、江西南部、广东东南部和北部、广西东部、四川南部、云南西部和北部等地部分地区可能发生山洪灾害(蓝色预警)，其中，福建中西部、江西东南部、广东东南部和北部、广西东部、四川南部、云南西部和北部局地发生山洪灾害可能性较大(黄色预警)。
 
-“南十条”提出，向符合条件的参与南沙区住房“以旧换新”的居民个人发放专项补贴，南沙区的补贴和广州市的补贴可以叠加，各项补贴累计最高可达17万元(人民币，下同)。
-
-南沙区政府介绍，“南十条”旨在更好激发住房消费活力，优化住房供应结构，提升居住配套品质，加快构建供需匹配、品质优先、职住平衡、治理高效的发展新格局。
-
-“南十条”提出，将面向居民开展“收旧房、换新房”活动，收房范围为广州市全域，购买新房需位于南沙区内，“旧房”收购款可直接抵扣“新房”购房款，同时对参与南沙区住房“以旧换新”的居民个人发放专项补贴，按“新房”总价的1%给予补贴，单套最高2万元，补贴总额3000万元，用完即止。
-
-南沙区的补贴和市级补贴可以叠加。
-
-同时，“南十条”提出建立健全“政府引导、国企主导、社会参与”收储机制，以需定购，重点收储区位适配、户型合理、配套完善的存量商品住房及符合条件的商办用房，鼓励转化为人才公寓、市场化长租公寓，提供给有需要的新市民和年轻人。
-
-此外，“南十条”还提出，未来三年内，对于南沙征收及城市更新等安置需求，依托房票安置、收购存量商品房等市场化方式解决安置需求，并研究拓宽房票使用范畴，切实将安置需求转化为去库存的增长动能。
-
-(完)
+其他地区也可能因局地短历时强降水引发山洪灾害，请各地注意做好实时监测、防汛预警和转移避险等防范工作。
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-29 18:42 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 18:56 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 18:56 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-29 18:39 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 18:57 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 18:50 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 18:59 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 18:51 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 19:05 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 18:55 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 18:55 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 19:03 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 18:55 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 18:53 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:04 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 18:56 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 18:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 18:59 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 18:58 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:43 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/407418008454.shtml)
-- 2026-06-29 18:51 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/99091.shtml)
-- 2026-06-29 18:36 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/32317283.shtml)
-- 2026-06-29 18:42 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/311080377574.shtml)
-- 2026-06-29 18:44 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/70019.shtml)
-- 2026-06-29 18:52 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2811490599.shtml)
-- 2026-06-29 18:44 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/9031463787.shtml)
-- 2026-06-29 18:49 - [互助版模拟高考志愿填报](https://www.blog.minike.top/Article/details/70810.shtml)
-- 2026-06-29 18:48 - [沙丘](http://www.blog.minike.top/Article/details/3058680.shtml)
-- 2026-06-29 18:48 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/56093660971.shtml)
-- 2026-06-29 18:59 - [吴建豪宣布再婚](https://www.share.kurohicncr.top/Article/details/8941372130.shtml)
-- 2026-06-29 18:40 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/029869.shtml)
-- 2026-06-29 18:39 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/3379983484.shtml)
-- 2026-06-29 18:53 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/45923499849.shtml)
-- 2026-06-29 18:42 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/6090742635.shtml)
+- 2026-06-29 18:54 - [官方通报一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/0522725189.shtml)
+- 2026-06-29 18:57 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/9536971036.shtml)
+- 2026-06-29 18:59 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/658712908.shtml)
+- 2026-06-29 18:38 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/6371662387.shtml)
+- 2026-06-29 18:56 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/9266651853.shtml)
+- 2026-06-29 18:41 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/86574.shtml)
+- 2026-06-29 18:53 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/336830313239.shtml)
+- 2026-06-29 18:50 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.minike.top/Article/details/5248442.shtml)
+- 2026-06-29 18:56 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/6053933284.shtml)
+- 2026-06-29 19:04 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/113766877.shtml)
+- 2026-06-29 18:47 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/79126.shtml)
+- 2026-06-29 18:44 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/71336513246.shtml)
+- 2026-06-29 18:37 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/6157808.shtml)
+- 2026-06-29 18:47 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/7372142759.shtml)
+- 2026-06-29 18:56 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/193884958367.shtml)

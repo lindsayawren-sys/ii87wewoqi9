@@ -1,52 +1,57 @@
-# 美国能源部为两个稀土提取项目提供1.34亿美元资金
+# 冬奥冠军韩晓鹏：每一次跌倒都是为了更好地起跳
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-美国能源部周二宣布，已选定路易斯安那州和俄克拉荷马州的两个项目，将提供1.34亿美元的资金，用于从废弃物中提取稀土元素。 这笔资金包括约6700万美元，用于科罗拉多矿业大学和ElementUSA公司牵头在路易斯安那州建设一座从铝土矿废料中提取和提炼稀土的工厂。 该工厂预计将进行商业规模的工艺测试，并每年从尾矿中生产150至1000吨稀土。 美国能源部还选定了凤凰尾矿公司（Pho
+中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。 “我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。”中华体育精神大讲堂上，韩晓鹏坦言，
 
 ## 正文
 
-美国能源部周二宣布，已选定路易斯安那州和俄克拉荷马州的两个项目，将提供1.34亿美元的资金，用于从废弃物中提取稀土元素。
+中新网北京6月13日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动近日走进北京市西城区三里河第三小学。
 
-这笔资金包括约6700万美元，用于科罗拉多矿业大学和ElementUSA公司牵头在路易斯安那州建设一座从铝土矿废料中提取和提炼稀土的工厂。
+自由式滑雪空中技巧冬奥冠军韩晓鹏带着他的追梦故事来到校园，用自身经历诠释“每一次跌倒都是为了更好地起跳”，鼓励同学们去追逐属于自己的“飞翔时刻”。
 
-该工厂预计将进行商业规模的工艺测试，并每年从尾矿中生产150至1000吨稀土。
+“我的家乡在江苏徐州沛县，冬天留不住积雪，从没想过有一天会与滑雪结缘。
 
-美国能源部还选定了凤凰尾矿公司（Phoenix Tailings）的一个项目，与麻省理工学院合作，在俄克拉荷马州建造一座示范工厂，将工业废料转化为高纯度稀土金属，并建立一条新的国内供应路线。
+”中华体育精神大讲堂上，韩晓鹏坦言，刚开始练滑雪时，面对的是从未接触过的项目。
 
-今年5月，美国能源部选定稀土磁体制造商美国稀土公司作为试点项目，为其提供高达1930万美元的资金，用于一项旨在促进国内供应链的稀土加工试点项目。
+“最难的是空中翻转，要在几秒内完成助滑、起跳、翻转、落地等一系列动作，稍有不慎就会重重摔在雪地上。
 
-责任编辑：于健 SF069
+在日复一日的训练中，慢慢摸到了滑雪的门道。
+
+”韩晓鹏说。
+
+韩晓鹏讲述了2006年都灵冬奥会夺冠的高光时刻。
 
 ## 相关推荐
 
-- 2026-06-29 18:37 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 18:37 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 18:54 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 18:40 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 18:42 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 18:31 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 18:43 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 18:56 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 18:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 18:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 18:46 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 18:39 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 18:57 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 18:42 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 18:49 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 18:56 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 18:41 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 18:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 18:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 19:05 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-29 18:53 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/48171092.shtml)
-- 2026-06-29 18:34 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/02309589364.shtml)
-- 2026-06-29 18:30 - [V8](https://www.share.kurohicncr.top/Article/details/075177.shtml)
-- 2026-06-29 18:44 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/6391769.shtml)
-- 2026-06-29 18:49 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/1872861.shtml)
-- 2026-06-29 18:41 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/0461220.shtml)
-- 2026-06-29 18:48 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/45195935001.shtml)
-- 2026-06-29 18:51 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/459224195.shtml)
-- 2026-06-29 18:39 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/3804574.shtml)
-- 2026-06-29 18:46 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/9563039.shtml)
-- 2026-06-29 18:58 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/1948939.shtml)
-- 2026-06-29 18:56 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/0061479.shtml)
-- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/09725372297.shtml)
-- 2026-06-29 18:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/43283578156.shtml)
-- 2026-06-29 18:57 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/87248621.shtml)
+- 2026-06-29 18:40 - [毒液2](https://www.share.minike.top/Article/details/5564862.shtml)
+- 2026-06-29 18:55 - [蔚来回应车漆洗车时被冲掉](http://www.share.kurohicncr.top/Article/details/889743.shtml)
+- 2026-06-29 18:45 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/357917872671.shtml)
+- 2026-06-29 18:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/57134157.shtml)
+- 2026-06-29 18:57 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/05621.shtml)
+- 2026-06-29 19:05 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.minike.top/Article/details/30412.shtml)
+- 2026-06-29 18:51 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/166757965.shtml)
+- 2026-06-29 18:39 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/0785872.shtml)
+- 2026-06-29 18:51 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/338198.shtml)
+- 2026-06-29 18:41 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/475590873.shtml)
+- 2026-06-29 18:56 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/05671321.shtml)
+- 2026-06-29 18:47 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/7220295422.shtml)
+- 2026-06-29 18:57 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/14167.shtml)
+- 2026-06-29 18:48 - [存储三巨头被告了](https://www.share.minike.top/Article/details/995409112.shtml)
+- 2026-06-29 18:45 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.share.minike.top/Article/details/476475857.shtml)

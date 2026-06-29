@@ -1,58 +1,56 @@
-# 天宜上佳（688033）被立案，股民索赔可期
+# 太空探索技术公司估值可达 1.77 万亿美元？部分投资者称这纯属天方夜谭
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，北京天宜上佳高新材料股份有限公司（简称：天宜上佳、*ST天宜（维权），代码：688033）发布《关于公司收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《证券法》的有关规定，中国证监会决定对公司立案调查。 根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司
+马斯克曾在面向私人投资者的推介中预测，旗下一家企业到2028年营收将增长四倍，突破260亿美元，用户规模也将接近翻四倍。 这家企业就是推特。2022年，马斯克正筹备以4400亿美元收购这家社交媒体平台时，做出了上述预期。 如今，已更名为X的推特实际表现远不及当初的预测。去年，该平台广告收入暴跌65%，并于今年最终被并入马斯克旗下的SpaceX。 眼下SpaceX即将迎来万众瞩目
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2026年5月30日，北京天宜上佳高新材料股份有限公司（简称：天宜上佳、*ST天宜（维权），代码：688033）发布《关于公司收到中国证券监督管理委员会立案告知书的公告》，称因公司涉嫌信息披露违法违规等行为，根据《证券法》的有关规定，中国证监会决定对公司立案调查。
+马斯克曾在面向私人投资者的推介中预测，旗下一家企业到2028年营收将增长四倍，突破260亿美元，用户规模也将接近翻四倍。
 
-根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
+这家企业就是推特。
 
-权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
+2022年，马斯克正筹备以4400亿美元收购这家社交媒体平台时，做出了上述预期。
 
-由于天宜上佳涉嫌信息披露违法违规，被中国证监会立案调查，为维护证券投资者合法权益，上海汉联律师事务所宋一欣律师向曾经购买过天宜上佳的证券投资者展开诉讼代理征集，代理投资者索赔诉讼，权益受损的证券投资者可以向前述律师进行索赔登记。
+如今，已更名为X的推特实际表现远不及当初的预测。
 
-（宋一欣律师专栏） 宋一欣律师认为，天宜上佳案的索赔条件为：2026年5月30日前买入天宜上佳股票或债券等证券市场公开发行产品，并在2026年5月30日及之后卖出或继续持有的受损投资者，可以办理索赔登记。
+去年，该平台广告收入暴跌65%，并于今年最终被并入马斯克旗下的SpaceX。
 
-（天宜新材维权入口） ★（律师对本案的提示与说明） 1．上述提示的索赔条件仅供参考，不涉及投资者任何证券投资决策和证券买卖建议。
+眼下SpaceX即将迎来万众瞩目的首次公开募股，马斯克及其投行团队又抛出了更为宏大的发展愿景。
 
-索赔的最终条件将根据中国证监会行政处罚的结论进一步调整，并以相关法院最终生效的判决所认定的法律时点、赔付对象、赔付范围、赔付标准、会计计算方式为准。
+但结合马斯克过往承诺过高、兑现不足的履历，不少投资者愈发担忧：这家估值定为1.77万亿美元、将于本周五正式挂牌交易的航天与人工智能企业，可能会让投资者蒙受损失。
 
-2．以行政处罚决定为特征的前置条件取消后，投资者虽然可以直接诉讼，但由于调查手段有限，以立案调查通知或行政监管措施决定作为直接诉讼的依据起诉存在败诉的风险，所以，我作为专业律师提示投资者：行政处罚决定仍然应当作为提起诉讼的必要前提之一。
+曾预判能源企业安然公司因财务造假在2001年倒闭的知名投资人、查诺斯投资公司创始人吉姆・查诺斯表示：“眼下的局面，十足就是‘别去深究幕后真相’。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 18:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 18:37 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 18:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 18:31 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 18:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-29 18:33 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 18:46 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 18:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 18:46 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 18:46 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-29 18:49 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 18:40 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 18:51 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 18:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 18:36 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 18:38 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 19:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 18:50 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 18:40 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 18:37 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 18:48 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:44 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/717099432.shtml)
-- 2026-06-29 18:41 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/15846731.shtml)
-- 2026-06-29 18:48 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/7520809.shtml)
-- 2026-06-29 18:52 - [挪威王储妃长子2次强奸被判4年](http://www.share.minike.top/Article/details/903292003.shtml)
-- 2026-06-29 18:50 - [滚石点名酒店员工说有急救培训](https://www.share.minike.top/Article/details/511010749933.shtml)
-- 2026-06-29 18:41 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/683244.shtml)
-- 2026-06-29 18:30 - [毒液2](http://www.share.kurohicncr.top/Article/details/82801969.shtml)
-- 2026-06-29 18:30 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/522035341.shtml)
-- 2026-06-29 18:52 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/33208592813.shtml)
-- 2026-06-29 18:57 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/86925850910.shtml)
-- 2026-06-29 18:55 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/49848677.shtml)
-- 2026-06-29 18:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/398372331.shtml)
-- 2026-06-29 18:44 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/5308295668.shtml)
-- 2026-06-29 18:55 - [夏天被这些虫子咬了可能致命](https://www.share.minike.top/Article/details/61936.shtml)
-- 2026-06-29 18:53 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/51777.shtml)
+- 2026-06-29 18:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/3353396.shtml)
+- 2026-06-29 18:54 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.minike.top/Article/details/3386798.shtml)
+- 2026-06-29 18:42 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/256512892090.shtml)
+- 2026-06-29 18:36 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/7769449.shtml)
+- 2026-06-29 18:52 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/082823852.shtml)
+- 2026-06-29 18:55 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/95376.shtml)
+- 2026-06-29 18:49 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/56079.shtml)
+- 2026-06-29 18:44 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/089598247.shtml)
+- 2026-06-29 18:40 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/971998595280.shtml)
+- 2026-06-29 18:54 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/475532.shtml)
+- 2026-06-29 18:48 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/2960994645.shtml)
+- 2026-06-29 18:44 - [专家预计全球央行加息节奏将出现反复](https://www.share.minike.top/Article/details/10711958380.shtml)
+- 2026-06-29 19:03 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/729579.shtml)
+- 2026-06-29 19:00 - [德国医生在没有空调的手术室工作](https://www.share.kurohicncr.top/Article/details/618919.shtml)
+- 2026-06-29 19:02 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/813704446.shtml)

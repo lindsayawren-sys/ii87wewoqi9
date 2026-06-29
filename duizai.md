@@ -1,57 +1,60 @@
-# 内蒙古二连浩特铁路口岸中欧班列通行量突破2000列
+# “翻倍基”、“双十基金”双丰收，长短期业绩均出彩，中欧基金投研实力硬核兑现
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网呼和浩特6月2日电 (记者 李爱平)6月2日，一列满载55个集装箱货物的中欧班列，经内蒙古自治区二连浩特铁路口岸出境，开往波兰马拉舍维奇，这是今年以来经二连浩特铁路口岸通行的第2000列中欧班列。 中国铁路呼和浩特局集团有限公司消息称，作为共建“一带一路”国家的重要务实载体，中欧班列持续织密横跨亚欧的物流网络。目前，经二连浩特铁路口岸运行的中欧班列线路达75条，通达德国、
+2026年A股结构性行情持续深化，新质生产力落地、AI全产业链产业化、高端制造国产替代多重产业红利集中释放，主动权益基金整体赚钱效应迎来全局性回升。 然而，当下投资者选择主动权益基金的难度显著提升。倘若盲目跟风热门爆款，极易在未来市场震荡中承受回撤，导致投资体验大打折扣。 中欧基金长期以来不断推进“工业化”投研体系建设，力争为持有人创造稳健收益。截至2026年5月末，中欧基金旗
 
 ## 正文
 
-中新网呼和浩特6月2日电 (记者 李爱平)6月2日，一列满载55个集装箱货物的中欧班列，经内蒙古自治区二连浩特铁路口岸出境，开往波兰马拉舍维奇，这是今年以来经二连浩特铁路口岸通行的第2000列中欧班列。
+2026年A股结构性行情持续深化，新质生产力落地、AI全产业链产业化、高端制造国产替代多重产业红利集中释放，主动权益基金整体赚钱效应迎来全局性回升。
 
-中国铁路呼和浩特局集团有限公司消息称，作为共建“一带一路”国家的重要务实载体，中欧班列持续织密横跨亚欧的物流网络。
+然而，当下投资者选择主动权益基金的难度显著提升。
 
-目前，经二连浩特铁路口岸运行的中欧班列线路达75条，通达德国、波兰等10余个国家70多个枢纽站点，中国国内辐射范围覆盖中欧班列大部分首发城市。
+倘若盲目跟风热门爆款，极易在未来市场震荡中承受回撤，导致投资体验大打折扣。
 
-中国铁路呼和浩特局集团有限公司二连站客货运管理科副科长王进忠介绍，为更好地服务中国(内蒙古)自由贸易试验区二连浩特片区建设，二连浩特铁路口岸充分发挥中欧班列中通道区位优势，口岸通关时间最短压缩至30分钟以内。
+中欧基金长期以来不断推进“工业化”投研体系建设，力争为持有人创造稳健收益。
 
-今年截至6月1日，二连浩特铁路口岸中欧班列累计运送货物19.37万标箱、182.66万吨，同比分别增长10.94%、27.46%。
+截至2026年5月末，中欧基金旗下共有12只成立满十年且年化收益率超10%的“双十基金”；近一年，有11只主动权益产品实现累计收益率超过100%。
 
-(完)
+长期来看，中欧基金旗下这12只产品穿越多轮牛熊，中短期来看，中欧基金旗下这11只产品精准捕捉阶段性行情，长短周期业绩双双亮眼，努力切实为持有人打造优质的投资持有体验。
+
+十余年长跑实力优秀，12只双十基金穿越牛熊 “双十基金”是公募基金行业含金量极高的荣誉标签，产品需历经十年以上牛熊周期考验，并穿越多轮极端市场行情，且实现成立以来年化收益率在10%以上。
+
+能够批量培育十余只“双十基金”，足以印证一家基金公司底层投研硬实力。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 18:51 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 18:37 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 18:41 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 18:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 18:53 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 18:34 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 18:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 18:39 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 18:31 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 18:42 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 18:43 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 18:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 18:37 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 18:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 18:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 18:38 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 18:44 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 18:50 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 19:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 18:39 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-29 18:56 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 18:52 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 18:54 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 18:43 - [货车司机雨中帮交警挪树获表扬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 18:48 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 18:39 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 18:38 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 18:59 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:49 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/0775876633.shtml)
-- 2026-06-29 18:39 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/39486725.shtml)
-- 2026-06-29 18:45 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/67246703907.shtml)
-- 2026-06-29 18:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/152230.shtml)
-- 2026-06-29 18:34 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/86237769.shtml)
-- 2026-06-29 18:58 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/484208214975.shtml)
-- 2026-06-29 18:33 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/449235.shtml)
-- 2026-06-29 18:31 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/43799491703.shtml)
-- 2026-06-29 18:47 - [倪春青跨市履新苏州市委组织部部长](https://www.share.kurohicncr.top/Article/details/82636293.shtml)
-- 2026-06-29 18:58 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/2932338.shtml)
-- 2026-06-29 18:59 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/11889.shtml)
-- 2026-06-29 18:35 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/265875209567.shtml)
-- 2026-06-29 18:57 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/09001587608.shtml)
-- 2026-06-29 18:30 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/33217283.shtml)
-- 2026-06-29 18:50 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/15110850.shtml)
+- 2026-06-29 19:02 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/86044948546.shtml)
+- 2026-06-29 18:56 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/5527799.shtml)
+- 2026-06-29 18:42 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/5494086.shtml)
+- 2026-06-29 18:41 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/91225.shtml)
+- 2026-06-29 18:52 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/90040935914.shtml)
+- 2026-06-29 19:00 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/02007959.shtml)
+- 2026-06-29 19:01 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/783366.shtml)
+- 2026-06-29 18:44 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/599695.shtml)
+- 2026-06-29 18:57 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/00944002.shtml)
+- 2026-06-29 18:47 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/82321512.shtml)
+- 2026-06-29 18:57 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/7279657.shtml)
+- 2026-06-29 18:59 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/5590235666.shtml)
+- 2026-06-29 18:50 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/2080874587.shtml)
+- 2026-06-29 19:05 - [人类对空调和其他家电有多双标](http://www.blog.kurohicncr.top/Article/details/0685225.shtml)
+- 2026-06-29 18:48 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/5981648898.shtml)

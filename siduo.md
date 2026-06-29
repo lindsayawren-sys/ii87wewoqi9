@@ -1,57 +1,42 @@
-# 光大期货：6月3日软商品日报
+# 科技赋能文旅：外籍友人在北京沉浸式体验非遗
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 现货报价方面，广西制糖集团报价区间5350~5440元/吨，部分下调10元/吨；云南制糖集团报价5170~5220元/吨，涨跌持平；加工糖厂主流报价区间为5770~6050元/吨，部分上调20元/吨。宏观方面市场高度关注美伊谈判进展，原油价格连续两日涨幅超5%，原糖受此影响，从低位小幅反弹，国内
+发布时间：2026年06月15日 10:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 现货报价方面，广西制糖集团报价区间5350~5440元/吨，部分下调10元/吨；云南制糖集团报价5170~5220元/吨，涨跌持平；加工糖厂主流报价区间为5770~6050元/吨，部分上调20元/吨。
-
-宏观方面市场高度关注美伊谈判进展，原油价格连续两日涨幅超5%，原糖受此影响，从低位小幅反弹，国内方面，目前购销情绪一般，采购温和，关注后续销售节奏。
-
-盘面持仓维持高位，天气担忧仍存，支撑多头信心，库存压力同样不容忽视，随着时间推移，静待空头入场机会。
-
-棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周二，ICE美棉上涨0.41%，报收80.49美分/磅，郑棉主力合约环比上涨0.77%，报收16355元/吨，主力合约持仓环比增加7812手至68.01万手，棉花3128B现货价格指数17470元/吨，较前一日上涨80元/吨。
-
-国际市场方面，近期美棉期价重心小幅上移。
-
-上周末印度官宣阶段性豁免棉花进口关税，为期5个月，美棉出口预期向好。
-
-国内市场方面，郑棉主力合约与美棉共振，继续增仓上行。
-
-我们认为外部消息提振市场情绪，对郑棉有一定支撑。
+发布时间：2026年06月15日 10:52 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:52 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 18:31 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 18:47 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
-- 2026-06-29 18:50 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 18:47 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 18:31 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 18:42 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 18:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
-- 2026-06-29 18:35 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 18:39 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-29 18:39 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 18:58 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 18:44 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 18:39 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-29 18:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 18:57 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 18:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 18:51 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 18:56 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 18:49 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 18:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:34 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/55800.shtml)
-- 2026-06-29 18:57 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/1559607.shtml)
-- 2026-06-29 18:45 - [沉睡花园](http://www.share.minike.top/Article/details/79001.shtml)
-- 2026-06-29 18:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/052001.shtml)
-- 2026-06-29 18:51 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/66130.shtml)
-- 2026-06-29 18:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/130106442413.shtml)
-- 2026-06-29 18:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/611553.shtml)
-- 2026-06-29 18:48 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/888133448.shtml)
-- 2026-06-29 18:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/21818668.shtml)
-- 2026-06-29 18:56 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/1938197.shtml)
-- 2026-06-29 18:32 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/65027.shtml)
-- 2026-06-29 18:34 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/1470169.shtml)
-- 2026-06-29 18:44 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/24814.shtml)
-- 2026-06-29 18:35 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/961318830254.shtml)
-- 2026-06-29 18:47 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/5426280.shtml)
+- 2026-06-29 18:47 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/293539797148.shtml)
+- 2026-06-29 18:38 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/79827123381.shtml)
+- 2026-06-29 18:39 - [机器人学校开学了](https://www.blog.minike.top/Article/details/758349611791.shtml)
+- 2026-06-29 18:53 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/3878518.shtml)
+- 2026-06-29 18:42 - [当我回母校教书](https://www.blog.minike.top/Article/details/767871726.shtml)
+- 2026-06-29 18:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/509016306.shtml)
+- 2026-06-29 18:52 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/9318549.shtml)
+- 2026-06-29 18:37 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/913297.shtml)
+- 2026-06-29 18:52 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/01536110344.shtml)
+- 2026-06-29 18:43 - [特朗普两大核心赌注将迎高院裁决](https://www.share.minike.top/Article/details/628936.shtml)
+- 2026-06-29 18:37 - [小娘惹](https://www.blog.minike.top/Article/details/4093663578.shtml)
+- 2026-06-29 18:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/74384072880.shtml)
+- 2026-06-29 18:40 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.minike.top/Article/details/58876531.shtml)
+- 2026-06-29 18:38 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/61035157.shtml)
+- 2026-06-29 18:43 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/43186945.shtml)

@@ -1,53 +1,57 @@
-# 加快农业农村现代化 未来五年“规划图”来了
+# “第三届中哈智库论坛”在北京举行
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！原标题：新华社权威快报|加快农业农村现代化 未来五年“规划图”来了 国务院日前印发《加快农业农村现代化“十五五”规划》，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，强调以加快农业农村现代化更好推进中国式现代化建设。 规划强调，坚持把解决好“三农”问题作为全党工作重中之重，坚持农业农
+中新网北京6月12日电 (记者 黄钰钦)6月12日，“第三届中哈智库论坛”在北京举行。本届论坛的主题为“中国和哈萨克斯坦：共同发展与现代化”。来自中国与哈萨克斯坦科研学术机构的50余位专家学者与会。 中国社会科学院俄罗斯东欧中亚所所长孙壮志在开幕式致辞中表示，当前，中哈两国都迈入国家发展与双边合作的新阶段。中国迎来“十五五”开局之年，作为推进中国式现代化建设的关键窗口期，国家发
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京6月12日电 (记者 黄钰钦)6月12日，“第三届中哈智库论坛”在北京举行。
 
-原标题：新华社权威快报|加快农业农村现代化 未来五年“规划图”来了 国务院日前印发《加快农业农村现代化“十五五”规划》，明确了“十五五”时期加快农业农村现代化的思路目标、重点任务和政策措施，强调以加快农业农村现代化更好推进中国式现代化建设。
+本届论坛的主题为“中国和哈萨克斯坦：共同发展与现代化”。
 
-规划强调，坚持把解决好“三农”问题作为全党工作重中之重，坚持农业农村优先发展，坚持城乡融合发展，锚定建设农业强国目标，以推进乡村全面振兴为总抓手，以学习运用“千万工程”经验为引领，以改革创新为根本动力，推动基本实现农业现代化，农村基本具备现代生活条件取得重大进展。
+来自中国与哈萨克斯坦科研学术机构的50余位专家学者与会。
 
-规划提出，到2030年，粮食安全根基持续夯实，农业质量效益和竞争力不断提高，脱贫攻坚成果持续巩固拓展，农业科技自立自强水平大幅提高，把农业建成现代化大产业取得重要进展，农民收入持续较快增长，宜居宜业和美乡村加快建设，城乡融合发展实现新突破，农业农村高质量发展取得显著成效。
+中国社会科学院俄罗斯东欧中亚所所长孙壮志在开幕式致辞中表示，当前，中哈两国都迈入国家发展与双边合作的新阶段。
 
-记者：胡璐、韩佳诺 海报制作：吴彬尔 责任编辑：宋雅芳
+中国迎来“十五五”开局之年，作为推进中国式现代化建设的关键窗口期，国家发展布局持续完善，为经济社会提质升级、深化对外务实合作奠定坚实的物质基础与人文支撑。
+
+在两国发展战略深度对接背景下，新时代中哈合作呈现稳定、务实、可持续的高质量发展特征，成为区域睦邻协作、共建周边命运共同体的典范。
+
+哈萨克斯坦总统直属战略研究所所长沙伊马尔达诺夫在开幕式上指出，在百年变局加速演进、国际形势深刻调整的时代背景下，智库的战略价值愈发凸显。
+
+它既是各国理解全球治理进程、研判地缘政治格局的关键窗口，也是捕捉发展机遇、应对系统性风险的智力枢纽，更是推动国家间凝聚共识、政策协同的重要桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 18:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 18:53 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 18:42 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 18:36 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 18:40 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 18:42 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 18:35 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 18:37 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 18:35 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 18:43 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 18:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 18:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 18:40 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 18:59 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 18:48 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 19:04 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 18:53 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 18:53 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 18:45 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 18:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 19:05 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 18:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 18:46 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 18:53 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [断骨增高灰产拉一人提成1.5万元](https://www.share.kurohicncr.top/Article/details/235229539650.shtml)
-- 2026-06-29 18:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/824578893.shtml)
-- 2026-06-29 18:43 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/059079426070.shtml)
-- 2026-06-29 18:37 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/954150.shtml)
-- 2026-06-29 18:59 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/425021.shtml)
-- 2026-06-29 18:36 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/42376402.shtml)
-- 2026-06-29 18:46 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/56379.shtml)
-- 2026-06-29 18:59 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/3369239.shtml)
-- 2026-06-29 18:44 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/345954170.shtml)
-- 2026-06-29 18:31 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/449697678.shtml)
-- 2026-06-29 18:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/601398.shtml)
-- 2026-06-29 18:57 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/09889.shtml)
-- 2026-06-29 18:51 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/07885528709.shtml)
-- 2026-06-29 18:44 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/7820444353.shtml)
-- 2026-06-29 18:33 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/5756536485.shtml)
+- 2026-06-29 18:37 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/1441432225.shtml)
+- 2026-06-29 18:36 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/3902702097.shtml)
+- 2026-06-29 19:03 - [中方向委方追加1亿元援助](https://www.blog.minike.top/Article/details/41450394.shtml)
+- 2026-06-29 18:55 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/83956070.shtml)
+- 2026-06-29 18:52 - [5万块的威力](http://www.share.minike.top/Article/details/5441301.shtml)
+- 2026-06-29 18:59 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/582105378.shtml)
+- 2026-06-29 18:49 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/1456527179.shtml)
+- 2026-06-29 18:55 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.minike.top/Article/details/360370.shtml)
+- 2026-06-29 19:02 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/96515252.shtml)
+- 2026-06-29 19:01 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.minike.top/Article/details/5958551626.shtml)
+- 2026-06-29 18:37 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/11893.shtml)
+- 2026-06-29 18:58 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/17541329121.shtml)
+- 2026-06-29 18:51 - [一见倾心](https://www.blog.minike.top/Article/details/63426414.shtml)
+- 2026-06-29 19:05 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/5907079.shtml)
+- 2026-06-29 18:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/84508016.shtml)

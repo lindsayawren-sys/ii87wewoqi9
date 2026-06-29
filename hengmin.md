@@ -1,59 +1,60 @@
-# NXG NextGen基础设施收益基金宣布提高11.1%的月度分配
+# 理想汽车刘立国：下一个十年不是配置之争，而是生命之争
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-NXG NextGen基础设施收益基金（NYSE： NXG）日前宣布，将其月度分配从每股0.54美元提高至每股0.60美元，增幅为11.1%。新的分配标准将适用于2026年6月、7月和8月的月度分配，分别于6月30日、7月31日和8月31日支付。 此次分配提高是在基金近期强劲表现的基础上做出的。根据基金数据，截至2026年4月30日，基金资产净值年初至今回报率高达37.7%，过
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，理想汽车整车电动高级副总裁刘立国出席并演讲。 刘立国谈到，理想判断汽车的下一个十年不是配置之争，还是生命之争。 他表示，理想汽车从成立第一天起及不是定义为A点到B点的短距，下一个十年升级为带有生命力的第三空间。“能感知、能主动思考，能持续进化，他认识你，理解你，主动响应需求。
 
 ## 正文
 
-NXG NextGen基础设施收益基金（NYSE： NXG）日前宣布，将其月度分配从每股0.54美元提高至每股0.60美元，增幅为11.1%。
+专题：2026重庆国际车展-2026中国汽车重庆论坛 2026中国汽车重庆论坛于6月12日-13日举行，理想汽车整车电动高级副总裁刘立国出席并演讲。
 
-新的分配标准将适用于2026年6月、7月和8月的月度分配，分别于6月30日、7月31日和8月31日支付。
+刘立国谈到，理想判断汽车的下一个十年不是配置之争，还是生命之争。
 
-此次分配提高是在基金近期强劲表现的基础上做出的。
+他表示，理想汽车从成立第一天起及不是定义为A点到B点的短距，下一个十年升级为带有生命力的第三空间。
 
-根据基金数据，截至2026年4月30日，基金资产净值年初至今回报率高达37.7%，过去一年的资产净值回报率达71.4%，显著优于其所在的基础设施类别平均水平。
+“能感知、能主动思考，能持续进化，他认识你，理解你，主动响应需求。
 
-基金的52周交易区间为38.45至60.84美元，近期股价在55至59美元区间波动。
+你提车的哪一天，就是能力进化的起点，这是理想汽车的品牌使命，为车和家赋予生命。
 
-基金的投资顾问NXG投资管理公司表示，此次提高分配反映了基金投资组合产生的强劲现金流及其对基础设施行业前景的信心。
+” 刘立国回顾，理想汽车开辟了增程赛道，以大空间设计以及“冰箱、彩电、沙发”迎来了行业的发展，也迎来了纯电时代。
 
-基金的投资目标是通过资本增值和当期收入的结合，寻求较高的总回报，在正常市场条件下至少将80%的净资产投资于基础设施公司的股权和债务证券，涵盖能源、工业、可持续以及技术和通信基础设施四大领域。
+对于理想汽车下一代的需求，他指出，从用户出发，用技术抵达。
 
-根据基金初步估计，2026年6月、7月和8月的分配预计将有约100%被定性为资本返还。
+“无论是电能、智能还是组织，每一项选择的起点都是同一个问题——我们还能做点什么？
 
 ## 相关推荐
 
-- 2026-06-29 18:39 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 18:32 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 18:54 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 18:48 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 18:30 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 18:39 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 18:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 18:30 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 18:44 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 18:53 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 18:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 18:56 - [机器人学校开学了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 18:52 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 18:44 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 19:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 18:56 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 19:04 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 18:42 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 18:50 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 18:57 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 18:51 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
+- 2026-06-29 19:05 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 18:41 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:03 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 18:36 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 19:01 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 18:54 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/074418336581.shtml)
-- 2026-06-29 18:43 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/322733413678.shtml)
-- 2026-06-29 18:31 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/670445711649.shtml)
-- 2026-06-29 18:51 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/687424.shtml)
-- 2026-06-29 18:34 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/82687437977.shtml)
-- 2026-06-29 18:48 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/086933402434.shtml)
-- 2026-06-29 18:53 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/33762814.shtml)
-- 2026-06-29 18:35 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/3134731.shtml)
-- 2026-06-29 18:51 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/96444148.shtml)
-- 2026-06-29 18:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.kurohicncr.top/Article/details/9209139.shtml)
-- 2026-06-29 18:38 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/36674386.shtml)
-- 2026-06-29 18:43 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/736780712474.shtml)
-- 2026-06-29 18:32 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/70467425.shtml)
-- 2026-06-29 18:53 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/4260334.shtml)
-- 2026-06-29 18:30 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/3800886354.shtml)
+- 2026-06-29 18:38 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/602946.shtml)
+- 2026-06-29 18:53 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/412735756.shtml)
+- 2026-06-29 18:57 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/34217.shtml)
+- 2026-06-29 19:01 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/150759497.shtml)
+- 2026-06-29 18:40 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/225872645283.shtml)
+- 2026-06-29 18:58 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.minike.top/Article/details/500941659739.shtml)
+- 2026-06-29 18:39 - [CORTIS 小牌大耍](https://www.blog.minike.top/Article/details/53347749.shtml)
+- 2026-06-29 18:49 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/4371364.shtml)
+- 2026-06-29 18:53 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/37137564.shtml)
+- 2026-06-29 19:02 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/7471056.shtml)
+- 2026-06-29 18:38 - [媒体：听清自己内心的声音再填志愿](https://www.blog.minike.top/Article/details/8276713.shtml)
+- 2026-06-29 18:47 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/16681746.shtml)
+- 2026-06-29 18:40 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/8055983100.shtml)
+- 2026-06-29 18:46 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/6865971538.shtml)
+- 2026-06-29 18:39 - [货车司机雨中帮交警挪树获表扬](http://www.blog.kurohicncr.top/Article/details/062624829.shtml)

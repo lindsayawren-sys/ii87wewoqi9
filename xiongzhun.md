@@ -1,58 +1,57 @@
-# B站毕业歌会首次牵手北京环球度假区，线上观看人次突破6300万创新高
+# 陕西多举措护航颗粒归仓 麦收进程过六成
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-5月30日晚，随着《海阔天空》万人合唱的旋律响彻广州大学城体育中心体育馆，《永远22！2026bilibili毕业歌会》(以下简称B站毕业歌会)正式落下帷幕。这是B站毕业歌会连续举办的第六年，也是规模最大的一届。数据显示，今年歌会首次落地广州大学城，现场观众近3万人，线上预约人数突破360万，直播最高同时在线观看人次超6300万，均刷新历届纪录。相比于单纯的演出规模增长，更值得
+中新网西安6月13日电 (李一璠)记者13日从陕西省农业农村厅获悉，截至6月13日，陕西省累计收获小麦923.71万亩，占应收面积65.14%；油菜270.57万亩，占应收面积95.84%。累计夏播粮食作物625.24万亩，占预播面积56.84%。 连日来，陕西多地小麦进入收获高峰期，田间机声隆隆，多台联合收割机穿梭作业。据介绍，今年该省小麦长势达到丰年水平，总产有望再攀历史新
 
 ## 正文
 
-5月30日晚，随着《海阔天空》万人合唱的旋律响彻广州大学城体育中心体育馆，《永远22！
+中新网西安6月13日电 (李一璠)记者13日从陕西省农业农村厅获悉，截至6月13日，陕西省累计收获小麦923.71万亩，占应收面积65.14%；油菜270.57万亩，占应收面积95.84%。
 
-2026bilibili毕业歌会》(以下简称B站毕业歌会)正式落下帷幕。
+累计夏播粮食作物625.24万亩，占预播面积56.84%。
 
-这是B站毕业歌会连续举办的第六年，也是规模最大的一届。
+连日来，陕西多地小麦进入收获高峰期，田间机声隆隆，多台联合收割机穿梭作业。
 
-数据显示，今年歌会首次落地广州大学城，现场观众近3万人，线上预约人数突破360万，直播最高同时在线观看人次超6300万，均刷新历届纪录。
+据介绍，今年该省小麦长势达到丰年水平，总产有望再攀历史新高。
 
-相比于单纯的演出规模增长，更值得关注的是，经过六年发展，毕业歌会正在从一场毕业晚会，逐渐成长为覆盖线上线下、连接高校群体的毕业季文化IP。
+走进地处关中平原的渭南市，400多万亩小麦收获进展有序，“三夏”期间，渭南市投入各类农机具9万台(套)，组建77支农机应急作业队、37支保障队、12支服务队，全力保障颗粒归仓。
 
-让大学生成为主角：千人共演、万人合唱的青春歌会 本届毕业歌会汇聚了李宇春、大张伟、古巨基、容祖儿、沙一汀等歌手，带来《送别》《想唱就唱》《第一天》《情歌王》《海阔天空》等广受年轻人喜爱的歌曲，引发现场观众齐声合唱。
+与此同时，位于宝鸡市的陕西省农牧良种场(陕西省种植业试验示范中心)科研与生产同步推进，抢晴抢收的同时精细收割60余个参试新优品种、逐区选穗建档，为后续评价测定和新品种培育奠定基础。
 
-由于首次来到广州，歌会还特别融入大湾区文化元素，《嘉禾望岗(粤语版)》《爱与诚》《世上只有》等经典粤语歌曲接连上演，为现场观众带来浓厚的城市记忆与情感共鸣。
+陕西省各地分区划片科学布设机收作业线路，依托线上平台实时归集作业供需信息，精准匹配机收与地块，按照自东向西、由南向北梯次调剂调度，做到成熟一块、收获一块、清运一块。
 
-过去，大型晚会中的年轻人更多是观众，而今年B站毕业歌会最具代表性的变化之一，是让大学生成为舞台的一部分。
+该省各级农业部门联合交通部门开通农机绿色通道，落实跨区作业收割机免费通行、优先查验放行政策。
 
 ## 相关推荐
 
-- 2026-06-29 18:47 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 18:45 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 18:39 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 18:46 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 18:44 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 18:47 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 18:59 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 18:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 18:35 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 18:58 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 18:39 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 18:52 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 18:59 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 18:46 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 18:56 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 18:57 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 18:37 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 18:37 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 18:59 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 18:45 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 19:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 18:44 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 19:05 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/9560487.shtml)
-- 2026-06-29 18:47 - [世界杯1/16决赛对阵出炉](https://www.blog.minike.top/Article/details/743824545460.shtml)
-- 2026-06-29 18:49 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/19134459852.shtml)
-- 2026-06-29 18:48 - [啊啊啊](http://www.share.minike.top/Article/details/34810886.shtml)
-- 2026-06-29 18:51 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.minike.top/Article/details/033618.shtml)
-- 2026-06-29 18:55 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/248329.shtml)
-- 2026-06-29 18:37 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/899687.shtml)
-- 2026-06-29 18:44 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/87560.shtml)
-- 2026-06-29 18:59 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/09509229.shtml)
-- 2026-06-29 18:48 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/7574997975.shtml)
-- 2026-06-29 18:56 - [夏天被这些虫子咬了可能致命](http://www.share.minike.top/Article/details/92697.shtml)
-- 2026-06-29 18:30 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/45276.shtml)
-- 2026-06-29 18:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/2619462753.shtml)
-- 2026-06-29 18:36 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/2103279109.shtml)
-- 2026-06-29 18:35 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/96083145160.shtml)
+- 2026-06-29 18:47 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/20301970017.shtml)
+- 2026-06-29 18:41 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/849950.shtml)
+- 2026-06-29 19:02 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/9228706.shtml)
+- 2026-06-29 18:37 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/8131969.shtml)
+- 2026-06-29 18:55 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/39120.shtml)
+- 2026-06-29 18:52 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/88817846.shtml)
+- 2026-06-29 18:38 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/4422694090.shtml)
+- 2026-06-29 18:47 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/204061.shtml)
+- 2026-06-29 18:55 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/66191.shtml)
+- 2026-06-29 18:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/51691658.shtml)
+- 2026-06-29 18:59 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.kurohicncr.top/Article/details/485640609339.shtml)
+- 2026-06-29 18:41 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/79061.shtml)
+- 2026-06-29 18:48 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/558334.shtml)
+- 2026-06-29 18:42 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/0092959319.shtml)
+- 2026-06-29 18:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/883597997.shtml)

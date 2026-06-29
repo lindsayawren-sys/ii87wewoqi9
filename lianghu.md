@@ -1,58 +1,57 @@
-# ATFX:昨日美盘 原油为何大涨又大跌
+# 中国公民反映在菲被羁押期间有关问题 中国驻菲使馆通报
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 6月2日，ATFX：夏令时的美盘交易时段是北京时间20：00到隔天4：00，这段时间美国总统特朗普密集发布社交媒体，美国的统计机构也在这段时间定期公布中央数据，美联储的提名票委也会进行演讲或者公开讲话。美盘时段的波动，几乎决定了原油一天当中K线的最终形态。 昨日北京时间21：09至23：04，美原油从88美元快速冲高至93美元，实现了5美元左右的累计
+中新网6月15日电 据中国驻菲律宾大使馆微信公众号消息，针对近期社交媒体流传的不具名中国公民反映在菲被羁押相关问题，中国驻菲律宾大使馆高度重视，第一时间派员赴菲执法部门拘留所开展探视，了解核实情况，并在职责范围内积极提供协助。现将相关案件情况通报如下：一、关于中国公民“轻生”案。当事人涉嫌从事非法零售被逮捕，有基础病，需长期服药。被查扣后，曾因停药出现腹痛症状，家属已及时送药，
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 6月2日，ATFX：夏令时的美盘交易时段是北京时间20：00到隔天4：00，这段时间美国总统特朗普密集发布社交媒体，美国的统计机构也在这段时间定期公布中央数据，美联储的提名票委也会进行演讲或者公开讲话。
+中新网6月15日电 据中国驻菲律宾大使馆微信公众号消息，针对近期社交媒体流传的不具名中国公民反映在菲被羁押相关问题，中国驻菲律宾大使馆高度重视，第一时间派员赴菲执法部门拘留所开展探视，了解核实情况，并在职责范围内积极提供协助。
 
-美盘时段的波动，几乎决定了原油一天当中K线的最终形态。
+现将相关案件情况通报如下：一、关于中国公民“轻生”案。
 
-昨日北京时间21：09至23：04，美原油从88美元快速冲高至93美元，实现了5美元左右的累计涨幅，90美元整数关口被突破。
+当事人涉嫌从事非法零售被逮捕，有基础病，需长期服药。
 
-北京时间23：05至隔天1：43，美原油开始回吐涨幅，最终收盘价在89美元附近，恰好突破90美元关口。
+被查扣后，曾因停药出现腹痛症状，家属已及时送药，不存在所谓“轻生”问题。
 
-ATFX图▲ 如果只观察财经日历，会发现在美原油剧烈波动的这五个小时里，有两项重磅数据发布。
+我馆已敦促菲方协调解决其用药问题。
 
-第一项是标普全球制造业PMI数据，公布值55.1，略低于前值55.3，变化不大，并且和原油的关联度较低。
+二、关于中国公民咳血案。
 
-第二项数据是美国ISM制造业PMI，公布值是54，高于预期值53，高于前值52.7，表现良好。
+当事人多年前已获批准遣返，但因在菲成家不愿回国。
 
-这项数据逻辑上对美国经济和美元利多，而经济的复苏有利于原油需求面恢复，但不至于导致美原油如此剧烈的上涨。
+目前当事人身体状况总体稳定，表示希尽快回国治疗。
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 18:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 18:58 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-29 18:45 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 18:32 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 18:59 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-29 18:49 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 18:33 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 18:34 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 18:41 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 18:41 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 18:43 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 19:02 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 19:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 18:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 19:03 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 18:55 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 18:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 18:44 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 18:52 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 18:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 18:42 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 18:38 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/1236196.shtml)
-- 2026-06-29 18:30 - [95后小伙突然确诊癌症 医生提醒](https://www.blog.minike.top/Article/details/89098038.shtml)
-- 2026-06-29 18:58 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/3954975570.shtml)
-- 2026-06-29 18:51 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/6731293638.shtml)
-- 2026-06-29 18:50 - [沙丘](http://www.share.kurohicncr.top/Article/details/7595867107.shtml)
-- 2026-06-29 18:53 - [AG 宫斗](http://www.blog.minike.top/Article/details/027703.shtml)
-- 2026-06-29 18:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.minike.top/Article/details/965894471.shtml)
-- 2026-06-29 18:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/095180874710.shtml)
-- 2026-06-29 18:52 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/325323057819.shtml)
-- 2026-06-29 18:34 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/002318295.shtml)
-- 2026-06-29 18:38 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/111227.shtml)
-- 2026-06-29 18:36 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/5394701.shtml)
-- 2026-06-29 18:41 - [天价门票抬高美加墨世界杯观赛门槛](https://www.share.kurohicncr.top/Article/details/070991.shtml)
-- 2026-06-29 18:58 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/12390837777.shtml)
-- 2026-06-29 18:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/00604.shtml)
+- 2026-06-29 19:05 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/321926310.shtml)
+- 2026-06-29 19:05 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/33735644.shtml)
+- 2026-06-29 18:44 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.share.kurohicncr.top/Article/details/44158940765.shtml)
+- 2026-06-29 19:00 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/8604978.shtml)
+- 2026-06-29 19:04 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/978653918.shtml)
+- 2026-06-29 18:48 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/18210992.shtml)
+- 2026-06-29 19:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/3903352659.shtml)
+- 2026-06-29 18:40 - [医药生物行业今日涨5.91%](https://www.blog.kurohicncr.top/Article/details/26089.shtml)
+- 2026-06-29 19:01 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/180405.shtml)
+- 2026-06-29 18:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/54337153.shtml)
+- 2026-06-29 18:51 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/4540608413.shtml)
+- 2026-06-29 18:58 - [笔记本电脑一年涨价近一倍](http://www.blog.minike.top/Article/details/06262.shtml)
+- 2026-06-29 18:40 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/201339627.shtml)
+- 2026-06-29 19:04 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/633046419.shtml)
+- 2026-06-29 18:51 - [女生每天戴耳机18小时突发耳聋](http://www.share.minike.top/Article/details/817921.shtml)

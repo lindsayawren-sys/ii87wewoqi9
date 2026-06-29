@@ -1,61 +1,61 @@
-# 中信建投期货：6月3日黑色系早报
+# 央行公开征求意见：将个人投资人认购大额存单起点金额降至不低于20万元人民币
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-钢材早报：驱动不足，期钢窄幅震荡 市场信息： 1、据伊朗方面消息，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可提交通行申请。审核通过后，船舶将获得通行许可。 2、据中指研究院数据，5 月 20 城二手住宅成交 14.1 万套，同比增长 19.3%，同比增幅较上月扩大 6.3 个百分点。北京、上海二手房分别成交 1.6 万、2.8 万套，同比分别增长 12.1%，
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日金融一线消息，为促进大额存单市场健康发展，加强金融监管，中国人民银行就《大额存单管理办法》公开征求意见。 《办法》共24条，具体规定了大额存单发行人与投资人范围、存单要素、发行准备、发行与存续期各环节管理、信息披露及监督管理等事项。 此外，主要修订内容有： （一）以制度形式确认大额存单市场管理要求。一是根据中国人民银行
 
 ## 正文
 
-钢材早报：驱动不足，期钢窄幅震荡 市场信息： 1、据伊朗方面消息，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可提交通行申请。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月12日金融一线消息，为促进大额存单市场健康发展，加强金融监管，中国人民银行就《大额存单管理办法》公开征求意见。
 
-审核通过后，船舶将获得通行许可。
+《办法》共24条，具体规定了大额存单发行人与投资人范围、存单要素、发行准备、发行与存续期各环节管理、信息披露及监督管理等事项。
 
-2、据中指研究院数据，5 月 20 城二手住宅成交 14.1 万套，同比增长 19.3%，同比增幅较上月扩大 6.3 个百分点。
+此外，主要修订内容有： （一）以制度形式确认大额存单市场管理要求。
 
-北京、上海二手房分别成交 1.6 万、2.8 万套，同比分别增长 12.1%，30.9%，连续两个月创近五年同期新高。
+一是根据中国人民银行公告〔2016〕第13号，将个人投资人认购大额存单起点金额降至不低于20万元人民币。
 
-3、中国 5 月官方制造业 PMI 为 50%，环比下降 0.3 个百分点，位于临界点；非制造业PMI 为 50.1%，上升 0.7 个百分点，非制造业景气水平回升。
+二是根据大额存单的提前支取、赎回和转让实际需要，明确第三方平台和银行自有渠道均可开展大额存单的转让、提前支取和赎回。
 
-4、美国 5 月 ISM 制造业 PMI 上升 1.3 个百分点至 54，连续五个月扩张并创四年新高。
+三是明确重大事件发生后，发行人应及时在本机构官方网站和信息披露平台进行信息披露。
 
-5、Mysteel 最新调研结果显示：5 月 23 日之后山西停产煤矿总计 130 座，产能总计 1.47亿吨。
+（二）明确监督管理要求与措施。
 
-截至 6 月 1 日已复产 43 座，产能共计 5520 万吨，仍在停产状态 87 座，产能合计 9200 万吨。
+一是明确大额存单各相关业务环节的定价应符合中国人民银行发布的计结息规则，并纳入自律管理。
 
 ## 相关推荐
 
-- 2026-06-29 18:42 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 18:31 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 18:49 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 18:37 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 18:54 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 18:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 18:48 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 18:41 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 18:43 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 18:53 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 18:57 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 18:46 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 18:31 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 18:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 18:58 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 18:57 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 18:57 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 18:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 18:53 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 19:01 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 18:45 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-29 18:37 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 18:57 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 18:57 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 18:39 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 19:02 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 19:03 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 18:47 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 18:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 18:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:59 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/80280.shtml)
-- 2026-06-29 18:48 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/05093120691.shtml)
-- 2026-06-29 18:57 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/9172351.shtml)
-- 2026-06-29 18:45 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/8617010887.shtml)
-- 2026-06-29 18:39 - [流金岁月](https://www.share.kurohicncr.top/Article/details/03069847346.shtml)
-- 2026-06-29 18:50 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/99143.shtml)
-- 2026-06-29 18:36 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/51476796081.shtml)
-- 2026-06-29 18:31 - [三轮车过马路 车上木材砸中路边男子](http://www.share.kurohicncr.top/Article/details/84496.shtml)
-- 2026-06-29 18:47 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/618609.shtml)
-- 2026-06-29 18:35 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/22386155.shtml)
-- 2026-06-29 18:50 - [天道](http://www.share.minike.top/Article/details/061343340997.shtml)
-- 2026-06-29 18:54 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/55160.shtml)
-- 2026-06-29 18:51 - [绘画区你赢了](http://www.share.minike.top/Article/details/620301828.shtml)
-- 2026-06-29 18:35 - [两老人多次到一洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/260915.shtml)
-- 2026-06-29 18:51 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/7583219567.shtml)
+- 2026-06-29 18:38 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/874369142495.shtml)
+- 2026-06-29 18:46 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/35382790.shtml)
+- 2026-06-29 18:40 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/0188639.shtml)
+- 2026-06-29 19:04 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.minike.top/Article/details/626193580198.shtml)
+- 2026-06-29 19:02 - [小娘惹](https://www.share.kurohicncr.top/Article/details/356576.shtml)
+- 2026-06-29 18:44 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/667979491575.shtml)
+- 2026-06-29 18:50 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/378450561438.shtml)
+- 2026-06-29 18:55 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/113018896254.shtml)
+- 2026-06-29 18:38 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/2169584.shtml)
+- 2026-06-29 19:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/8304574702.shtml)
+- 2026-06-29 18:57 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/818322.shtml)
+- 2026-06-29 18:41 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/4202934.shtml)
+- 2026-06-29 18:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/104250096336.shtml)
+- 2026-06-29 18:47 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/12163017831.shtml)
+- 2026-06-29 19:04 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.kurohicncr.top/Article/details/9525953.shtml)

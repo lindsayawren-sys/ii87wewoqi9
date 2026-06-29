@@ -1,46 +1,47 @@
-# 北京首都机场股份拟发行第二期短期融资券
+# 雷电黄色预警信号！北京将自西向东出现雷阵雨 局地短时雨强较大
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-北京首都机场股份（00694）公布，公司将启动第二期短期融资券（2026年第二期短期融资券）的发行工作。2026年第二期短期融资券的具体发行金额将于发行时厘定，票面利率及其他发行信息将在簿记建档完成后确定。责任编辑：卢昱君
+中国天气网讯 北京市气象台2026年06月13日14时15分发布雷电黄色预警信号：预计6月13日15时至23时，北京市自西向东将出现雷阵雨，局地短时雨强较大，并伴有7级以上短时大风和冰雹，请注意防范。
 
 ## 正文
 
-北京首都机场股份（00694）公布，公司将启动第二期短期融资券（2026年第二期短期融资券）的发行工作。
-
-2026年第二期短期融资券的具体发行金额将于发行时厘定，票面利率及其他发行信息将在簿记建档完成后确定。
-
-责任编辑：卢昱君
+中国天气网讯 北京市气象台2026年06月13日14时15分发布雷电黄色预警信号：预计6月13日15时至23时，北京市自西向东将出现雷阵雨，局地短时雨强较大，并伴有7级以上短时大风和冰雹，请注意防范。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 18:42 - [德国医生在没有空调的手术室工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 18:57 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 18:36 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 18:57 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 18:52 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 18:54 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
-- 2026-06-29 18:51 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-29 18:48 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 18:56 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 19:01 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 18:41 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 18:54 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 19:03 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-29 18:39 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 18:42 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 18:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 19:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 18:39 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 19:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 19:01 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 19:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 18:49 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 19:04 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 19:01 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:36 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://www.share.kurohicncr.top/Article/details/010694100902.shtml)
-- 2026-06-29 18:38 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/6514928976.shtml)
-- 2026-06-29 18:47 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/23797160.shtml)
-- 2026-06-29 18:50 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/13579552.shtml)
-- 2026-06-29 18:48 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/25149230.shtml)
-- 2026-06-29 18:39 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/810577.shtml)
-- 2026-06-29 18:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/947520542.shtml)
-- 2026-06-29 18:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/1274179263.shtml)
-- 2026-06-29 18:40 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/279228770823.shtml)
-- 2026-06-29 18:50 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/008696281.shtml)
-- 2026-06-29 18:45 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/129831.shtml)
-- 2026-06-29 18:58 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/21136470.shtml)
-- 2026-06-29 18:54 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/25453.shtml)
-- 2026-06-29 18:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/797800949405.shtml)
-- 2026-06-29 18:43 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/3260494.shtml)
+- 2026-06-29 18:56 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/67725.shtml)
+- 2026-06-29 18:56 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/255820009.shtml)
+- 2026-06-29 18:37 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/835680.shtml)
+- 2026-06-29 18:54 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/2387674.shtml)
+- 2026-06-29 18:37 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/9328293561.shtml)
+- 2026-06-29 18:51 - [中国妇女评网游娱乐化女性安全](https://www.blog.kurohicncr.top/Article/details/457190.shtml)
+- 2026-06-29 18:42 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/567513.shtml)
+- 2026-06-29 18:37 - [扩军害了世界杯吗](https://www.share.minike.top/Article/details/3131534.shtml)
+- 2026-06-29 18:38 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/0142138162.shtml)
+- 2026-06-29 18:40 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/74055162.shtml)
+- 2026-06-29 18:48 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/6395171620.shtml)
+- 2026-06-29 18:42 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/8330683511.shtml)
+- 2026-06-29 18:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/78295519.shtml)
+- 2026-06-29 18:43 - [不烧钱的低成本爱好](http://www.share.kurohicncr.top/Article/details/7871200.shtml)
+- 2026-06-29 18:54 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/1594779110.shtml)

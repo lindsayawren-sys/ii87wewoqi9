@@ -1,55 +1,42 @@
-# 罗湖海关查获一名旅客在鞋垫内藏匿足银粒2包
+# 全国夏收夏播加快推进
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据“海关发布”微信公众号消息，近日，罗湖海关在旅检进境渠道查获一名旅客在鞋垫内藏匿足银粒2包，净重2.001千克。 当日，海关关员在对进境旅客进行监管时，发现一名男性旅客进入海关监管区未向海关申报。该旅客经过海关关员时低头玩手机，刻意避免与关员视线接触，且行走过程中脚步极不自然，像是踮着脚走路。海关关员随即对其进行拦截检查。经进一步检查，海关关员在该旅客左右脚
+发布时间：2026年06月15日 09:10 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网6月3日电 据“海关发布”微信公众号消息，近日，罗湖海关在旅检进境渠道查获一名旅客在鞋垫内藏匿足银粒2包，净重2.001千克。
-
-当日，海关关员在对进境旅客进行监管时，发现一名男性旅客进入海关监管区未向海关申报。
-
-该旅客经过海关关员时低头玩手机，刻意避免与关员视线接触，且行走过程中脚步极不自然，像是踮着脚走路。
-
-海关关员随即对其进行拦截检查。
-
-经进一步检查，海关关员在该旅客左右脚的鞋垫内各发现1包用透明密封袋包裹的银色金属颗粒，共计2包。
-
-后经深圳海关工业品检测技术中心鉴定，上述金属颗粒为足银粒，净重2.001千克。
-
-目前，该案件已移交海关缉私部门作进一步处理。
+发布时间：2026年06月15日 09:10 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 18:33 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 18:48 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 18:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 18:37 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-29 18:43 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 18:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 18:40 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 18:49 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 18:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 18:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 18:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 18:54 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 18:41 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-29 18:51 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 18:38 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 19:02 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 18:45 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 18:53 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 18:59 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-29 18:49 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 18:37 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:48 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/03245164017.shtml)
-- 2026-06-29 18:33 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/46746211.shtml)
-- 2026-06-29 18:56 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/660953734563.shtml)
-- 2026-06-29 18:35 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/86617.shtml)
-- 2026-06-29 18:46 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/100165000.shtml)
-- 2026-06-29 18:49 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/15466697571.shtml)
-- 2026-06-29 18:52 - [机器人学校开学了](http://www.share.minike.top/Article/details/25475529.shtml)
-- 2026-06-29 18:40 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/89804435808.shtml)
-- 2026-06-29 18:39 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/6641416.shtml)
-- 2026-06-29 18:42 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/594703.shtml)
-- 2026-06-29 18:39 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/429212375.shtml)
-- 2026-06-29 18:39 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/248609742065.shtml)
-- 2026-06-29 18:50 - [一见倾心](http://www.share.minike.top/Article/details/9764891079.shtml)
-- 2026-06-29 18:40 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/93210345132.shtml)
-- 2026-06-29 18:48 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/99197.shtml)
+- 2026-06-29 18:44 - [博主：AI泡沫必须破灭](http://www.blog.kurohicncr.top/Article/details/29076307.shtml)
+- 2026-06-29 19:01 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/85492.shtml)
+- 2026-06-29 18:48 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/354752973.shtml)
+- 2026-06-29 18:37 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/40956730.shtml)
+- 2026-06-29 18:46 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/26835847675.shtml)
+- 2026-06-29 18:58 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/80962905288.shtml)
+- 2026-06-29 18:42 - [叠纸](https://www.share.minike.top/Article/details/3465936.shtml)
+- 2026-06-29 19:04 - [央视曝光涉黄App诈骗陷阱](http://www.share.minike.top/Article/details/109972450.shtml)
+- 2026-06-29 18:58 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/9215476.shtml)
+- 2026-06-29 18:49 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/910523075.shtml)
+- 2026-06-29 18:55 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/55552166.shtml)
+- 2026-06-29 18:47 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/9406067.shtml)
+- 2026-06-29 18:56 - [博主：AI泡沫必须破灭](http://www.share.minike.top/Article/details/7409006.shtml)
+- 2026-06-29 19:03 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/94600329.shtml)
+- 2026-06-29 18:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/65610358483.shtml)

@@ -1,55 +1,58 @@
-# “80后”头雁领航：浦东万亩瓜田写下“共富”答卷
+# （活力中国调研行）AI催生“一人公司”热 中关村AI北纬社区聚起创业“梦之队”
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 17:30 来源：中国新闻网 “80后”新农人应雄扎根上海浦东投身现代农业，他传承西瓜种植传统，通过改良种植模式、创新种植技术、引入智慧农业，大幅提升瓜果产量与品质。同时，他成立合作社、抱团发展，带动周边农户一起增收致富，拓宽多元销售渠道，以新理念、新技术助力乡村振兴和现代农业发展。 作为中国农业农村部“头雁”培育项目学员，应雄对农业现代化有着
+中新网北京6月13日电 (记者 杜燕 李梦 贾天勇)中关村AI北纬社区孵化器运营方代表董博12日下午在北京表示，“我们认为，OPC(一人公司模式)的核心是通过AI技术赋能，让一个个体或者一个小团队，实现从‘个体户’到‘高价值创新单元’的转变。AI工具帮助降低了创业门槛，跨越了学科知识壁垒，让创业者和小团队能够以‘以小搏大’的方式尝试更多创新。”当日，记者随2026年“活力中国调
 
 ## 正文
 
-发布时间：2026年06月02日 17:30 来源：中国新闻网 “80后”新农人应雄扎根上海浦东投身现代农业，他传承西瓜种植传统，通过改良种植模式、创新种植技术、引入智慧农业，大幅提升瓜果产量与品质。
+中新网北京6月13日电 (记者 杜燕 李梦 贾天勇)中关村AI北纬社区孵化器运营方代表董博12日下午在北京表示，“我们认为，OPC(一人公司模式)的核心是通过AI技术赋能，让一个个体或者一个小团队，实现从‘个体户’到‘高价值创新单元’的转变。
 
-同时，他成立合作社、抱团发展，带动周边农户一起增收致富，拓宽多元销售渠道，以新理念、新技术助力乡村振兴和现代农业发展。
+AI工具帮助降低了创业门槛，跨越了学科知识壁垒，让创业者和小团队能够以‘以小搏大’的方式尝试更多创新。
 
-作为中国农业农村部“头雁”培育项目学员，应雄对农业现代化有着深刻理解：“父辈带农户是‘一起干’，现在我们要带动合作社、家庭农场乃至农业企业协同升级。
+”当日，记者随2026年“活力中国调研行”北京主题采访活动走进中关村AI北纬社区，探访人工智能产业创新生态建设，以及人工智能赋能下“一人公司”等创新创业模式的发展情况。
 
-”就像李朝平所言：“‘头雁项目’就是要培养这种既懂技术又善经营、既有情怀又有格局的复合型人才。
+中关村AI北纬社区位于中关村科学城北部，于2025年7月正式启动。
 
-实现从‘带着农户干’到‘教会农户怎么干’的升级，这才是新时代农业带头人的核心价值。
+社区重点聚焦AI原生初创团队、高校科技成果转化项目以及人工智能生态机构的招引与服务，入驻企业可享有高品质办公空间、人才公寓、弹性算力、资本赋能等全链条产业资源与配套服务。
 
-”(李佳佳 张亨伟 娄瀚锟） 责任编辑：【叶攀】
+社区累计签约入驻企业126家，涵盖AI+医疗、AI+航天、AI+新材料、大模型、智能体等前沿领域。
+
+“没有AI的话，一个人其实很难把公司做起来。
+
+”首批入驻AI北纬社区OPC创业者、哪吒互娱创始人苏魁接受采访时说，在AI工具支持下，他一个人完成产品开发，并借助AI数字员工承担代码编写、宣传推广等工作，自己则主要负责方向判断和决策。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 18:56 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
-- 2026-06-29 18:48 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 18:46 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 18:47 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 18:40 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 18:59 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 18:50 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 18:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 18:55 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 18:35 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 18:57 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-29 18:58 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 18:44 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 18:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:05 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 18:44 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 19:05 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 18:46 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 18:41 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 18:50 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 19:05 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 19:05 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 18:37 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 18:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:37 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/0030601.shtml)
-- 2026-06-29 18:57 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/754295706703.shtml)
-- 2026-06-29 18:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/775716503737.shtml)
-- 2026-06-29 18:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/558445173928.shtml)
-- 2026-06-29 18:55 - [日媒：日本高价采购“战斧”变冤大头](http://www.blog.minike.top/Article/details/34882151392.shtml)
-- 2026-06-29 18:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/277173635432.shtml)
-- 2026-06-29 18:57 - [葛军透露高考出题思路](https://www.share.minike.top/Article/details/886694161.shtml)
-- 2026-06-29 18:55 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/514370.shtml)
-- 2026-06-29 18:49 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/007365791617.shtml)
-- 2026-06-29 18:40 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/0131414.shtml)
-- 2026-06-29 18:45 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/74941397156.shtml)
-- 2026-06-29 18:30 - [青春环游记第三季](https://www.share.minike.top/Article/details/741191722232.shtml)
-- 2026-06-29 18:43 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/674852.shtml)
-- 2026-06-29 18:39 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/755015777709.shtml)
-- 2026-06-29 18:57 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/20047.shtml)
+- 2026-06-29 18:49 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/50744280958.shtml)
+- 2026-06-29 18:43 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/13554732.shtml)
+- 2026-06-29 18:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/90531376.shtml)
+- 2026-06-29 18:39 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/34113123603.shtml)
+- 2026-06-29 19:00 - [2026世界杯谁能一黑到底](http://www.blog.kurohicncr.top/Article/details/39484.shtml)
+- 2026-06-29 19:00 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/467018764.shtml)
+- 2026-06-29 18:41 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/978138821990.shtml)
+- 2026-06-29 18:40 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/56591898993.shtml)
+- 2026-06-29 18:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/80252.shtml)
+- 2026-06-29 18:47 - [医药生物行业今日涨5.91%](https://www.blog.kurohicncr.top/Article/details/2167254.shtml)
+- 2026-06-29 18:48 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/503306239.shtml)
+- 2026-06-29 18:54 - [TTG KSG](http://www.blog.minike.top/Article/details/587717156.shtml)
+- 2026-06-29 18:51 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/24671034398.shtml)
+- 2026-06-29 18:57 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/0182209961.shtml)
+- 2026-06-29 18:42 - [V8](http://www.share.kurohicncr.top/Article/details/19032525688.shtml)

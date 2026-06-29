@@ -1,58 +1,61 @@
-# 日本新发十年期国债需求强劲 推动各期限国债收益率全线下行
+# 谷歌解释为何放弃特朗普政府20亿美元量子计划
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-由于最新发行的10年期日本国债招标结果强于市场预期，触发投资者竞相买入，日本主权债券市场周二迎来强劲反弹，各期限国债收益率集体大幅走低。 作为基准的10年期日本国债收益率当日暴跌11个基点，至2.57%，创下自5月13日以来的最低水平。日本财务省当日早些时候发行了约2.6万亿日元（约合162.8亿美元）的10年期国债。由于该批国债的最低中标价格大幅超出市场预期，表明由于核心买家
+谷歌公司近日披露了未参与特朗普政府推出的20亿美元量子计算资助计划的原因。谷歌量子人工智能首席运营官Charina Chou在Semafor科技峰会上表示，该资金附带的各种条件与公司既定的研发时间表存在冲突，可能拖慢打造可用量子计算机的进程。 Charina Chou明确表示，“谷歌希望以尽可能快的速度推进量子计算机的研发”，而接受这笔资金将无法实现这一目标。她同时强调，此次缺
 
 ## 正文
 
-由于最新发行的10年期日本国债招标结果强于市场预期，触发投资者竞相买入，日本主权债券市场周二迎来强劲反弹，各期限国债收益率集体大幅走低。
+谷歌公司近日披露了未参与特朗普政府推出的20亿美元量子计算资助计划的原因。
 
-作为基准的10年期日本国债收益率当日暴跌11个基点，至2.57%，创下自5月13日以来的最低水平。
+谷歌量子人工智能首席运营官Charina Chou在Semafor科技峰会上表示，该资金附带的各种条件与公司既定的研发时间表存在冲突，可能拖慢打造可用量子计算机的进程。
 
-日本财务省当日早些时候发行了约2.6万亿日元（约合162.8亿美元）的10年期国债。
+Charina Chou明确表示，“谷歌希望以尽可能快的速度推进量子计算机的研发”，而接受这笔资金将无法实现这一目标。
 
-由于该批国债的最低中标价格大幅超出市场预期，表明由于核心买家此前参与度不足而表现滞后的10年期国债，当前获得了极为强劲的市场需求。
+她同时强调，此次缺席仅限于这一特定项目，公司仍在“以其他方式”与华盛顿保持合作，并呼吁政府加大对量子基础研究的投入。
 
-三菱日联资产管理公司执行首席基金经理古口正之分析指出，部分未能在此前招标中中标的投资者转而在二级市场买入，直接推动了收益率的快速回落。
+这项总额20亿美元的资助计划于2026年5月以意向书形式宣布，资金源自2022年《芯片与科学法案》。
 
-但他同时提醒，鉴于日本目前的通胀状况和潜在经济增长动能，10年期国债收益率目前水平依然偏低，这一上涨势头能否长期维持仍有待观察。
+最终获得资助的九家企业包括IBM、GlobalFoundries、Quantinuum、PsiQuantum、Rigetti Computing及Infleqtion等。
 
-在短端利率方面，2年期和5年期国债收益率的波动相对有限。
+谷歌及其竞争对手微软、IonQ均未出现在最终名单中。
 
-当日，2年期国债收益率下跌2.5个基点至1.375%，5年期国债收益率下跌6个基点至1.855%。
+PsiQuantum联合创始人Pete Shadbolt在同一峰会上为政府介入辩护，称鉴于量子技术的地缘政治影响，“这关乎国家安全”，政府投资“再自然不过”。
 
 ## 相关推荐
 
-- 2026-06-29 18:35 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 18:33 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 18:57 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-29 18:53 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 18:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 18:37 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 18:40 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 18:46 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 18:52 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 18:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 18:50 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 18:52 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 18:46 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 18:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 18:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 18:37 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 18:48 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 18:50 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 18:45 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 18:45 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 18:48 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 18:40 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 18:49 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 18:42 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 18:45 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 18:40 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 18:48 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:32 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/281236649852.shtml)
-- 2026-06-29 18:41 - [税务总局披露5起合规申报个税案例](http://www.share.kurohicncr.top/Article/details/559336883595.shtml)
-- 2026-06-29 18:36 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/233851539964.shtml)
-- 2026-06-29 18:43 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/9282296150.shtml)
-- 2026-06-29 18:53 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/853948.shtml)
-- 2026-06-29 18:33 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/111862004083.shtml)
-- 2026-06-29 18:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/025025920.shtml)
-- 2026-06-29 18:51 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/956677824223.shtml)
-- 2026-06-29 18:30 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/3426465922.shtml)
-- 2026-06-29 18:59 - [曝屠颖去世和酒店失责有关](https://www.share.kurohicncr.top/Article/details/5972672.shtml)
-- 2026-06-29 18:50 - [中国创新药股价要反攻了吗](http://www.blog.kurohicncr.top/Article/details/741288159448.shtml)
-- 2026-06-29 18:51 - [女心理师](http://www.share.minike.top/Article/details/206683006792.shtml)
-- 2026-06-29 18:49 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/448531.shtml)
-- 2026-06-29 18:40 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/48380924.shtml)
-- 2026-06-29 18:35 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/92688.shtml)
+- 2026-06-29 19:06 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/571670275.shtml)
+- 2026-06-29 18:38 - [森保一坚信日本能赢巴西](https://www.share.minike.top/Article/details/940621397.shtml)
+- 2026-06-29 18:56 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/02881.shtml)
+- 2026-06-29 18:55 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/256421730.shtml)
+- 2026-06-29 18:54 - [医药生物行业今日涨5.91%](https://www.share.minike.top/Article/details/307072.shtml)
+- 2026-06-29 18:36 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/081459060.shtml)
+- 2026-06-29 18:40 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/75715756.shtml)
+- 2026-06-29 18:57 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/5969269146.shtml)
+- 2026-06-29 18:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/676990.shtml)
+- 2026-06-29 18:59 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/93246505926.shtml)
+- 2026-06-29 19:04 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/51522830.shtml)
+- 2026-06-29 18:49 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/46287409.shtml)
+- 2026-06-29 19:05 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/60166952401.shtml)
+- 2026-06-29 18:45 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/73087674.shtml)
+- 2026-06-29 18:58 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/65997931943.shtml)

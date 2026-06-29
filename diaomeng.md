@@ -1,54 +1,57 @@
-# 台湾半导体硅片业者在大陆：两岸“竞合”是未来
+# 东西问｜肖君拥：促进数智人权发展的中国路径
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 15:37 来源：中国新闻网 5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南洛阳、郑州、开封等地举行。6月1日，采访团走进郑州合晶硅材料有限公司，了解台资背景半导体相关企业在豫生产运营情况。 “郑州区位优势明显，不仅拥有较为完善的产业配套和良好的营商环境，也是重要的综合交通枢纽。”郑州合晶硅材料有限公司董事
+中新社北京6月12日电 题：促进数智人权发展的中国路径 作者 肖君拥 北京理工大学法学院教授、科技人权研究中心执行主任 当前，以人工智能为代表的数智技术正在重塑人类社会的基本结构。从算法歧视导致的公平性瓦解，到数据滥用对隐私权的侵蚀，再到技术性失业和自主武器系统的潜在威胁，数智技术的“双刃剑”效应日益凸显。《经济、社会及文化权利国际公约》强调，“享受科学进步及应用之惠”是人人应
 
 ## 正文
 
-发布时间：2026年06月02日 15:37 来源：中国新闻网 5月27日至6月2日，“相约中原·豫见精彩”2026年海峡两岸记者联合采访活动在河南洛阳、郑州、开封等地举行。
+中新社北京6月12日电 题：促进数智人权发展的中国路径 作者 肖君拥 北京理工大学法学院教授、科技人权研究中心执行主任 当前，以人工智能为代表的数智技术正在重塑人类社会的基本结构。
 
-6月1日，采访团走进郑州合晶硅材料有限公司，了解台资背景半导体相关企业在豫生产运营情况。
+从算法歧视导致的公平性瓦解，到数据滥用对隐私权的侵蚀，再到技术性失业和自主武器系统的潜在威胁，数智技术的“双刃剑”效应日益凸显。
 
-“郑州区位优势明显，不仅拥有较为完善的产业配套和良好的营商环境，也是重要的综合交通枢纽。
+《经济、社会及文化权利国际公约》强调，“享受科学进步及应用之惠”是人人应有的权利。
 
-”郑州合晶硅材料有限公司董事长、来自台湾的钟佑生表示，当地长期支持台资背景企业发展，为企业投资布局提供了稳定预期。
+中国坚持以人民为中心的发展思想，走出了一条将数智技术发展与人权保障深度融合的独特道路，为全球数智人权治理贡献了中国智慧。
 
-谈及两岸半导体产业合作，钟佑生认为，两岸产业关系是“竞合”关系，在竞争中相互学习，在合作中共同成长。
+理论先导：坚持正确的数字人权观念 中国学者立足本土实践，较早提出“数字人权”这一概念，并围绕其内涵、可行性与是否构成第四代人权展开深入研讨，逐步构建起逻辑自洽的理论框架，打破了西方的话语垄断。
 
-(记者 李百加 制作 乐小敏） 责任编辑：【叶攀】
+中国坚持以生存权、发展权为核心的价值导向，将数字正义引入技术开发、设计、应用的各环节。
+
+数字人权对智能科技时代的人权保障提出了全新要求，确保技术发展服务于人的自由而全面发展。
+
+在价值层面，“智能向善”的根本方向已经确立。
 
 ## 相关推荐
 
-- 2026-06-29 18:55 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 18:48 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 18:41 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 18:48 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 18:44 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 18:32 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 18:39 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 18:35 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 18:40 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 18:53 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 18:38 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 18:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 18:38 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 18:47 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 18:58 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 18:42 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 18:53 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 18:58 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 18:40 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 19:04 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 18:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 18:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 19:03 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/00786317.shtml)
-- 2026-06-29 18:55 - [河南高院审委会原委员曲海滨被查](https://www.blog.kurohicncr.top/Article/details/68789.shtml)
-- 2026-06-29 18:50 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/697352058.shtml)
-- 2026-06-29 18:35 - [葛军透露高考出题思路](http://www.blog.kurohicncr.top/Article/details/4531618553.shtml)
-- 2026-06-29 18:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/29509030.shtml)
-- 2026-06-29 18:37 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/13621925270.shtml)
-- 2026-06-29 18:49 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/003463.shtml)
-- 2026-06-29 18:38 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/876383014903.shtml)
-- 2026-06-29 18:32 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/931199145819.shtml)
-- 2026-06-29 18:45 - [倪春青跨市履新苏州市委组织部部长](http://www.share.minike.top/Article/details/98231.shtml)
-- 2026-06-29 18:50 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/647782400.shtml)
-- 2026-06-29 18:37 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/559350158651.shtml)
-- 2026-06-29 18:57 - [沙特外交大臣将访华](https://www.share.kurohicncr.top/Article/details/272607.shtml)
-- 2026-06-29 18:40 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/88555.shtml)
-- 2026-06-29 18:31 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/7777996451.shtml)
+- 2026-06-29 19:02 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/568967.shtml)
+- 2026-06-29 18:58 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/210987941790.shtml)
+- 2026-06-29 18:41 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/91601.shtml)
+- 2026-06-29 18:39 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/62925943463.shtml)
+- 2026-06-29 18:58 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/122805099.shtml)
+- 2026-06-29 18:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/1093440.shtml)
+- 2026-06-29 18:42 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/475175.shtml)
+- 2026-06-29 18:58 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/909048831676.shtml)
+- 2026-06-29 18:43 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/11205071445.shtml)
+- 2026-06-29 18:52 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/18574870456.shtml)
+- 2026-06-29 18:39 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/000737959525.shtml)
+- 2026-06-29 19:03 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/147748507074.shtml)
+- 2026-06-29 18:51 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/81441.shtml)
+- 2026-06-29 18:56 - [歼-15型舰载机为何被歼-15T替代](https://www.share.kurohicncr.top/Article/details/8523987805.shtml)
+- 2026-06-29 18:54 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/707684.shtml)

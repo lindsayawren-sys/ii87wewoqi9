@@ -1,58 +1,58 @@
-# 密集催化推动资金逆向布局？恒生创新药ETF华泰柏瑞（520500）近一周成交环比增长42%
+# SpaceX加密货币交易IPO合约一度大跌，如今反弹指向2.4万亿美元估值
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-今日（26/6/3）早盘，港股创新药板块延续震荡态势，相关指数有所承压。但受益于产业成果、政策红利等一系列利好催化，板块市场关注度逐步抬升，恒生创新药ETF华泰柏瑞（520500）等相关ETF交投活跃。 作为当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）近期成交额显著放量。Wind数据显示，恒生创新药ETF华泰柏瑞（520500）近一
+Hyperliquid平台上一只与SpaceX挂钩的永续合约在历经三周下跌后强势反弹。该合约以SPCX为代码交易，在埃隆·马斯克的火箭与卫星公司股票预计于本周五首日上市之前，收窄了此前隐含的首日涨幅溢价。 该合约周五上午的交易价格在176美元至183美元之间，较本周早些时候接近153美元的低点有所回升，也高于CoinDesk周三报道中约157美元的水平——当时该报道称加密货币交
 
 ## 正文
 
-今日（26/6/3）早盘，港股创新药板块延续震荡态势，相关指数有所承压。
+Hyperliquid平台上一只与SpaceX挂钩的永续合约在历经三周下跌后强势反弹。
 
-但受益于产业成果、政策红利等一系列利好催化，板块市场关注度逐步抬升，恒生创新药ETF华泰柏瑞（520500）等相关ETF交投活跃。
+该合约以SPCX为代码交易，在埃隆·马斯克的火箭与卫星公司股票预计于本周五首日上市之前，收窄了此前隐含的首日涨幅溢价。
 
-作为当前全市场仅有的跟踪恒生创新药指数的ETF产品——恒生创新药ETF华泰柏瑞（520500）近期成交额显著放量。
+该合约周五上午的交易价格在176美元至183美元之间，较本周早些时候接近153美元的低点有所回升，也高于CoinDesk周三报道中约157美元的水平——当时该报道称加密货币交易者正在下调对IPO首日涨幅的预期。
 
-Wind数据显示，恒生创新药ETF华泰柏瑞（520500）近一周（5/27-6/2）日均成交额为10.79亿元，环比提升42%。
+Hyperliquid平台上该合约的未平仓量接近2.16亿美元，24小时交易量超过1.5亿美元。
 
-消息面上，2026年5月29日至6月2日的美国临床肿瘤学会（ASCO）年会上，中国研究入选口头报告及LBA（最新突破摘要）数量达94项，创历史新高，其中12项研究入选最重磅环节。
+未平仓量指的是活跃或未平仓合约的美元价值。
 
-国产创新药龙头自主研发的PD-1/VEGF双抗依沃西的HARMONi-6研究入选全体大会报告并同步发表于《柳叶刀》主刊，为首款斩获该项顶级荣誉的国产原创新药，直观印证国内创新药研发实力跻身全球第一梯队。
+Hyperliquid的SPCX合约并不赋予持有人SpaceX的股票、配售权或任何对公司的索取权。
 
-政策方面，2026年5月31日国家医保局发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》，首次打通“商保转医保”路径，允许2021年后获批的创新药、罕见病药、儿童用药同步申报医保与商保目录，并明确对具备显著临床优势的创新药建立以临床价值为导向的自主定价机制，从准入、定价两大维度拓宽国产创新药商业化落地路径。
+它是一种以现金结算的衍生品。
 
-方正证券认为，创新药或已正式进入盈利周期，BD收入常态化有望带动净利润快速增长。
+但由于SpaceX将其IPO定价固定在每股135美元，该合约已成为少数几个能显示交易者认为该股可能以什么价格开盘的实时市场之一。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 18:54 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 18:54 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-29 18:50 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 18:40 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 18:49 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 18:41 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-29 18:49 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 18:47 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-29 18:41 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 18:51 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-29 18:38 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-29 18:45 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 18:57 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 18:49 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-29 18:44 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 19:00 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 18:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 19:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 18:40 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 19:03 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 18:37 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 18:48 - [张杰我九岁就跟你了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 18:54 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:47 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/315662.shtml)
-- 2026-06-29 18:41 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/72404.shtml)
-- 2026-06-29 18:47 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/1131169.shtml)
-- 2026-06-29 18:57 - [机器人学校开学了](http://www.share.minike.top/Article/details/97108.shtml)
-- 2026-06-29 18:39 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.minike.top/Article/details/960803145457.shtml)
-- 2026-06-29 18:43 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.kurohicncr.top/Article/details/4363685612.shtml)
-- 2026-06-29 18:44 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/110650320078.shtml)
-- 2026-06-29 18:48 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/4232766969.shtml)
-- 2026-06-29 18:46 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/7314895.shtml)
-- 2026-06-29 18:51 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/80940459.shtml)
-- 2026-06-29 18:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/409311.shtml)
-- 2026-06-29 18:58 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/40311690699.shtml)
-- 2026-06-29 18:56 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/7657945.shtml)
-- 2026-06-29 18:42 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/02461204902.shtml)
-- 2026-06-29 18:39 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/642844.shtml)
+- 2026-06-29 18:56 - [张杰我九岁就跟你了](https://www.share.minike.top/Article/details/3242518913.shtml)
+- 2026-06-29 18:46 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/694319.shtml)
+- 2026-06-29 18:42 - [中国创新药股价要反攻了吗](https://www.blog.minike.top/Article/details/7035092.shtml)
+- 2026-06-29 18:45 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/8578913.shtml)
+- 2026-06-29 18:43 - [2026世界杯谁能一黑到底](https://www.blog.minike.top/Article/details/8366393.shtml)
+- 2026-06-29 18:37 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/9701712547.shtml)
+- 2026-06-29 18:39 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/59990098.shtml)
+- 2026-06-29 18:50 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/8797537.shtml)
+- 2026-06-29 18:57 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/9868640440.shtml)
+- 2026-06-29 18:55 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/115542.shtml)
+- 2026-06-29 18:53 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/871769303926.shtml)
+- 2026-06-29 18:49 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/5263420808.shtml)
+- 2026-06-29 18:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/875156553267.shtml)
+- 2026-06-29 19:00 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/453624712.shtml)
+- 2026-06-29 19:03 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/71532.shtml)

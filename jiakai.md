@@ -1,50 +1,54 @@
-# 里昂：首予小马智行-W及文远知行-W“跑赢大市”评级
+# 中国生物制药拟斥资不超过20亿港元用于股份回购及奖励股份购买
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-里昂发布研报称，内地自动驾驶的士营运商车队扩张计划稳步推进，尽管国内牌照出现波折及中东地区业务短暂受阻。里昂首次覆盖小马智行-W（02026）及文远知行-W（00800）的H股，均给予“跑赢大市”评级，目标价分别125港元及29港元。两者均可能于4日纳入沪深港通，迎来新资金流入。另外，该行称，地平线机器人-W（09660）需要更清晰的发展蓝图以支撑其长期价值，维持“跑赢大市”评
+中国生物制药（01177）公布，于2026年6月12日，董事会议决通过一项股份购买计划，据此，公司将视乎市场情况于未来12个月以不超过20亿港元总代价在公开市场上（1）根据于股东周年大会上获授的股份购回授权，并受其条款及细则所规限，回购股份及（2）根据公司于2018年1月5日采纳的限制性股份奖励计划，指示负责管理股份奖励计划的受托人购买股份。董事会将不时检讨及全权酌情决定如何分
 
 ## 正文
 
-里昂发布研报称，内地自动驾驶的士营运商车队扩张计划稳步推进，尽管国内牌照出现波折及中东地区业务短暂受阻。
+中国生物制药（01177）公布，于2026年6月12日，董事会议决通过一项股份购买计划，据此，公司将视乎市场情况于未来12个月以不超过20亿港元总代价在公开市场上（1）根据于股东周年大会上获授的股份购回授权，并受其条款及细则所规限，回购股份及（2）根据公司于2018年1月5日采纳的限制性股份奖励计划，指示负责管理股份奖励计划的受托人购买股份。
 
-里昂首次覆盖小马智行-W（02026）及文远知行-W（00800）的H股，均给予“跑赢大市”评级，目标价分别125港元及29港元。
+董事会将不时检讨及全权酌情决定如何分配股份购买额度用于股份回购及奖励股份购买。
 
-两者均可能于4日纳入沪深港通，迎来新资金流入。
+2026年初至今，公司亦曾累计购买（包括回购及指示负责管理股份奖励计划的受托人购买）6035万股股份，总代价约3.38亿港元。
 
-另外，该行称，地平线机器人-W（09660）需要更清晰的发展蓝图以支撑其长期价值，维持“跑赢大市”评级。
+董事会认为实施股份购买计划符合公司及其股东的整体最佳利益。
+
+于现况下进行股份购买可展示公司对业务展望及前景充满信心，且最终会为公司带来裨益及为股东创造价值。
+
+董事会认为，公司现有充足财务资源足以实施股份购买计划并维持稳健的财务状况。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 18:57 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 18:34 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 18:43 - [日本偶像龟梨和也宣布结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 18:57 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 18:30 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 18:33 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 18:42 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 18:33 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 18:52 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 18:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 18:52 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 18:41 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 18:49 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 18:37 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 19:04 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 18:37 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 18:51 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 19:04 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 19:04 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 19:02 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/6405225429.shtml)
-- 2026-06-29 18:58 - [毒液2](http://www.share.kurohicncr.top/Article/details/8443814143.shtml)
-- 2026-06-29 18:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/775010234.shtml)
-- 2026-06-29 18:41 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/428781.shtml)
-- 2026-06-29 18:38 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/9793800549.shtml)
-- 2026-06-29 18:53 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/37519907.shtml)
-- 2026-06-29 18:31 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/2034646845.shtml)
-- 2026-06-29 18:42 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/92000203793.shtml)
-- 2026-06-29 18:45 - [叠纸](https://www.blog.minike.top/Article/details/5557810.shtml)
-- 2026-06-29 18:46 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/51531551959.shtml)
-- 2026-06-29 18:47 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.minike.top/Article/details/34280522.shtml)
-- 2026-06-29 18:35 - [女生每天戴耳机18小时突发耳聋](https://www.share.kurohicncr.top/Article/details/7772864276.shtml)
-- 2026-06-29 18:37 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/05743111277.shtml)
-- 2026-06-29 18:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/40351.shtml)
-- 2026-06-29 18:53 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/21154.shtml)
+- 2026-06-29 18:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/28586.shtml)
+- 2026-06-29 18:50 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/78592.shtml)
+- 2026-06-29 18:49 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/1211336071.shtml)
+- 2026-06-29 19:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/752530431656.shtml)
+- 2026-06-29 18:41 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/7424573.shtml)
+- 2026-06-29 19:03 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/62754.shtml)
+- 2026-06-29 18:37 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/559272.shtml)
+- 2026-06-29 18:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/4509742.shtml)
+- 2026-06-29 18:46 - [金牌调解](http://www.blog.minike.top/Article/details/8838849425.shtml)
+- 2026-06-29 18:39 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/570657.shtml)
+- 2026-06-29 18:47 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/824074576271.shtml)
+- 2026-06-29 18:44 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/62576664.shtml)
+- 2026-06-29 19:03 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/7885435.shtml)
+- 2026-06-29 19:04 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/3066921.shtml)
+- 2026-06-29 18:53 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/40144.shtml)

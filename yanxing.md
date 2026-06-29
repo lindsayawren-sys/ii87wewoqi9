@@ -1,57 +1,58 @@
-# 都去跳广场舞！真的可以预防“老年痴呆”
+# 受战事持续影响，德国央行下调经济增长预期、上调通胀预测
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-清晨和傍晚的公园、广场，总能看到这样的画面：音乐一响，队形排开，男女老少步伐整齐、手臂摆动、旋转转身。旁观者有时会调侃：“广场舞又开始占领广场了。” 但从神经科学的角度看，跳广场舞可能是人类最接近“神经科学处方”的公共活动之一了，它对于预防和抵抗阿尔茨海默症和整体神经健康有突出作用。 阿尔茨海默症不是单纯 因为年老而“糊涂”阿尔茨海默症，也就是大众嘴里的“老年痴呆”。很多人以为
+受伊朗局势拖累经济，德国央行于周五下调今明两年经济增长预期，并上调通胀预估。 得益于政府推出大规模财政刺激计划，这个欧洲最大经济体在今年年初一度显现复苏迹象。德国国内生产总值去年实现增长，为2022年以来首次。 德国联邦银行表示，今年德国GDP增速预计为0.5%，2027年为0.8%，较去年12月预测的0.6%和1.3%均有所下调。该行同时上调2028年增长预期，预计GDP增速
 
 ## 正文
 
-清晨和傍晚的公园、广场，总能看到这样的画面：音乐一响，队形排开，男女老少步伐整齐、手臂摆动、旋转转身。
+受伊朗局势拖累经济，德国央行于周五下调今明两年经济增长预期，并上调通胀预估。
 
-旁观者有时会调侃：“广场舞又开始占领广场了。
+得益于政府推出大规模财政刺激计划，这个欧洲最大经济体在今年年初一度显现复苏迹象。
 
-” 但从神经科学的角度看，跳广场舞可能是人类最接近“神经科学处方”的公共活动之一了，它对于预防和抵抗阿尔茨海默症和整体神经健康有突出作用。
+德国国内生产总值去年实现增长，为2022年以来首次。
 
-阿尔茨海默症不是单纯 因为年老而“糊涂”阿尔茨海默症，也就是大众嘴里的“老年痴呆”。
+德国联邦银行表示，今年德国GDP增速预计为0.5%，2027年为0.8%，较去年12月预测的0.6%和1.3%均有所下调。
 
-很多人以为，阿尔茨海默症就是人老了自然会“糊涂”。
+该行同时上调2028年增长预期，预计GDP增速将达到1.4%，此前预估为1.1%，经济届时将重拾增长动能。
 
-然而近二十年的研究表明，情况远比这个复杂。
+德国央行称，本国扩张性财政政策将避免今夏经济出现萎缩。
 
-阿尔茨海默症并非单纯的“年纪大”，而是长期不良生活方式(如饮食、睡眠)引发大脑代谢紊乱，进而破坏神经网络功能，最终导致的退行性病变。
+但能源价格上涨会削弱居民购买力，企业也正面临供应链瓶颈与需求走弱的问题。
 
-1 阿尔茨海默症和代谢健康密切相关 阿尔茨海默症的症状体现为记忆力下降、执行功能减弱、空间能力下降、行为和情绪改变等，而传统观念往往把这些变化单纯归因为“老糊涂了”。
+该行补充道，随着局势影响逐步消退，预计2028年油价将大幅回落。
 
 ## 相关推荐
 
-- 2026-06-29 18:32 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 18:54 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 18:47 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 18:50 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 18:41 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 18:42 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 18:43 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 18:31 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 18:38 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 18:34 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 18:59 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 18:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 18:41 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 18:54 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 19:05 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 18:52 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 18:47 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 18:38 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 18:59 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 19:01 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 18:36 - [当家电外通风口出现鸟窝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-29 19:05 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 18:58 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/451093418.shtml)
-- 2026-06-29 18:50 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/8835004160.shtml)
-- 2026-06-29 18:58 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/452964056.shtml)
-- 2026-06-29 18:36 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/4734193790.shtml)
-- 2026-06-29 18:33 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/795505481015.shtml)
-- 2026-06-29 18:42 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/11189.shtml)
-- 2026-06-29 18:52 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/96910846.shtml)
-- 2026-06-29 18:45 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/72712.shtml)
-- 2026-06-29 18:36 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/0785387.shtml)
-- 2026-06-29 18:48 - [天道](http://www.blog.minike.top/Article/details/74541.shtml)
-- 2026-06-29 18:37 - [7款高价创新药有望降价](https://www.share.minike.top/Article/details/5795111439.shtml)
-- 2026-06-29 18:57 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/724362556.shtml)
-- 2026-06-29 18:43 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.minike.top/Article/details/210454.shtml)
-- 2026-06-29 18:35 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/680761.shtml)
-- 2026-06-29 18:49 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/0283124.shtml)
+- 2026-06-29 18:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/23155390616.shtml)
+- 2026-06-29 18:37 - [谢依霖夸杨幂靠谱](https://www.share.kurohicncr.top/Article/details/031689873203.shtml)
+- 2026-06-29 18:45 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/906382.shtml)
+- 2026-06-29 19:03 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/585543.shtml)
+- 2026-06-29 18:58 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/41562.shtml)
+- 2026-06-29 18:53 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/530671546.shtml)
+- 2026-06-29 18:44 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/848328.shtml)
+- 2026-06-29 19:05 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/106885272.shtml)
+- 2026-06-29 18:36 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/9343019961.shtml)
+- 2026-06-29 18:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/912271235664.shtml)
+- 2026-06-29 18:58 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/05390135507.shtml)
+- 2026-06-29 18:48 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/022414226.shtml)
+- 2026-06-29 18:41 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/8138846929.shtml)
+- 2026-06-29 19:03 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/71096.shtml)
+- 2026-06-29 18:40 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/198234908543.shtml)

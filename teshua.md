@@ -1,60 +1,59 @@
-# SpaceX要求压低IPO承销费率 但华尔街投行仍有望分食5亿美元收入
+# 老挝女孩携农产品参展南博会 分享中老合作红利
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。 马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的
+中新社昆明6月13日电 题：老挝女孩携农产品参展南博会 分享中老合作红利 中新社记者 韩帅南 “欢迎大家看一看老挝的茶叶和手工艺品。”13日，在第10届中国—南亚博览会(“南博会”)绿色能源馆，老挝女孩苏帕通(Souphutthone Khamphay)正用流利的中文向参观者介绍家乡好物。 为何在能源展区“跨界”推介农产品？“因为中国企业的项目建设到哪，就会把帮扶带到哪。”苏帕
 
 ## 正文
 
-马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。
+中新社昆明6月13日电 题：老挝女孩携农产品参展南博会 分享中老合作红利 中新社记者 韩帅南 “欢迎大家看一看老挝的茶叶和手工艺品。
 
-不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。
+”13日，在第10届中国—南亚博览会(“南博会”)绿色能源馆，老挝女孩苏帕通(Souphutthone Khamphay)正用流利的中文向参观者介绍家乡好物。
 
-马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。
+为何在能源展区“跨界”推介农产品？
 
-尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的华尔街银行历史上最赚钱的上市项目之一。
+“因为中国企业的项目建设到哪，就会把帮扶带到哪。
 
-作为本次IPO的牵头行，高盛集团和摩根士丹利预计将从承销费用中获得比其他21家参与券商更大的份额。
+”苏帕通笑着解释，中广核能源科技(老挝)有限公司(下称“中广核老挝公司”)在老挝推进绿色能源项目建设时，发现当地村民虽有优质茶叶和手工艺品，却因信息闭塞销路不畅。
 
-知情人士表示，上述数字仅反映SpaceX支付的基础承销费用，并未包含可能额外发放的奖励性费用。
+于是，企业便把这些“山里的宝贝”带到南博会展台上。
 
-由于讨论尚未公开信息，知情人士要求匿名。
+苏帕通曾在云南师范大学留学，精通中老双语。
 
-投资银行通常会对IPO收取4%至7%的承销费用，而此类IPO的募资规模平均不到10亿美元。
+因这一优势，她在中广核老挝公司做翻译已有两年。
 
 ## 相关推荐
 
-- 2026-06-29 18:31 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 18:36 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 18:50 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 18:57 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 18:34 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 18:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 18:37 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 18:46 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 18:52 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 18:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 18:52 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 18:31 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 18:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 18:48 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 18:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 19:05 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 18:50 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 18:49 - [TTG KSG](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 19:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 18:57 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-29 19:02 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 18:49 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 19:02 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 18:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 18:43 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 18:38 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 19:01 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:53 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/76333689.shtml)
-- 2026-06-29 18:56 - [官方通报一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/278705758.shtml)
-- 2026-06-29 18:33 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/927266244224.shtml)
-- 2026-06-29 18:56 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/29923408670.shtml)
-- 2026-06-29 18:40 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/776954.shtml)
-- 2026-06-29 18:50 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/489804746.shtml)
-- 2026-06-29 18:38 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/86721219.shtml)
-- 2026-06-29 18:44 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/684415191689.shtml)
-- 2026-06-29 18:45 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/22239372.shtml)
-- 2026-06-29 18:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/245253432704.shtml)
-- 2026-06-29 18:41 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/6464226.shtml)
-- 2026-06-29 18:58 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/824299.shtml)
-- 2026-06-29 18:54 - [扬名立万](https://www.blog.minike.top/Article/details/07978907378.shtml)
-- 2026-06-29 18:42 - [央视曝光涉黄App诈骗陷阱](https://www.blog.kurohicncr.top/Article/details/877145597109.shtml)
-- 2026-06-29 18:44 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/182560524.shtml)
+- 2026-06-29 18:44 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/456828758452.shtml)
+- 2026-06-29 19:00 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/41911513.shtml)
+- 2026-06-29 18:53 - [日本偶像龟梨和也宣布结婚](http://www.blog.minike.top/Article/details/63430055924.shtml)
+- 2026-06-29 18:48 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/26897872.shtml)
+- 2026-06-29 18:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/084277684.shtml)
+- 2026-06-29 18:45 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/26219480.shtml)
+- 2026-06-29 18:57 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/2398766885.shtml)
+- 2026-06-29 18:42 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/554615.shtml)
+- 2026-06-29 18:37 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/43614.shtml)
+- 2026-06-29 19:02 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/84498.shtml)
+- 2026-06-29 18:44 - [青春环游记第三季](https://www.share.minike.top/Article/details/81334018512.shtml)
+- 2026-06-29 18:39 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/79607611.shtml)
+- 2026-06-29 18:55 - [德国医生在没有空调的手术室工作](http://www.blog.kurohicncr.top/Article/details/98490.shtml)
+- 2026-06-29 19:04 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/09290838.shtml)
+- 2026-06-29 18:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/917432438.shtml)

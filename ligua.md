@@ -1,58 +1,60 @@
-# 约旦连续展开小麦与大麦国际招标
+# 四川雅江多名工作人员向河道丢弃垃圾？官方回应
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-欧洲贸易商周二透露，约旦国家粮食采购机构当天在国际招标中成功购入约6万吨硬质铣磨小麦，以强化该国粮食战略储备。 据业内人士透露，这批小麦最终由保加利亚贸易商Buildcom中标，交易价格估计为每吨276.00美元（C&F，含成本及运费），货源地可在多个指定产区中选择，预计将于今年8月下半月发运。除中标企业外，包括CHS（报价每吨278.80美元）、Ameropa（报价每吨280
+清理垃圾变“垃圾入江” 雅江回应：批评教育，已整改完成 日前，一名游客发视频反映，甘孜州雅江县一河道内，一名工作人员用木棍将岸边垃圾拨入雅砻江，质疑该处理方式是否合适。6月14日，雅江县水利局(县总河长办公室)工作人员就这起“向雅砻江丢弃垃圾”事件回应华西都市报、封面新闻记者，称此事已处理并整改完成。 在该游客所发视频的评论区，自称该辖区负责人的网友也进行了回复：“感谢游客热心
 
 ## 正文
 
-欧洲贸易商周二透露，约旦国家粮食采购机构当天在国际招标中成功购入约6万吨硬质铣磨小麦，以强化该国粮食战略储备。
+清理垃圾变“垃圾入江” 雅江回应：批评教育，已整改完成 日前，一名游客发视频反映，甘孜州雅江县一河道内，一名工作人员用木棍将岸边垃圾拨入雅砻江，质疑该处理方式是否合适。
 
-据业内人士透露，这批小麦最终由保加利亚贸易商Buildcom中标，交易价格估计为每吨276.00美元（C&F，含成本及运费），货源地可在多个指定产区中选择，预计将于今年8月下半月发运。
+6月14日，雅江县水利局(县总河长办公室)工作人员就这起“向雅砻江丢弃垃圾”事件回应华西都市报、封面新闻记者，称此事已处理并整改完成。
 
-除中标企业外，包括CHS（报价每吨278.80美元）、Ameropa（报价每吨280.60美元）以及路易达孚（Dreyfus，报价每吨282.00美元）在内的多家跨国粮商也参与了此次竞标。
+在该游客所发视频的评论区，自称该辖区负责人的网友也进行了回复：“感谢游客热心监督，我们迅速落实整改、从严约束作业人员，并对该名人员进行了批评教育。
 
-交易商指出，约旦预计将在未来几天内发布新一轮国际招标，计划再采购12万吨小麦，该标案预计将于6月9日截标。
+现持续整改中。
 
-此外，为满足国内畜牧业的饲料需求，约旦官方还同步发布了另一项独立招标，计划采购12万吨饲用大麦。
+” 男子将垃圾往河水里赶“这般处理合适吗？
 
-该项大麦招标的竞价递交截止时间定于本周三。
+” “雅江县处理垃圾的方式好特别啊，把垃圾往河道里赶。
 
-责任编辑：龙运翔
+”日前，有游客发视频称，雅江县一河道内，多名手拿工具的工作人员在清理河道垃圾，这本来是一件好事，当地也在沿江干流开展“践行河长制，争当‘河小青’”的河道垃圾集中清理志愿服务活动，可他却对眼前看到的一幕感到不解：一名黑衣工作人员用木棍将岸边垃圾往河水里面拨，看起来是想让垃圾顺水往下游漂走。
+
+“如此这般处理垃圾真的合适吗？
 
 ## 相关推荐
 
-- 2026-06-29 18:58 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 18:45 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-29 18:40 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 18:51 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 18:34 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 18:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 18:32 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 18:59 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 18:45 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 18:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 18:40 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 18:55 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 18:39 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 18:55 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 18:36 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 19:03 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 18:50 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 18:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 18:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 18:42 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 18:43 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 18:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-29 18:42 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 18:41 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 18:52 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 18:49 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 18:59 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 18:57 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:31 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/4308865321.shtml)
-- 2026-06-29 18:51 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/50926482628.shtml)
-- 2026-06-29 18:43 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/989182209.shtml)
-- 2026-06-29 18:38 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/8597509.shtml)
-- 2026-06-29 18:51 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/2872910.shtml)
-- 2026-06-29 18:42 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/51084002.shtml)
-- 2026-06-29 18:55 - [女心理师](https://www.share.minike.top/Article/details/0438527275.shtml)
-- 2026-06-29 18:43 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/73719003967.shtml)
-- 2026-06-29 18:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/00639965.shtml)
-- 2026-06-29 18:42 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/1607554109.shtml)
-- 2026-06-29 18:53 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/355744.shtml)
-- 2026-06-29 18:41 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/904908.shtml)
-- 2026-06-29 18:46 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/021437513.shtml)
-- 2026-06-29 18:36 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/663558894.shtml)
-- 2026-06-29 18:54 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/1687526636.shtml)
+- 2026-06-29 18:39 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/75556377573.shtml)
+- 2026-06-29 18:36 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/06840628.shtml)
+- 2026-06-29 18:58 - [送你一朵小红花](http://www.share.minike.top/Article/details/36041738.shtml)
+- 2026-06-29 19:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/90693013.shtml)
+- 2026-06-29 19:02 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/65206528960.shtml)
+- 2026-06-29 18:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/885071748.shtml)
+- 2026-06-29 19:00 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/095002844356.shtml)
+- 2026-06-29 19:01 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/27036038032.shtml)
+- 2026-06-29 19:05 - [张杰我九岁就跟你了](https://www.blog.kurohicncr.top/Article/details/0232446.shtml)
+- 2026-06-29 18:51 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/1465738487.shtml)
+- 2026-06-29 18:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/533803249.shtml)
+- 2026-06-29 18:43 - [逆天祖国人](https://www.blog.minike.top/Article/details/28746.shtml)
+- 2026-06-29 18:57 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/572891061488.shtml)
+- 2026-06-29 19:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/654222110.shtml)
+- 2026-06-29 18:38 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/32345.shtml)

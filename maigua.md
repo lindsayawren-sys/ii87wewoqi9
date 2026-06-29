@@ -1,59 +1,57 @@
-# 900天工期、5亿元总价，宏润建设拿下深蓝航天试验基地工程 | 长三角资本局
+# 50支龙舟千名健儿广州南沙竞渡
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 商业航天的热度，正在从火箭公司本身外溢到更传统的基建端。 6月1日晚间，宁波建筑企业宏润建设公告称，公司近日收到中标通知书，中标深蓝航天液体火箭试验基地工程建设项目，暂定工程中标总价为5亿元。按照公司披露，该项目总价占其2025年度营业收入的8.70%，施工内容包括土建工程、道路工程、水电综合管网等，暂定工期900日历天。 公告显示，此次中标项目分两期
+中新网广州6月14日电 (记者 王坚)13日的广州南沙“城市客厅”蕉门河畔鼓声如雷、浪花飞溅，鹤年堂杯·2026年广州南沙龙舟邀请赛鸣锣开赛。50支队伍、千余名运动员汇入同一片水面，以400米直道竞速完成预赛、排位赛与决赛轮次。 据赛事组委会介绍，此次活动由南沙区文化广电旅游体育局主办，设22人龙舟与12人龙舟400米直道竞速，分组涵盖镇街组、专业组、公开组、菁英组、混合组等，
 
 ## 正文
 
-文|新浪财经上海站 十里 商业航天的热度，正在从火箭公司本身外溢到更传统的基建端。
+中新网广州6月14日电 (记者 王坚)13日的广州南沙“城市客厅”蕉门河畔鼓声如雷、浪花飞溅，鹤年堂杯·2026年广州南沙龙舟邀请赛鸣锣开赛。
 
-6月1日晚间，宁波建筑企业宏润建设公告称，公司近日收到中标通知书，中标深蓝航天液体火箭试验基地工程建设项目，暂定工程中标总价为5亿元。
+50支队伍、千余名运动员汇入同一片水面，以400米直道竞速完成预赛、排位赛与决赛轮次。
 
-按照公司披露，该项目总价占其2025年度营业收入的8.70%，施工内容包括土建工程、道路工程、水电综合管网等，暂定工期900日历天。
+据赛事组委会介绍，此次活动由南沙区文化广电旅游体育局主办，设22人龙舟与12人龙舟400米直道竞速，分组涵盖镇街组、专业组、公开组、菁英组、混合组等，并在颁奖环节沿用广府礼俗——以烧猪、烧酒为冠军队伍庆功。
 
-公告显示，此次中标项目分两期实施，其中一期暂定金额2亿元，二期暂定金额3亿元。
+其中，横沥明珠龙舟队表现抢眼，拿下12人龙舟混合组、男子22人龙舟镇街组两项冠军。
 
-宏润建设同时提示，项目最终金额、工期、履行条款等仍以后续正式合同为准，相关合同尚未签署，公司与项目业主方不存在关联关系。
+值得一提的是，这条河道正在承载的人群密度与情感密度。
 
-公司还表示，该项目预计对2026年度及未来年度财务状况和经营成果不构成重大影响。
+参赛阵容里，有汇聚港澳青年的“湾区青年龙舟队”；首次登船的澳门青年、在蕉门河日常训练的毛里求斯籍龙舟爱好者，把一场本地传统水岸盛会，变成可参与、可对话的文化交流现场。
 
-这句风险提示，反而让这笔订单的性质更清楚。
+当“新老南沙人”在同一声鼓点里起桨，龙舟就不只是竞赛，更像是城市认同的加速装置。
 
-它不是宏润建设业绩拐点式订单，而是一家老牌基建公司拿到商业航天基础设施建设项目。
+此次活动中，南沙把“流量”做成“留量”：赛事主阵地串联蕉门河两岸商圈与公共空间，嘉年华同步开启文创首发、水上运动与体育消费展销；傍晚200余桌龙船饭在市民广场开席，今年还推出“一人食”龙船饭外卖，让“食过龙船饭，顺风又顺水”的祝福走出围餐边界，进入更日常的都市节奏；叠加体育消费季惠民礼包与景区、商家联动优惠，“看赛事、逛市集、享折扣”的消费链路被直接打通。
 
 ## 相关推荐
 
-- 2026-06-29 18:30 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 18:57 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 18:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 18:59 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 18:58 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 18:51 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-29 18:39 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 18:58 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 18:31 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 18:47 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 18:37 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 18:40 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 18:51 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 18:59 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 19:01 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 19:00 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 18:53 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 18:38 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 18:44 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 18:47 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 19:00 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 19:03 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 18:56 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 18:47 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:40 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/468773676378.shtml)
-- 2026-06-29 18:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/1010853.shtml)
-- 2026-06-29 18:40 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/42529.shtml)
-- 2026-06-29 18:37 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/10019238.shtml)
-- 2026-06-29 18:40 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/23958190.shtml)
-- 2026-06-29 18:48 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/75611653859.shtml)
-- 2026-06-29 18:57 - [千与千寻](http://www.blog.minike.top/Article/details/52831927.shtml)
-- 2026-06-29 18:48 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/301135625357.shtml)
-- 2026-06-29 18:51 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/32223485.shtml)
-- 2026-06-29 18:51 - [恋与深空客服的回应](http://www.share.minike.top/Article/details/418772.shtml)
-- 2026-06-29 18:45 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/57752.shtml)
-- 2026-06-29 18:41 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/23041589.shtml)
-- 2026-06-29 18:35 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/879439357.shtml)
-- 2026-06-29 18:32 - [爱很美味](http://www.blog.minike.top/Article/details/23478227142.shtml)
-- 2026-06-29 18:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/215804558.shtml)
+- 2026-06-29 19:02 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/283881.shtml)
+- 2026-06-29 18:45 - [疑似吴建豪老婆正脸照](http://www.share.kurohicncr.top/Article/details/62507893.shtml)
+- 2026-06-29 19:01 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/843290637278.shtml)
+- 2026-06-29 19:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/618330.shtml)
+- 2026-06-29 19:00 - [扫黑风暴](https://www.share.minike.top/Article/details/532254.shtml)
+- 2026-06-29 18:48 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/022512539037.shtml)
+- 2026-06-29 18:56 - [中方向委方追加1亿元援助](https://www.share.minike.top/Article/details/521610561086.shtml)
+- 2026-06-29 18:53 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/3041226384.shtml)
+- 2026-06-29 18:39 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/422133282.shtml)
+- 2026-06-29 18:50 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/20740255.shtml)
+- 2026-06-29 19:02 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/37379739677.shtml)
+- 2026-06-29 18:36 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/3721507669.shtml)
+- 2026-06-29 19:01 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/661126141.shtml)
+- 2026-06-29 19:03 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/986701406.shtml)
+- 2026-06-29 18:55 - [滚石点名酒店员工说有急救培训](https://www.blog.minike.top/Article/details/52444219.shtml)

@@ -1,58 +1,61 @@
-# 药店高价销售集采药，政策红利不容“截留”
+# 近百位中外学者在穗共话“中国的发展与亚太的共同未来”
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-近日，央视曝光内蒙古呼和浩特一家医保定点药店将国家集采后定价百元左右的药品以3960元高价出售，价差近40倍，引发广泛关注。事情曝光后，呼和浩特市医保局和市场监管部门介入查实：供货商早在3月就已降价补差，药店却在5月销售时仍按原进货价定价，直到患者投诉才退还差价。目前，该市医保部门已对涉事药店主要负责人进行约谈，并对相关责任人予以医保支付资格记分处理；市场监管部门已行政立案，处
+中新社广州6月12日电 (记者 程景伟 许青青)APEC成员经济体中国问题研究专家论坛12日在广州开幕。来自中国、澳大利亚、印度尼西亚、马来西亚、泰国等16个APEC经济体的近百位专家学者，围绕“中国的发展与亚太的共同未来”这一主题展开研讨。 该论坛由暨南大学联合中山大学、广东外语外贸大学举办。 中国工程院院士、暨南大学校长邢锋在开幕式致辞时表示，中国作为APEC坚定的参与者、
 
 ## 正文
 
-近日，央视曝光内蒙古呼和浩特一家医保定点药店将国家集采后定价百元左右的药品以3960元高价出售，价差近40倍，引发广泛关注。
+中新社广州6月12日电 (记者 程景伟 许青青)APEC成员经济体中国问题研究专家论坛12日在广州开幕。
 
-事情曝光后，呼和浩特市医保局和市场监管部门介入查实：供货商早在3月就已降价补差，药店却在5月销售时仍按原进货价定价，直到患者投诉才退还差价。
+来自中国、澳大利亚、印度尼西亚、马来西亚、泰国等16个APEC经济体的近百位专家学者，围绕“中国的发展与亚太的共同未来”这一主题展开研讨。
 
-目前，该市医保部门已对涉事药店主要负责人进行约谈，并对相关责任人予以医保支付资格记分处理；市场监管部门已行政立案，处理结果将及时向社会公布。
+该论坛由暨南大学联合中山大学、广东外语外贸大学举办。
 
-一边接受供货商的降价补差，一边又按原来的高价销售，被质疑后竟谎称不知集采降价、未接到调价通知，涉事药店这种“闷声发财”和“揣着明白装糊涂”的做法，吃相实在难看。
+中国工程院院士、暨南大学校长邢锋在开幕式致辞时表示，中国作为APEC坚定的参与者、建设者和贡献者，始终倡导构建亚太命运共同体。
 
-药品集采的核心逻辑是以量换价，国家通过集中带量采购，让大量常用药、救命药价格大幅下降，减轻患者负担。
+此次论坛聚焦携手应对挑战、共享发展机遇，旨在为亚太合作注入更多理性声音与建设性方案。
 
-这项政策成果来之不易，然而政策在执行时遭遇了梗阻，部分药店利用患者急需用药、信息不对称等因素，把政策红利截留为自家利润。
+上海国际问题研究院学术咨询委员会主任、研究员杨洁勉发表主旨演讲时称，如今很多国家不仅关注经济增长，更希望寻求平衡、综合性、全面的发展。
 
-更值得警惕的是，报道中提到，国家医保局的线上比价小程序里，部分商家公示的同款药品售价仍高达4000元左右，说明“应调未调”现象在一定范围内存在。
+只有稳定的关系才能让APEC经济体携手前行，而构建人类命运共同体是达成合作共识的基础。
 
-集采降价后，药店手里的高价库存确实面临亏损风险。
+在大会发言环节，与会专家学者就APEC机制改革、亚太生产网络重构、中美俄与APEC未来走向、全球发展倡议与亚太合作等议题分享前沿研究成果。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 18:32 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 18:52 - [看大国重器“云端穿针引线”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 18:40 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 18:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 18:31 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 18:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 18:49 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 18:40 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 18:34 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-29 18:33 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 18:40 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 18:55 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 18:37 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 18:45 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 18:44 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 19:01 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 18:39 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 19:02 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 18:44 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 18:59 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 18:54 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 18:41 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 19:01 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 18:40 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 19:05 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
+- 2026-06-29 18:58 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:41 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/44896843.shtml)
-- 2026-06-29 18:56 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/1637971353.shtml)
-- 2026-06-29 18:57 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/31853.shtml)
-- 2026-06-29 18:54 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/8835267566.shtml)
-- 2026-06-29 18:37 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/583325333.shtml)
-- 2026-06-29 18:50 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/52695638.shtml)
-- 2026-06-29 18:32 - [人类对空调和其他家电有多双标](https://www.share.minike.top/Article/details/91591870.shtml)
-- 2026-06-29 18:53 - [小说《无悔追踪》翻红](http://www.share.kurohicncr.top/Article/details/6787335.shtml)
-- 2026-06-29 18:50 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/79052773.shtml)
-- 2026-06-29 18:33 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/06870722691.shtml)
-- 2026-06-29 18:52 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/13360775381.shtml)
-- 2026-06-29 18:53 - [张雪机车杀向海外](http://www.blog.minike.top/Article/details/5684711097.shtml)
-- 2026-06-29 18:46 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/6007180065.shtml)
-- 2026-06-29 18:30 - [湖南耒阳“轮椅女孩”高考546分](https://www.share.minike.top/Article/details/27804844.shtml)
-- 2026-06-29 18:57 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/49760562215.shtml)
+- 2026-06-29 18:48 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/96293692.shtml)
+- 2026-06-29 19:01 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/36964619.shtml)
+- 2026-06-29 19:03 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/1237053.shtml)
+- 2026-06-29 18:56 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/9330235564.shtml)
+- 2026-06-29 19:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/1491385.shtml)
+- 2026-06-29 18:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/330272375098.shtml)
+- 2026-06-29 18:54 - [叠纸客服回应恋与深空新角色争议](https://www.blog.minike.top/Article/details/7545134750.shtml)
+- 2026-06-29 18:37 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/2150899108.shtml)
+- 2026-06-29 18:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/4434657.shtml)
+- 2026-06-29 18:51 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/810349.shtml)
+- 2026-06-29 18:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/71698661562.shtml)
+- 2026-06-29 18:58 - [伊朗足球队将启程回国](http://www.blog.kurohicncr.top/Article/details/12495182400.shtml)
+- 2026-06-29 18:40 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/9107376637.shtml)
+- 2026-06-29 19:01 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/30371.shtml)
+- 2026-06-29 19:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/074231599.shtml)

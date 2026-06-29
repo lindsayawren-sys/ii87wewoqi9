@@ -1,57 +1,56 @@
-# 在美上市的新兴市场ETF再遭撤资 韩国流出最多
+# 中国船舶股份2025年年度股东会顺利召开
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-上周，投资者连续第二周从投资新兴市场股票和债券的交易所交易基金（ETF）撤资。 汇编的数据显示，截至5月29日当周，在美国上市、投资于多个发展中国家以及特定国家的新兴市场ETF资金流出总额为14.4亿美元，前一周为流出13亿美元。今年迄今，资金流入总额为413亿美元。 分市场看，韩国资金流出规模最大，为7.355亿美元。 阿根廷资金流入规模最大，为4110万美元。责任编辑：李桐
+2026年6月10日，中国船舶股份在上海召开2025年年度股东会。中船集团党组成员、副总经理、中国船舶股份董事长胡贤甫主持会议，公司董事、高管以及多位公司股东、股东代理人出席会议。本次股东会采用现场及网络投票相结合的方式召开并表决，出席会议的股东及股东授权代表共4,101人，累计代表的股份总数为46.15亿股，占公司总股本的61.32%。会议审议了公司2025年度董事会报告、2
 
 ## 正文
 
-上周，投资者连续第二周从投资新兴市场股票和债券的交易所交易基金（ETF）撤资。
+2026年6月10日，中国船舶股份在上海召开2025年年度股东会。
 
-汇编的数据显示，截至5月29日当周，在美国上市、投资于多个发展中国家以及特定国家的新兴市场ETF资金流出总额为14.4亿美元，前一周为流出13亿美元。
+中船集团党组成员、副总经理、中国船舶股份董事长胡贤甫主持会议，公司董事、高管以及多位公司股东、股东代理人出席会议。
 
-今年迄今，资金流入总额为413亿美元。
+本次股东会采用现场及网络投票相结合的方式召开并表决，出席会议的股东及股东授权代表共4,101人，累计代表的股份总数为46.15亿股，占公司总股本的61.32%。
 
-分市场看，韩国资金流出规模最大，为7.355亿美元。
+会议审议了公司2025年度董事会报告、2025年度利润分配方案及公司2026年中期分红安排等九项议案，均以99.5%以上的高赞成率审议通过。
 
-阿根廷资金流入规模最大，为4110万美元。
+同时，会议还听取了公司独立董事的年度述职。
 
-责任编辑：李桐
+本次会议受到众多股东及股东代表的高度关注和积极参与。
+
+在会议现场，股东们围绕船舶工业发展与公司生产经营情况，与公司董事、管理层进行了充分交流。
+
+股东们对公司2025年吸并重组后的整合质效和全年取得的经营发展成果给予了充分肯定，对公司后续的高质量可持续发展充满信心，同时，也给公司提出了许多宝贵的意见和建议。
 
 ## 相关推荐
 
-- 2026-06-29 18:53 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 18:58 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 18:54 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 18:34 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 18:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 18:32 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 18:57 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 18:37 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 18:54 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 18:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 18:43 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 18:37 - [税务总局披露5起合规申报个税案例](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 18:46 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 18:33 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-29 18:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 19:05 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 18:45 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 18:40 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 18:43 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 18:54 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 18:58 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 18:41 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 18:59 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 18:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 18:52 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:51 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/9026837.shtml)
-- 2026-06-29 18:41 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/232875850976.shtml)
-- 2026-06-29 18:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/34444748946.shtml)
-- 2026-06-29 18:37 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/211530746.shtml)
-- 2026-06-29 18:31 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/0551593.shtml)
-- 2026-06-29 18:43 - [这一刀 会很帅](https://www.share.minike.top/Article/details/944655061.shtml)
-- 2026-06-29 18:53 - [女心理师](https://www.blog.minike.top/Article/details/739925.shtml)
-- 2026-06-29 18:45 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/01233666.shtml)
-- 2026-06-29 18:56 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/7389682.shtml)
-- 2026-06-29 18:43 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/528233.shtml)
-- 2026-06-29 18:40 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/692825943490.shtml)
-- 2026-06-29 18:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/67925.shtml)
-- 2026-06-29 18:33 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/324687836.shtml)
-- 2026-06-29 18:41 - [存储三巨头被告了](https://www.share.minike.top/Article/details/714998.shtml)
-- 2026-06-29 18:50 - [当我回母校教书](http://www.share.minike.top/Article/details/9621432.shtml)
+- 2026-06-29 18:36 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/21993886.shtml)
+- 2026-06-29 18:50 - [大学专业未来如何洗牌](https://www.blog.kurohicncr.top/Article/details/89060.shtml)
+- 2026-06-29 18:58 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/81856.shtml)
+- 2026-06-29 18:44 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/591124231.shtml)
+- 2026-06-29 18:42 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/63728375038.shtml)
+- 2026-06-29 18:42 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/31165010670.shtml)
+- 2026-06-29 18:43 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/056089178.shtml)
+- 2026-06-29 19:01 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/06029.shtml)
+- 2026-06-29 18:55 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/6133791.shtml)
+- 2026-06-29 19:04 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/440279694965.shtml)
+- 2026-06-29 18:43 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/68814.shtml)
+- 2026-06-29 18:47 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/759864.shtml)
+- 2026-06-29 18:53 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/27141119.shtml)
+- 2026-06-29 18:56 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/10900702.shtml)
+- 2026-06-29 18:59 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/3211966.shtml)

@@ -1,50 +1,55 @@
-# 伊媒：霍尔木兹海峡通行许可已开放申请
+# 广播公司SRF预测瑞士选民投票否决了人口上限提案
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰6月2日电伊朗媒体2日报道称，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可在全天24小时任何时段提交通行申请。 据报道，船方可通过管理机构设立的电子系统提交霍尔木兹海峡通航申请。审核通过后，船舶将获得通行许可。（完）责任编辑：宋雅芳
+瑞士可能已经否决了一项将人口上限设定在1，000万的提议。这项激进的提议如果获通过，将标志着世界各地富裕国家加大力度严格限制移民。 在周日投票结束后公共广播公司SRF做出预测，预计结果为55%反对，45%赞成。 截至苏黎世时间下午12：37，全国26个州中17个州的初步结果显示，反对一方略微领先，得票率为53.3%。目前公布的结果涵盖了城市和乡村地区，包括苏黎世、卢塞恩和圣加仑
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+瑞士可能已经否决了一项将人口上限设定在1，000万的提议。
 
-新华社德黑兰6月2日电伊朗媒体2日报道称，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可在全天24小时任何时段提交通行申请。
+这项激进的提议如果获通过，将标志着世界各地富裕国家加大力度严格限制移民。
 
-据报道，船方可通过管理机构设立的电子系统提交霍尔木兹海峡通航申请。
+在周日投票结束后公共广播公司SRF做出预测，预计结果为55%反对，45%赞成。
 
-审核通过后，船舶将获得通行许可。
+截至苏黎世时间下午12：37，全国26个州中17个州的初步结果显示，反对一方略微领先，得票率为53.3%。
 
-（完）责任编辑：宋雅芳
+目前公布的结果涵盖了城市和乡村地区，包括苏黎世、卢塞恩和圣加仑。
+
+一些重要的乡村地区尚未公布计票结果。
+
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 18:47 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 18:32 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 18:36 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 18:50 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 18:43 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 18:50 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-29 18:54 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 18:48 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 18:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 18:59 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 18:52 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 18:52 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 19:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 19:04 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 18:40 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 18:41 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 18:50 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 18:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-29 18:45 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 18:51 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/108060.shtml)
-- 2026-06-29 18:34 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/905231921.shtml)
-- 2026-06-29 18:53 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/5709341.shtml)
-- 2026-06-29 18:56 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/89824808796.shtml)
-- 2026-06-29 18:42 - [博主：比亚迪赢了销量却输给资本](http://www.share.minike.top/Article/details/3391510476.shtml)
-- 2026-06-29 18:51 - [CORTIS 小牌大耍](http://www.blog.minike.top/Article/details/5426641.shtml)
-- 2026-06-29 18:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/839495.shtml)
-- 2026-06-29 18:37 - [三星SK海力士和美光在美遭反垄断诉讼](https://www.share.minike.top/Article/details/94913640867.shtml)
-- 2026-06-29 18:55 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/608976308.shtml)
-- 2026-06-29 18:42 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/649878.shtml)
-- 2026-06-29 18:52 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/056056.shtml)
-- 2026-06-29 18:56 - [王俊凯命名方式](https://www.share.minike.top/Article/details/15320.shtml)
-- 2026-06-29 18:53 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/541065.shtml)
-- 2026-06-29 18:35 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/456857365106.shtml)
-- 2026-06-29 18:47 - [德国医生在没有空调的手术室工作](https://www.blog.kurohicncr.top/Article/details/1278978.shtml)
+- 2026-06-29 19:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/716851734.shtml)
+- 2026-06-29 18:54 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/379681.shtml)
+- 2026-06-29 18:44 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/22664.shtml)
+- 2026-06-29 19:01 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/4121063991.shtml)
+- 2026-06-29 18:50 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/92201.shtml)
+- 2026-06-29 18:58 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/2483485.shtml)
+- 2026-06-29 18:53 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/8227274925.shtml)
+- 2026-06-29 18:38 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/4356736793.shtml)
+- 2026-06-29 19:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/588739213628.shtml)
+- 2026-06-29 18:52 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.minike.top/Article/details/58530.shtml)
+- 2026-06-29 18:58 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/025552.shtml)
+- 2026-06-29 18:47 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/596235943.shtml)
+- 2026-06-29 18:45 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/667789.shtml)
+- 2026-06-29 18:37 - [娜扎搂着我的腰和我合照](http://www.share.minike.top/Article/details/2173585327.shtml)
+- 2026-06-29 18:59 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/74199037.shtml)

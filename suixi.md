@@ -1,49 +1,56 @@
-# 快讯：现货白银日内涨超2%，现报76.33美元/盎司
+# 海南新质生产力成型见势 “五向图强”多点开花
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-现货白银日内涨超2%，现报76.33美元/盎司。纽约期银日内涨幅扩大至2%，现报76.76美元/盎司。 责任编辑：朱赫楠
+发布时间：2026年06月12日 21:22 来源：中国新闻网 6月12日，第四届中国国际供应链促进博览会海南主宾省活动新闻发布会在海口举行。 海南省发展和改革委员会办公室主任王春壮在会上介绍，海南新质生产力成型见势。“向种图强”快步前行，崖州湾实验室挂牌成立，崖州湾科技城聚集中国科学院、中国农科院等25家科研院所，注册种业企业超2800家，产值连续3年翻番。 “向海图强”全面
 
 ## 正文
 
-现货白银日内涨超2%，现报76.33美元/盎司。
+发布时间：2026年06月12日 21:22 来源：中国新闻网 6月12日，第四届中国国际供应链促进博览会海南主宾省活动新闻发布会在海口举行。
 
-纽约期银日内涨幅扩大至2%，现报76.76美元/盎司。
+海南省发展和改革委员会办公室主任王春壮在会上介绍，海南新质生产力成型见势。
 
-责任编辑：朱赫楠
+“向种图强”快步前行，崖州湾实验室挂牌成立，崖州湾科技城聚集中国科学院、中国农科院等25家科研院所，注册种业企业超2800家，产值连续3年翻番。
+
+“向海图强”全面推进，依托深海科技等重大专项，汇聚深海领域科研“国家队”和龙头企业，推进海洋油气、海上风电等加快兴起。
+
+2025年海洋生产总值占GDP的比重达到35.9%。
+
+“向天图强”实现突破，全国首个商业航天发射场建成并具备双工位发射能力，连续16次成功发射。
+
+“向绿图强”进展明显，清洁能源装机比重达到87%，位居全国前列。
+
+新能源汽车市场渗透率64.4%，位居全国第一。
 
 ## 相关推荐
 
-- 2026-06-29 18:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 18:35 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 18:58 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 18:49 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 18:37 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 18:54 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 18:36 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 18:33 - [韩国小学生都来吐槽了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 18:50 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 18:39 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 18:35 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 18:44 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 18:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 18:47 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 18:36 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 18:51 - [章若楠包场白敬亭特立独行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 18:45 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 18:50 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 19:00 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 18:37 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 19:01 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-29 19:05 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 18:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:42 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/861985.shtml)
-- 2026-06-29 18:54 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/84368.shtml)
-- 2026-06-29 18:53 - [存储三巨头被告了](https://www.share.minike.top/Article/details/406148.shtml)
-- 2026-06-29 18:30 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/9331257.shtml)
-- 2026-06-29 18:34 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/182539010.shtml)
-- 2026-06-29 18:50 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/98386.shtml)
-- 2026-06-29 18:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/388222274672.shtml)
-- 2026-06-29 18:43 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/04958687.shtml)
-- 2026-06-29 18:51 - [日媒：日本高价采购“战斧”变冤大头](https://www.blog.minike.top/Article/details/65956.shtml)
-- 2026-06-29 18:58 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/63491861817.shtml)
-- 2026-06-29 18:46 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/8217554.shtml)
-- 2026-06-29 18:54 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/3869178876.shtml)
-- 2026-06-29 18:51 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/306073.shtml)
-- 2026-06-29 18:30 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/468107186465.shtml)
-- 2026-06-29 18:58 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/91851.shtml)
+- 2026-06-29 18:55 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/96609.shtml)
+- 2026-06-29 18:37 - [葛军透露高考出题思路](http://www.share.minike.top/Article/details/63788.shtml)
+- 2026-06-29 18:51 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/163503513.shtml)
+- 2026-06-29 19:02 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/466417360.shtml)
+- 2026-06-29 18:49 - [滚石点名酒店员工说有急救培训](https://www.blog.kurohicncr.top/Article/details/8674001090.shtml)
+- 2026-06-29 19:05 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/05992679.shtml)
+- 2026-06-29 19:05 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/663197.shtml)
+- 2026-06-29 18:51 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/47466918.shtml)
+- 2026-06-29 18:50 - [河南高院审委会原委员曲海滨被查](http://www.blog.kurohicncr.top/Article/details/66832.shtml)
+- 2026-06-29 18:57 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.minike.top/Article/details/123799315892.shtml)
+- 2026-06-29 18:52 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/646204171631.shtml)
+- 2026-06-29 18:57 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/78238343.shtml)
+- 2026-06-29 18:37 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/187937448.shtml)
+- 2026-06-29 18:50 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/639399.shtml)
+- 2026-06-29 18:59 - [学者：建设性战略稳定重塑中美关系](https://www.blog.kurohicncr.top/Article/details/8732827019.shtml)

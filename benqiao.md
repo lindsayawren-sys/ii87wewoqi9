@@ -1,61 +1,47 @@
-# 易事特（300376）投资者索赔部分案件再获赔到位，还在索赔时效
+# 伊朗：伊斯兰堡备忘录不会在周日签署
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-2026年6月1日，上海久诚律师事务所股票索赔律师许峰代理的部分易事特（维权）（300376）投资者索赔案再次获赔到位，已经收到赔偿款，近期将结案。此外2026年5月29日，许峰律师再代理投资者提交一次法院立案。（许峰律师专栏） 许峰律师提示，易事特投资者索赔案已有胜诉判决，此前部分投资者收到赔偿款，已经获赔到位。许峰律师代理的易事特投资者索赔案此前已有调解获赔，律师团队同步还
+据伊朗官方媒体周六报道，伊朗外交部发言人巴加埃表示，伊斯兰堡备忘录的具体签署时间不会是周日。 巴加埃表示，不能排除未来几天签署伊斯兰堡备忘录的可能性，但他补充说，鉴于对方态度犹豫，对签署日期作任何评论都需谨慎。责任编辑：李桐
 
 ## 正文
 
-2026年6月1日，上海久诚律师事务所股票索赔律师许峰代理的部分易事特（维权）（300376）投资者索赔案再次获赔到位，已经收到赔偿款，近期将结案。
+据伊朗官方媒体周六报道，伊朗外交部发言人巴加埃表示，伊斯兰堡备忘录的具体签署时间不会是周日。
 
-此外2026年5月29日，许峰律师再代理投资者提交一次法院立案。
+巴加埃表示，不能排除未来几天签署伊斯兰堡备忘录的可能性，但他补充说，鉴于对方态度犹豫，对签署日期作任何评论都需谨慎。
 
-（许峰律师专栏） 许峰律师提示，易事特投资者索赔案已有胜诉判决，此前部分投资者收到赔偿款，已经获赔到位。
-
-许峰律师代理的易事特投资者索赔案此前已有调解获赔，律师团队同步还在推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
-
-2024年12月31日晚，易事特公告收到证监会《行政处罚决定书》，经查明，当事人存在以下违法事实： 一、易事特通过开展虚假贸易业务虚增营业收入、营业成本、利润总额。
-
-二、易事特通过开展具有融资性质的代采业务和代理业务虚增营业收入、营业成本。
-
-三、易事特通过开展具有融资性质的数据中心集成业务虚增营业收入、营业成本。
-
-综上，易事特通过上述不具有商业实质的虚假贸易业务、融资性代采业务、代理业务和数据中心集成业务虚增营业收入、营业成本、利润总额，导致易事特披露的2017年至2021年年度报告存在虚假记载。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 18:49 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 18:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 18:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 18:58 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 18:57 - [波兰创该国高温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 18:54 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 18:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 18:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 18:38 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 18:59 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 18:44 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 18:42 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 18:57 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 18:37 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 18:47 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 18:49 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 18:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 19:02 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 18:53 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 19:01 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 18:47 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 18:52 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 18:37 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 18:42 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 19:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 18:48 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:56 - [大学专业未来如何洗牌](https://www.share.minike.top/Article/details/5664262158.shtml)
-- 2026-06-29 18:43 - [朱必达辞去湖南人大常委会委员职务](http://www.blog.minike.top/Article/details/0196606.shtml)
-- 2026-06-29 18:31 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/614404511306.shtml)
-- 2026-06-29 18:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/713753678.shtml)
-- 2026-06-29 18:52 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/3271885.shtml)
-- 2026-06-29 18:34 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/03328.shtml)
-- 2026-06-29 18:45 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/877538.shtml)
-- 2026-06-29 18:58 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/8426102.shtml)
-- 2026-06-29 18:52 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/04747.shtml)
-- 2026-06-29 18:35 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/052532210954.shtml)
-- 2026-06-29 18:57 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/01744312.shtml)
-- 2026-06-29 18:53 - [沙丘](http://www.share.minike.top/Article/details/6915667.shtml)
-- 2026-06-29 18:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/49353128161.shtml)
-- 2026-06-29 18:56 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/679391613.shtml)
-- 2026-06-29 18:46 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/645092.shtml)
+- 2026-06-29 18:57 - [时光音乐会](https://www.blog.minike.top/Article/details/2220496534.shtml)
+- 2026-06-29 18:55 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/86994722571.shtml)
+- 2026-06-29 19:05 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/784375776.shtml)
+- 2026-06-29 18:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/8166629528.shtml)
+- 2026-06-29 18:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/29433293.shtml)
+- 2026-06-29 19:02 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/94364.shtml)
+- 2026-06-29 18:39 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/576775452.shtml)
+- 2026-06-29 18:47 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/763063.shtml)
+- 2026-06-29 18:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/9437716916.shtml)
+- 2026-06-29 18:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/7761270.shtml)
+- 2026-06-29 18:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/145513921411.shtml)
+- 2026-06-29 18:40 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/33500434.shtml)
+- 2026-06-29 19:05 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/21953821478.shtml)
+- 2026-06-29 18:42 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/89080459858.shtml)
+- 2026-06-29 19:05 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/729283866948.shtml)

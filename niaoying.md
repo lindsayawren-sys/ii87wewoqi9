@@ -1,56 +1,58 @@
-# 尾盘：美股涨跌不一 道指与标普指数创盘中新高
+# 海派中医非遗传承吉祥物“泽灵”在沪首发
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-北京时间6月3日凌晨，美股周二尾盘涨跌不，道指与标普500指数再创盘中新高。交易员密切关注美伊关系最新进展以及主要科技股的走势。 道指涨224.87点，涨幅为0.44%，报51303.75点；纳指跌34.41点，跌幅为0.13%，报27052.40点；标普500指数涨4.18点，涨幅为0.06%，报7604.14点。 Marvell Technology大涨15%，此前英伟达C
+中新网上海6月13日电 (记者 陈静)记者13日获悉，上海首个海派中医非遗传承吉祥物“泽灵”正式发布。上海市中医文献馆馆长贾杨接受采访时表示，“泽灵”的形象源于中国古代神兽白泽。 据古籍记载，白泽通体雪白，能通晓天下事，识诸多精怪，懂万物语言，并能降妖除魔。据传，黄帝曾得其相助治理天下，寓意“泽被万灵”。同时，白泽还象征聪明才智。“我们将神话意象转化为中医内涵——识别妖怪即辨识
 
 ## 正文
 
-北京时间6月3日凌晨，美股周二尾盘涨跌不，道指与标普500指数再创盘中新高。
+中新网上海6月13日电 (记者 陈静)记者13日获悉，上海首个海派中医非遗传承吉祥物“泽灵”正式发布。
 
-交易员密切关注美伊关系最新进展以及主要科技股的走势。
+上海市中医文献馆馆长贾杨接受采访时表示，“泽灵”的形象源于中国古代神兽白泽。
 
-道指涨224.87点，涨幅为0.44%，报51303.75点；纳指跌34.41点，跌幅为0.13%，报27052.40点；标普500指数涨4.18点，涨幅为0.06%，报7604.14点。
+据古籍记载，白泽通体雪白，能通晓天下事，识诸多精怪，懂万物语言，并能降妖除魔。
 
-Marvell Technology大涨15%，此前英伟达CEO黄仁勋表示，这家半导体公司有望成为下一家万亿美元市值的公司。
+据传，黄帝曾得其相助治理天下，寓意“泽被万灵”。
 
-黄仁勋指出：“当你把一个计算问题分解成许多部分，并分布到整个数据中心时，连接性是必不可少的。
+同时，白泽还象征聪明才智。
 
-这就是Marvell如此重要的原因。
+“我们将神话意象转化为中医内涵——识别妖怪即辨识病魔，降妖除魔即祛病延年。
 
-” 费城半导体指数上涨4%。
+”贾杨表示。
 
-此外，慧与科技股价飙升17%，此前这家科技公司对本季度发布了乐观展望，并上调了全年业绩指引，远超华尔街预期。
+据透露，在“泽灵”的设计上，上海市中医文献馆融入五行元素——木(身披绿色藤蔓)代表草药；火(红色犄角)象征智慧与进取；土(黄色灵芝头饰)寓意中医扎根厚土、坚守初心；金(通体洁白)对应医者的白衣，象征纯洁；水(黑色爪子)寓意润泽万物，步履不停。
 
 ## 相关推荐
 
-- 2026-06-29 18:54 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-29 18:56 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 18:54 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 18:53 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 18:31 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 18:41 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-29 18:32 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 18:45 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 18:36 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 18:34 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 18:53 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 18:50 - [中国空间站为什么要升级扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 19:05 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 18:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 18:57 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 18:55 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 19:02 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-29 18:46 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 18:42 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 18:59 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 18:58 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 18:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:35 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.kurohicncr.top/Article/details/1311050919.shtml)
-- 2026-06-29 18:50 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/02545315.shtml)
-- 2026-06-29 18:41 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/44317306.shtml)
-- 2026-06-29 18:58 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.kurohicncr.top/Article/details/8290243.shtml)
-- 2026-06-29 18:58 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/347763537.shtml)
-- 2026-06-29 18:55 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/1038477380.shtml)
-- 2026-06-29 18:30 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/77176.shtml)
-- 2026-06-29 18:53 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/774277.shtml)
-- 2026-06-29 18:44 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/02647.shtml)
-- 2026-06-29 18:37 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/478237.shtml)
-- 2026-06-29 18:54 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/173128196409.shtml)
-- 2026-06-29 18:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/7783139.shtml)
-- 2026-06-29 18:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/9875478.shtml)
-- 2026-06-29 18:51 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/89218.shtml)
-- 2026-06-29 18:45 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/52599041674.shtml)
+- 2026-06-29 18:53 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/6417496718.shtml)
+- 2026-06-29 18:54 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/55989886.shtml)
+- 2026-06-29 19:00 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/31975320.shtml)
+- 2026-06-29 18:56 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/531783094279.shtml)
+- 2026-06-29 18:37 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/85340451.shtml)
+- 2026-06-29 18:54 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/802566177.shtml)
+- 2026-06-29 18:44 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/19985838.shtml)
+- 2026-06-29 18:40 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/829195863.shtml)
+- 2026-06-29 18:56 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.share.kurohicncr.top/Article/details/69617759022.shtml)
+- 2026-06-29 18:55 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/269083.shtml)
+- 2026-06-29 18:38 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/375603.shtml)
+- 2026-06-29 18:40 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/03219.shtml)
+- 2026-06-29 18:43 - [霍尔木兹海峡风波再起 油价走向何方](http://www.blog.kurohicncr.top/Article/details/22726681.shtml)
+- 2026-06-29 18:55 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/285033.shtml)
+- 2026-06-29 18:48 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/64447.shtml)

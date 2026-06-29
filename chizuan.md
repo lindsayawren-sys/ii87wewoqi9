@@ -1,59 +1,57 @@
-# TOPSTANDARDCORP拟折让20.0%配售共6250万股认购股份 净筹约990万港元
+# 特朗普称美伊协议计划14日签署
 
-> 更新时间：2026-06-29 19:00:02 UTC+8
+> 更新时间：2026-06-29 19:06:02 UTC+8
 
 ## 摘要
 
-TOPSTANDARDCORP（08510）发布公告，于2026年6月1日（联交所交易时段后），本公司（作为发行人）与各认购人订立两份独立认购协议，据此，认购人有条件同意认购而本公司有条件同意配发及发行合共6250万股认购股份，认购价为每股认购股份0.16港元。 假设于本公告日期至完成日期止期间，本公司已发行股本并无任何变动，则认购股份相当于（i）本公司于本公告日期现有已发行股
+美国总统特朗普13日在社交媒体发文说，美国和伊朗定于14日签署协议，霍尔木兹海峡将在协议签署后立即开放。 特朗普称，伊朗已不再寻求拥有核武器，也不会购买、自主研发或以任何其他方式获取核武器。待局势平稳后，美国将择机采取行动取出“埋藏”在山体下的浓缩铀，并对其进行稀释处理与销毁，“无论是在伊朗境内还是在美国本土”。 特朗普还表示“希望这一进程能迅速、轻松且顺利地推进”，但同时威胁
 
 ## 正文
 
-TOPSTANDARDCORP（08510）发布公告，于2026年6月1日（联交所交易时段后），本公司（作为发行人）与各认购人订立两份独立认购协议，据此，认购人有条件同意认购而本公司有条件同意配发及发行合共6250万股认购股份，认购价为每股认购股份0.16港元。
+美国总统特朗普13日在社交媒体发文说，美国和伊朗定于14日签署协议，霍尔木兹海峡将在协议签署后立即开放。
 
-假设于本公告日期至完成日期止期间，本公司已发行股本并无任何变动，则认购股份相当于（i）本公司于本公告日期现有已发行股本约26.2%；及（ii）本公司经配发及发行总认购股份扩大后的已发行股本约20.7%。
+特朗普称，伊朗已不再寻求拥有核武器，也不会购买、自主研发或以任何其他方式获取核武器。
 
-每股认购股份0.16港元的认购价较股份于2026年6月1日在联交所所报的收市价每股0.2港元折让20.0%。
+待局势平稳后，美国将择机采取行动取出“埋藏”在山体下的浓缩铀，并对其进行稀释处理与销毁，“无论是在伊朗境内还是在美国本土”。
 
-假设所有认购股份获悉数认购，认购事项的所得款项总额为1000万港元。
+特朗普还表示“希望这一进程能迅速、轻松且顺利地推进”，但同时威胁道，“若事与愿违，我们手中还握有终极手段”。
 
-认购事项的所得款项净额（经扣除所有相关开支后）估计约为990万港元，相当于每股认购股份净价约 0.158港元。
+巴基斯坦外交部13日发表声明说，巴基斯坦副总理兼外交部长达尔当天与沙特阿拉伯外交大臣费萨尔通电话。
 
-本公司拟透过配售事项筹集所得款项总额约1000万港元。
+美国与伊朗相关协议电子签署仪式定于14日举行。
 
-所得款项净额（经扣除相关费用及佣金后）拟用作以下用途： 采购及安装设备600万港元；采购蘑菇孢子100万港元；租金开支 100万港元；营运资金200万港元。
-
-责任编辑：卢昱君
+(央视记者 刘旭)
 
 ## 相关推荐
 
-- 2026-06-29 18:36 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 18:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 18:48 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 18:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 18:58 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 18:42 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
-- 2026-06-29 18:56 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 18:57 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 18:40 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 18:59 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 18:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 18:37 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 18:59 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 18:45 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 18:37 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 18:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 18:38 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 18:52 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 18:38 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 18:48 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 19:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 18:41 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 18:55 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 18:53 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 18:38 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 18:52 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 18:58 - [大六座SUV进入黄金时代](http://www.blog.minike.top/Article/details/72239175.shtml)
-- 2026-06-29 18:33 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/8862724007.shtml)
-- 2026-06-29 18:58 - [一生一世](http://www.blog.minike.top/Article/details/5816805.shtml)
-- 2026-06-29 18:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/4967557.shtml)
-- 2026-06-29 18:35 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.share.minike.top/Article/details/239206.shtml)
-- 2026-06-29 18:31 - [媒体：日本边磨刀边要货是做梦](http://www.blog.minike.top/Article/details/54898057397.shtml)
-- 2026-06-29 18:45 - [大学专业未来如何洗牌](http://www.blog.kurohicncr.top/Article/details/00276232432.shtml)
-- 2026-06-29 18:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/97414620490.shtml)
-- 2026-06-29 18:54 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/84363.shtml)
-- 2026-06-29 18:39 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/04698611.shtml)
-- 2026-06-29 18:52 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.kurohicncr.top/Article/details/16928.shtml)
-- 2026-06-29 18:55 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/00952710618.shtml)
-- 2026-06-29 18:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/75269193465.shtml)
-- 2026-06-29 18:56 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/93247214620.shtml)
-- 2026-06-29 18:38 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/3797759520.shtml)
+- 2026-06-29 18:51 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/198048737714.shtml)
+- 2026-06-29 19:04 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/813706895.shtml)
+- 2026-06-29 18:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/891506334.shtml)
+- 2026-06-29 18:46 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/16233.shtml)
+- 2026-06-29 19:03 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/2242169265.shtml)
+- 2026-06-29 18:49 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/176931360289.shtml)
+- 2026-06-29 18:49 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/061256228464.shtml)
+- 2026-06-29 18:52 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/34065196.shtml)
+- 2026-06-29 18:46 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.minike.top/Article/details/8092590602.shtml)
+- 2026-06-29 18:43 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/14796.shtml)
+- 2026-06-29 18:42 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/25767.shtml)
+- 2026-06-29 18:39 - [当地回应林区违规放羊遭豹啃食](http://www.share.minike.top/Article/details/365393.shtml)
+- 2026-06-29 18:37 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/043619698984.shtml)
+- 2026-06-29 18:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/3262239.shtml)
+- 2026-06-29 18:55 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.minike.top/Article/details/898131550.shtml)
