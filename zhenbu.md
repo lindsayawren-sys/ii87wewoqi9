@@ -1,46 +1,60 @@
-# 快讯：股指期货震荡下行 中证500股指期货（IC）主力合约跌2.1%
+# 广西“县超”总决赛 柳州市柳南区队点球大战夺冠
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-2026年5月14日，股指期货震荡下行，沪深300股指期货（IF）主力合约跌1.44%，上证50股指期货（IH）主力合约跌1.38%，中证500股指期货（IC）主力合约跌2.1%，中证1000股指期货（IM）主力合约跌1.64%。 责任编辑：赵思远
+中新网柳州5月17日电 (林馨)5月16日晚，“国控杯”2025—2026年广西县级足球超级联赛(简称：广西“县超”)总决赛在广西柳州市体育中心举行。主场作战的柳州市柳南区队与北海市海城区队鏖战至点球大战，最终柳州市柳南区队以5：4险胜，夺得广西县级足球超级联赛总冠军奖杯。 当晚，在全场球迷的高声呐喊中，决赛拉开帷幕。上半场双方互有攻守，但均未能打破僵局，以0：0结束。下半场中
 
 ## 正文
 
-2026年5月14日，股指期货震荡下行，沪深300股指期货（IF）主力合约跌1.44%，上证50股指期货（IH）主力合约跌1.38%，中证500股指期货（IC）主力合约跌2.1%，中证1000股指期货（IM）主力合约跌1.64%。
+中新网柳州5月17日电 (林馨)5月16日晚，“国控杯”2025—2026年广西县级足球超级联赛(简称：广西“县超”)总决赛在广西柳州市体育中心举行。
 
-责任编辑：赵思远
+主场作战的柳州市柳南区队与北海市海城区队鏖战至点球大战，最终柳州市柳南区队以5：4险胜，夺得广西县级足球超级联赛总冠军奖杯。
+
+当晚，在全场球迷的高声呐喊中，决赛拉开帷幕。
+
+上半场双方互有攻守，但均未能打破僵局，以0：0结束。
+
+下半场中，两队依旧难分伯仲，比赛被拖入紧张刺激的点球大战。
+
+柳州市柳南区队最终以5：4取胜，将冠军奖杯留在了柳州。
+
+中国资深足球评论员张路现场解说，点评巅峰对决。
+
+他表示，广西“县超”总决赛的较量非常精彩，双方球员顽强拼搏，坚持到底。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 17:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 17:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 17:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-29 17:38 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 17:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 17:37 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 17:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 17:44 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-29 17:19 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 17:23 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 17:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 17:25 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 17:37 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 17:44 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 17:35 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 17:51 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 17:26 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 17:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-29 17:40 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 17:26 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 17:53 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 17:34 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 17:24 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 17:26 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-29 17:31 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/4840866648.shtml)
-- 2026-06-29 17:34 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/08084270.shtml)
-- 2026-06-29 17:28 - [四川地震前夕 街头电线上站满燕子](http://www.share.kurohicncr.top/Article/details/75546.shtml)
-- 2026-06-29 17:40 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/9283568075.shtml)
-- 2026-06-29 17:31 - [税务总局披露5起合规申报个税案例](http://www.blog.kurohicncr.top/Article/details/841957875.shtml)
-- 2026-06-29 17:19 - [极限挑战第一季](http://www.blog.minike.top/Article/details/06317.shtml)
-- 2026-06-29 17:21 - [未成年少女长期吸毒导致卧床不起](https://www.blog.kurohicncr.top/Article/details/835964851.shtml)
-- 2026-06-29 17:22 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/647098.shtml)
-- 2026-06-29 17:34 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/7337812.shtml)
-- 2026-06-29 17:45 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/380187426241.shtml)
-- 2026-06-29 17:25 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/52665719748.shtml)
-- 2026-06-29 17:38 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/2577123.shtml)
-- 2026-06-29 17:43 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/66214.shtml)
-- 2026-06-29 17:18 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/175726024519.shtml)
-- 2026-06-29 17:36 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/847285959.shtml)
+- 2026-06-29 17:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/745037.shtml)
+- 2026-06-29 17:46 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/704369361.shtml)
+- 2026-06-29 17:27 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/2656528622.shtml)
+- 2026-06-29 17:39 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/530184444871.shtml)
+- 2026-06-29 17:32 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/848696.shtml)
+- 2026-06-29 17:44 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/904486.shtml)
+- 2026-06-29 17:40 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/91194337410.shtml)
+- 2026-06-29 17:45 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/937486943.shtml)
+- 2026-06-29 17:37 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/63452359.shtml)
+- 2026-06-29 17:36 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/16241554.shtml)
+- 2026-06-29 17:37 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/912280990.shtml)
+- 2026-06-29 17:25 - [天道](http://www.share.kurohicncr.top/Article/details/73609774100.shtml)
+- 2026-06-29 17:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/00083229570.shtml)
+- 2026-06-29 17:43 - [天道](http://www.share.kurohicncr.top/Article/details/8872927461.shtml)
+- 2026-06-29 17:45 - [学者：建设性战略稳定重塑中美关系](https://www.share.minike.top/Article/details/101152794.shtml)

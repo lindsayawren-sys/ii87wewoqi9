@@ -1,59 +1,57 @@
-# 探访福建福清百年侨厝群：文脉流芳 承载记忆
+# Figma一季度业绩超预期，AI战略驱动强劲反弹
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。 20世纪初，村里的许多男儿下南洋打拼。一封封侨批不断寄回。家书里包裹着的血汗钱，让他们在家乡起了大厝。斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。 下和洋世代重
+Figma公布2026年第一季度财报，营收同比增长46%至3.334亿美元，连续第二个季度实现营收增速加快，高于市场预期的3.132亿美元。调整后每股收益为0.10美元，同样超出华尔街预期的0.06美元。 AI产品成为核心增长引擎 付费客户总数同比增长54%至约69万名，其中年经常性收入超过10万美元的大型客户增长48%，超10万美元客户增长37%。值得注意的是，新转用Pro
 
 ## 正文
 
-发布时间：2026年05月12日 22:19 来源：中国新闻网 福州是全国著名侨乡，侨厝众多，特色鲜明。
+Figma公布2026年第一季度财报，营收同比增长46%至3.334亿美元，连续第二个季度实现营收增速加快，高于市场预期的3.132亿美元。
 
-福清市江镜镇南宵村下和洋自然村保留了一整片连着的侨厝和老民居，传承着一段“尊师重教、耕读传家”的百年佳话。
+调整后每股收益为0.10美元，同样超出华尔街预期的0.06美元。
 
-20世纪初，村里的许多男儿下南洋打拼。
+AI产品成为核心增长引擎 付费客户总数同比增长54%至约69万名，其中年经常性收入超过10万美元的大型客户增长48%，超10万美元客户增长37%。
 
-一封封侨批不断寄回。
+值得注意的是，新转用Pro Team付费方案的用户同比增长超过150%，反映长尾用户持续采用Figma的AI功能。
 
-家书里包裹着的血汗钱，让他们在家乡起了大厝。
+公司于3月18日开始实施AI积分额度限制，超过75%的超额使用组织和企业用户在4月底前继续消费积分，超过95%保持活跃。
 
-斗转星移，这些大厝形成了现在的南宵村下和洋古民居群。
+首席财务官Praveer Melwani将超预期表现归因于“AI产品的广泛采用，包括Figma Make、MCP和Figma Weave”。
 
-下和洋世代重视教育，村里第一代学堂至今保留完好，里头还设置了人物雕像，还原了当时的学习场景。
+上调全年指引，股价逆势大涨 公司将2026年全年营收指引上调5500万美元至14.22亿至14.28亿美元，同比增长约35%。
 
-在这座仅有10多平方米的小学堂里，走出了福清第一位中国科学院院士、著名气象学家高由禧。
+非GAAP运营利润指引亦上调2500万美元。
 
 ## 相关推荐
 
-- 2026-06-29 17:29 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 17:46 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 17:41 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 17:28 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 17:19 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 17:22 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 17:28 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 17:29 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 17:31 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 17:31 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 17:24 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 17:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 17:39 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 17:30 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 17:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-29 17:48 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 17:40 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 17:50 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 17:46 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 17:50 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 17:43 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 17:24 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 17:32 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/343535083550.shtml)
-- 2026-06-29 17:32 - [一见倾心](http://www.share.minike.top/Article/details/335895262267.shtml)
-- 2026-06-29 17:26 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/7161437542.shtml)
-- 2026-06-29 17:42 - [一见倾心](https://www.blog.minike.top/Article/details/561853870.shtml)
-- 2026-06-29 17:29 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/8026701239.shtml)
-- 2026-06-29 17:43 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/24601115168.shtml)
-- 2026-06-29 17:21 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/02478002.shtml)
-- 2026-06-29 17:29 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/6025374016.shtml)
-- 2026-06-29 17:19 - [永远有话聊的原因](http://www.share.kurohicncr.top/Article/details/233133696887.shtml)
-- 2026-06-29 17:18 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/905271620567.shtml)
-- 2026-06-29 17:45 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/1371270.shtml)
-- 2026-06-29 17:27 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/051906595.shtml)
-- 2026-06-29 17:46 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/608801821748.shtml)
-- 2026-06-29 17:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/316511753.shtml)
-- 2026-06-29 17:31 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/852434.shtml)
+- 2026-06-29 17:51 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/7219996.shtml)
+- 2026-06-29 17:49 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/00727.shtml)
+- 2026-06-29 17:28 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/93697288932.shtml)
+- 2026-06-29 17:33 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/151645.shtml)
+- 2026-06-29 17:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/23373871.shtml)
+- 2026-06-29 17:34 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/70537.shtml)
+- 2026-06-29 17:42 - [扫黑风暴](http://www.blog.minike.top/Article/details/5605845536.shtml)
+- 2026-06-29 17:41 - [曝斯塔默有意竞逐下任北约秘书长](http://www.blog.kurohicncr.top/Article/details/982009.shtml)
+- 2026-06-29 17:50 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/183958.shtml)
+- 2026-06-29 17:24 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/42118195616.shtml)
+- 2026-06-29 17:34 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/8327570753.shtml)
+- 2026-06-29 17:50 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/64634.shtml)
+- 2026-06-29 17:32 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/49089789358.shtml)
+- 2026-06-29 17:44 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/540475.shtml)
+- 2026-06-29 17:30 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/1053875648.shtml)

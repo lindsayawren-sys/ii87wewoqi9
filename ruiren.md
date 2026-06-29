@@ -1,60 +1,52 @@
-# 甘肃公安“专业+机制+大数据”守护民众钱袋子
+# 特朗普：热情期待在华盛顿接待习近平主席
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网兰州5月13日电 (杨娜)在第17个全国公安机关打击和防范经济犯罪宣传日来临之际，甘肃省政府新闻办13日举行新闻发布会披露，2025年以来，甘肃全省公安机关共侦办经济犯罪案件2700余起，挽回经济损失28.9亿元，为全省高质量发展提供了坚实的安全保障。甘肃省公安厅常务副厅长、新闻发言人肖春从“猎狐”追逃十年最佳战绩，到全面推进“金析为证”落地应用，在全国首批建成资金分析鉴
+新华社北京5月15日电 美国总统特朗普15日表示，非常感谢习近平主席邀请我到中南海做客。此次访华是一次非常成功的访问，举世瞩目，令人难忘。我愿同习近平主席继续保持诚恳深入沟通，热情期待在华盛顿接待习近平主席。(完)
 
 ## 正文
 
-中新网兰州5月13日电 (杨娜)在第17个全国公安机关打击和防范经济犯罪宣传日来临之际，甘肃省政府新闻办13日举行新闻发布会披露，2025年以来，甘肃全省公安机关共侦办经济犯罪案件2700余起，挽回经济损失28.9亿元，为全省高质量发展提供了坚实的安全保障。
+新华社北京5月15日电 美国总统特朗普15日表示，非常感谢习近平主席邀请我到中南海做客。
 
-甘肃省公安厅常务副厅长、新闻发言人肖春从“猎狐”追逃十年最佳战绩，到全面推进“金析为证”落地应用，在全国首批建成资金分析鉴定中心；从“陇佑”护企安商机制的落地，到金融“黑灰产”集中收网的雷霆行动等方面，介绍了甘肃公安经侦部门护航高质量发展的举措。
+此次访华是一次非常成功的访问，举世瞩目，令人难忘。
 
-在金融领域，甘肃公安机关深挖严打“套路贷”“反催收”“逃废债”等黑灰产，对严重扰乱信贷秩序的“职业背债人”乱象发起两起全国集群战役，涉案金额达1.2亿元；同时针对信用卡、保险等领域的犯罪组织“微专项”，立案120余起，有效净化了金融环境。
+我愿同习近平主席继续保持诚恳深入沟通，热情期待在华盛顿接待习近平主席。
 
-在涉税领域，甘肃经侦部门与税务部门密切协作，构建起从行政执法到刑事司法的全链条一体化打击机制，破案290余起，为国家挽回税款损失3亿余元。
-
-尤为引人注目的是，甘肃“猎狐”专项行动取得十年来的最佳战果——从境外缉捕回逃犯12名，用实实在在的行动兑现了“天涯海角、有逃必追”的庄严承诺。
-
-在守护民众“钱袋子”方面，甘肃公安坚持打防并举、前置防线。
-
-针对养老领域犯罪，全省公安机关重拳出击，侦办案件30余起，涉案金额超过5亿元，用最硬的拳头保护最需要保护的人。
-
-与此同时，追赃挽损被摆在突出位置，办案单位第一时间查清资金流向、控堵销赃渠道，做到应追尽追、应赔尽赔，全年为民众直接挽回损失1.6亿元。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 17:36 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 17:45 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 17:19 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 17:27 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 17:20 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 17:32 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 17:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 17:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 17:23 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 17:31 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 17:26 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 17:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 17:34 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 17:36 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 17:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 17:37 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 17:41 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 17:25 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 17:28 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 17:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 17:31 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 17:35 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 17:48 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 17:40 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 17:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 17:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 17:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/917539335522.shtml)
-- 2026-06-29 17:23 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.minike.top/Article/details/150582823.shtml)
-- 2026-06-29 17:25 - [互助版模拟高考志愿填报](https://www.blog.kurohicncr.top/Article/details/82263527.shtml)
-- 2026-06-29 17:41 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/4678626634.shtml)
-- 2026-06-29 17:41 - [王楚钦开门红](http://www.blog.minike.top/Article/details/10756644421.shtml)
-- 2026-06-29 17:46 - [王俊凯命名方式](http://www.blog.minike.top/Article/details/432807.shtml)
-- 2026-06-29 17:36 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/74926.shtml)
-- 2026-06-29 17:38 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/60106.shtml)
-- 2026-06-29 17:24 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/64448318151.shtml)
-- 2026-06-29 17:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/94966.shtml)
-- 2026-06-29 17:40 - [勇敢的心第二部](http://www.share.minike.top/Article/details/2829584916.shtml)
-- 2026-06-29 17:32 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/24398588719.shtml)
-- 2026-06-29 17:44 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/26053708329.shtml)
-- 2026-06-29 17:23 - [第二波数码涨价潮来袭](https://www.blog.kurohicncr.top/Article/details/35786.shtml)
-- 2026-06-29 17:43 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/08585233465.shtml)
+- 2026-06-29 17:31 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/67897421.shtml)
+- 2026-06-29 17:47 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/36079.shtml)
+- 2026-06-29 17:49 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/5704200.shtml)
+- 2026-06-29 17:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/212390.shtml)
+- 2026-06-29 17:51 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/510676.shtml)
+- 2026-06-29 17:28 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/3079521458.shtml)
+- 2026-06-29 17:48 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/8480257.shtml)
+- 2026-06-29 17:52 - [货车司机雨中帮交警挪树获表扬](http://www.share.minike.top/Article/details/852693554374.shtml)
+- 2026-06-29 17:24 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/32768.shtml)
+- 2026-06-29 17:40 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.kurohicncr.top/Article/details/3167550.shtml)
+- 2026-06-29 17:28 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/9019880340.shtml)
+- 2026-06-29 17:52 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/063169664.shtml)
+- 2026-06-29 17:44 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/2566436398.shtml)
+- 2026-06-29 17:24 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/278159471562.shtml)
+- 2026-06-29 17:46 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/293957.shtml)

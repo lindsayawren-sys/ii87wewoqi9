@@ -1,60 +1,57 @@
-# 中国超深层千亿立方米级页岩气田诞生
+# 中东资金狂买面板与金矿，大摩All in光模块
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新社北京5月13日电 (记者 刘亮)记者13日获悉，中国石化“深地工程·川渝天然气基地”再获突破。由中国石化西南油气分公司提交的四川资阳东峰页岩气田2356.87亿立方米探明地质储量通过中国自然资源部专家组审定，标志着中国超深层千亿立方米级页岩气田诞生。中国石化介绍，该气田成功将页岩气勘探开发推进至埋深超4500米的超深层新领域，实现了中国页岩气从深层向超深层的战略性跨越，对
+2026.05.17作者 | 第一财经 齐琦随着2026年A股上市公司一季报披露收官，外资机构的调仓路径全面显现。据Wind统计，截至一季度末，共有1521家A股上市公司的前十大流通股东名单中出现外资身影，合计持股数量达115.4亿股，对应持股市值约1950.6亿元与去年末相比均呈现大幅跃升态势，其中持股数量增加46.1亿股，持股市值更是大增675.4亿元，国际资本对中国资产配
 
 ## 正文
 
-中新社北京5月13日电 (记者 刘亮)记者13日获悉，中国石化“深地工程·川渝天然气基地”再获突破。
+2026.05.17作者 | 第一财经 齐琦随着2026年A股上市公司一季报披露收官，外资机构的调仓路径全面显现。
 
-由中国石化西南油气分公司提交的四川资阳东峰页岩气田2356.87亿立方米探明地质储量通过中国自然资源部专家组审定，标志着中国超深层千亿立方米级页岩气田诞生。
+据Wind统计，截至一季度末，共有1521家A股上市公司的前十大流通股东名单中出现外资身影，合计持股数量达115.4亿股，对应持股市值约1950.6亿元与去年末相比均呈现大幅跃升态势，其中持股数量增加46.1亿股，持股市值更是大增675.4亿元，国际资本对中国资产配置力度的显著增强。
 
-中国石化介绍，该气田成功将页岩气勘探开发推进至埋深超4500米的超深层新领域，实现了中国页岩气从深层向超深层的战略性跨越，对进一步夯实国家能源安全基础、拓展规模增储上产战略接替空间具有里程碑意义。
+机构人士对记者分析称，外资正系统性重估中国资产配置价值，在总量扩张的背后，选股逻辑与行业偏好发生重构，从传统金融蓝筹向高端制造、自主可控科技及上游能源的战略迁移，成为本轮调仓的思路变化。
 
-资阳东峰页岩气田位于四川盆地，是在寒武系筇竹寺组页岩层系发现的大型整装气田。
+新进市值榜：资源与AI算力平分秋色据Wind统计，QFII一季度新进685股，增持473股，减持336股。
 
-寒武系页岩是全球已实现规模发现的最古老页岩层系，形成于5.4亿年前，埋深4500至5200米，页岩储层特征不清、成藏富集机理不明，难钻地层厚、高温高压等因素带来的工程挑战极大，其勘探开发是公认的世界级难题。
+新进持有个股中，面板与资源龙头获批量建仓。
 
-中国石化西南石油局有限公司董事刘伟介绍，公司经过十余年持续攻关，实现寒武系筇竹寺组页岩气从“零”到“千亿立方米规模储量”的跨越，证实这套页岩层系具备大规模开发潜力，并形成可复制、可推广的技术路径，大幅拓展中国页岩气资源开发领域。
+其中京东方A以3.03亿股居新进标的首位，TCL科技（1.66亿股）、紫金矿业（1.41亿股）、奥瑞德（1.13亿股）紧随其后。
 
-下一步，公司将加快推进资阳东峰页岩气田增储上产。
+从持仓市值角度看，紫金矿业在新进持有中排名第一。
 
-(完)
+截至今年一季度末，该股获得阿布达比投资局新进且重仓，持仓市值达到46.26亿元。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 17:46 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-29 17:27 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 17:29 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 17:19 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 17:35 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 17:37 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 17:44 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 17:33 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 17:20 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 17:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 17:38 - [滾石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 17:20 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 17:34 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 17:49 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 17:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 17:36 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 17:42 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 17:54 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 17:39 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 17:34 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 17:24 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 17:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 17:35 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 17:50 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/767082211178.shtml)
-- 2026-06-29 17:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/536099203.shtml)
-- 2026-06-29 17:32 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/0073799585.shtml)
-- 2026-06-29 17:28 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/5817287537.shtml)
-- 2026-06-29 17:34 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/72923.shtml)
-- 2026-06-29 17:25 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/793817407.shtml)
-- 2026-06-29 17:40 - [蔚来回应车漆洗车时被冲掉](http://www.blog.kurohicncr.top/Article/details/316113.shtml)
-- 2026-06-29 17:47 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/040795702699.shtml)
-- 2026-06-29 17:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/847102.shtml)
-- 2026-06-29 17:26 - [王安宇尊重田曦薇的一切选择](http://www.blog.kurohicncr.top/Article/details/68365213766.shtml)
-- 2026-06-29 17:35 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/566446589293.shtml)
-- 2026-06-29 17:24 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/99847475328.shtml)
-- 2026-06-29 17:18 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/77536.shtml)
-- 2026-06-29 17:38 - [永远有话聊的原因](https://www.blog.minike.top/Article/details/408164.shtml)
-- 2026-06-29 17:18 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/70266442.shtml)
+- 2026-06-29 17:40 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/646386.shtml)
+- 2026-06-29 17:36 - [金刚川](http://www.blog.kurohicncr.top/Article/details/028501.shtml)
+- 2026-06-29 17:49 - [天道](http://www.share.kurohicncr.top/Article/details/83229803.shtml)
+- 2026-06-29 17:36 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/25013582.shtml)
+- 2026-06-29 17:45 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/71641.shtml)
+- 2026-06-29 17:36 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/43161.shtml)
+- 2026-06-29 17:42 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/11655.shtml)
+- 2026-06-29 17:47 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/6881920.shtml)
+- 2026-06-29 17:27 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/5654710060.shtml)
+- 2026-06-29 17:33 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/773694932370.shtml)
+- 2026-06-29 17:34 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/72940258321.shtml)
+- 2026-06-29 17:47 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/56802854552.shtml)
+- 2026-06-29 17:35 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/41522966.shtml)
+- 2026-06-29 17:33 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/744081.shtml)
+- 2026-06-29 17:34 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/66831.shtml)

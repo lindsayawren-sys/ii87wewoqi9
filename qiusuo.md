@@ -1,55 +1,57 @@
-# 太平洋岛国瑙鲁拟更改国名 下一步将举行全民公投
+# 陈海伦告别海伦钢琴，A股听不懂肖邦？
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网5月13日电 据新西兰RNZ网站报道，当地时间5月12日，瑙鲁议会通过一项宪法修正案，拟将国名由“Nauru(瑙鲁)”更改为“Naoero(音译为瑙埃罗)”，下一步将举行全民公投。 据报道，该更名提案最初由总统阿迪昂于1月提出。瑙鲁政府表示，现行国名“瑙鲁”源于外国语言难以准确发音“瑙埃罗”。 新加坡《海峡时报》报道称，阿迪昂5月12日发表声明表示，“瑙埃罗”这一名称“更
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 方璐 弹钢琴不如弹棉花？ 317年前，钢琴诞生。钢琴出现后的第118年，肖邦开始创作《夜曲》系列，21首曲子，历时17年。今天，人们随时随地能掏出手机、戴上耳机，用几秒钟，在网易云音乐、腾讯音乐搜到“肖邦”，游进音乐的大海。 钢琴之所以迷人，在于当人的手指划过黑白键，所倾泻出的
 
 ## 正文
 
-中新网5月13日电 据新西兰RNZ网站报道，当地时间5月12日，瑙鲁议会通过一项宪法修正案，拟将国名由“Nauru(瑙鲁)”更改为“Naoero(音译为瑙埃罗)”，下一步将举行全民公投。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据报道，该更名提案最初由总统阿迪昂于1月提出。
+来源 | 野马财经 作者 | 方璐 弹钢琴不如弹棉花？
 
-瑙鲁政府表示，现行国名“瑙鲁”源于外国语言难以准确发音“瑙埃罗”。
+317年前，钢琴诞生。
 
-新加坡《海峡时报》报道称，阿迪昂5月12日发表声明表示，“瑙埃罗”这一名称“更忠实地尊重”瑙鲁的文化遗产、语言和身份认同。
+钢琴出现后的第118年，肖邦开始创作《夜曲》系列，21首曲子，历时17年。
 
-瑙鲁政府表示，下一步将举行全民公投。
+今天，人们随时随地能掏出手机、戴上耳机，用几秒钟，在网易云音乐、腾讯音乐搜到“肖邦”，游进音乐的大海。
 
-若更名获公投通过，新国名将用于国家官方记录和标志，以及区域和国际官方身份标识中，包括在联合国的官方称谓。
+钢琴之所以迷人，在于当人的手指划过黑白键，所倾泻出的音符能替代语言。
 
-公开资料显示，瑙鲁位于中太平洋，由一个独立的珊瑚礁岛及周边海域构成， 陆地面积21.1平方公里，人口约1.3万人。
+钢琴从制造到今天，不过几百年，无数音乐人前仆后继，留下著名钢琴曲，成就属于钢琴的独特隽永。
+
+中国宁波有一位今年71岁的企业家，一生致力于传播音乐文化。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 17:45 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 17:39 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 17:34 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 17:39 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 17:47 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 17:40 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 17:33 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 17:41 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 17:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 17:28 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 17:41 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 17:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 17:39 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 17:35 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 17:51 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 17:42 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 17:27 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 17:34 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 17:53 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 17:31 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 17:40 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/21302443.shtml)
-- 2026-06-29 17:46 - [朱必达辞去湖南人大常委会委员职务](https://www.blog.minike.top/Article/details/75510752380.shtml)
-- 2026-06-29 17:25 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/465005117.shtml)
-- 2026-06-29 17:24 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/67235776.shtml)
-- 2026-06-29 17:47 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/65325329517.shtml)
-- 2026-06-29 17:28 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/13139955.shtml)
-- 2026-06-29 17:29 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/156200220.shtml)
-- 2026-06-29 17:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/3551952541.shtml)
-- 2026-06-29 17:30 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/8986504.shtml)
-- 2026-06-29 17:37 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/30914353607.shtml)
-- 2026-06-29 17:47 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/411999970455.shtml)
-- 2026-06-29 17:21 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/65769353.shtml)
-- 2026-06-29 17:20 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/309580.shtml)
-- 2026-06-29 17:42 - [叠纸](http://www.share.minike.top/Article/details/1805357.shtml)
-- 2026-06-29 17:22 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/074337.shtml)
+- 2026-06-29 17:33 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/19444518.shtml)
+- 2026-06-29 17:47 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/93131825.shtml)
+- 2026-06-29 17:41 - [美人鱼](http://www.blog.minike.top/Article/details/15245378179.shtml)
+- 2026-06-29 17:49 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/06056.shtml)
+- 2026-06-29 17:48 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/9539373.shtml)
+- 2026-06-29 17:34 - [美人鱼](http://www.share.kurohicncr.top/Article/details/05498006081.shtml)
+- 2026-06-29 17:46 - [和周杰伦在演唱会合唱了](https://www.share.minike.top/Article/details/7413093332.shtml)
+- 2026-06-29 17:24 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/04419361006.shtml)
+- 2026-06-29 17:28 - [抓特务票房破亿](http://www.blog.kurohicncr.top/Article/details/7679278430.shtml)
+- 2026-06-29 17:25 - [王楚钦开门红](https://www.share.minike.top/Article/details/252365.shtml)
+- 2026-06-29 17:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/72074076.shtml)
+- 2026-06-29 17:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/730348.shtml)
+- 2026-06-29 17:52 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/299297.shtml)
+- 2026-06-29 17:29 - [逆天祖国人](https://www.blog.minike.top/Article/details/077763671812.shtml)
+- 2026-06-29 17:51 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.kurohicncr.top/Article/details/2041509.shtml)

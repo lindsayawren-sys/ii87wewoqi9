@@ -1,59 +1,53 @@
-# 北约拟邀海湾国家参加峰会 伊朗战争将成议题
+# 赣江上游支流发生超警洪水 江西上犹县部分区域出现内涝
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。 这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。 知情人士表示，这些国家的外交部长
+发布时间：2026年05月16日 18:36 来源：中国新闻网 5月16日，江西赣州上犹县出现内涝，部分道路和车辆被淹。连日来，赣州局地出现暴雨、大暴雨，赣江上游支流发生超警洪水。据江西省应急管理厅16日发布的信息，受当日凌晨极端强降雨影响，上犹县应急管理局组织县森林消防大队提前转移人员20户38人，无人员伤亡。 (肖根生 刘力鑫 制作 乐小敏） 责任编辑：【吉翔】
 
 ## 正文
 
-知情人士称，北大西洋公约组织（NATO）计划邀请四个海湾国家的代表出席在安卡拉举行的峰会，伊朗战争和跨大西洋关系裂痕可能将成为此次会谈的焦点。
+发布时间：2026年05月16日 18:36 来源：中国新闻网 5月16日，江西赣州上犹县出现内涝，部分道路和车辆被淹。
 
-这些国家 —— 巴林、科威特、卡塔尔和阿联酋 —— 均为“伊斯坦布尔合作倡议”（Istanbul Cooperation Initiative）成员，该倡议为北约与更广泛中东地区非成员国之间的合作机制。
+连日来，赣州局地出现暴雨、大暴雨，赣江上游支流发生超警洪水。
 
-知情人士表示，这些国家的外交部长预计将受邀出席7月7日至8日在土耳其首都举行的会议。
+据江西省应急管理厅16日发布的信息，受当日凌晨极端强降雨影响，上犹县应急管理局组织县森林消防大队提前转移人员20户38人，无人员伤亡。
 
-此次会议召开之际，在伊朗战争爆发后，跨大西洋关系日益紧张。
-
-此前，美国总统唐纳德·特朗普批评北约盟友未能协助重启霍尔木兹海峡航运，随后又宣布将从德国撤出约5000名驻军。
-
-其中一位知情人士称，此举部分源于北约强化其所谓南翼的计划，尤其是在伊朗战争背景下。
-
-知情人士表示，本次峰会将设有一个核心会议，仅限32个成员国领导人参加，与去年类似；同时，北约也在考虑邀请印太地区或乌克兰等其他国家领导人，他们将参与周边活动。
-
-他们还表示，此次峰会连续第二年计划以极为精简和压缩的形式举行，以配合美国总统的安排。
+(肖根生 刘力鑫 制作 乐小敏） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 17:21 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 17:23 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 17:22 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 17:44 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 17:25 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 17:47 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 17:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 17:35 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 17:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 17:34 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 17:19 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 17:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 17:49 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 17:46 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 17:38 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 17:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 17:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 17:46 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 17:27 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 17:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 17:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 17:44 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 17:50 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 17:32 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 17:28 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 17:49 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 17:46 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [金刚川](http://www.share.minike.top/Article/details/526829490322.shtml)
-- 2026-06-29 17:22 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/661927.shtml)
-- 2026-06-29 17:47 - [挪威王储妃长子2次强奸被判4年](https://www.share.minike.top/Article/details/0001048.shtml)
-- 2026-06-29 17:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/85728751.shtml)
-- 2026-06-29 17:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/939888753.shtml)
-- 2026-06-29 17:29 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/047106498.shtml)
-- 2026-06-29 17:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/590944544.shtml)
-- 2026-06-29 17:47 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/19770996.shtml)
-- 2026-06-29 17:24 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/6390919.shtml)
-- 2026-06-29 17:38 - [人类对空调和其他家电有多双标](https://www.share.minike.top/Article/details/35237395744.shtml)
-- 2026-06-29 17:25 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/2598558.shtml)
-- 2026-06-29 17:21 - [每代父母都困在自己的时代里](http://www.share.minike.top/Article/details/06930.shtml)
-- 2026-06-29 17:25 - [拍到真的赛博朋克边缘行者了！](http://www.share.minike.top/Article/details/710706555.shtml)
-- 2026-06-29 17:35 - [叠纸客服回应恋与深空新角色争议](http://www.share.minike.top/Article/details/3306991.shtml)
-- 2026-06-29 17:25 - [速度与激情9](https://www.share.minike.top/Article/details/65724535.shtml)
+- 2026-06-29 17:48 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/85020900925.shtml)
+- 2026-06-29 17:37 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/918342935.shtml)
+- 2026-06-29 17:40 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/934644821054.shtml)
+- 2026-06-29 17:27 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/676525855588.shtml)
+- 2026-06-29 17:30 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.minike.top/Article/details/27718869.shtml)
+- 2026-06-29 17:43 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/61051923.shtml)
+- 2026-06-29 17:29 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/1203441455.shtml)
+- 2026-06-29 17:47 - [机器人学校开学了](https://www.share.minike.top/Article/details/1039835.shtml)
+- 2026-06-29 17:32 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/12181.shtml)
+- 2026-06-29 17:53 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/9136392177.shtml)
+- 2026-06-29 17:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/80488706.shtml)
+- 2026-06-29 17:48 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/137511.shtml)
+- 2026-06-29 17:47 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/828970.shtml)
+- 2026-06-29 17:38 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/186964.shtml)
+- 2026-06-29 17:40 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/9134886514.shtml)

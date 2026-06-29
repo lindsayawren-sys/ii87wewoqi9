@@ -1,55 +1,43 @@
-# NextGeo获得1170万美元地中海海底作业合同
+# 日本不断加速扩军修宪图谋：日本自民党欲继续提高日本防卫费规模
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-意大利海上服务提供商Next Geosolutions获得了一份价值约1170万美元的合同，为中地中海某海底能源基础设施项目提供地球物理调查及未爆炸物相关作业。 该公司表示，合同由一家从事海底电力电缆领域的国际客户授予。 该项目将涉及海上及近岸作业，使用多艘船只进行地球物理调查以及未爆炸物的识别与清除工作。 NextGeo表示，这项工作将通过识别并在必要时清除海床上检测到的异常
+发布时间：2026年05月15日 09:29 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-意大利海上服务提供商Next Geosolutions获得了一份价值约1170万美元的合同，为中地中海某海底能源基础设施项目提供地球物理调查及未爆炸物相关作业。
-
-该公司表示，合同由一家从事海底电力电缆领域的国际客户授予。
-
-该项目将涉及海上及近岸作业，使用多艘船只进行地球物理调查以及未爆炸物的识别与清除工作。
-
-NextGeo表示，这项工作将通过识别并在必要时清除海床上检测到的异常物体，来支持海底基础设施的安全安装。
-
-该合同将分两个阶段执行，预计于2026年第三季度完成。
-
-NextGeo首席执行官乔瓦尼·拉涅利表示：“该合同确认了NextGeo在管理近岸和海上环境复杂调查作业方面的技术和运营专业能力，并进一步巩固了我们在地球物理与未爆炸物调查服务领域的市场地位，为欧洲、中东和非洲地区的战略能源基础设施项目提供支持。
-
-”责任编辑：张俊 SF065
+发布时间：2026年05月15日 09:29 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:21 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 17:25 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 17:30 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 17:25 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 17:27 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 17:21 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 17:31 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 17:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 17:30 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 17:25 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 17:24 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 17:51 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 17:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 17:31 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 17:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 17:31 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 17:34 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 17:53 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 17:26 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 17:31 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 17:39 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 17:40 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/65586118.shtml)
-- 2026-06-29 17:39 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/54544.shtml)
-- 2026-06-29 17:27 - [两老人多次到一洗车店泼粪](http://www.blog.minike.top/Article/details/839370882243.shtml)
-- 2026-06-29 17:21 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/54624154747.shtml)
-- 2026-06-29 17:45 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/04592095.shtml)
-- 2026-06-29 17:47 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/124324795369.shtml)
-- 2026-06-29 17:47 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/93038607.shtml)
-- 2026-06-29 17:40 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/15318898823.shtml)
-- 2026-06-29 17:34 - [起风了](https://www.share.minike.top/Article/details/76106585.shtml)
-- 2026-06-29 17:21 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/3146602930.shtml)
-- 2026-06-29 17:36 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/23552707.shtml)
-- 2026-06-29 17:33 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/673008.shtml)
-- 2026-06-29 17:35 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/242312398.shtml)
-- 2026-06-29 17:47 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/237152.shtml)
-- 2026-06-29 17:33 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.minike.top/Article/details/00309244.shtml)
+- 2026-06-29 17:52 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/75268026880.shtml)
+- 2026-06-29 17:30 - [绘画区你赢了](https://www.share.minike.top/Article/details/6106727.shtml)
+- 2026-06-29 17:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/53635154.shtml)
+- 2026-06-29 17:47 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/837490201.shtml)
+- 2026-06-29 17:27 - [王楚钦开门红](http://www.share.minike.top/Article/details/3326286.shtml)
+- 2026-06-29 17:52 - [许建琼任湖南省检察院副检察长](http://www.blog.kurohicncr.top/Article/details/758902688147.shtml)
+- 2026-06-29 17:29 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/15829961812.shtml)
+- 2026-06-29 17:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/92398422.shtml)
+- 2026-06-29 17:53 - [波兰创该国高温纪录](https://www.blog.minike.top/Article/details/04834402.shtml)
+- 2026-06-29 17:28 - [扬名立万](https://www.blog.minike.top/Article/details/1854641.shtml)
+- 2026-06-29 17:37 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/7694464286.shtml)
+- 2026-06-29 17:29 - [这一刀 会很帅](https://www.share.minike.top/Article/details/3212885.shtml)
+- 2026-06-29 17:41 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/080823146411.shtml)
+- 2026-06-29 17:34 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/253492108.shtml)
+- 2026-06-29 17:50 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/146450.shtml)

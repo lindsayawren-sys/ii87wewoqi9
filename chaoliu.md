@@ -1,60 +1,57 @@
-# XCF Global借债转股削减1670万美元债务，年内股价已涨逾240%
+# 贵州：水往高处流 幸福润万家
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-可持续航空燃料公司XCF Global周二宣布，已与旗下New Rise Renewables Reno工厂创始人Randy Soule相关方Encore DEC达成最终协议，通过发行约3703万股A类普通股，清偿约1670万美元的未偿债务及财产留置权。 债转股细节：每股0.451美元定价 根据协议，该笔债务将以每股0.451美元的价格转换为XCF普通股，该价格参考了协议生效前
+中新网贵阳5月15日电 (记者 周燕玲)“喀斯特王国”贵州，地下是漏水的岩溶，地上是盼水的民众，千百年来，“水往低处流”让山里人望水兴叹。如今，清泉正完成一场“反向奔跑”，从谷底“爬”上了山巅，实现了“水往高处流，幸福润万家”。 千米扬程：把水从谷底“提”上山 平均海拔2200米的贵州省毕节市威宁彝族回族苗族自治县，被誉为高原“阳光城”，这里不仅降雨量少，而且不少地方还陷入“守
 
 ## 正文
 
-可持续航空燃料公司XCF Global周二宣布，已与旗下New Rise Renewables Reno工厂创始人Randy Soule相关方Encore DEC达成最终协议，通过发行约3703万股A类普通股，清偿约1670万美元的未偿债务及财产留置权。
+中新网贵阳5月15日电 (记者 周燕玲)“喀斯特王国”贵州，地下是漏水的岩溶，地上是盼水的民众，千百年来，“水往低处流”让山里人望水兴叹。
 
-债转股细节：每股0.451美元定价 根据协议，该笔债务将以每股0.451美元的价格转换为XCF普通股，该价格参考了协议生效前五个交易日的平均收盘价。
+如今，清泉正完成一场“反向奔跑”，从谷底“爬”上了山巅，实现了“水往高处流，幸福润万家”。
 
-随着股份发行，相关应付款项及财产留置权将被视为全额清偿，XCF及其子公司不再承担任何后续偿付义务。
+千米扬程：把水从谷底“提”上山 平均海拔2200米的贵州省毕节市威宁彝族回族苗族自治县，被誉为高原“阳光城”，这里不仅降雨量少，而且不少地方还陷入“守着江河难用水、望着雨水留不住”的困境。
 
-XCF首席执行官Chris Cooper表示：“此次额外的债务削减和股权增资，反映了我们在更广泛的财务与运营优先事项上持续取得进展。
+“以前村里用水靠水窖，天旱时要跑到几公里外挑水，一桶水要等半天。
 
-这一举措增强了我们专注于执行的能力，也展示了核心利益相关方对我们长期战略的信心。
+”威宁自治县盐仓镇镇长苏艳红回忆道。
 
-” 战略背景：Reno工厂重启在即 此次债转股是XCF近期一系列财务优化举措的最新一步。
+距离盐仓镇不远的双龙镇凉山村，72岁的王明安拧开自家水龙头，清泉哗哗流出。
 
-此前，公司已与土地所有者达成宽限协议，为推进资本结构优化和运营优先事项争取了额外时间。
+“过去吃水要靠人背，来回一趟一个多小时，冬天路上结冰，摔跤是常事。
 
-公司此前公布的2026年第一季度更新显示，其New Rise Renewables Reno工厂计划于2026年6月重启运营，并已与BGN签订具有约束力的承购意向书。
+现在一拧开就有水，心里踏实了。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-29 17:27 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 17:29 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 17:22 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 17:19 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 17:28 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 17:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 17:22 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 17:24 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 17:39 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-29 17:29 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 17:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 17:19 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 17:27 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 17:36 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 17:32 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 17:38 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 17:53 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 17:38 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 17:39 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 17:27 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 17:47 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 17:44 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 17:33 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 17:31 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:25 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/88067378665.shtml)
-- 2026-06-29 17:22 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/297077324509.shtml)
-- 2026-06-29 17:44 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/12484172.shtml)
-- 2026-06-29 17:40 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/2235095.shtml)
-- 2026-06-29 17:37 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/28560.shtml)
-- 2026-06-29 17:26 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/964137.shtml)
-- 2026-06-29 17:27 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/063783.shtml)
-- 2026-06-29 17:33 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/555262.shtml)
-- 2026-06-29 17:41 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/491861877635.shtml)
-- 2026-06-29 17:45 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/308014119055.shtml)
-- 2026-06-29 17:20 - [《贺子珍》](http://www.blog.minike.top/Article/details/06165376144.shtml)
-- 2026-06-29 17:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/285839910.shtml)
-- 2026-06-29 17:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/38080349410.shtml)
-- 2026-06-29 17:23 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/55784.shtml)
-- 2026-06-29 17:28 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/32007046091.shtml)
+- 2026-06-29 17:45 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/76757.shtml)
+- 2026-06-29 17:42 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/805392.shtml)
+- 2026-06-29 17:43 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/61214085266.shtml)
+- 2026-06-29 17:36 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/9649206067.shtml)
+- 2026-06-29 17:29 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/3411193.shtml)
+- 2026-06-29 17:24 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/787985003476.shtml)
+- 2026-06-29 17:38 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/0429382.shtml)
+- 2026-06-29 17:45 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/991881741.shtml)
+- 2026-06-29 17:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/7341929.shtml)
+- 2026-06-29 17:51 - [税务总局披露5起合规申报个税案例](https://www.blog.minike.top/Article/details/0461502.shtml)
+- 2026-06-29 17:27 - [盛秋平任南昌市委书记](https://www.blog.kurohicncr.top/Article/details/32208.shtml)
+- 2026-06-29 17:49 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/0231758983.shtml)
+- 2026-06-29 17:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/04379.shtml)
+- 2026-06-29 17:46 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/1364773722.shtml)
+- 2026-06-29 17:29 - [上海小区惊现鳄鱼](http://www.blog.kurohicncr.top/Article/details/09184839.shtml)

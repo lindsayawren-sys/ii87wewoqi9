@@ -1,61 +1,58 @@
-# 从上海梧桐深处的3000枚铁路道钉 回望中美民间共同记忆
+# 110件/套汉代中山国诸侯王墓出土文物亮相江西
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网上海5月13日电 (李佳佳 李秋莹)初夏的上海，梧桐树掩映下的衡山路与宛平路交汇处，一座高约9米的钢制纪念塔安静地矗立于街头花园之中，与对面的衡山花园酒店(原毕卡第公寓)隔街相望。 这座1991年1月6日落成的“中国铁路工人纪念塔”，通体由3000枚铁路道钉焊接而成，重达1.5吨，在闹市中显得格外庄重。捐建者并非中国官方，而是远在大洋彼岸的美国伊利诺伊州政府。 一个美国的
+中新社南昌5月15日电 (记者 李韵涵)“王畿中山——汉代中山王国历史与文化展”15日在南昌汉代海昏侯国遗址博物馆开幕，110件/套文物集中亮相，实现了“王”与“侯”的跨时空对话。 据了解，本次展览由南昌汉代海昏侯国遗址博物馆与河北博物院、河北省文物考古研究院联合举办，共展出汉代中山国诸侯王墓出土文物110件/套，并配合展出2组海昏侯墓出土文物。 据南昌汉代海昏侯国遗址管理局党
 
 ## 正文
 
-中新网上海5月13日电 (李佳佳 李秋莹)初夏的上海，梧桐树掩映下的衡山路与宛平路交汇处，一座高约9米的钢制纪念塔安静地矗立于街头花园之中，与对面的衡山花园酒店(原毕卡第公寓)隔街相望。
+中新社南昌5月15日电 (记者 李韵涵)“王畿中山——汉代中山王国历史与文化展”15日在南昌汉代海昏侯国遗址博物馆开幕，110件/套文物集中亮相，实现了“王”与“侯”的跨时空对话。
 
-这座1991年1月6日落成的“中国铁路工人纪念塔”，通体由3000枚铁路道钉焊接而成，重达1.5吨，在闹市中显得格外庄重。
+据了解，本次展览由南昌汉代海昏侯国遗址博物馆与河北博物院、河北省文物考古研究院联合举办，共展出汉代中山国诸侯王墓出土文物110件/套，并配合展出2组海昏侯墓出土文物。
 
-捐建者并非中国官方，而是远在大洋彼岸的美国伊利诺伊州政府。
+据南昌汉代海昏侯国遗址管理局党工委书记夏清平介绍，汉代中山王墓和海昏侯墓，同属汉代大一统格局下诸侯国历史的典型缩影，也是汉代文明的珍贵载体。
 
-一个美国的州，为何要在上海街头为中国铁路工人树碑立传？
+一北一南、跨越千里，两大汉文化地标遥相呼应、同脉同源，共同诠释了中华文明多元一体、兼容并蓄的鲜明特质。
 
-还得从一段跨越太平洋的历史说起。
+河北博物院副院长王然表示，本次展览展品以错金银鸟篆文铜壶、骑兽人物博山炉、中山简王刘焉铜缕玉衣等文物重器为核心，涵盖了西汉中山靖王刘胜夫妇、中山怀王刘修及东汉中山简王刘焉等多处王陵出土的精品文物，全景展现大汉王朝的礼乐制度、工艺技术与生活图景。
 
-1869年5月10日，犹他州普罗蒙特利，随着时任美国太平洋铁路公司总裁、前加州州长的斯坦福高举银质大锤，将一颗纯金的道钉砸进了铁轨中，太平洋铁路正式合龙的消息传遍美国，引发无数欢呼。
+据了解，此次展览的一大亮点在于实现了“王”与“侯”的跨时空对话。
 
-从1863年开始动工的太平洋铁路，被英国BBC评为自工业革命以来，世界七大工业奇迹之一，它于1869年建成，全长2000英里(3218688米)。
+汉代中山国与海昏侯国，同属汉代宗室分封体系，墓葬出土的文物在器型、功能、礼制内涵上既有一致性，又各具地域特色。
 
-西段，即从萨克拉门托到犹他州的普罗蒙特利高地，全长约689英里(约1108838米)。
+例如，展览第二单元“王的世界”中，展示了中山靖王刘胜墓出土的饼金，可与海昏侯墓出土的饼金、褭蹏金等形成直观对比，是研究汉代黄金货币与酎金制度的重要材料。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 17:18 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 17:44 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 17:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 17:31 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 17:27 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 17:47 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 17:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 17:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 17:29 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 17:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 17:43 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 17:45 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 17:46 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 17:35 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 17:39 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 17:28 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 17:37 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 17:25 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 17:36 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 17:47 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 17:49 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 17:24 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 17:40 - [叠纸客服回应恋与深空新角色争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 17:26 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 17:44 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 17:31 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/174013206704.shtml)
-- 2026-06-29 17:32 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/58576917694.shtml)
-- 2026-06-29 17:38 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/741053.shtml)
-- 2026-06-29 17:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/3162507.shtml)
-- 2026-06-29 17:34 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/69063639103.shtml)
-- 2026-06-29 17:26 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/421091575.shtml)
-- 2026-06-29 17:47 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/21182156.shtml)
-- 2026-06-29 17:18 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/7252937.shtml)
-- 2026-06-29 17:43 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/60658240261.shtml)
-- 2026-06-29 17:23 - [天柱山回应网红打卡树枝被砍](https://www.share.minike.top/Article/details/93404862811.shtml)
-- 2026-06-29 17:30 - [韩国队启程回国 全员羞愧低头](http://www.share.kurohicncr.top/Article/details/23294136927.shtml)
-- 2026-06-29 17:45 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.minike.top/Article/details/124990.shtml)
-- 2026-06-29 17:21 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/29929470196.shtml)
-- 2026-06-29 17:19 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/59651619.shtml)
-- 2026-06-29 17:43 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/0918189867.shtml)
+- 2026-06-29 17:49 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/773573834.shtml)
+- 2026-06-29 17:32 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/9996081.shtml)
+- 2026-06-29 17:37 - [流金岁月](http://www.share.minike.top/Article/details/9191212924.shtml)
+- 2026-06-29 17:37 - [世界杯预测史上最不吃压力之物](http://www.blog.kurohicncr.top/Article/details/485802.shtml)
+- 2026-06-29 17:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/11781127950.shtml)
+- 2026-06-29 17:33 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/570821750.shtml)
+- 2026-06-29 17:53 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/6747751441.shtml)
+- 2026-06-29 17:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/4674615609.shtml)
+- 2026-06-29 17:52 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/3948461860.shtml)
+- 2026-06-29 17:26 - [逆天祖国人](http://www.share.minike.top/Article/details/8585003.shtml)
+- 2026-06-29 17:29 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/9996210592.shtml)
+- 2026-06-29 17:51 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/8488702404.shtml)
+- 2026-06-29 17:31 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/81885266552.shtml)
+- 2026-06-29 17:47 - [唐艺昕告别浪姐千字长文](https://www.share.kurohicncr.top/Article/details/64522279.shtml)
+- 2026-06-29 17:29 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/7368579690.shtml)

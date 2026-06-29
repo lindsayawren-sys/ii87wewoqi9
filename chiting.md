@@ -1,57 +1,56 @@
-# 禾赛-W早盘一度涨超10% 公司开启空间智能战略布局
+# 第一观察·瞬间｜文明的启迪
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-禾赛-W（02525）早盘一度涨超10%，截至发稿，股价上涨4.78%，现报184.10港元，成交额2.03亿港元。 禾赛近期举办2026技术开放日。公司重磅发布了多款产品与技术：包括6D全彩激光雷达超感光芯片毕加索SPADSoC、空间智能AI硬件Kosmo以及机器人动力模组。禾赛科技联合创始人及CTO向少卿正式宣布，禾赛将开启战略升维——从“空间感知”进化为“空间智能”。 交
+5月14日，国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。 新华社记者的镜头定格下这样一个历史性的瞬间—— 祈年殿气势恢宏，重檐琉光。习近平主席同特朗普总统在轩朗开阔的祈年殿广场合影。 2017年11月8日，特朗普总统首次访华，习近平主席同特朗普总统沿着北京中轴线参观了故宫，两国元首夫妇在太和殿广场合影。 天坛、故宫、北京中轴线，都是凝聚中国传统文化精髓、展现中华文
 
 ## 正文
 
-禾赛-W（02525）早盘一度涨超10%，截至发稿，股价上涨4.78%，现报184.10港元，成交额2.03亿港元。
+5月14日，国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。
 
-禾赛近期举办2026技术开放日。
+新华社记者的镜头定格下这样一个历史性的瞬间—— 祈年殿气势恢宏，重檐琉光。
 
-公司重磅发布了多款产品与技术：包括6D全彩激光雷达超感光芯片毕加索SPADSoC、空间智能AI硬件Kosmo以及机器人动力模组。
+习近平主席同特朗普总统在轩朗开阔的祈年殿广场合影。
 
-禾赛科技联合创始人及CTO向少卿正式宣布，禾赛将开启战略升维——从“空间感知”进化为“空间智能”。
+2017年11月8日，特朗普总统首次访华，习近平主席同特朗普总统沿着北京中轴线参观了故宫，两国元首夫妇在太和殿广场合影。
 
-交银国际发布研报称，此次发布的毕加索SPAD-SoC颠覆了传统感知维度，引领三维探测迈入“全彩视界”。
+天坛、故宫、北京中轴线，都是凝聚中国传统文化精髓、展现中华文明突出特性的重要标识。
 
-同时，公司正加速向机器人领域渗透，凭借Kosmo等空间智能硬件解决具身智能训练的数据痛点，有效推动世界模型的迭代，机器人业务正迅速成长为公司的第二增长极。
+参观中，习近平主席指出：“今天参观的天坛和故宫同龄，寓意‘天圆地方’，展现出中国人的宇宙观和处世哲学。
 
-责任编辑：卢昱君
+” 古老的智慧，为开创大国关系新范式带来深刻启迪。
+
+这是交通成和的智慧—— 从故宫太和殿、中和殿、保和殿匾额上的“和”字，到祈年殿承载的和谐万物、顺天应时的理念，再到北京中轴线蕴含的“中”“和”哲理，两国元首所到之处，饱含中华民族对于和平、和睦、和谐的美好向往。
 
 ## 相关推荐
 
-- 2026-06-29 17:20 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 17:47 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 17:37 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 17:47 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 17:42 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 17:47 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 17:39 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 17:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-29 17:43 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 17:22 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 17:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 17:33 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 17:33 - [T1 KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 17:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 17:49 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 17:28 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 17:50 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 17:33 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 17:43 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 17:32 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 17:44 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-29 17:52 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 17:24 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [22岁民警拦截违法车辆被撞牺牲](https://www.blog.minike.top/Article/details/28115241.shtml)
-- 2026-06-29 17:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/68090.shtml)
-- 2026-06-29 17:26 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.minike.top/Article/details/88273319.shtml)
-- 2026-06-29 17:29 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/60983.shtml)
-- 2026-06-29 17:38 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/692058.shtml)
-- 2026-06-29 17:30 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/3664266967.shtml)
-- 2026-06-29 17:47 - [四川达州发生一起交通事故致2死](http://www.share.kurohicncr.top/Article/details/463811189891.shtml)
-- 2026-06-29 17:41 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/4678665381.shtml)
-- 2026-06-29 17:24 - [货车司机雨中帮交警挪树获表扬](https://www.blog.minike.top/Article/details/36008.shtml)
-- 2026-06-29 17:21 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/08474.shtml)
-- 2026-06-29 17:33 - [小娘惹](http://www.blog.minike.top/Article/details/1978480761.shtml)
-- 2026-06-29 17:35 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/921725536.shtml)
-- 2026-06-29 17:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/74368.shtml)
-- 2026-06-29 17:41 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/34414.shtml)
-- 2026-06-29 17:26 - [速度与激情9](http://www.blog.minike.top/Article/details/98820.shtml)
+- 2026-06-29 17:50 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/21023.shtml)
+- 2026-06-29 17:43 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/671708669.shtml)
+- 2026-06-29 17:34 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/569730498.shtml)
+- 2026-06-29 17:45 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/7003393824.shtml)
+- 2026-06-29 17:31 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/343465545282.shtml)
+- 2026-06-29 17:50 - [天柱山回应网红打卡树枝被砍](https://www.blog.kurohicncr.top/Article/details/05944.shtml)
+- 2026-06-29 17:39 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/673706786554.shtml)
+- 2026-06-29 17:38 - [差点没看懂白鹿丞磊这段意识流](http://www.blog.kurohicncr.top/Article/details/2745930921.shtml)
+- 2026-06-29 17:24 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/307115452458.shtml)
+- 2026-06-29 17:46 - [47岁吴建豪再婚](http://www.share.kurohicncr.top/Article/details/83407276.shtml)
+- 2026-06-29 17:49 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/125655.shtml)
+- 2026-06-29 17:37 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.kurohicncr.top/Article/details/39468453677.shtml)
+- 2026-06-29 17:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/61868815570.shtml)
+- 2026-06-29 17:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/37986.shtml)
+- 2026-06-29 17:43 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/80724627021.shtml)

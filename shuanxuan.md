@@ -1,59 +1,60 @@
-# 颖通控股上市后的新故事是投资了一家卖茶饮的香氛店
+# 利比亚发生大规模球迷骚乱 总理府遭纵火
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 周芳颖 界面新闻编辑 | 楼婍沁 颖通控股上市后的首笔对外投资对象是一个本土芳疗护肤品牌。 颖通控股发布公告称，其全资附属公司颖通（中国）国际贸易有限责任公司已于2026年4月13日签署增资认购协议及股东协议，以人民币9750万元认购杭州白昼与梦生物科技有限公司新增注册资本人民币795037元，取得后者增资完成后15%的股权。 白昼与梦是芳疗功效护肤、个人护理
+新华社突尼斯5月14日电(记者周昊瑾)的黎波里消息：据利比亚媒体14日报道，利首都的黎波里附近当晚发生大规模球迷骚乱，利总理府部分建筑遭纵火。 稍早时候，的黎波里东南部方向塔尔胡纳市举行的一场足球比赛因争议判罚引发球迷骚乱。据利媒报道，有球员遭袭，多辆安保车辆遭纵火焚烧。隶属利国防部的444旅介入维持秩序，与一些不明身份的枪手发生冲突。交火中，444旅一名士兵死亡，另有7人受伤
 
 ## 正文
 
-界面新闻记者 | 周芳颖 界面新闻编辑 | 楼婍沁 颖通控股上市后的首笔对外投资对象是一个本土芳疗护肤品牌。
+新华社突尼斯5月14日电(记者周昊瑾)的黎波里消息：据利比亚媒体14日报道，利首都的黎波里附近当晚发生大规模球迷骚乱，利总理府部分建筑遭纵火。
 
-颖通控股发布公告称，其全资附属公司颖通（中国）国际贸易有限责任公司已于2026年4月13日签署增资认购协议及股东协议，以人民币9750万元认购杭州白昼与梦生物科技有限公司新增注册资本人民币795037元，取得后者增资完成后15%的股权。
+稍早时候，的黎波里东南部方向塔尔胡纳市举行的一场足球比赛因争议判罚引发球迷骚乱。
 
-白昼与梦是芳疗功效护肤、个人护理及香氛品牌“馥郁满铺”的运营主体。
+据利媒报道，有球员遭袭，多辆安保车辆遭纵火焚烧。
 
-该品牌定位为芳香疗愈情绪护肤品牌，最早起始于杭州一家芳疗小铺。
+隶属利国防部的444旅介入维持秩序，与一些不明身份的枪手发生冲突。
 
-综合公开信息，经过8年线下经营积累后，馥郁满铺于2021年转向芳疗护肤品开发，其首款精粹水产品120ml售价200多元，上市半年销售额超过1200万元。
+交火中，444旅一名士兵死亡，另有7人受伤。
 
-颖通控股向界面时尚表示，该集团执行董事兼首席执行官林荆认为此次战略投资是集团优化资本配置、布局高增长赛道的举措，将帮助颖通控股把握功效护肤及个人护理行业的结构性增长机会，拓宽相关业务布局，并进一步丰富该集团品牌组合、优化业务结构。
+随后，骚乱蔓延至的黎波里多个地区，媒体说传出枪声。
 
-据林荆的说法，馥郁满铺已在芳疗功效护肤细分赛道中建立一定竞争优势，而颖通控股将在渠道资源、品牌拓展和市场渗透等方面支持馥郁满铺推进全渠道布局及国际化市场拓展。
+一些抗议者纵火焚烧总理府部分建筑。
 
-2023年至2025年，馥郁满铺接连获得凯辉基金、内向基金、挑战者创投等机构三轮融资。
+利比亚民族统一政府已在政府机构和主要路口部署安保人员，以控制局势。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 17:44 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 17:33 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 17:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 17:43 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 17:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 17:32 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 17:26 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 17:36 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 17:20 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 17:25 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 17:29 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 17:28 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 17:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-29 17:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 17:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 17:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 17:51 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 17:52 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 17:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 17:32 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 17:49 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 17:48 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 17:36 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 17:36 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 17:27 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 17:39 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/756323964.shtml)
-- 2026-06-29 17:32 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/176376.shtml)
-- 2026-06-29 17:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/224665103.shtml)
-- 2026-06-29 17:36 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/18546649.shtml)
-- 2026-06-29 17:37 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/158027232948.shtml)
-- 2026-06-29 17:38 - [税务总局披露5起合规申报个税案例](http://www.blog.minike.top/Article/details/37018743.shtml)
-- 2026-06-29 17:41 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/209714.shtml)
-- 2026-06-29 17:45 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/5518527487.shtml)
-- 2026-06-29 17:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/807261756.shtml)
-- 2026-06-29 17:43 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/0384218409.shtml)
-- 2026-06-29 17:25 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/4017950.shtml)
-- 2026-06-29 17:20 - [王俊凯命名方式](https://www.share.minike.top/Article/details/53965112.shtml)
-- 2026-06-29 17:37 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/7358216969.shtml)
-- 2026-06-29 17:40 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/700610502713.shtml)
-- 2026-06-29 17:27 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/691188187.shtml)
+- 2026-06-29 17:29 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/8642963.shtml)
+- 2026-06-29 17:43 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/75129095.shtml)
+- 2026-06-29 17:26 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/713816875018.shtml)
+- 2026-06-29 17:38 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/11817630021.shtml)
+- 2026-06-29 17:47 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/989011120.shtml)
+- 2026-06-29 17:26 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/50443872.shtml)
+- 2026-06-29 17:26 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/048950812.shtml)
+- 2026-06-29 17:47 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/099529000.shtml)
+- 2026-06-29 17:44 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/499663.shtml)
+- 2026-06-29 17:32 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.minike.top/Article/details/25638198.shtml)
+- 2026-06-29 17:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/59290114365.shtml)
+- 2026-06-29 17:41 - [一见倾心](http://www.blog.minike.top/Article/details/834771.shtml)
+- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/7543351.shtml)
+- 2026-06-29 17:48 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/071793879170.shtml)
+- 2026-06-29 17:25 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/902847123411.shtml)

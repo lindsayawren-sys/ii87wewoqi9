@@ -1,47 +1,48 @@
-# 枪声震天！直击武警官兵实战化射击超燃瞬间
+# 中国银行辽宁省分行原党委书记、行长贾天兵被“双开”
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 11:52 来源：中国新闻网 连日来，武警广西总队来宾支队采取分批次、短周期的方式，围绕手枪、自动步枪、狙击步枪、防暴手枪等射击课目，严密组织开展2026年度勤训轮换。参训官兵在训练场上掀起精武强能、奋勇争先的练兵热潮，为进一步锤炼官兵实战本领、锻造过硬战斗作风奠定坚实基础。(作者：果志远 孔祥胜 马梓轩） 责任编辑：【魏聪聪】
+中新网5月15日电 据中央纪委国家监委驻中国银行纪检监察组、黑龙江省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国银行纪检监察组、黑龙江省齐齐哈尔市监委对中国银行辽宁省分行原党委书记、行长贾天兵严重违纪违法问题进行了立案审查调查。经查，贾天兵身为党员领导干部，丧失理想信念，背弃初心使命，漠视党纪国法，对抗组织审查，搞迷信活动；违反中央八项规定精神，收受可能影
 
 ## 正文
 
-发布时间：2026年05月13日 11:52 来源：中国新闻网 连日来，武警广西总队来宾支队采取分批次、短周期的方式，围绕手枪、自动步枪、狙击步枪、防暴手枪等射击课目，严密组织开展2026年度勤训轮换。
+中新网5月15日电 据中央纪委国家监委驻中国银行纪检监察组、黑龙江省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国银行纪检监察组、黑龙江省齐齐哈尔市监委对中国银行辽宁省分行原党委书记、行长贾天兵严重违纪违法问题进行了立案审查调查。
 
-参训官兵在训练场上掀起精武强能、奋勇争先的练兵热潮，为进一步锤炼官兵实战本领、锻造过硬战斗作风奠定坚实基础。
+经查，贾天兵身为党员领导干部，丧失理想信念，背弃初心使命，漠视党纪国法，对抗组织审查，搞迷信活动；违反中央八项规定精神，收受可能影响公正执行公务的礼品、消费卡，公款购买高档酒水；违反组织原则，不按规定报告个人有关事项，违规为他人谋取人事利益；廉洁底线失守，利用职权为亲属谋取利益，公款报销个人费用，将应由本人支付的费用交由他人支付，违规收受大额钱款、股权；利用职务便利，非法占有公共财物；在授信审批、项目承揽等方面为他人谋取利益，并非法收受巨额财物。
 
-(作者：果志远 孔祥胜 马梓轩） 责任编辑：【魏聪聪】
+贾天兵严重违反党的政治纪律、组织纪律、廉洁纪律和生活纪律，构成严重职务违法并涉嫌贪污、受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中国银行党委研究，决定给予贾天兵开除党籍处分；经中央纪委国家监委驻中国银行纪检监察组研究，决定给予其开除公职处分；收缴其违纪违法所得；黑龙江省齐齐哈尔市监委将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 17:30 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 17:32 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 17:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 17:19 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 17:20 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 17:19 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 17:19 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 17:39 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 17:42 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 17:27 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 17:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 17:29 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 17:49 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 17:53 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 17:48 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 17:53 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 17:29 - [四川地震前夕 街头电线上站满燕子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 17:29 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 17:50 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 17:34 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/78250507.shtml)
-- 2026-06-29 17:33 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/010615019115.shtml)
-- 2026-06-29 17:20 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/317170136.shtml)
-- 2026-06-29 17:35 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/073508072261.shtml)
-- 2026-06-29 17:27 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/052274341598.shtml)
-- 2026-06-29 17:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/40953330494.shtml)
-- 2026-06-29 17:31 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/0130082821.shtml)
-- 2026-06-29 17:42 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/2615653285.shtml)
-- 2026-06-29 17:35 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/43761.shtml)
-- 2026-06-29 17:20 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/52071.shtml)
-- 2026-06-29 17:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/51050904.shtml)
-- 2026-06-29 17:27 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/31418058109.shtml)
-- 2026-06-29 17:29 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/81347216186.shtml)
-- 2026-06-29 17:29 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/8588217.shtml)
-- 2026-06-29 17:42 - [和周杰伦在演唱会合唱了](http://www.blog.kurohicncr.top/Article/details/897124045796.shtml)
+- 2026-06-29 17:32 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/9363744278.shtml)
+- 2026-06-29 17:52 - [NBA交易](https://www.share.kurohicncr.top/Article/details/3899056698.shtml)
+- 2026-06-29 17:52 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/09337030.shtml)
+- 2026-06-29 17:51 - [毒液2](https://www.share.kurohicncr.top/Article/details/36988568.shtml)
+- 2026-06-29 17:34 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/55584705.shtml)
+- 2026-06-29 17:40 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/15765949279.shtml)
+- 2026-06-29 17:48 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/75547.shtml)
+- 2026-06-29 17:43 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/3219818.shtml)
+- 2026-06-29 17:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/75616259.shtml)
+- 2026-06-29 17:40 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/87801142839.shtml)
+- 2026-06-29 17:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/98716210.shtml)
+- 2026-06-29 17:33 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/88932961856.shtml)
+- 2026-06-29 17:29 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/67721325.shtml)
+- 2026-06-29 17:51 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/9731718353.shtml)
+- 2026-06-29 17:26 - [黄金也扛不住了](http://www.share.minike.top/Article/details/160144256.shtml)

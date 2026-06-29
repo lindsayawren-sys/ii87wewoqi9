@@ -1,58 +1,56 @@
-# 三峡人寿2亿股股权已六度流拍，“一司一策”过渡期结束公司偿付能力大降64BP
+# 四川991支中小学队伍齐聚成都 科创实践点亮青春梦想
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-原标题：三峡人寿2亿股股权已六度流拍，“一司一策”过渡期结束公司偿付能力大降64PB 作者|蓝鲸新闻 陈晓娟 京东资产交易平台信息显示，该笔股权拍卖定于5月28日开启，起拍价0.35亿元。截至发稿，0人报名，25人关注，115人围观。 作为三峡人寿发起股东，新华联控股近年因流动性危机陷入破产重整，若本次拍卖顺利成交，其将彻底退出股东名单。 记者注意到，该笔股权年内拍卖持续遇冷，
+发布时间：2026年05月16日 19:21 来源：中国新闻网 5月16日，2026年四川省学生数字素养提升实践现场交流展示活动在成都锦城学院启幕。来自全省21个市(州)的991支队伍、近2000名优秀中小学生齐聚一堂，在3D创意设计、智能机器人、创意编程等26个项目中展示交流，用数字技术展现青少年的创新活力与实践能力。 据悉，四川省学生数字素养提升实践活动经过二十余年的发展，
 
 ## 正文
 
-原标题：三峡人寿2亿股股权已六度流拍，“一司一策”过渡期结束公司偿付能力大降64PB 作者|蓝鲸新闻 陈晓娟 京东资产交易平台信息显示，该笔股权拍卖定于5月28日开启，起拍价0.35亿元。
+发布时间：2026年05月16日 19:21 来源：中国新闻网 5月16日，2026年四川省学生数字素养提升实践现场交流展示活动在成都锦城学院启幕。
 
-截至发稿，0人报名，25人关注，115人围观。
+来自全省21个市(州)的991支队伍、近2000名优秀中小学生齐聚一堂，在3D创意设计、智能机器人、创意编程等26个项目中展示交流，用数字技术展现青少年的创新活力与实践能力。
 
-作为三峡人寿发起股东，新华联控股近年因流动性危机陷入破产重整，若本次拍卖顺利成交，其将彻底退出股东名单。
+据悉，四川省学生数字素养提升实践活动经过二十余年的发展，已成为省内最具影响力的青少年科技活动之一。
 
-记者注意到，该笔股权年内拍卖持续遇冷，自2月挂牌以来已六度流拍，起拍价从初始2.02亿元一路下调，先后降至1.62亿元、1.29亿元、1.03亿元、0.72亿元、0.51亿元，直至本次降至0.35亿元，缩水超八成。
+通过参与此类活动，学生们不仅能够提升专业技能，更能培养团队协作精神、创新思维和解决实际问题的能力。
 
-成立初期，三峡人寿发展不佳，董事长、总经理长期缺位，公司治理失灵，长期亏损，偿付能力一度跌破监管红线，2023年一季度风险综合评级降为D级，被列为重点监管对象。
+这些能力的培养对于学生未来的学业发展和职业规划都具有重要意义。
 
-后伴随着行业与市场格局的更迭，三峡人寿亦接连调整股权结构，引入地方国资，增加注册资本，完成改革化险。
-
-从近三年偿付能力报告所披露的业绩来看，2023-2025年，三峡人寿保费收入分别为4.06亿元、3.33亿元、6.33亿元，同期净亏损依次为1.97亿元、2.52亿元、1.97亿元。
-
-2026年一季度，三峡人寿实现保费收入7.16亿元，同比大增252%；净亏损0.37亿元；核心、综合偿付能力充足率分别为269.05%、273.46%。
+(记者 何浠） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 17:22 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 17:22 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 17:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 17:25 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 17:27 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 17:33 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 17:26 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 17:40 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 17:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 17:39 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 17:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 17:28 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 17:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 17:44 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 17:28 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 17:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 17:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 17:25 - [永远有话聊的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 17:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 17:30 - [抓特务票房破亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 17:41 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 17:53 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 17:44 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 17:52 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 17:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 17:36 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/848612537224.shtml)
-- 2026-06-29 17:21 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/0282838948.shtml)
-- 2026-06-29 17:41 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/93321880164.shtml)
-- 2026-06-29 17:25 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/186882.shtml)
-- 2026-06-29 17:35 - [当地回应林区违规放羊遭豹啃食](http://www.blog.kurohicncr.top/Article/details/538802297.shtml)
-- 2026-06-29 17:18 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/3468704827.shtml)
-- 2026-06-29 17:20 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/93949525.shtml)
-- 2026-06-29 17:38 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/7761480.shtml)
-- 2026-06-29 17:20 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/38361786.shtml)
-- 2026-06-29 17:39 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/880213852.shtml)
-- 2026-06-29 17:42 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/033739431.shtml)
-- 2026-06-29 17:28 - [明星大侦探第四季](https://www.share.minike.top/Article/details/66473914.shtml)
-- 2026-06-29 17:36 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/16365274042.shtml)
-- 2026-06-29 17:25 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/130768996.shtml)
-- 2026-06-29 17:29 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/6005846.shtml)
+- 2026-06-29 17:45 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/992210095330.shtml)
+- 2026-06-29 17:31 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/36613910610.shtml)
+- 2026-06-29 17:40 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/24089.shtml)
+- 2026-06-29 17:42 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/633615.shtml)
+- 2026-06-29 17:29 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/300218388.shtml)
+- 2026-06-29 17:27 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/89175.shtml)
+- 2026-06-29 17:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/483465.shtml)
+- 2026-06-29 17:33 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/271033766478.shtml)
+- 2026-06-29 17:49 - [毒液2](http://www.blog.kurohicncr.top/Article/details/73154.shtml)
+- 2026-06-29 17:45 - [网友飞机上偶遇肖战](http://www.share.kurohicncr.top/Article/details/19813930.shtml)
+- 2026-06-29 17:40 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/8889306.shtml)
+- 2026-06-29 17:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/573238101.shtml)
+- 2026-06-29 17:25 - [沙丘](https://www.blog.kurohicncr.top/Article/details/0043474.shtml)
+- 2026-06-29 17:50 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/482712029.shtml)
+- 2026-06-29 17:38 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/94397605904.shtml)

@@ -1,61 +1,48 @@
-# 谁在借网络平台给日本社会“投毒”？（环球走笔）
+# 伊朗议长卡利巴夫被任命为对华事务特别代表
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-人民日报 吴 限 近日，一名日本学生在国际学校了解到南京大屠杀史实后，回家表达愧疚，不料引发父亲暴怒。这名父亲在社交平台发帖，怒称要“抵制国际教育”，并用右翼篡改的“史料”误导女儿。更加值得警惕的是，他的言论很快获得大量日本网民附和，一些人污蔑相关史实是“对小孩子洗脑”，还有人要求日本教育部门管控国际学校，阻止学生了解真实历史。 如此荒诞的一幕，令人不禁发问：面对昭昭历史，日本
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰5月17日电（记者陈霄沙达提）据伊朗塔斯尼姆通讯社17日报道，经伊朗总统提议、最高领袖批准，伊朗伊斯兰议会议长卡利巴夫被任命为伊朗伊斯兰共和国对华事务特别代表。 报道援引消息人士的话说，卡利巴夫将负责协调伊朗国内不同部门与中国之间的相关事务与合作。（完）责任编辑：宋雅芳
 
 ## 正文
 
-人民日报 吴 限 近日，一名日本学生在国际学校了解到南京大屠杀史实后，回家表达愧疚，不料引发父亲暴怒。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这名父亲在社交平台发帖，怒称要“抵制国际教育”，并用右翼篡改的“史料”误导女儿。
+新华社德黑兰5月17日电（记者陈霄沙达提）据伊朗塔斯尼姆通讯社17日报道，经伊朗总统提议、最高领袖批准，伊朗伊斯兰议会议长卡利巴夫被任命为伊朗伊斯兰共和国对华事务特别代表。
 
-更加值得警惕的是，他的言论很快获得大量日本网民附和，一些人污蔑相关史实是“对小孩子洗脑”，还有人要求日本教育部门管控国际学校，阻止学生了解真实历史。
+报道援引消息人士的话说，卡利巴夫将负责协调伊朗国内不同部门与中国之间的相关事务与合作。
 
-如此荒诞的一幕，令人不禁发问：面对昭昭历史，日本网络平台上为何会形成如此畸形的认知？
-
-这背后，离不开日本右翼黑手的长期“投毒”。
-
-据日本《朝日新闻》调查，日本众包平台CrowdWorks长期付费招募网民，刻意收集或利用AI生成“中国人不文明”“反日”“南京大屠杀是谎言”等抹黑内容，将歪曲历史、煽动对立的右翼舆论当作博取流量和收益的手段，形成了一条黑色产业链。
-
-借助网络平台，日本右翼以平台化、产业化的方式制造谣言、扩散极端言论，让一些本就受错误史观误导的日本网民，进一步丧失对战争的反思与批判能力。
-
-畸形历史认知和对华恶意舆论之所以在日本社会如此泛滥，离不开日本右翼政府真金白银的支持。
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 17:45 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 17:47 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 17:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 17:33 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 17:38 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 17:24 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 17:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 17:38 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 17:34 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 17:40 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-29 17:31 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 17:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 17:30 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 17:37 - [小鹏MONAL03预售定档7月2日](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 17:30 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 17:24 - [博主：黄金和原油回落不等于风险消失](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-29 17:53 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 17:40 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 17:44 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 17:29 - [恋与深空 731](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 17:29 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 17:33 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 17:43 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 17:40 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:30 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/88392766.shtml)
-- 2026-06-29 17:19 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/603242758.shtml)
-- 2026-06-29 17:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/476278.shtml)
-- 2026-06-29 17:31 - [朱必达辞去湖南人大常委会委员职务](https://www.share.minike.top/Article/details/673713434310.shtml)
-- 2026-06-29 17:47 - [天道](https://www.share.kurohicncr.top/Article/details/24236648.shtml)
-- 2026-06-29 17:38 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/31672836.shtml)
-- 2026-06-29 17:23 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/3095948.shtml)
-- 2026-06-29 17:44 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/4031147.shtml)
-- 2026-06-29 17:31 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/08615606.shtml)
-- 2026-06-29 17:34 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/29647.shtml)
-- 2026-06-29 17:25 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/332425942151.shtml)
-- 2026-06-29 17:39 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/285744551817.shtml)
-- 2026-06-29 17:24 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/06758432.shtml)
-- 2026-06-29 17:28 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/92385167847.shtml)
-- 2026-06-29 17:40 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/267971467.shtml)
+- 2026-06-29 17:29 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/189663492664.shtml)
+- 2026-06-29 17:28 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/19024.shtml)
+- 2026-06-29 17:41 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/49577200.shtml)
+- 2026-06-29 17:27 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/8590862.shtml)
+- 2026-06-29 17:50 - [《贺子珍》](http://www.share.minike.top/Article/details/27526721.shtml)
+- 2026-06-29 17:53 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/2405681.shtml)
+- 2026-06-29 17:45 - [霍尔木兹海峡风波再起 油价走向何方](https://www.blog.minike.top/Article/details/89465.shtml)
+- 2026-06-29 17:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/64521.shtml)
+- 2026-06-29 17:33 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/45612962203.shtml)
+- 2026-06-29 17:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/39259.shtml)
+- 2026-06-29 17:29 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/93508752.shtml)
+- 2026-06-29 17:44 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/60452.shtml)
+- 2026-06-29 17:51 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/621474917.shtml)
+- 2026-06-29 17:34 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/1542361.shtml)
+- 2026-06-29 17:42 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/5651154382.shtml)

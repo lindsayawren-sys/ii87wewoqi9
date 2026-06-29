@@ -1,59 +1,61 @@
-# 长江有色: 强美元+弱需求+高库存施压 13日铝价或涨跌有限
+# 美国人对经济的信心跌入历史冰点，悲观弥漫却依旧消费
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-长江铝价alu.ccmn.cn短评：美指走强施压，隔夜伦铝微跌0.2%；伦沪两市库存走势分化，季节性淡季逐步来临，下游需求趋弱，市场多空因素交织，今现铝或涨跌有限。【铝期货市场】：美指走强施压，隔夜伦铝窄幅区间弱势整理，最新收盘报价3575美元/吨，收跌7美元，跌幅0.20%，成交量16372手减少5933手，持仓量670286手减少325手。晚间沪铝开盘跳水后反弹震荡，尾盘横
+汇通财经APP讯——美国民众消费悲观情绪长期持续蔓延，市场经济学家开始质疑家庭财务感受能否迎来实质好转。密歇根大学消费者信心指数再度刷新历史低位，疫情过后民众对经济的信任感始终未能修复。多年高物价叠加接连不断的外部冲击，让居民体感通胀居高不下，信心持续低迷。但反常的是，信心走弱并未抑制消费意愿，美股同步再创新高，就业市场保持韧性，美国消费呈现出信心低迷、支出坚挺的分化格局。 民
 
 ## 正文
 
-长江铝价alu.ccmn.cn短评：美指走强施压，隔夜伦铝微跌0.2%；伦沪两市库存走势分化，季节性淡季逐步来临，下游需求趋弱，市场多空因素交织，今现铝或涨跌有限。
+汇通财经APP讯——美国民众消费悲观情绪长期持续蔓延，市场经济学家开始质疑家庭财务感受能否迎来实质好转。
 
-【铝期货市场】：美指走强施压，隔夜伦铝窄幅区间弱势整理，最新收盘报价3575美元/吨，收跌7美元，跌幅0.20%，成交量16372手减少5933手，持仓量670286手减少325手。
+密歇根大学消费者信心指数再度刷新历史低位，疫情过后民众对经济的信任感始终未能修复。
 
-晚间沪铝开盘跳水后反弹震荡，尾盘横盘整理收录小阴线；主力月2606合约最新收盘价报24640元/吨，跌5元，跌幅0.02%。
+多年高物价叠加接连不断的外部冲击，让居民体感通胀居高不下，信心持续低迷。
 
-伦敦金属交易所（LME）5月12日伦铝最新库存量报351000公吨，较上个交易日减少2350公吨，跌幅0.67%。
+但反常的是，信心走弱并未抑制消费意愿，美股同步再创新高，就业市场保持韧性，美国消费呈现出信心低迷、支出坚挺的分化格局。
 
-长江铝业网讯：5月12日现货铝价，长江现货A00铝锭价报24380元/吨，跌10元；广东现货A00铝锭价报24320元/吨，涨80元。
+民众长期陷入悲观 经济信心难以修复 美国消费者悲观情绪已维持相当长时间，业内经济学家普遍开始思考，居民财务感受何时能够改善，甚至质疑是否还有回暖空间。
 
-宏观层面，隔夜美元指数震荡走强升至98.289，对以美元计价的金属商品形成较强压制。
+上周公布的密歇根大学消费者信心初值，在5月跌至历史最低水平。
 
-美股市场表现分化，标普500和纳斯达克指数周二分别收跌0.16%和0.71%，道琼斯指数微涨0.11%。
+多项民间消费调研同步印证，自六年前新冠疫情暴发后，美国民众对整体经济的信心始终没能重回常态。
 
-受伊朗局势影响，美伊停火协议日益脆弱，叠加美国4月CPI同比大幅走高，市场对美联储降息的期望几近破灭，加息概率有所上升，整体打压了风险资产的吸引力。
+世界大型企业研究会高级经济学家叶莲娜·舒利亚季娃（Yelena Shulyatyeva）表示，各类经济冲击接连来袭，民众始终没有喘息调整的空间。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 17:28 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 17:22 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 17:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 17:30 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 17:20 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 17:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 17:45 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 17:39 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 17:25 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 17:34 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 17:23 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-29 17:34 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 17:51 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 17:43 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 17:25 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 17:49 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 17:41 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 17:30 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 17:46 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 17:26 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 17:30 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 17:47 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 17:52 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 17:25 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 17:37 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 17:47 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 17:40 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/29682567.shtml)
-- 2026-06-29 17:37 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/210250601685.shtml)
-- 2026-06-29 17:26 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/6390347.shtml)
-- 2026-06-29 17:32 - [曝屠颖去世和酒店失责有关](https://www.blog.minike.top/Article/details/45536521967.shtml)
-- 2026-06-29 17:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/63715229052.shtml)
-- 2026-06-29 17:21 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/33359291554.shtml)
-- 2026-06-29 17:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/6079787322.shtml)
-- 2026-06-29 17:24 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/716796.shtml)
-- 2026-06-29 17:19 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/7470912321.shtml)
-- 2026-06-29 17:29 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/68496226194.shtml)
-- 2026-06-29 17:41 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/9985525924.shtml)
-- 2026-06-29 17:46 - [TTG KSG](http://www.share.minike.top/Article/details/683150897.shtml)
-- 2026-06-29 17:39 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/76533.shtml)
-- 2026-06-29 17:27 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/4337637.shtml)
-- 2026-06-29 17:33 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/164876.shtml)
+- 2026-06-29 17:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/75565.shtml)
+- 2026-06-29 17:38 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/614345.shtml)
+- 2026-06-29 17:32 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/325373927685.shtml)
+- 2026-06-29 17:42 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/16089.shtml)
+- 2026-06-29 17:44 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/891233985.shtml)
+- 2026-06-29 17:51 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/7700977.shtml)
+- 2026-06-29 17:32 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/43382478157.shtml)
+- 2026-06-29 17:32 - [东方风云榜](http://www.share.minike.top/Article/details/100263.shtml)
+- 2026-06-29 17:40 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/627917029.shtml)
+- 2026-06-29 17:45 - [普京介绍前线战事](https://www.share.minike.top/Article/details/7631282902.shtml)
+- 2026-06-29 17:53 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/45663431326.shtml)
+- 2026-06-29 17:30 - [上海小区惊现鳄鱼](https://www.share.kurohicncr.top/Article/details/60837019429.shtml)
+- 2026-06-29 17:43 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/379941521.shtml)
+- 2026-06-29 17:44 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/239225248.shtml)
+- 2026-06-29 17:45 - [当我回母校教书](http://www.blog.minike.top/Article/details/24196.shtml)

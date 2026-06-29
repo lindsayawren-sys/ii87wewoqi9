@@ -1,61 +1,59 @@
-# 吉林发力空天信息产业 卫星核心零部件全部国产化
+# 中资企业持续助力柬埔寨教育发展
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新社长春5月12日电 (记者 郭佳)记者12日从吉林省政府新闻办召开的新闻发布会获悉，目前吉林已具备年产200颗遥感卫星、200颗通信卫星的产能，核心零部件全部实现国产化。“十五五”时期，该省将大力发展空天信息产业。 吉林卫星产业起步于2014年。当年成立的长光卫星技术股份有限公司是中国第一家商业遥感卫星公司。这些年，其累计将152颗卫星送入太空，建成了全球最大的亚米级商业遥
+中新网金边5月16日电 (记者 杨强)5月15日，一场简朴而隆重的捐资助学仪式在柬埔寨国公省省立小学举行。柬埔寨国公省副省长青叔万达、中国华电额勒赛下游水电项目(柬埔寨)有限公司执行董事刘新喜以及学校师生代表共同出席。 这是继今年2月捐建的图书馆正式启用后，华电额勒赛公司再次向该校捐赠教学物资，并设立“华电奖学金”和“华电奖教金”，以持续行动支持当地教育事业发展，为中柬友谊再添
 
 ## 正文
 
-中新社长春5月12日电 (记者 郭佳)记者12日从吉林省政府新闻办召开的新闻发布会获悉，目前吉林已具备年产200颗遥感卫星、200颗通信卫星的产能，核心零部件全部实现国产化。
+中新网金边5月16日电 (记者 杨强)5月15日，一场简朴而隆重的捐资助学仪式在柬埔寨国公省省立小学举行。
 
-“十五五”时期，该省将大力发展空天信息产业。
+柬埔寨国公省副省长青叔万达、中国华电额勒赛下游水电项目(柬埔寨)有限公司执行董事刘新喜以及学校师生代表共同出席。
 
-吉林卫星产业起步于2014年。
+这是继今年2月捐建的图书馆正式启用后，华电额勒赛公司再次向该校捐赠教学物资，并设立“华电奖学金”和“华电奖教金”，以持续行动支持当地教育事业发展，为中柬友谊再添温暖的注脚。
 
-当年成立的长光卫星技术股份有限公司是中国第一家商业遥感卫星公司。
+在当天举行的仪式上，华电额勒赛公司向国公省省立小学捐赠急需的教育物资，并为20名品学兼优的学生颁发“华电奖学金”，同时为10名辛勤耕耘的教师颁发“华电奖教金”。
 
-这些年，其累计将152颗卫星送入太空，建成了全球最大的亚米级商业遥感卫星星座。
+从图书馆的捐建到教学物资的补充，从奖励学子到激励教师，这一系列举措体现中国企业扎根当地、深耕公益的持久承诺。
 
-吉林省工业和信息化厅副厅长马毅介绍，该省重点支持“星载一体化”等关键核心技术迭代，突破了智能轻型、超大幅宽等技术瓶颈，同时正在研发低轨手机直连通信卫星等重大技术装备。
+刘新喜表示，今年2月捐建的图书馆已正式向师生开放，看到孩子们在知识的海洋中快乐遨游，我们倍感欣慰。
 
-此外，还通过支持智能光学元件、表面贴装技术、高分辨轻量化光学成像装备等“智改数转”产线建设，推动卫星及配套装备生产向规模化、标准化、智能化转型。
+今天再次来到这里，希望为学校解决更多实际困难，激励师生奋发进取。
 
-目前，吉林已集聚涵盖研制、生产、服务在内的千余家上下游企业，卫星数据与服务已在农林、水利、环保、交通、金融、自然资源、城市建设等14个领域提供150余项(类别)精准服务。
+在柬中资企业不仅建设优质的电力项目，更致力于履行社会责任，做中柬友好的民间使者。
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 17:46 - [首个靠AI躺赢的国家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 17:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 17:33 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 17:21 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 17:25 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-29 17:38 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 17:20 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 17:23 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 17:24 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 17:39 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 17:31 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 17:24 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 17:22 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 17:24 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 17:46 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 17:34 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 17:39 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 17:35 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 17:52 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 17:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 17:52 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 17:45 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 17:53 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 17:45 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 17:53 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 17:43 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 17:39 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/9384889328.shtml)
-- 2026-06-29 17:18 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/483589371.shtml)
-- 2026-06-29 17:32 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/49398558.shtml)
-- 2026-06-29 17:26 - [韩国国脚每人获35.5万奖金](https://www.share.kurohicncr.top/Article/details/3981181.shtml)
-- 2026-06-29 17:42 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/1582494929.shtml)
-- 2026-06-29 17:32 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/46809648721.shtml)
-- 2026-06-29 17:18 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/27195.shtml)
-- 2026-06-29 17:31 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/399338500.shtml)
-- 2026-06-29 17:37 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/752992086.shtml)
-- 2026-06-29 17:42 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/66347816678.shtml)
-- 2026-06-29 17:47 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/90345.shtml)
-- 2026-06-29 17:27 - [恋与深空 731](https://www.share.minike.top/Article/details/9902401.shtml)
-- 2026-06-29 17:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/321313.shtml)
-- 2026-06-29 17:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/7526388370.shtml)
-- 2026-06-29 17:46 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/037066822.shtml)
+- 2026-06-29 17:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/325998.shtml)
+- 2026-06-29 17:46 - [霍尔木兹海峡风波再起 油价走向何方](https://www.share.kurohicncr.top/Article/details/801977149.shtml)
+- 2026-06-29 17:41 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/47451265000.shtml)
+- 2026-06-29 17:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/0538265756.shtml)
+- 2026-06-29 17:50 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/7408079272.shtml)
+- 2026-06-29 17:37 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/584205498.shtml)
+- 2026-06-29 17:41 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/765982637640.shtml)
+- 2026-06-29 17:32 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/85050359504.shtml)
+- 2026-06-29 17:26 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/471557246876.shtml)
+- 2026-06-29 17:44 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/651612249295.shtml)
+- 2026-06-29 17:28 - [普京为何喊话俄乌都别打对方纵深](https://www.share.minike.top/Article/details/3203802748.shtml)
+- 2026-06-29 17:46 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/437914.shtml)
+- 2026-06-29 17:51 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/45008908.shtml)
+- 2026-06-29 17:49 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/945978.shtml)
+- 2026-06-29 17:45 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/934020433926.shtml)

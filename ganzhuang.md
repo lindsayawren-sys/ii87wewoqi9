@@ -1,60 +1,61 @@
-# 多空双方都认为当下行情或将重演1999年历史。该顺势入场，还是抛售科技股？
+# 世界各地百位侨商侨领齐聚黑龙江 共话向北开放
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-华尔街当下的核心争论可以概括为： 空头观点：“市场走势开始像 1999 年 —— 赶紧抛售科技股。” 多头反驳：“行情复刻 1999 年 —— 恰恰应该买入科技股。” 市场与上世纪 90 年代末科技主导大牛市末期狂热走势高度相似，投资者对于该拥抱行情还是规避风险产生巨大分歧。分歧加剧的原因，一方面是多项技术指标已走到极端位置，另一方面当下市场氛围与当年全民聚焦科技创新浪潮的局面
+中新网哈尔滨5月16日电(记者 王妮娜)“黑龙江的机遇不仅仅是区域性的，更是连接欧亚、辐射全球的。我们看到了这里作为向北开放新高地的巨大潜力。”缅甸黑龙江总商会创会会长武玉铜在16日举行的活动现场说。 当日，“创业中华·创新龙江—2026海内外侨商侨领聚力向北开放龙江行”在哈尔滨启幕，来自22个国家和地区的百余位侨商侨领齐聚冰城，共话向北开放新机遇。 本次活动以“共建向北开放新
 
 ## 正文
 
-华尔街当下的核心争论可以概括为： 空头观点：“市场走势开始像 1999 年 —— 赶紧抛售科技股。
+中新网哈尔滨5月16日电(记者 王妮娜)“黑龙江的机遇不仅仅是区域性的，更是连接欧亚、辐射全球的。
 
-” 多头反驳：“行情复刻 1999 年 —— 恰恰应该买入科技股。
+我们看到了这里作为向北开放新高地的巨大潜力。
 
-” 市场与上世纪 90 年代末科技主导大牛市末期狂热走势高度相似，投资者对于该拥抱行情还是规避风险产生巨大分歧。
+”缅甸黑龙江总商会创会会长武玉铜在16日举行的活动现场说。
 
-分歧加剧的原因，一方面是多项技术指标已走到极端位置，另一方面当下市场氛围与当年全民聚焦科技创新浪潮的局面高度重合。
+当日，“创业中华·创新龙江—2026海内外侨商侨领聚力向北开放龙江行”在哈尔滨启幕，来自22个国家和地区的百余位侨商侨领齐聚冰城，共话向北开放新机遇。
 
-以费城半导体指数衡量的半导体板块，相对 200 日移动平均线的超买程度，历史上仅出现过两次：一次在 2000 年初，另一次在 1995 年。
+本次活动以“共建向北开放新高地、共享振兴发展新机遇”为主要内容，旨在发挥侨商联通中外的独特优势，开展“侨助千企万品出海”项目对接活动、创新创业经验交流分享会、经贸洽谈等活动，加强黑龙江与全球侨商侨企经贸合作交流、对话沟通，实现互利合作与共赢发展，活动期间，侨商代表团将深入哈尔滨、佳木斯等地，考察中俄国际合作示范区等重点项目。
 
-2000 年那次超买，恰逢一代人级别的市场大顶；1995 年则是半导体板块独自走入熊市，而大盘指数仍持续走高。
+“我是土生土长的龙江人，在缅甸深耕多年，最直观的感受是，黑龙江的‘向北开放’已成为辐射东南亚、联动欧亚的国际合作热点。
 
-上周之前，标普 500 创下历史新高、同时场内大量个股跌至 52 周新低的情况，仅出现在重要市场顶部附近，包括 90 年代牛市末期。
+”武玉铜说，侨商们关注点已从“单点贸易”转向“全链合作”，从“观望试探”转向“长期布局”。
 
-定制投资集团（Bespoke Investment Group）周一补充表示：“自 1996 年以来，标普 500 创历史新高、且不到 60% 个股站上 50 日和 200 日均线的时段，只出现在 1998 年末至 2000 年初。
+他透露，其商会正计划打造“龙江—缅甸—东南亚—俄罗斯”的跨境物流新通道，助力黑龙江绿色食品、装备制造等优势产品双向出海。
 
 ## 相关推荐
 
-- 2026-06-29 17:27 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 17:29 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 17:22 - [天柱山回应网红打卡树枝被砍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 17:33 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 17:30 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 17:38 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 17:47 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 17:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 17:39 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 17:40 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-29 17:21 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 17:33 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 17:40 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 17:32 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-29 17:46 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 17:52 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 17:53 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-29 17:46 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 17:29 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 17:39 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 17:32 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 17:33 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 17:51 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 17:28 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 17:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 17:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 17:34 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 17:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 17:38 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/51646581.shtml)
-- 2026-06-29 17:18 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/8801311086.shtml)
-- 2026-06-29 17:45 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/79609.shtml)
-- 2026-06-29 17:46 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/52667.shtml)
-- 2026-06-29 17:28 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/167682130.shtml)
-- 2026-06-29 17:27 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/988019.shtml)
-- 2026-06-29 17:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/3462943031.shtml)
-- 2026-06-29 17:29 - [绘画区你赢了](https://www.share.minike.top/Article/details/8905319.shtml)
-- 2026-06-29 17:19 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/53651984895.shtml)
-- 2026-06-29 17:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/349126953899.shtml)
-- 2026-06-29 17:24 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/70197610981.shtml)
-- 2026-06-29 17:41 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/42931598.shtml)
-- 2026-06-29 17:34 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.kurohicncr.top/Article/details/4565149.shtml)
-- 2026-06-29 17:43 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/153777531333.shtml)
-- 2026-06-29 17:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/09678.shtml)
+- 2026-06-29 17:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/8940711373.shtml)
+- 2026-06-29 17:42 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/65375502.shtml)
+- 2026-06-29 17:32 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/4019564.shtml)
+- 2026-06-29 17:45 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/26741146892.shtml)
+- 2026-06-29 17:43 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/31184246606.shtml)
+- 2026-06-29 17:48 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/16083.shtml)
+- 2026-06-29 17:33 - [舒行钢任湖南省交通运输厅厅长](http://www.share.kurohicncr.top/Article/details/3077136785.shtml)
+- 2026-06-29 17:42 - [第一炉香](https://www.share.minike.top/Article/details/61832988.shtml)
+- 2026-06-29 17:39 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/11219069.shtml)
+- 2026-06-29 17:38 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/94058.shtml)
+- 2026-06-29 17:30 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/02754902810.shtml)
+- 2026-06-29 17:51 - [欧洲高温会成下个印度吗](https://www.share.minike.top/Article/details/4466439.shtml)
+- 2026-06-29 17:46 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/41133.shtml)
+- 2026-06-29 17:24 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/488948.shtml)
+- 2026-06-29 17:36 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/65117.shtml)

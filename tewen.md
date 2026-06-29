@@ -1,57 +1,61 @@
-# FDA局长马卡里辞职，此前多次遭特朗普斥责
+# 美债收益率持续走高 实际利率飙升压制股市
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-美国食品药品监督管理局局长马蒂·马卡里（Marty Makary）周二正式辞职，结束了其仅持续一年多的动荡任期。此前数周，他在电子烟审批、堕胎药审查及罕见病药物批准等议题上与白宫及卫生部门高层矛盾激化，最终导致其离职。 辞职背景：四面楚歌的监管生涯 FDA负责监管美国五分之一的消费者支出，其局长职位向来需在科学与政治间寻求平衡。然而，上任仅一年多，马卡里就深陷多重争议，面临来自
+美国国债收益率已连续数周走高，而周五此番大幅攀升，愈发令股市投资者倍感不安。 此番收益率上行，不单源于市场通胀预期升温，实际收益率也同步大幅走高，这一走势往往对股市冲击更大。 据债券交易平台Tradeweb数据，近期交易中，10年期通胀保值国债（TIPS）收益率报2.05%，较周四的1.973%继续上行。 今年3月伊朗冲突爆发初期，10年期通胀保值国债收益率冲高，同期股市应声下
 
 ## 正文
 
-美国食品药品监督管理局局长马蒂·马卡里（Marty Makary）周二正式辞职，结束了其仅持续一年多的动荡任期。
+美国国债收益率已连续数周走高，而周五此番大幅攀升，愈发令股市投资者倍感不安。
 
-此前数周，他在电子烟审批、堕胎药审查及罕见病药物批准等议题上与白宫及卫生部门高层矛盾激化，最终导致其离职。
+此番收益率上行，不单源于市场通胀预期升温，实际收益率也同步大幅走高，这一走势往往对股市冲击更大。
 
-辞职背景：四面楚歌的监管生涯 FDA负责监管美国五分之一的消费者支出，其局长职位向来需在科学与政治间寻求平衡。
+据债券交易平台Tradeweb数据，近期交易中，10年期通胀保值国债（TIPS）收益率报2.05%，较周四的1.973%继续上行。
 
-然而，上任仅一年多，马卡里就深陷多重争议，面临来自多个阵营的压力： 电子烟政策方面，据报道，特朗普总统曾多次致电斥责马卡里，因其迟迟不愿批准水果味电子烟。
+今年3月伊朗冲突爆发初期，10年期通胀保值国债收益率冲高，同期股市应声下跌；而随着该收益率回落，股市随即迎来反弹。
 
-尽管马卡里坚持FDA科研人员对青少年吸引力的担忧，但在白宫持续施压下，相关产品最终于上周获批上市。
+自4月末以来，美国名义国债收益率持续上行，但通胀保值国债收益率直到一周前才开始正式发力上涨，周五更是创下阶段性最大涨幅。
 
-罕见病药物审批方面，多家生物科技公司向白宫投诉，称其新药申请遭到FDA不合理否决。
+众所周知，10年期名义美债收益率是全美各类借贷成本的核心基准；而10年期通胀保值国债收益率，代表剔除通胀后的实际融资成本，企业在制定借贷与开支规划时，这一指标参考价值更高。
 
-值得注意的是，在马卡里可能被解雇的消息传出后，其中一家公司——Replimune的股价收盘大涨近22%。
+因此相比单纯的名义收益率上涨，实际收益率走高对经济的压制作用更为显著。
 
-内部管理：人事动荡与士气低迷 除外部政治压力外，FDA内部亦陷入混乱。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 17:19 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 17:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 17:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 17:28 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-29 17:19 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-29 17:47 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-29 17:36 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 17:34 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 17:39 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-29 17:34 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 17:21 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:33 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 17:25 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 17:36 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 17:44 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 17:28 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 17:29 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 17:44 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 17:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 17:41 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 17:31 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 17:39 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 17:48 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 17:35 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-29 17:27 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 17:38 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/24245010.shtml)
-- 2026-06-29 17:23 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/53862.shtml)
-- 2026-06-29 17:36 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/2897573.shtml)
-- 2026-06-29 17:45 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/671740.shtml)
-- 2026-06-29 17:33 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/109222.shtml)
-- 2026-06-29 17:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/314742.shtml)
-- 2026-06-29 17:31 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/489036968393.shtml)
-- 2026-06-29 17:32 - [乔家的儿女](http://www.blog.minike.top/Article/details/3225222259.shtml)
-- 2026-06-29 17:20 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/18361461.shtml)
-- 2026-06-29 17:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/8129236.shtml)
-- 2026-06-29 17:38 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/924832649946.shtml)
-- 2026-06-29 17:27 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/92877610825.shtml)
-- 2026-06-29 17:43 - [叠纸](https://www.share.minike.top/Article/details/18205649804.shtml)
-- 2026-06-29 17:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/348377.shtml)
-- 2026-06-29 17:35 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/135296798.shtml)
+- 2026-06-29 17:38 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/994002791.shtml)
+- 2026-06-29 17:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/64836.shtml)
+- 2026-06-29 17:51 - [流金岁月](https://www.share.minike.top/Article/details/1512602.shtml)
+- 2026-06-29 17:30 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/875330117.shtml)
+- 2026-06-29 17:31 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/251454903.shtml)
+- 2026-06-29 17:48 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/690369464.shtml)
+- 2026-06-29 17:37 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/7042537361.shtml)
+- 2026-06-29 17:29 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/50342.shtml)
+- 2026-06-29 17:43 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/494018115.shtml)
+- 2026-06-29 17:46 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/606737221.shtml)
+- 2026-06-29 17:47 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/64866410492.shtml)
+- 2026-06-29 17:40 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/759381791393.shtml)
+- 2026-06-29 17:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/8812419.shtml)
+- 2026-06-29 17:30 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/09380784468.shtml)
+- 2026-06-29 17:45 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/292910105.shtml)

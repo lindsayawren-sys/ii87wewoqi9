@@ -1,60 +1,58 @@
-# 美国股市：标普500指数反弹创新高 科技股领涨无视通胀担忧
+# 华泰期货：产销数据好转，钢价震荡运行
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-标普500指数周三反弹并触及历史高位，逢低买盘无视成本压力，在回调后抢购科技公司股票。 标普500指数在纽约上涨0.6%，纳斯达克100指数上涨1%。 芯片制造商、光学及存储类公司领涨，因全球存储芯片供应进一步趋紧。 英伟达上涨2.3%。 受战争推动的能源价格上涨带动运输成本上升影响，美国4月生产者价格通胀加速至2022年以来最快步伐。 投资者权衡通胀回升带来的扰动，同时强劲的
+市场分析 期现货方面：昨日螺纹钢期货主力合约收于3255元/吨，热卷主力合约收于3478元/吨。现货方面，昨日钢材现货成交整体一般偏弱，螺纹成交略弱于热卷，上午成交偏弱，反弹过程中低价成交好转，基差持稳或微扩。昨日，全国建材成交9.28万吨。 供需与逻辑：本周钢联数据显示，全国钢材市场产销均有所好转，其中建材数据强于板材，去库速度明显加快。目前建材产销矛盾不足，消费持续性有待验
 
 ## 正文
 
-标普500指数周三反弹并触及历史高位，逢低买盘无视成本压力，在回调后抢购科技公司股票。
+市场分析 期现货方面：昨日螺纹钢期货主力合约收于3255元/吨，热卷主力合约收于3478元/吨。
 
-标普500指数在纽约上涨0.6%，纳斯达克100指数上涨1%。
+现货方面，昨日钢材现货成交整体一般偏弱，螺纹成交略弱于热卷，上午成交偏弱，反弹过程中低价成交好转，基差持稳或微扩。
 
-芯片制造商、光学及存储类公司领涨，因全球存储芯片供应进一步趋紧。
+昨日，全国建材成交9.28万吨。
 
-英伟达上涨2.3%。
+供需与逻辑：本周钢联数据显示，全国钢材市场产销均有所好转，其中建材数据强于板材，去库速度明显加快。
 
-受战争推动的能源价格上涨带动运输成本上升影响，美国4月生产者价格通胀加速至2022年以来最快步伐。
+目前建材产销矛盾不足，消费持续性有待验证。
 
-投资者权衡通胀回升带来的扰动，同时强劲的企业盈利和人工智能带来的利润前景继续支撑对经济和股市的信心。
+板材产量变化不大，受出口接单回落预期影响，短期钢材价格上下空间均较为有限，关注后续消费韧性、去库斜率及出口接单情况。
 
-美国参议院表决通过对凯文·沃什出任美联储主席的提名确认，为美国央行数十年来最具争议的一次领导层交接铺平道路。
+策略 单边：震荡 跨期：无 跨品种：无 期现：无 期权：无 风险 宏观政策、成材供需、钢材出口、钢厂利润、成本支撑等。
 
-围绕工业企业有望从AI热潮中获利的乐观情绪，推动该板块录得创纪录的动能。
+投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
 
 ## 相关推荐
 
-- 2026-06-29 17:30 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 17:34 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 17:44 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-29 17:25 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 17:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 17:43 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-29 17:45 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 17:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 17:34 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 17:29 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 17:39 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 17:19 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 17:37 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 17:40 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 17:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-29 17:47 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 17:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 17:39 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-29 17:46 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 17:52 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-29 17:38 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 17:51 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 17:39 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 17:33 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 17:39 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 17:31 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/100918.shtml)
-- 2026-06-29 17:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/90532.shtml)
-- 2026-06-29 17:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/8737148.shtml)
-- 2026-06-29 17:33 - [和周杰伦在演唱会合唱了](http://www.share.minike.top/Article/details/794624.shtml)
-- 2026-06-29 17:42 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/179348923.shtml)
-- 2026-06-29 17:30 - [王楚钦开门红](http://www.share.minike.top/Article/details/1093617620.shtml)
-- 2026-06-29 17:31 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/60465362.shtml)
-- 2026-06-29 17:32 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/5817879.shtml)
-- 2026-06-29 17:38 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/897053870.shtml)
-- 2026-06-29 17:28 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/0297702448.shtml)
-- 2026-06-29 17:41 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/580846118766.shtml)
-- 2026-06-29 17:25 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/712656.shtml)
-- 2026-06-29 17:28 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/63279.shtml)
-- 2026-06-29 17:20 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/6083480106.shtml)
-- 2026-06-29 17:37 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/88908.shtml)
+- 2026-06-29 17:30 - [小娘惹](http://www.share.kurohicncr.top/Article/details/11524888.shtml)
+- 2026-06-29 17:34 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/3922163650.shtml)
+- 2026-06-29 17:32 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/585789942912.shtml)
+- 2026-06-29 17:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/1836062.shtml)
+- 2026-06-29 17:46 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/97564635255.shtml)
+- 2026-06-29 17:43 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/05473668142.shtml)
+- 2026-06-29 17:38 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/2277710581.shtml)
+- 2026-06-29 17:52 - [重度抑郁女孩没钱去做心理咨询](https://www.blog.kurohicncr.top/Article/details/6065291815.shtml)
+- 2026-06-29 17:28 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.share.kurohicncr.top/Article/details/921446252312.shtml)
+- 2026-06-29 17:27 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/157723.shtml)
+- 2026-06-29 17:36 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/4705153727.shtml)
+- 2026-06-29 17:40 - [每代父母都困在自己的时代里](http://www.blog.kurohicncr.top/Article/details/919244587.shtml)
+- 2026-06-29 17:29 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/4893535.shtml)
+- 2026-06-29 17:43 - [黄金也扛不住了](http://www.share.minike.top/Article/details/774934.shtml)
+- 2026-06-29 17:45 - [急先锋](http://www.blog.minike.top/Article/details/355727.shtml)

@@ -1,44 +1,61 @@
-# 一季度我国水电清洁能源基地建设全面提速
+# 美债债券抛售风暴 或将终结AI股票狂欢
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 09:37 来源：央视综合 责任编辑：【王祎】
+投资者正在狂热追逐美股科技股和AI股票的火热涨势，同时也普遍承认，不断上升的债券收益率可能会让股市偏离轨道。 有媒体采访了来自美国、亚洲和欧洲的32位投资经理，包括Wells Fargo Investment Institute、东方汇理以及BMO Global Asset Management等机构。受访者整体上明显偏向看多市场。其中，80%的投资者预计，未来三到六个月内，股
 
 ## 正文
 
-发布时间：2026年05月14日 09:37 来源：央视综合 责任编辑：【王祎】
+投资者正在狂热追逐美股科技股和AI股票的火热涨势，同时也普遍承认，不断上升的债券收益率可能会让股市偏离轨道。
+
+有媒体采访了来自美国、亚洲和欧洲的32位投资经理，包括Wells Fargo Investment Institute、东方汇理以及BMO Global Asset Management等机构。
+
+受访者整体上明显偏向看多市场。
+
+其中，80%的投资者预计，未来三到六个月内，股票表现将优于大宗商品或债券等其他资产类别。
+
+而在这些买方机构专业人士中，大约有一半人最看好的投资方向是大型科技股和人工智能概念股。
+
+这些股票正是标普500指数连续七周创纪录上涨行情的核心推动力。
+
+“我们仍然认为，一些超大规模云计算公司存在投资机会。
+
+这些公司主导了AI基础设施建设，如今也开始从相关投资中产生实实在在的回报，”巴黎Tikehau资本市场策略主管Raphael Thuin表示。
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 17:23 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 17:28 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
-- 2026-06-29 17:33 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 17:29 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 17:26 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 17:32 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 17:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 17:21 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 17:45 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 17:43 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 17:18 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 17:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 17:51 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 17:25 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 17:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-29 17:43 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 17:46 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 17:34 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 17:29 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-29 17:26 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 17:27 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 17:47 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-29 17:44 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 17:51 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 17:53 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 17:29 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [央视曝光涉黄App诈骗陷阱](https://www.share.minike.top/Article/details/120412501.shtml)
-- 2026-06-29 17:19 - [扫黑风暴](http://www.share.minike.top/Article/details/59893737124.shtml)
-- 2026-06-29 17:44 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/304794125003.shtml)
-- 2026-06-29 17:42 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/995582511.shtml)
-- 2026-06-29 17:37 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/63591.shtml)
-- 2026-06-29 17:40 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/216368.shtml)
-- 2026-06-29 17:22 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/3437735218.shtml)
-- 2026-06-29 17:44 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/2537100.shtml)
-- 2026-06-29 17:47 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/9822311004.shtml)
-- 2026-06-29 17:42 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/28060082.shtml)
-- 2026-06-29 17:21 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/14162241082.shtml)
-- 2026-06-29 17:40 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/90904149.shtml)
-- 2026-06-29 17:30 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/597167.shtml)
-- 2026-06-29 17:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/37064340.shtml)
-- 2026-06-29 17:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/57086.shtml)
+- 2026-06-29 17:42 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/033232.shtml)
+- 2026-06-29 17:35 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/585535082359.shtml)
+- 2026-06-29 17:46 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/7046674.shtml)
+- 2026-06-29 17:25 - [明星大侦探第四季](https://www.share.minike.top/Article/details/728683441.shtml)
+- 2026-06-29 17:48 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/974430474.shtml)
+- 2026-06-29 17:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/450705231.shtml)
+- 2026-06-29 17:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/20121464.shtml)
+- 2026-06-29 17:49 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/286380141914.shtml)
+- 2026-06-29 17:52 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/59263471626.shtml)
+- 2026-06-29 17:50 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/69319582.shtml)
+- 2026-06-29 17:44 - [送你一朵小红花](https://www.share.minike.top/Article/details/450164.shtml)
+- 2026-06-29 17:41 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/19254063824.shtml)
+- 2026-06-29 17:31 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/222071818.shtml)
+- 2026-06-29 17:28 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/5157263.shtml)
+- 2026-06-29 17:28 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/52828331.shtml)

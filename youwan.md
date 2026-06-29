@@ -1,56 +1,51 @@
-# 沃什治下的美联储，或成美股最大的“灰犀牛”
+# 时政画说丨跨越太平洋的握手
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-来源：金十数据 随着鲍威尔任期届满，华尔街正屏息迎接“沃什时代”。这位候任联储主席意欲颠覆执行14年的2%通胀目标，其鹰派底色与模糊的通胀定义正为美股市场埋下巨大的不确定性。 美联储即将迎来权力的更迭。2026年5月15日，鲍威尔的第二任期将正式画上句号。如无意外，凯文·沃什将接过权杖，开启他在这一全球金融决策中枢的掌舵生涯。 然而，对于正处于高位运行的道琼斯指数、标普500及
+5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。 会谈前，习近平主席在人民大会堂东门外广场为特朗普总统举行欢迎仪式。 当天，两国元首参观天坛，在祈年殿广场合影。 总监制丨申勇 监制丨龚雪辉 全宇虹 摄影丨李晋 制作丨陈括 张晶 谢薇婧 王海涵 李璐 来源：央视新闻客户端
 
 ## 正文
 
-来源：金十数据 随着鲍威尔任期届满，华尔街正屏息迎接“沃什时代”。
+5月14日上午，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
 
-这位候任联储主席意欲颠覆执行14年的2%通胀目标，其鹰派底色与模糊的通胀定义正为美股市场埋下巨大的不确定性。
+会谈前，习近平主席在人民大会堂东门外广场为特朗普总统举行欢迎仪式。
 
-美联储即将迎来权力的更迭。
+当天，两国元首参观天坛，在祈年殿广场合影。
 
-2026年5月15日，鲍威尔的第二任期将正式画上句号。
-
-如无意外，凯文·沃什将接过权杖，开启他在这一全球金融决策中枢的掌舵生涯。
-
-然而，对于正处于高位运行的道琼斯指数、标普500及纳斯达克指数而言，这场人事的交替可能并非平稳的过渡，而是一场深刻“范式转移”的开始。
-
-自2012年1月以来，美联储一直将“2%通胀率”视为货币政策的铁律。
-
-这道14年来雷打不动的“红线”，既是衡量政策成效的标尺，也是全球投资者锚定预期的基石。
+总监制丨申勇 监制丨龚雪辉 全宇虹 摄影丨李晋 制作丨陈括 张晶 谢薇婧 王海涵 李璐 来源：央视新闻客户端
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 17:37 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 17:26 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 17:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 17:35 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 17:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 17:20 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 17:36 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 17:29 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 17:26 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 17:24 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 17:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 17:52 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 17:33 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 17:27 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 17:34 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 17:49 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 17:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 17:31 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 17:30 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 17:50 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-29 17:53 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 17:43 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/70784794150.shtml)
-- 2026-06-29 17:31 - [滚石要求万豪就屠颖去世事件道歉](https://www.blog.minike.top/Article/details/9749293.shtml)
-- 2026-06-29 17:28 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/315832.shtml)
-- 2026-06-29 17:28 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/1669520900.shtml)
-- 2026-06-29 17:20 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/09867266.shtml)
-- 2026-06-29 17:32 - [音乐人屠颖离世家属追责涉事酒店](http://www.share.minike.top/Article/details/97048.shtml)
-- 2026-06-29 17:18 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/94357551471.shtml)
-- 2026-06-29 17:47 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/03205777.shtml)
-- 2026-06-29 17:28 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/1004584724.shtml)
-- 2026-06-29 17:21 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/2395236758.shtml)
-- 2026-06-29 17:19 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/51897658.shtml)
-- 2026-06-29 17:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/31300533130.shtml)
-- 2026-06-29 17:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/5506923.shtml)
-- 2026-06-29 17:25 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/02868609.shtml)
-- 2026-06-29 17:47 - [22岁民警拦截违法车辆被撞牺牲](https://www.share.kurohicncr.top/Article/details/381135.shtml)
+- 2026-06-29 17:52 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/474141.shtml)
+- 2026-06-29 17:37 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/01533097.shtml)
+- 2026-06-29 17:36 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/3167900939.shtml)
+- 2026-06-29 17:36 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/9177706.shtml)
+- 2026-06-29 17:43 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.minike.top/Article/details/79528801.shtml)
+- 2026-06-29 17:48 - [明星大侦探第一季](http://www.share.minike.top/Article/details/802206801.shtml)
+- 2026-06-29 17:40 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.minike.top/Article/details/5061171714.shtml)
+- 2026-06-29 17:44 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/035608441.shtml)
+- 2026-06-29 17:32 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/979814.shtml)
+- 2026-06-29 17:36 - [小娘惹](http://www.blog.minike.top/Article/details/594675.shtml)
+- 2026-06-29 17:25 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/62391225.shtml)
+- 2026-06-29 17:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/7714611.shtml)
+- 2026-06-29 17:27 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/533918.shtml)
+- 2026-06-29 17:46 - [波兰创该国高温纪录](https://www.share.kurohicncr.top/Article/details/456253.shtml)
+- 2026-06-29 17:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/375840633.shtml)

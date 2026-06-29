@@ -1,57 +1,56 @@
-# 英诺赛科盘中涨超7% 机构指公司业绩有望保持强劲增长态势
+# 上海公布2025年老年人口数据：户籍60岁及以上人口占比约37.6％
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨4.67%，现报87.50港元，成交额17.07亿港元。 英伟达在2025年技术大会上将800V高压直流（HVDC）架构确立为下一代AI工厂的核心供电方案。兴业证券指出，在服务器功率不断增加背景下，预计HVDC在AI数据中心供电电源占比有望逐步提升。 公开资料显示，英诺赛科是英伟达800V系统供应商名单中唯一的中国本土企业，
+中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。 数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。 上海市户籍60岁及以上的老年人口中，男性占47.8%，女性
 
 ## 正文
 
-英诺赛科（02577）盘中涨超7%，截至发稿，股价上涨4.67%，现报87.50港元，成交额17.07亿港元。
+中新社上海5月15日电 (记者 郑莹莹)上海市老龄工作委员会办公室、上海市民政局和上海市统计局15日联合发布“2025年上海市户籍老年人口、老龄事业和养老服务工作有关综合统计信息”。
 
-英伟达在2025年技术大会上将800V高压直流（HVDC）架构确立为下一代AI工厂的核心供电方案。
+数据显示，截至2025年年末，上海市户籍人口达1555.70万人，其中60岁及以上的老年人口为584.38万人，约占总人口的37.6%。
 
-兴业证券指出，在服务器功率不断增加背景下，预计HVDC在AI数据中心供电电源占比有望逐步提升。
+上海市户籍60岁及以上的老年人口中，男性占47.8%，女性占52.2%。
 
-公开资料显示，英诺赛科是英伟达800V系统供应商名单中唯一的中国本土企业，近期已成功供货谷歌，其8英寸氮化镓晶圆产线月产能已从1.3万片提升至2万片。
+截至2025年年底，上海养老服务行业共有养老护理员6.75万人，卫生专业技术人员3274人。
 
-东吴证券表示，随着数据中心及人形机器人领域GaN渗透率的持续提升，公司业绩有望保持强劲增长态势。
+上海持续构建居家养老、社区养老、机构养老相融合的养老服务格局。
 
-责任编辑：卢昱君
+除了在社区养老、机构养老上不断加强服务，近年来，上海尝试为老年人家庭提供适老化改造，小到换鞋凳、小夜灯，大到厨房、卫生间的整体改造，均致力于让居家养老更舒适、更安全。
+
+数据显示，2025年，上海居家环境适老化改造户数共计11031户，其中享受补贴的有10938户。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 17:30 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 17:40 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 17:39 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 17:46 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 17:41 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 17:32 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 17:21 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 17:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 17:38 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 17:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 17:28 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 17:34 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 17:40 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 17:20 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 17:27 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 17:24 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 17:42 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 17:39 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 17:46 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 17:35 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 17:43 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 17:31 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 17:39 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 17:37 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [第一炉香](http://www.blog.minike.top/Article/details/798922197.shtml)
-- 2026-06-29 17:18 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/0892414.shtml)
-- 2026-06-29 17:24 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/75583.shtml)
-- 2026-06-29 17:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/4956192.shtml)
-- 2026-06-29 17:35 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/50041226841.shtml)
-- 2026-06-29 17:27 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/322801553.shtml)
-- 2026-06-29 17:32 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/411243364.shtml)
-- 2026-06-29 17:38 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.kurohicncr.top/Article/details/0866134816.shtml)
-- 2026-06-29 17:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0942949.shtml)
-- 2026-06-29 17:42 - [2026世界杯谁能一黑到底](http://www.blog.minike.top/Article/details/393063.shtml)
-- 2026-06-29 17:19 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/4050328740.shtml)
-- 2026-06-29 17:27 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/2455722.shtml)
-- 2026-06-29 17:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/37271248516.shtml)
-- 2026-06-29 17:46 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/3718433.shtml)
-- 2026-06-29 17:30 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/084706.shtml)
+- 2026-06-29 17:45 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/46902615672.shtml)
+- 2026-06-29 17:35 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/44893448393.shtml)
+- 2026-06-29 17:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/802674948.shtml)
+- 2026-06-29 17:38 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/88978486.shtml)
+- 2026-06-29 17:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/9392880.shtml)
+- 2026-06-29 17:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/31536.shtml)
+- 2026-06-29 17:25 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/59156567.shtml)
+- 2026-06-29 17:27 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/51033.shtml)
+- 2026-06-29 17:29 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/0312177.shtml)
+- 2026-06-29 17:27 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/66607.shtml)
+- 2026-06-29 17:24 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/63170.shtml)
+- 2026-06-29 17:28 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/262035600.shtml)
+- 2026-06-29 17:48 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/7758400419.shtml)
+- 2026-06-29 17:47 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/354890195587.shtml)
+- 2026-06-29 17:27 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/9466019537.shtml)

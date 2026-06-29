@@ -1,58 +1,56 @@
-# 瑞声科技午前涨超9% 兆瓦级液冷CDU同步开启全球批量交付
+# 外交部发言人就美国总统特朗普访华情况答记者问
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-瑞声科技（02018）早盘涨超9%，截至发稿，股价上涨9.31%，现报42.52港元，成交额6.07亿港元。 近日，瑞声科技旗下远地科技ATAHORAN系列2.2MW/2.6MW集中式液冷CDU实现规模化量产，并同步开启全球批量交付。月交付产能达400台，稳居行业第一梯队。2.2MW/2.6MW是当前商用液冷CDU顶级高功率规格，专为下一代AI智算中心、超算集群量身打造。该类产
+中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。 有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。中方能否进一步介绍相关情况？ 答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。5月14日，习近平主席为特朗普
 
 ## 正文
 
-瑞声科技（02018）早盘涨超9%，截至发稿，股价上涨9.31%，现报42.52港元，成交额6.07亿港元。
+中新网5月15日电 据外交部网站消息，外交部发言人就美国总统特朗普访华情况答记者问。
 
-近日，瑞声科技旗下远地科技ATAHORAN系列2.2MW/2.6MW集中式液冷CDU实现规模化量产，并同步开启全球批量交付。
+有记者问：5月14日，习近平主席为正在访华的美国总统特朗普举行系列国事活动，国内外高度关注。
 
-月交付产能达400台，稳居行业第一梯队。
+中方能否进一步介绍相关情况？
 
-2.2MW/2.6MW是当前商用液冷CDU顶级高功率规格，专为下一代AI智算中心、超算集群量身打造。
+答：应习近平主席邀请，美国总统特朗普正在对中国进行国事访问。
 
-该类产品对核心自研技术、极端工况稳定性、国际资质认证方面具有极高要求，全球仅有少数企业具备规模化量产能力。
+这是中美两国元首继去年10月釜山之后再次面对面会晤，也是美国总统时隔9年再次访华。
 
-目前，远地科技CDU月规模交付产能可达400台，产能水平位居国内前三，并可快速扩产，满足全球智算中心、超算集群的批量部署需求。
+5月14日，习近平主席为特朗普总统举行欢迎仪式和欢迎宴会，同特朗普总统举行会谈，并共同参观天坛。
 
-责任编辑：卢昱君
+两国元首就事关两国和世界的重大问题深入交换意见，达成一系列新共识。
+
+两国元首赞同将构建“中美建设性战略稳定关系”作为中美关系新定位，为未来3年乃至更长时间的中美关系提供战略指引，推动两国关系稳定、健康、可持续发展，为世界带来更多和平、繁荣、进步。
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 17:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-29 17:21 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 17:36 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 17:43 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 17:46 - [人形机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 17:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 17:28 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 17:30 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 17:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 17:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 17:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 17:18 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 17:33 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 17:45 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 17:44 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 17:49 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 17:24 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 17:32 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 17:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 17:47 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 17:47 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 17:24 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 17:37 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/516068842.shtml)
-- 2026-06-29 17:21 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/9015068339.shtml)
-- 2026-06-29 17:30 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/192168448258.shtml)
-- 2026-06-29 17:26 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/019646192708.shtml)
-- 2026-06-29 17:44 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/329121040.shtml)
-- 2026-06-29 17:19 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/515618.shtml)
-- 2026-06-29 17:20 - [谢依霖夸杨幂靠谱](https://www.share.kurohicncr.top/Article/details/971542.shtml)
-- 2026-06-29 17:38 - [扫黑风暴](http://www.share.minike.top/Article/details/963849.shtml)
-- 2026-06-29 17:44 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/485169731.shtml)
-- 2026-06-29 17:28 - [普京承认俄出现燃料危机](https://www.share.kurohicncr.top/Article/details/937315897501.shtml)
-- 2026-06-29 17:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/74538657.shtml)
-- 2026-06-29 17:35 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/208222.shtml)
-- 2026-06-29 17:26 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/682588.shtml)
-- 2026-06-29 17:23 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/917919938500.shtml)
-- 2026-06-29 17:26 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/375692274.shtml)
+- 2026-06-29 17:26 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/214203994058.shtml)
+- 2026-06-29 17:35 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/396905048.shtml)
+- 2026-06-29 17:40 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/34485947202.shtml)
+- 2026-06-29 17:29 - [恋与深空 731](https://www.blog.minike.top/Article/details/3040067.shtml)
+- 2026-06-29 17:24 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/959259502934.shtml)
+- 2026-06-29 17:32 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/20351163.shtml)
+- 2026-06-29 17:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/568146050.shtml)
+- 2026-06-29 17:29 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/0728454.shtml)
+- 2026-06-29 17:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/19191002147.shtml)
+- 2026-06-29 17:52 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/480227.shtml)
+- 2026-06-29 17:33 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/451769.shtml)
+- 2026-06-29 17:25 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/30172.shtml)
+- 2026-06-29 17:49 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/7380438270.shtml)
+- 2026-06-29 17:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/876046.shtml)
+- 2026-06-29 17:24 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/305649.shtml)

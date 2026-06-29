@@ -1,56 +1,54 @@
-# 突然爆发！1.3万亿巨头，突传重大利好！
+# 东北书博会设《救国时报》手创空间 民众重温抗战岁月
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-工业富联彻底爆发了！ 今日（5月13日）早盘，市值超1.3万亿的工业富联突然大爆发，股价一度飙升超9%。港股市场富士康概念股集体拉升，鸿腾精密亦大涨近12%，普达特科技大涨超5%，云智汇科技大涨近5%。 当天有媒体报道称，鸿海集团全光CPO交换机的机柜提前出货给大客户英伟达，并从原先预估2026年出货量超过万台，上修到2026至2027年将超过5万台。 那么，这对工业富联的影响
+发布时间：2026年05月15日 21:10 来源：中国新闻网 5月15日，在吉林长春举办的第三届东北图书交易博览会上，《救国时报》手工体验空间展位吸引众多参观者驻足。现场民众通过粘贴贴纸的形式，选取相关文稿与历史图片、设计版面样式，手工制作一张“报纸”，在沉浸式体验中重温抗战历史。 据介绍，贴纸素材均取自《救国时报》影印版面，内容涵盖抗战时期有关东北抗联、海外华侨华人的新闻报
 
 ## 正文
 
-工业富联彻底爆发了！
+发布时间：2026年05月15日 21:10 来源：中国新闻网 5月15日，在吉林长春举办的第三届东北图书交易博览会上，《救国时报》手工体验空间展位吸引众多参观者驻足。
 
-今日（5月13日）早盘，市值超1.3万亿的工业富联突然大爆发，股价一度飙升超9%。
+现场民众通过粘贴贴纸的形式，选取相关文稿与历史图片、设计版面样式，手工制作一张“报纸”，在沉浸式体验中重温抗战历史。
 
-港股市场富士康概念股集体拉升，鸿腾精密亦大涨近12%，普达特科技大涨超5%，云智汇科技大涨近5%。
+据介绍，贴纸素材均取自《救国时报》影印版面，内容涵盖抗战时期有关东北抗联、海外华侨华人的新闻报道与历史影像资料。
 
-当天有媒体报道称，鸿海集团全光CPO交换机的机柜提前出货给大客户英伟达，并从原先预估2026年出货量超过万台，上修到2026至2027年将超过5万台。
+1935年，中国共产党在法国巴黎创办《救国时报》，对宣传中国共产党的抗战主张、发动海内外同胞团结抗战、揭露日本侵略者暴行等方面作出了重大贡献。
 
-那么，这对工业富联的影响有多大呢？
-
-工业富联的利好 据报道，CPO产品具备两位数毛利率及高平均出货单价（ASP）优势，预计可为工业富联贡献15%以上营收，并推动鸿海集团实现盈利结构转型，成为集团业绩增长的第二曲线。
-
-针对全光CPO交换机研发量产进度，鸿海方面回应称，不对单一客户及特定产品置评。
-
-工业富联此前曾透露，全光CPO交换机已于一季度启动样机出货，预计三季度进入量产阶段；同时公司预期今年整体CPO交换机出货量可达万台级别，行业正式迈入CPO发展元年。
+(高龙安 金乔 制作 乐小敏) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 17:40 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 17:23 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 17:32 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 17:39 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 17:34 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 17:20 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 17:30 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 17:35 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 17:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 17:38 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 17:34 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 17:41 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 17:37 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 17:38 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 17:45 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 17:43 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 17:37 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 17:39 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 17:51 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 17:32 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 17:28 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 17:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 17:37 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/709248125365.shtml)
-- 2026-06-29 17:46 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/84037790666.shtml)
-- 2026-06-29 17:22 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.blog.kurohicncr.top/Article/details/30149005.shtml)
-- 2026-06-29 17:24 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.share.minike.top/Article/details/2592394.shtml)
-- 2026-06-29 17:40 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/442284.shtml)
-- 2026-06-29 17:23 - [NBA交易](http://www.share.kurohicncr.top/Article/details/43456.shtml)
-- 2026-06-29 17:27 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/807828414199.shtml)
-- 2026-06-29 17:46 - [刘扬任湖南省副省长](http://www.share.kurohicncr.top/Article/details/7269787122.shtml)
-- 2026-06-29 17:20 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/89513737.shtml)
-- 2026-06-29 17:29 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/4625353.shtml)
-- 2026-06-29 17:41 - [外交部回应中日经贸问题](http://www.blog.minike.top/Article/details/83249994751.shtml)
-- 2026-06-29 17:40 - [草根德比站上亚洲顶级魔鬼主场](https://www.share.kurohicncr.top/Article/details/65101.shtml)
-- 2026-06-29 17:36 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.minike.top/Article/details/894600.shtml)
-- 2026-06-29 17:42 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/2274927281.shtml)
-- 2026-06-29 17:39 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/698952977930.shtml)
+- 2026-06-29 17:48 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.minike.top/Article/details/4997632273.shtml)
+- 2026-06-29 17:40 - [刘扬任湖南省副省长](http://www.blog.minike.top/Article/details/72122689774.shtml)
+- 2026-06-29 17:37 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/4960953.shtml)
+- 2026-06-29 17:31 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/6979532173.shtml)
+- 2026-06-29 17:26 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/96240.shtml)
+- 2026-06-29 17:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/813598994538.shtml)
+- 2026-06-29 17:25 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/2614686392.shtml)
+- 2026-06-29 17:44 - [巴西球员：日本队有点傲慢了](http://www.blog.kurohicncr.top/Article/details/4689413.shtml)
+- 2026-06-29 17:28 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/12698095181.shtml)
+- 2026-06-29 17:44 - [欧洲多国高温突破40摄氏度](https://www.blog.minike.top/Article/details/06094.shtml)
+- 2026-06-29 17:24 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/059959.shtml)
+- 2026-06-29 17:48 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/9184830.shtml)
+- 2026-06-29 17:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/803927.shtml)
+- 2026-06-29 17:53 - [逆天祖国人](https://www.blog.kurohicncr.top/Article/details/40317583712.shtml)
+- 2026-06-29 17:33 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/84027.shtml)

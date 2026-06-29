@@ -1,60 +1,61 @@
-# 能源智库称伊朗战争导致欧盟前所未有地高度依赖美国天然气
+# 中电联电力电子分会在穗成立 聚力攻关新型电力系统核心技术
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。 能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。 自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多
+中新网广州5月15日电(王华 蓝旺)中国电力企业联合会(简称：中电联)电力电子分会成立大会15日在广州举行，该会将聚力攻关中国新型电力系统的核心技术。 据了解，当前我国新型电力系统建设的“高比例新能源、高比例电力电子装备”的“双高”特征凸显。截至2025年底，全国发电装机容量达38.9亿千瓦，其中非化石能源发电装机占比超六成，新能源新增发电量占全社会新增用电量的97.1%。 与
 
 ## 正文
 
-一家能源智库表示，欧洲今年对美国天然气的依赖预计将升至前所未有的水平，原因是美国填补了中东地区供应减少带来的缺口。
+中新网广州5月15日电(王华 蓝旺)中国电力企业联合会(简称：中电联)电力电子分会成立大会15日在广州举行，该会将聚力攻关中国新型电力系统的核心技术。
 
-能源经济与金融分析研究所（IEEFA）在一份报告中指出，欧洲可能有三分之二的液化天然气（LNG）来自美国，创下历史新高。
+据了解，当前我国新型电力系统建设的“高比例新能源、高比例电力电子装备”的“双高”特征凸显。
 
-按整体天然气供应份额计算，美国甚至可能超越挪威——后者目前是欧洲最大的管道气供应国。
+截至2025年底，全国发电装机容量达38.9亿千瓦，其中非化石能源发电装机占比超六成，新能源新增发电量占全社会新增用电量的97.1%。
 
-自2022年俄乌冲突爆发以来，欧盟一直努力实现天然气来源多元化，以避免过度依赖单一供应方。
+与此同时，新能源的随机性、波动性、间歇性特征，叠加电力电子设备的低惯量、弱支撑特性，对电网安全稳定运行构成严峻挑战。
 
-美国的海运输LNG已成为替代俄罗斯管道气的关键来源，但部分欧洲官员警告称，欧洲可能正从一种依赖转向另一种依赖。
+中电联电力电子分会成立后，将聚焦推动电力电子技术向集约化、标准化、高端化转型升级，形成四大核心功能：攻关系统稳定、装备可靠等核心难题；加快完善电力电子标准体系；促进产业链各方深度协作；储备行业高水平人才。
 
-IEEFA欧洲首席能源分析师Ana Maria Jaller-Makarewicz表示：“液化天然气已成为欧洲能源安全战略的阿喀琉斯之踵，使该地区面临更高气价以及新的供应中断风险。
+其中，在国际合作方面，分会将参与国际大电网委员会(CIGRE)、国际电工委员会(IEC)等国际组织的技术活动与标准制定，系统性推动中国电力电子技术、工程经验和高端装备“走出去”，为全球能源治理贡献中国方案。
 
-” Jaller-Makarewicz指出，如果卡塔尔LNG生产设施因伊朗战争出现长期停产，美国向欧盟供气规模可能超过挪威。
+中电联电力电子分会秘书处设于南网科研院，将构建“政产学研用融”深度融合的协同创新体系。
 
-责任编辑：王永生
+据悉，该分会同步组建了技术咨询专家库，45名专家受聘入库。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-29 17:26 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 17:36 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 17:23 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 17:34 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-29 17:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 17:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 17:28 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 17:44 - [人形机器人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 17:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 17:36 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 17:40 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 17:33 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 17:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 17:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 17:29 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 17:42 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 17:24 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 17:42 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 17:34 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
+- 2026-06-29 17:49 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 17:42 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 17:40 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 17:51 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 17:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 17:52 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 17:49 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 17:28 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 17:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/886726.shtml)
-- 2026-06-29 17:22 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/51038.shtml)
-- 2026-06-29 17:29 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.minike.top/Article/details/95709029757.shtml)
-- 2026-06-29 17:36 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/338559822597.shtml)
-- 2026-06-29 17:32 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/817982094984.shtml)
-- 2026-06-29 17:47 - [王俊凯命名方式](http://www.blog.kurohicncr.top/Article/details/774402172.shtml)
-- 2026-06-29 17:47 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/6000500041.shtml)
-- 2026-06-29 17:35 - [啊啊啊](https://www.blog.minike.top/Article/details/2362018379.shtml)
-- 2026-06-29 17:30 - [东方风云榜](https://www.share.minike.top/Article/details/86330.shtml)
-- 2026-06-29 17:25 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/243989.shtml)
-- 2026-06-29 17:32 - [《贺子珍》](http://www.blog.minike.top/Article/details/86928.shtml)
-- 2026-06-29 17:29 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.kurohicncr.top/Article/details/03870091.shtml)
-- 2026-06-29 17:44 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/744394.shtml)
-- 2026-06-29 17:28 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/5680176869.shtml)
-- 2026-06-29 17:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/2316425.shtml)
+- 2026-06-29 17:34 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/00750335.shtml)
+- 2026-06-29 17:28 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/20047414657.shtml)
+- 2026-06-29 17:30 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.kurohicncr.top/Article/details/47723395618.shtml)
+- 2026-06-29 17:48 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/9142280468.shtml)
+- 2026-06-29 17:31 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/8264152095.shtml)
+- 2026-06-29 17:37 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/81462.shtml)
+- 2026-06-29 17:30 - [速度与激情9](http://www.blog.minike.top/Article/details/08575526.shtml)
+- 2026-06-29 17:53 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/67924.shtml)
+- 2026-06-29 17:26 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/147283.shtml)
+- 2026-06-29 17:39 - [青春环游记第三季](http://www.share.minike.top/Article/details/357815.shtml)
+- 2026-06-29 17:39 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/793075506.shtml)
+- 2026-06-29 17:30 - [中方将20家日本实体列入出口管制名单](http://www.blog.minike.top/Article/details/101811005264.shtml)
+- 2026-06-29 17:24 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/586523737243.shtml)
+- 2026-06-29 17:33 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/22532965107.shtml)
+- 2026-06-29 17:42 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/396155.shtml)

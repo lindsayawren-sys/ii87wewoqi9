@@ -1,59 +1,51 @@
-# 意大利天然气管网运营商Snam一季度营收增长3%，确认全年目标
+# 快讯：恒指微涨 科指跌0.13% 黄金股普跌 哔哩哔哩跌超4%
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-意大利天然气管网运营商Snam周二公布2026年第一季度财报，营收实现增长，调整后净利润超预期，公司同时确认了全年业绩指引。 营收与盈利数据 财报显示，Snam一季度总营收达9.99亿欧元，同比增长3%，符合市场预期。调整后EBITDA为7.75亿欧元，同比增长1.8%，主要得益于天然气基础设施业务收入增长。 调整后净利润为3.75亿欧元，同比下降7.6%，但高于市场预期。报告
+美股周四表现向好，中美元首会面气氛良好，加上人工智能概念继续热炒，带动大市向上，标普500指数及纳指再创历史新高，三大指数均录得升幅收市。美元走势向上，美国十年期债息上升至4.48厘水平，金价继续偏软，油价持续高企。 今日港股三大指数涨跌不一，恒指开盘涨0.01%，报26391.02点，恒科指跌0.13%，国企指数跌0.26%。盘面上，科网股涨跌不一，联想涨超2%，网易、美团跌
 
 ## 正文
 
-意大利天然气管网运营商Snam周二公布2026年第一季度财报，营收实现增长，调整后净利润超预期，公司同时确认了全年业绩指引。
+美股周四表现向好，中美元首会面气氛良好，加上人工智能概念继续热炒，带动大市向上，标普500指数及纳指再创历史新高，三大指数均录得升幅收市。
 
-营收与盈利数据 财报显示，Snam一季度总营收达9.99亿欧元，同比增长3%，符合市场预期。
+美元走势向上，美国十年期债息上升至4.48厘水平，金价继续偏软，油价持续高企。
 
-调整后EBITDA为7.75亿欧元，同比增长1.8%，主要得益于天然气基础设施业务收入增长。
+今日港股三大指数涨跌不一，恒指开盘涨0.01%，报26391.02点，恒科指跌0.13%，国企指数跌0.26%。
 
-调整后净利润为3.75亿欧元，同比下降7.6%，但高于市场预期。
+盘面上，科网股涨跌不一，联想涨超2%，网易、美团跌超1%，哔哩哔哩跌超4%；智能驾驶概念股多数上涨，希迪智驾涨超5%；半导体板块涨跌不一，华虹半导体涨超2%；黄金股普跌，灵宝黄金跌超2%。
 
-报告净利润为2.92亿欧元，同比下滑41%，主要受非经常性项目影响。
-
-投资与债务情况 一季度总投资额达9.91亿欧元，较去年同期的3.61亿欧元大幅增长，主要投向再气化、天然气运输和生物甲烷业务。
-
-净金融负债升至185亿欧元，主要受投资支出、股利支付及收购影响。
-
-全年指引与评级展望 公司确认2026年全年目标：投资28亿欧元，调整后EBITDA约31亿欧元，调整后净利润超14.5亿欧元。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 17:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 17:22 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 17:39 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 17:41 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 17:47 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 17:32 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 17:28 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 17:42 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 17:23 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 17:47 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 17:22 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 17:45 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 17:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 17:41 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 17:40 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 17:48 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 17:51 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 17:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 17:27 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 17:26 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 17:34 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 17:49 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 17:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:46 - [波兰创该国高温纪录](http://www.blog.kurohicncr.top/Article/details/1685429219.shtml)
-- 2026-06-29 17:18 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/43501.shtml)
-- 2026-06-29 17:29 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/39447.shtml)
-- 2026-06-29 17:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/937359.shtml)
-- 2026-06-29 17:23 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/166464517891.shtml)
-- 2026-06-29 17:38 - [乔家的儿女](https://www.share.minike.top/Article/details/77951643.shtml)
-- 2026-06-29 17:44 - [法国紧急下单3万台空调](https://www.blog.kurohicncr.top/Article/details/638507.shtml)
-- 2026-06-29 17:41 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/409844117239.shtml)
-- 2026-06-29 17:25 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/650032.shtml)
-- 2026-06-29 17:34 - [人形机器人](http://www.share.kurohicncr.top/Article/details/397753659161.shtml)
-- 2026-06-29 17:24 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/16261245.shtml)
-- 2026-06-29 17:27 - [未成年少女长期吸毒导致卧床不起](https://www.blog.kurohicncr.top/Article/details/981540.shtml)
-- 2026-06-29 17:47 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/309573580.shtml)
-- 2026-06-29 17:40 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/4366100443.shtml)
-- 2026-06-29 17:19 - [王曼昱被突如其来的话筒逗笑了](http://www.blog.kurohicncr.top/Article/details/260551671115.shtml)
+- 2026-06-29 17:33 - [范志毅看好日本淘汰巴西](http://www.share.minike.top/Article/details/786162.shtml)
+- 2026-06-29 17:52 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/61799.shtml)
+- 2026-06-29 17:48 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/8534970368.shtml)
+- 2026-06-29 17:28 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/382557043.shtml)
+- 2026-06-29 17:35 - [7款高价创新药有望降价](http://www.share.minike.top/Article/details/8482574.shtml)
+- 2026-06-29 17:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/076162.shtml)
+- 2026-06-29 17:50 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/61521884.shtml)
+- 2026-06-29 17:31 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/337141.shtml)
+- 2026-06-29 17:46 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/89245.shtml)
+- 2026-06-29 17:29 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/3891314283.shtml)
+- 2026-06-29 17:34 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/69265583573.shtml)
+- 2026-06-29 17:36 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/5735321.shtml)
+- 2026-06-29 17:53 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/811179472.shtml)
+- 2026-06-29 17:43 - [四川地震前夕 街头电线上站满燕子](https://www.share.kurohicncr.top/Article/details/03700873.shtml)
+- 2026-06-29 17:36 - [周生如故](https://www.blog.minike.top/Article/details/13368823011.shtml)

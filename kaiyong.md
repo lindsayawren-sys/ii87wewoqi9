@@ -1,57 +1,57 @@
-# 美国能源信息署“撕报告”：中东供应中断情况远比之前预估更为严重
+# 业绩炸裂！长鑫科技半年报预计净利润500亿元至570亿元
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-转自：财联社财联社5月13日讯（编辑 潇湘）美国能源信息署(EIA)周二修正了此前的预测，指出伊朗战争对全球石油供应造成的冲击比此前预期的更为严重且持续时间更长，这凸显了自三个月前冲突爆发以来一直困扰着整个能源市场的不确定性。能源分析师发现，很难预测中东战争对石油市场造成的扰乱将持续多久、影响有多深，尤其是美国总统特朗普不断发表着相互矛盾的言论：某一天声称战争可能在几周内结束，
+四天前，本报刚报道，长鑫科技正在加速冲刺科创板IPO。今天，公司更新了招股书，披露了最新业绩，其业绩远超外界预期。 公司披露，2026年1-3月，受全球算力需求持续增长、主要厂商产能调配等因素影响，全球DRAM产品供不应求，价格自2025年下半年以来持续呈现大幅上涨趋势；叠加公司产销规模的持续增长、产品结构的持续优化，公司营业收入迅速增长，公司营业利润、利润总额、净利润、息税折
 
 ## 正文
 
-转自：财联社财联社5月13日讯（编辑 潇湘）美国能源信息署(EIA)周二修正了此前的预测，指出伊朗战争对全球石油供应造成的冲击比此前预期的更为严重且持续时间更长，这凸显了自三个月前冲突爆发以来一直困扰着整个能源市场的不确定性。
+四天前，本报刚报道，长鑫科技正在加速冲刺科创板IPO。
 
-能源分析师发现，很难预测中东战争对石油市场造成的扰乱将持续多久、影响有多深，尤其是美国总统特朗普不断发表着相互矛盾的言论：某一天声称战争可能在几周内结束，转眼又威胁要战斗到底，直到将德黑兰打回“石器时代”。
+今天，公司更新了招股书，披露了最新业绩，其业绩远超外界预期。
 
-与此同时，随着冲突持续，伊朗对霍尔木兹海峡的封锁，每天仍在导致全球石油供应减少数百万乃至上千万桶。
+公司披露，2026年1-3月，受全球算力需求持续增长、主要厂商产能调配等因素影响，全球DRAM产品供不应求，价格自2025年下半年以来持续呈现大幅上涨趋势；叠加公司产销规模的持续增长、产品结构的持续优化，公司营业收入迅速增长，公司营业利润、利润总额、净利润、息税折旧摊销前利润、归属于母公司所有者的净利润及扣除非经常损益后归属于母公司所有者的净利润均同比大幅增长。
 
-美国能源信息署周二表示，目前预计霍尔木兹海峡将实际封锁至5月底，此前该机构曾预计封锁将持续至4月底。
+财务数据显示，长鑫科技一季度实现营业收入508亿元，同比增长719.13%；实现净利润330.12亿元，同比增长1268.45%；实现归属于母公司所有者的净利润247.62亿元，同比增长1688.30%。
 
-此外，该机构估计4月份中东地区原油日产量合计减少约1050万桶，随着中东储油罐达到最大容量，这一数字还将在本月升至每日1080万桶的峰值。
+公司预计，2026年1-6月公司实现营业收入1100亿元至1200亿元，同比增长612.53%至677.31%；实现归母净利润500亿元至570亿元，同比增长2244.03%至2544.19%。
 
-该机构表示，增幅部分是因为EIA预计，由于美国封锁伊朗通过霍尔木兹海峡的出口，伊朗将被迫削减原油产量。
-
-此前，EIA曾预测4月份的产量损失将达到910万桶/日。
-
-EIA表示，上述假设条件的改变意味着与此前预期相比，全球石油库存的减少规模将大得多，从而使油价保持在高位。
+作者：李兴彩 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 17:42 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 17:36 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-29 17:26 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 17:19 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 17:44 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 17:47 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 17:36 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 17:46 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 17:38 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 17:41 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 17:20 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 17:50 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 17:29 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 17:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 17:47 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 17:33 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 17:44 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 17:54 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 17:30 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 17:52 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 17:48 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 17:44 - [博主：AI泡沫必须破灭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 17:51 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 17:42 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 17:30 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 17:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:18 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.kurohicncr.top/Article/details/620272.shtml)
-- 2026-06-29 17:34 - [王冰冰向全网安利哈兰德](http://www.blog.minike.top/Article/details/1155858.shtml)
-- 2026-06-29 17:25 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/890953737.shtml)
-- 2026-06-29 17:24 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/615916999791.shtml)
-- 2026-06-29 17:28 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/2468494.shtml)
-- 2026-06-29 17:24 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/588664109591.shtml)
-- 2026-06-29 17:47 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/774542249942.shtml)
-- 2026-06-29 17:42 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/21725.shtml)
-- 2026-06-29 17:35 - [网友飞机上偶遇肖战](http://www.blog.kurohicncr.top/Article/details/39467.shtml)
-- 2026-06-29 17:47 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/99590614.shtml)
-- 2026-06-29 17:44 - [徐昕暂不参加NBA夏季联赛](https://www.blog.minike.top/Article/details/325110.shtml)
-- 2026-06-29 17:36 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/73594186.shtml)
-- 2026-06-29 17:43 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/6613245248.shtml)
-- 2026-06-29 17:44 - [欧洲高温会成下个印度吗](http://www.share.kurohicncr.top/Article/details/39169054.shtml)
-- 2026-06-29 17:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/080976661748.shtml)
+- 2026-06-29 17:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/537558015853.shtml)
+- 2026-06-29 17:46 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/520304.shtml)
+- 2026-06-29 17:33 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/8454775.shtml)
+- 2026-06-29 17:39 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/09277699607.shtml)
+- 2026-06-29 17:40 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/21386168.shtml)
+- 2026-06-29 17:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/861901.shtml)
+- 2026-06-29 17:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/898836.shtml)
+- 2026-06-29 17:33 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/639967377346.shtml)
+- 2026-06-29 17:25 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/680916805321.shtml)
+- 2026-06-29 17:40 - [沙丘](https://www.share.minike.top/Article/details/3158250.shtml)
+- 2026-06-29 17:24 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/936942.shtml)
+- 2026-06-29 17:27 - [评论员：日菲勾连各有盘算](https://www.share.kurohicncr.top/Article/details/645053013419.shtml)
+- 2026-06-29 17:26 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/345593669.shtml)
+- 2026-06-29 17:29 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/39360.shtml)
+- 2026-06-29 17:33 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/40206394.shtml)

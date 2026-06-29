@@ -1,57 +1,59 @@
-# flyExclusive一季度营收9630万美元，连续两季实现正向调整后EBITDA
+# 沪上侨界人士观《给阿嬷的情书》：纸短情长映侨心
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-私人航空服务提供商flyExclusive周一公布2026年第一季度财报，营收同比增长9%，连续第二个季度实现正向调整后EBITDA，毛利率大幅提升近7个百分点至20%。 一季度业绩：营收增长9%，净利润亏损收窄 财报显示，公司一季度营收达9635万美元，较去年同期的8813万美元增长9.3%。净亏损为650万美元，去年同期为亏损545万美元。调整后EBITDA为20万美元，较
+中新社上海5月15日电 (范宇斌)电影《给阿嬷的情书》依托侨批故事近期走红网络、票房稳步攀升。由上海市侨联、上海市华侨事业发展基金会主办的侨界公益观影暨交流活动15日在位于上海的国泰电影院举行，以光影回望侨史，感悟跨越山海的家国情。 “侨批”，是“银信合一”的特殊载体。旧时，旅居东南亚的华侨经由民间渠道，将连带家书或简短附言的汇款凭证“侨批”寄回家乡。一纸侨批承载思念、维系亲情
 
 ## 正文
 
-私人航空服务提供商flyExclusive周一公布2026年第一季度财报，营收同比增长9%，连续第二个季度实现正向调整后EBITDA，毛利率大幅提升近7个百分点至20%。
+中新社上海5月15日电 (范宇斌)电影《给阿嬷的情书》依托侨批故事近期走红网络、票房稳步攀升。
 
-一季度业绩：营收增长9%，净利润亏损收窄 财报显示，公司一季度营收达9635万美元，较去年同期的8813万美元增长9.3%。
+由上海市侨联、上海市华侨事业发展基金会主办的侨界公益观影暨交流活动15日在位于上海的国泰电影院举行，以光影回望侨史，感悟跨越山海的家国情。
 
-净亏损为650万美元，去年同期为亏损545万美元。
+“侨批”，是“银信合一”的特殊载体。
 
-调整后EBITDA为20万美元，较去年同期亏损640万美元显著改善约660万美元。
+旧时，旅居东南亚的华侨经由民间渠道，将连带家书或简短附言的汇款凭证“侨批”寄回家乡。
 
-毛利率从13.1%跃升至20%，同比提升699个基点。
+一纸侨批承载思念、维系亲情，如今已是珍贵的世界记忆遗产。
 
-运营亮点：可用率提升7.6%，MRO收入增长14% 公司核心运营指标全面改善。
+观影现场，不少侨界人士为乡音动容、为侨批故事落泪。
 
-可用率同比提升760个基点，每提升1个百分点约可贡献250万美元年度利润。
+上海市侨联主席齐全胜宣读了该影片导演蓝鸿春致上海侨界的寄语。
 
-核心机队利用率提高15%，总飞行小时数增长7%，所用飞机数量反而减少7%。
+蓝鸿春称，纸短情长，侨批记录的不仅是那个年代华侨的艰辛奋斗，更是中国人刻在骨子里的“有情有义”与对家国的深沉眷恋。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 17:24 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 17:32 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 17:46 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 17:18 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 17:45 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 17:21 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 17:34 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 17:35 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 17:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:37 - [未成年少女长期吸毒导致卧床不起](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 17:45 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 17:27 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 17:47 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 17:41 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 17:29 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 17:45 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 17:53 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 17:28 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 17:47 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 17:34 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 17:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 17:47 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 17:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/531150.shtml)
-- 2026-06-29 17:43 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/808912353963.shtml)
-- 2026-06-29 17:24 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/23820.shtml)
-- 2026-06-29 17:27 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/3930942.shtml)
-- 2026-06-29 17:33 - [两老人多次到一洗车店泼粪](http://www.share.minike.top/Article/details/6650320353.shtml)
-- 2026-06-29 17:25 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/27292716.shtml)
-- 2026-06-29 17:35 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/184020740873.shtml)
-- 2026-06-29 17:24 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/2716584662.shtml)
-- 2026-06-29 17:32 - [天道](http://www.blog.minike.top/Article/details/63385065.shtml)
-- 2026-06-29 17:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/490725.shtml)
-- 2026-06-29 17:30 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.minike.top/Article/details/6244443.shtml)
-- 2026-06-29 17:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/83554.shtml)
-- 2026-06-29 17:22 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/267367502588.shtml)
-- 2026-06-29 17:46 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/9387726354.shtml)
-- 2026-06-29 17:18 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/694706.shtml)
+- 2026-06-29 17:31 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/802726003.shtml)
+- 2026-06-29 17:37 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/47331247.shtml)
+- 2026-06-29 17:36 - [恋与深空发放补偿未得到玩家认可](https://www.blog.kurohicncr.top/Article/details/82159190.shtml)
+- 2026-06-29 17:33 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/7429429.shtml)
+- 2026-06-29 17:43 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/851124096012.shtml)
+- 2026-06-29 17:50 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/524069625.shtml)
+- 2026-06-29 17:51 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/79631197.shtml)
+- 2026-06-29 17:51 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/8933767984.shtml)
+- 2026-06-29 17:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/205512.shtml)
+- 2026-06-29 17:33 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/5936766.shtml)
+- 2026-06-29 17:48 - [赵今麦时隔五年再演李诗情](https://www.blog.minike.top/Article/details/02549486722.shtml)
+- 2026-06-29 17:25 - [东方风云榜红毯](http://www.blog.minike.top/Article/details/41134962.shtml)
+- 2026-06-29 17:25 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/068120.shtml)
+- 2026-06-29 17:52 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/00887679.shtml)
+- 2026-06-29 17:28 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/7266919030.shtml)

@@ -1,57 +1,56 @@
-# 酒价内参5月13日价格发布：国窖1573上涨2元
+# 佛吉亚潘锋：氢能与纯电、天然气应是互补关系，而非你死我活
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨三跌三平，赢
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。佛吉亚氢能中国区总经理潘锋在演讲表示，在“又重又长”的49吨重卡、跨省跨长途运输场景下，氢能车是主要的推广方向。 潘锋解释到，纯电动重卡存在电池重量较大、补能时间较长的问题，而氢能车补能快、对续航帮助大。目前中国“又重又长”的重卡物流车辆约有400万台，基本上全部
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月13日整体窄幅波动。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9951元，较昨日微跌3元，连续三日站稳9950元上方。
+佛吉亚氢能中国区总经理潘锋在演讲表示，在“又重又长”的49吨重卡、跨省跨长途运输场景下，氢能车是主要的推广方向。
 
-今日市场延续高位整理行情，终端交投情绪平稳，核心单品涨跌分化依然显著。
+潘锋解释到，纯电动重卡存在电池重量较大、补能时间较长的问题，而氢能车补能快、对续航帮助大。
 
-今日白酒市场11大单品五涨三跌三平，赢家占据优势，但涨幅相对温和。
+目前中国“又重又长”的重卡物流车辆约有400万台，基本上全部使用柴油或天然气。
 
-上涨方面，飞天茅台、五粮液普五八代、国窖1573及青花郎均上涨2元/瓶，同步小幅回暖，其中飞天茅台二连涨，普五平近一月最高价格，国窖1573收获四连阳，价格快速回升至月内次高位，青花郎近半月价格中枢总体呈缓慢上升势头；洋河梦之蓝M6+上涨1元/瓶，价格升至月内次高位。
+据他测算，如果氢气价格降至每公斤25元以下，按百公里氢耗8公斤计算，百公里运行成本可做到约200元，就可以与柴油、天然气的运行成本竞争。
 
-下跌方面，古20跌幅居前，下跌6元/瓶，连续上涨势头告终；习酒君品下跌5元/瓶，创近一月新低；五粮液1618下跌1元/瓶。
+“这400万台柴油和天然气重卡的新能源替代，氢能将是一个很大的板块。
 
-精品茅台、青花汾20及水晶剑南春的价格环比保持不变。
+” 此外，在中短距离运输领域，他预计，新能源化主要向电动化方向发展。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+但其中一个细分板块——冷链物流，电动与氢能可以形成互补。
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 17:41 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 17:37 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 17:35 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 17:33 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 17:18 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 17:30 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 17:20 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 17:42 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 17:18 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-29 17:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 17:44 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 17:46 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 17:42 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 17:34 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 17:41 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 17:47 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 17:39 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 17:38 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 17:33 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 17:49 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:20 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/3225258.shtml)
-- 2026-06-29 17:47 - [王安宇尊重田曦薇的一切选择](https://www.blog.minike.top/Article/details/500702063.shtml)
-- 2026-06-29 17:31 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/5638195030.shtml)
-- 2026-06-29 17:26 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/148136.shtml)
-- 2026-06-29 17:40 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/02463478.shtml)
-- 2026-06-29 17:47 - [中国战机大片上新](http://www.blog.kurohicncr.top/Article/details/808670409261.shtml)
-- 2026-06-29 17:26 - [网友飞机上偶遇肖战](https://www.blog.minike.top/Article/details/12373028575.shtml)
-- 2026-06-29 17:37 - [明星大侦探第四季](http://www.share.minike.top/Article/details/565061982061.shtml)
-- 2026-06-29 17:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/7335351058.shtml)
-- 2026-06-29 17:37 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/048918.shtml)
-- 2026-06-29 17:26 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/20825660.shtml)
-- 2026-06-29 17:29 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/374614.shtml)
-- 2026-06-29 17:34 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/055591880031.shtml)
-- 2026-06-29 17:36 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/320434805523.shtml)
-- 2026-06-29 17:41 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/143705962194.shtml)
+- 2026-06-29 17:51 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/39144.shtml)
+- 2026-06-29 17:48 - [毛朝晖任湖南省农业农村厅厅长](https://www.blog.kurohicncr.top/Article/details/05534020.shtml)
+- 2026-06-29 17:40 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/61560154222.shtml)
+- 2026-06-29 17:26 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/54039284185.shtml)
+- 2026-06-29 17:36 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/9893508781.shtml)
+- 2026-06-29 17:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/843529.shtml)
+- 2026-06-29 17:36 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/94021848660.shtml)
+- 2026-06-29 17:36 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/1998724767.shtml)
+- 2026-06-29 17:33 - [日本偶像龟梨和也宣布结婚](http://www.share.minike.top/Article/details/516179.shtml)
+- 2026-06-29 17:43 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/12619.shtml)
+- 2026-06-29 17:47 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/6295834056.shtml)
+- 2026-06-29 17:35 - [恋与深空发放补偿未得到玩家认可](http://www.share.minike.top/Article/details/689449.shtml)
+- 2026-06-29 17:26 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/6327731.shtml)
+- 2026-06-29 17:45 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/02794857.shtml)
+- 2026-06-29 17:29 - [极限挑战第一季](https://www.share.minike.top/Article/details/9570880676.shtml)

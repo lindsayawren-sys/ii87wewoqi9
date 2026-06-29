@@ -1,60 +1,55 @@
-# 三连罚单，中金财富21年历史老牌网点翻车，客户的信息被用来做了啥？
+# 世行预计越南今年经济增速放缓至6.8%
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 三连罚单，中金财富21年历史老牌网点翻车，客户的信息被用来做了啥？ 来自大连证监局的“三箭齐发”，齐刷刷指向中金财富旗下一家老牌网点。连同两名从业人员一并被监管警示并记入证券期货市场诚信档案。而涉及到违规事项，除了券商领域频发的代客理财外，还包括“违规超范围使用客户信息”。 三张罚单落地 久
+世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。 世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。 世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。” 越南的目标是今年及未来十年每年GDP增速至少达到10%。 受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。
 
-来源：行家券业 三连罚单，中金财富21年历史老牌网点翻车，客户的信息被用来做了啥？
+世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。
 
-来自大连证监局的“三箭齐发”，齐刷刷指向中金财富旗下一家老牌网点。
+世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。
 
-连同两名从业人员一并被监管警示并记入证券期货市场诚信档案。
+” 越南的目标是今年及未来十年每年GDP增速至少达到10%。
 
-而涉及到违规事项，除了券商领域频发的代客理财外，还包括“违规超范围使用客户信息”。
+受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的目标。
 
-三张罚单落地 久未更新的大连证监局，新增三份监管函，剑指中金财富证券大连星海广场营业部（简称：星海广场营业部）。
-
-监管函显示，星海广场营业部存在员工代客理财行为管控机制不完善、未能有效建立从业人员查询客户信息监控机制等问题，反映出合规管理和风险管控不到位。
-
-同时被罚的还有两名在任人员武某成、王某。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 17:46 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 17:32 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 17:45 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 17:30 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-29 17:44 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 17:36 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 17:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 17:42 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 17:44 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 17:22 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 17:29 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 17:22 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 17:43 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 17:48 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 17:29 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 17:53 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 17:28 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 17:34 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 17:25 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 17:41 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 17:37 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 17:45 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 17:52 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 17:40 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 17:38 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 17:36 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:44 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/74696.shtml)
-- 2026-06-29 17:34 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/4744308.shtml)
-- 2026-06-29 17:32 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/80258990803.shtml)
-- 2026-06-29 17:36 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/569096734.shtml)
-- 2026-06-29 17:44 - [挪威王储妃长子2次强奸被判4年](https://www.blog.kurohicncr.top/Article/details/4080122111.shtml)
-- 2026-06-29 17:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/380349658.shtml)
-- 2026-06-29 17:36 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/25157411402.shtml)
-- 2026-06-29 17:19 - [音乐人屠颖离世家属追责涉事酒店](https://www.blog.minike.top/Article/details/18016212.shtml)
-- 2026-06-29 17:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/089477545.shtml)
-- 2026-06-29 17:45 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/8827461662.shtml)
-- 2026-06-29 17:22 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/251422299713.shtml)
-- 2026-06-29 17:47 - [美国大满贯首日国乒主力均取胜](https://www.blog.minike.top/Article/details/88408305208.shtml)
-- 2026-06-29 17:42 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/32201363.shtml)
-- 2026-06-29 17:20 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/28637157161.shtml)
-- 2026-06-29 17:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/63317150732.shtml)
+- 2026-06-29 17:49 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/06432463757.shtml)
+- 2026-06-29 17:35 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/28557107654.shtml)
+- 2026-06-29 17:32 - [5万块的威力](http://www.blog.minike.top/Article/details/3335981285.shtml)
+- 2026-06-29 17:28 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/3641510758.shtml)
+- 2026-06-29 17:34 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/263525548210.shtml)
+- 2026-06-29 17:42 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/2620556596.shtml)
+- 2026-06-29 17:33 - [花万元相亲对象是50元雇的演员](http://www.blog.kurohicncr.top/Article/details/899832902.shtml)
+- 2026-06-29 17:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/64145.shtml)
+- 2026-06-29 17:25 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/60174705225.shtml)
+- 2026-06-29 17:47 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/922475.shtml)
+- 2026-06-29 17:25 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/049952.shtml)
+- 2026-06-29 17:42 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/824859.shtml)
+- 2026-06-29 17:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/04706589.shtml)
+- 2026-06-29 17:32 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/66962278.shtml)
+- 2026-06-29 17:38 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/3566127123.shtml)

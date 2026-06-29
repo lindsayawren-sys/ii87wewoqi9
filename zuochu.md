@@ -1,55 +1,58 @@
-# 广西玉林容县通报“自来水有较大异味”：异味已消除，水质安全
+# “老登”回归？地产股显著反弹，机构：当前是布局好时机
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网5月14日电 据“侨乡容县”微信公号消息，容县住房和城乡建设局13日发布通报称，13日下午6点左右，容县住房和城乡建设局接到城北片区市民反映自来水有较大的异味，容县住房和城乡建设局收到反映后高度重视，立即组织专业检测人员开展调查和水质溯源分析。现将相关情况通报如下： 经调查，水质有异味是由于县水利供水有限公司在合规投放剂量的前提下，加大了消毒剂的投放量造成的。目前县水利供
+在“光”飞“芯”跃的火热行情下，近几年市场一直避之不及的地产板块，似乎迎来了一些机构的青睐。 随着近期上海等一线城市火热二手房成交数据披露，二级市场的地产股也有所表现，Wind房地产指数过去一个月上涨了5.45%，大幅领先沪深300。 “当前地产板块估值水平较为合理，已充分反映出政策面和基本面的悲观预期，板块中枢的继续下跌需要市场加速恶化，而上涨仅需要二手房价跌幅收窄成为市场共
 
 ## 正文
 
-中新网5月14日电 据“侨乡容县”微信公号消息，容县住房和城乡建设局13日发布通报称，13日下午6点左右，容县住房和城乡建设局接到城北片区市民反映自来水有较大的异味，容县住房和城乡建设局收到反映后高度重视，立即组织专业检测人员开展调查和水质溯源分析。
+在“光”飞“芯”跃的火热行情下，近几年市场一直避之不及的地产板块，似乎迎来了一些机构的青睐。
 
-现将相关情况通报如下： 经调查，水质有异味是由于县水利供水有限公司在合规投放剂量的前提下，加大了消毒剂的投放量造成的。
+随着近期上海等一线城市火热二手房成交数据披露，二级市场的地产股也有所表现，Wind房地产指数过去一个月上涨了5.45%，大幅领先沪深300。
 
-目前县水利供水有限公司已采取有效措施，异味已消除，并加快自来水终端的管网排水。
+“当前地产板块估值水平较为合理，已充分反映出政策面和基本面的悲观预期，板块中枢的继续下跌需要市场加速恶化，而上涨仅需要二手房价跌幅收窄成为市场共识，当前是布局减值充分、拿地改善强的优质房企的较好时点。
 
-经县卫生监督所于晚上7点30分检测，该自来水水质符合《国家生活饮用水卫生标准》要求，水质安全。
+”国信证券在近期的一份研究报告中指出。
 
-感谢广大市民朋友的关注和反馈。
+地产股显著反弹 地产股反弹的趋势已经比较明显。
 
-下一步，容县住房和城乡建设局将加大对供水设施的日常监管，确保市民的饮用水安全。
+4月7日，行业龙头保利发展摸到了低点5.47元/股，随后震荡上行，盘中一度上涨至6.86元/股，近期虽然随着大盘下行，但截至5月15日也仍有6.21元/股。
+
+低点以来累计涨幅超过13.5%，显著跑赢同期大盘。
+
+万科A、招商蛇口等头部房企股价也同步回升，其中万科A自低点反弹超12%。
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 17:24 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 17:28 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 17:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 17:31 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 17:39 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 17:30 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 17:30 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 17:43 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 17:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 17:42 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 17:44 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 17:41 - [7款高价创新药有望降价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 17:31 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 17:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 17:52 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 17:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 17:31 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 17:41 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 17:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 17:42 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 17:36 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 17:36 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-29 17:25 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-29 17:51 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [徐昕暂不参加NBA夏季联赛](http://www.blog.kurohicncr.top/Article/details/0773476.shtml)
-- 2026-06-29 17:36 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/07230.shtml)
-- 2026-06-29 17:28 - [2026年，如果你有100万，你会怎么投资？](http://www.blog.minike.top/Article/details/725691734.shtml)
-- 2026-06-29 17:45 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.minike.top/Article/details/260254870.shtml)
-- 2026-06-29 17:31 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/92626840618.shtml)
-- 2026-06-29 17:44 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/18198095670.shtml)
-- 2026-06-29 17:34 - [金刚川](https://www.share.minike.top/Article/details/6291331.shtml)
-- 2026-06-29 17:43 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/59431794.shtml)
-- 2026-06-29 17:18 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.minike.top/Article/details/997617029366.shtml)
-- 2026-06-29 17:39 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/9684960.shtml)
-- 2026-06-29 17:33 - [共享单车“价格刺客”79分钟30元](http://www.blog.minike.top/Article/details/906530.shtml)
-- 2026-06-29 17:47 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/31594.shtml)
-- 2026-06-29 17:25 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/3588122.shtml)
-- 2026-06-29 17:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/8318620.shtml)
-- 2026-06-29 17:32 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/864633156086.shtml)
+- 2026-06-29 17:39 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/73458668495.shtml)
+- 2026-06-29 17:52 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/968858567530.shtml)
+- 2026-06-29 17:27 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/0763559.shtml)
+- 2026-06-29 17:29 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/40632.shtml)
+- 2026-06-29 17:39 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/10068144150.shtml)
+- 2026-06-29 17:45 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/001164.shtml)
+- 2026-06-29 17:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/3638800131.shtml)
+- 2026-06-29 17:45 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/84554.shtml)
+- 2026-06-29 17:31 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/750524426.shtml)
+- 2026-06-29 17:34 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.kurohicncr.top/Article/details/479787817254.shtml)
+- 2026-06-29 17:49 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/68635487.shtml)
+- 2026-06-29 17:44 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/613611517.shtml)
+- 2026-06-29 17:29 - [博主：AI泡沫必须破灭](https://www.share.kurohicncr.top/Article/details/408536.shtml)
+- 2026-06-29 17:38 - [绘画区你赢了](https://www.blog.minike.top/Article/details/8379393047.shtml)
+- 2026-06-29 17:31 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/99964.shtml)

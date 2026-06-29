@@ -1,59 +1,61 @@
-# 连“吃”两跌停！刚刚，百亿A股公司最新公告
+# 上海高校新文科如何“破圈”？AI赋能、跨界成长
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 5月12日晚间，连续两个交易日跌停的信立泰（002294）发布股票交易异常波动公告显示，公司股票连续三个交易日内（5月8日—12日）日收盘价格跌幅偏离值累计超过20%，根据深交所的有关规定，属于股票交易异常波动的情况。 信立泰表示，公司目前经营状况良好，外部市场环境、行业政策、公司基本面等未
+中新网上海5月17日电 (记者 陈静)高等院校的新文科如何发展？记者17日采访获悉，深化国际交流与合作，培育新兴交叉学科增长极，教育、科技、人才一体化推进，上海教育部门与高校进行了多种实践与探索。 上海市教委方面当日披露，上海支持20余所教育机构在35个国家和地区承办40余所孔子学院(含汉语文化中心)、12所独立孔子课堂，加大国际中文教育推广力度。共建中老工程师学院，支持职业院
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网上海5月17日电 (记者 陈静)高等院校的新文科如何发展？
 
-来源：资本秘闻 5月12日晚间，连续两个交易日跌停的信立泰（002294）发布股票交易异常波动公告显示，公司股票连续三个交易日内（5月8日—12日）日收盘价格跌幅偏离值累计超过20%，根据深交所的有关规定，属于股票交易异常波动的情况。
+记者17日采访获悉，深化国际交流与合作，培育新兴交叉学科增长极，教育、科技、人才一体化推进，上海教育部门与高校进行了多种实践与探索。
 
-信立泰表示，公司目前经营状况良好，外部市场环境、行业政策、公司基本面等未发生重大变化。
+上海市教委方面当日披露，上海支持20余所教育机构在35个国家和地区承办40余所孔子学院(含汉语文化中心)、12所独立孔子课堂，加大国际中文教育推广力度。
 
-近日，公司披露公告显示，创新生物药JK07（SAL007）治疗慢性心力衰竭的RENEU-HF临床研究取得阶段性分析数据。
+共建中老工程师学院，支持职业院校在境外建设“毕昇工坊”等基地，培养输送产教融合应用创新型国际化人才。
 
-RENEU-HF研究是一项评估JK07（SAL007）治疗慢性心力衰竭（HFrEF 和 HFpEF）的疗效和安全性的II期剂量探索性临床研究，本次中期数据分析对剂量、给药方案的选择提供了重要信息。
+上海深化国际学术交流和教育科研合作，加大资源供给和支持力度，推动高校主办承办各类国际会议，提升上海教育的国际影响力。
 
-但由于目前仅获得第26周中期分析数据，尚未获得52周完整临床研究数据，后续临床结果仍存在不确定性。
+在上海外国语大学(下称：上外)，记者了解到，该校系统推进“文字-文学-文物-文化-文明”“五文”发展体系建设。
 
-此外，信立泰表示，公司经营稳健，基本面持续向好。
+目前，上外已经建立起多语种特色明显、区域国别覆盖广泛、多学科交叉融合优势明显的学术协作和政策研究体系。
 
-近年来，公司创新产品收入保持增长态势，2025年创新药收入同比增长47.25%；在研产品整体进展顺利，创新研发陆续取得阶段性成果，目前已有六款新药通过谈判被纳入国家医保目录。
+学校成立语言科学研究院，构建具有中国特色的语言科学学术体系；研发德国研究大模型、阿拉伯研究大模型，推动传统人文研究向精准化、智能化发展；组建“零点实验室”，构建区别于西方的理论体系与图像数据库，应用于中外合作交流项目；构建“学术研究-智库咨询-国际传播实践”联动的有组织科研体系，探索“政产学研用”协同创新路径。
 
 ## 相关推荐
 
-- 2026-06-29 17:44 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 17:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 17:47 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 17:39 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-29 17:24 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 17:32 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 17:39 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 17:34 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 17:40 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 17:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 17:31 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 17:22 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-29 17:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 17:36 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 17:44 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 17:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 17:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 17:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 17:28 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 17:46 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 17:43 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 17:41 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 17:30 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 17:46 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 17:42 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 17:41 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 17:36 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 17:25 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/601189.shtml)
-- 2026-06-29 17:38 - [小说《无悔追踪》翻红](https://www.blog.kurohicncr.top/Article/details/15412.shtml)
-- 2026-06-29 17:33 - [A股收评：科创50指数大涨4.61%](https://www.share.minike.top/Article/details/6072628136.shtml)
-- 2026-06-29 17:22 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/3823776383.shtml)
-- 2026-06-29 17:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/452160.shtml)
-- 2026-06-29 17:42 - [中国空间站为什么要升级扩容](https://www.share.kurohicncr.top/Article/details/00490124974.shtml)
-- 2026-06-29 17:46 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/798126014433.shtml)
-- 2026-06-29 17:18 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/3776618258.shtml)
-- 2026-06-29 17:46 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/30613494.shtml)
-- 2026-06-29 17:31 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/79829522.shtml)
-- 2026-06-29 17:25 - [抓特务票房破亿](http://www.share.minike.top/Article/details/82066.shtml)
-- 2026-06-29 17:26 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/03608797228.shtml)
-- 2026-06-29 17:25 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/97881196.shtml)
-- 2026-06-29 17:24 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/48761812105.shtml)
-- 2026-06-29 17:27 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/1668376.shtml)
+- 2026-06-29 17:49 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/24859.shtml)
+- 2026-06-29 17:33 - [赵今麦时隔五年再演李诗情](http://www.share.minike.top/Article/details/3813035.shtml)
+- 2026-06-29 17:37 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/3997843.shtml)
+- 2026-06-29 17:49 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/5578166967.shtml)
+- 2026-06-29 17:46 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/50486.shtml)
+- 2026-06-29 17:26 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/832574632788.shtml)
+- 2026-06-29 17:37 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/963201.shtml)
+- 2026-06-29 17:38 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/1587683952.shtml)
+- 2026-06-29 17:34 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/40207209.shtml)
+- 2026-06-29 17:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/859298394.shtml)
+- 2026-06-29 17:30 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/651495821928.shtml)
+- 2026-06-29 17:35 - [曹格把擦腋下的毛巾扔给粉丝](http://www.blog.kurohicncr.top/Article/details/71420.shtml)
+- 2026-06-29 17:53 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/1579028.shtml)
+- 2026-06-29 17:43 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.kurohicncr.top/Article/details/9195838.shtml)
+- 2026-06-29 17:42 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/486676.shtml)

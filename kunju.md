@@ -1,54 +1,59 @@
-# Alerian MLP ETF宣布每单位派息1.03美元
+# 世界市长对话都江堰：千年古堰“因势利导”启迪现代城市治理
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-专注于能源基础设施主有限合伙企业的交易所交易基金Alerian MLP ETF周三宣布，2026年第二季度每单位派息为1.03美元。 股息详情与支付安排 根据基金公告，本次派息的除息日和登记日均定于5月13日，股息将于5月18日支付。按当前价格计算，该基金的12个月追踪股息收益率约为7.76%。 基金背景 该ETF追踪Alerian MLP基础设施指数，主要投资于美国能源基础设
+中新网成都5月16日电 (袁牟知博)“2026世界市长对话·成都”系列活动之“古堰流芳·世界共鉴”情景对话15日下午在都江堰举行。来自哥伦比亚、马来西亚等国的城市代表与专家学者等，围绕都江堰治水智慧与现代城市治理展开对话。 都江堰市政府副市长曾滢茜在对话中表示，都江堰水利工程的珍贵，不仅在于工程本身，更在于因势利导、顺势而为的治理理念。曾滢茜介绍，李冰父子当年通过读懂山势、水势
 
 ## 正文
 
-专注于能源基础设施主有限合伙企业的交易所交易基金Alerian MLP ETF周三宣布，2026年第二季度每单位派息为1.03美元。
+中新网成都5月16日电 (袁牟知博)“2026世界市长对话·成都”系列活动之“古堰流芳·世界共鉴”情景对话15日下午在都江堰举行。
 
-股息详情与支付安排 根据基金公告，本次派息的除息日和登记日均定于5月13日，股息将于5月18日支付。
+来自哥伦比亚、马来西亚等国的城市代表与专家学者等，围绕都江堰治水智慧与现代城市治理展开对话。
 
-按当前价格计算，该基金的12个月追踪股息收益率约为7.76%。
+都江堰市政府副市长曾滢茜在对话中表示，都江堰水利工程的珍贵，不仅在于工程本身，更在于因势利导、顺势而为的治理理念。
 
-基金背景 该ETF追踪Alerian MLP基础设施指数，主要投资于美国能源基础设施领域的主有限合伙企业，涵盖油气管道、存储等中游资产。
+曾滢茜介绍，李冰父子当年通过读懂山势、水势、地势，将岷江水引入成都平原，实现了自流灌溉。
 
-在当前地缘政治紧张局势推高能源价格的背景下，该基金因其高派息特征持续受到收益型投资者的关注。
+都江堰灌溉面积已从建成之初的70余万亩扩大到近2000万亩，惠及人口达3200万。
 
-责任编辑：张俊 SF065
+“因势利导不仅是工程智慧，更是面向未来的生态柔性、文明哲学。
+
+”巴蜀文化专家赵文侨说，都江堰水利工程的低成本在于利用水流规律作为动力，高适应在于为洪水预留出路而非阻拦。
+
+“都江堰水利工程告诉我们，真正成熟的城市治理，不在于极致的控制，而在于在适度中找出弹性，在秩序中找到出口。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 17:30 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 17:29 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 17:28 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 17:38 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-29 17:23 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 17:35 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 17:35 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 17:44 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 17:44 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 17:19 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 17:45 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 17:42 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 17:35 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 17:50 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 17:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 17:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 17:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 17:47 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 17:43 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 17:27 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 17:52 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 17:24 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 17:36 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 17:49 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/052442811.shtml)
-- 2026-06-29 17:28 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/24856590871.shtml)
-- 2026-06-29 17:27 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/7625929.shtml)
-- 2026-06-29 17:20 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/69180817668.shtml)
-- 2026-06-29 17:44 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.kurohicncr.top/Article/details/3030605.shtml)
-- 2026-06-29 17:26 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/01988397643.shtml)
-- 2026-06-29 17:21 - [日本偶像龟梨和也宣布结婚](https://www.blog.kurohicncr.top/Article/details/5911506570.shtml)
-- 2026-06-29 17:25 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.kurohicncr.top/Article/details/43021417539.shtml)
-- 2026-06-29 17:44 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/63265239.shtml)
-- 2026-06-29 17:28 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/908751.shtml)
-- 2026-06-29 17:24 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/636020218.shtml)
-- 2026-06-29 17:37 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/34435678.shtml)
-- 2026-06-29 17:43 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/04284166.shtml)
-- 2026-06-29 17:30 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/32676.shtml)
-- 2026-06-29 17:33 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.minike.top/Article/details/6075416.shtml)
+- 2026-06-29 17:51 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/7062360597.shtml)
+- 2026-06-29 17:27 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/33899.shtml)
+- 2026-06-29 17:47 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/4435782888.shtml)
+- 2026-06-29 17:30 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/73085774994.shtml)
+- 2026-06-29 17:41 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/90944.shtml)
+- 2026-06-29 17:36 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/24726148884.shtml)
+- 2026-06-29 17:36 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/50013.shtml)
+- 2026-06-29 17:29 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/96707214953.shtml)
+- 2026-06-29 17:26 - [起风了](https://www.share.minike.top/Article/details/669509413.shtml)
+- 2026-06-29 17:33 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/16836.shtml)
+- 2026-06-29 17:25 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/510307.shtml)
+- 2026-06-29 17:26 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/657018.shtml)
+- 2026-06-29 17:47 - [警方回应两名老人多次到洗车店泼粪](https://www.share.kurohicncr.top/Article/details/5757760.shtml)
+- 2026-06-29 17:34 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/51836263.shtml)
+- 2026-06-29 17:30 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/68441.shtml)

@@ -1,56 +1,58 @@
-# Hemisphere Energy宣布派发每股0.025加元季度股息
+# 2026年北京市积分落户申报阶段结束 94549人提交申请
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-加拿大石油天然气公司Hemisphere Energy Corp．于5月12日宣布，董事会已批准派发每股0.025加元的季度现金股息。 股息详情与支付安排 根据公司公告，本次股息将于2026年6月26日支付给6月12日收盘时登记在册的股东。该股息依据公司股息政策发放，并已被指定为符合税收优惠条件的合格股息。 上半年累计分红达0.11加元 值得关注的是，包括4月和5月支付的两次每
+中新网北京5月16日电(记者 吕少威)北京市人力资源和社会保障局16日发布消息，北京市2026年积分落户申报阶段自4月16日8时开始，已于5月15日20时结束。今年全市共有94549人在线提交积分落户申请。 自5月16日起至6月4日，北京市年度积分落户工作进入部门审核结果汇总阶段，相关部门将对申请人填报的各项指标及时更新审核结果并汇总处理。6月5日8时至6月12日20时为审核结
 
 ## 正文
 
-加拿大石油天然气公司Hemisphere Energy Corp．于5月12日宣布，董事会已批准派发每股0.025加元的季度现金股息。
+中新网北京5月16日电(记者 吕少威)北京市人力资源和社会保障局16日发布消息，北京市2026年积分落户申报阶段自4月16日8时开始，已于5月15日20时结束。
 
-股息详情与支付安排 根据公司公告，本次股息将于2026年6月26日支付给6月12日收盘时登记在册的股东。
+今年全市共有94549人在线提交积分落户申请。
 
-该股息依据公司股息政策发放，并已被指定为符合税收优惠条件的合格股息。
+自5月16日起至6月4日，北京市年度积分落户工作进入部门审核结果汇总阶段，相关部门将对申请人填报的各项指标及时更新审核结果并汇总处理。
 
-上半年累计分红达0.11加元 值得关注的是，包括4月和5月支付的两次每股0.03加元的特别股息，以及2月和6月的季度基础股息，Hemisphere Energy在2026年上半年将向股东支付总计每股0.11加元的股息。
+6月5日8时至6月12日20时为审核结果查询阶段，申请人可登录北京市人力资源和社会保障局官方网站的积分落户在线申报系统(https://rsj.beijing.gov.cn/jflh/)查看全部积分指标审核结果，如有异议，可在这一阶段在线提出申诉。
 
-这一分红水平充分体现了公司强劲的现金流状况和回报股东的承诺。
+审核结果查询阶段结束后，申请人对本人年度积分指标审核结果有异议的将不再受理。
 
-公司背景 Hemisphere Energy专注于通过聚合物驱等提高采收率技术开发常规重油资产，其核心资产位于加拿大阿尔伯塔省东南部的Atlee Buffalo产区。
+7月13日起，2026年拟取得积分落户资格人员名单将在北京市政府网站“首都之窗”公示。
 
-收益率参考 根据近期股价水平计算，该股的年化股息收益率约在3.6%至5.8%区间，具体数值因不同数据平台和汇率换算而有所差异。
+届时，申请人可登录积分落户在线申报系统，查看本人最终年度积分及排名。
 
-责任编辑：张俊 SF065
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-29 17:39 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 17:26 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 17:28 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 17:25 - [首个靠AI躺赢的国家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 17:20 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:42 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 17:18 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 17:47 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 17:44 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 17:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 17:45 - [日本偶像龟梨和也宣布结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 17:47 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 17:48 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-29 17:32 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 17:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 17:41 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 17:34 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 17:47 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 17:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 17:30 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 17:32 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/17799965.shtml)
-- 2026-06-29 17:42 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/083901617442.shtml)
-- 2026-06-29 17:39 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/23502.shtml)
-- 2026-06-29 17:40 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/58442193.shtml)
-- 2026-06-29 17:46 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/0330393.shtml)
-- 2026-06-29 17:24 - [每天通勤往返3h的感觉](https://www.blog.minike.top/Article/details/00676294977.shtml)
-- 2026-06-29 17:39 - [呼兰赵晓卉来东风奕派开专场了](http://www.blog.kurohicncr.top/Article/details/71345195.shtml)
-- 2026-06-29 17:38 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/074846540011.shtml)
-- 2026-06-29 17:25 - [第一炉香](https://www.blog.minike.top/Article/details/997711096732.shtml)
-- 2026-06-29 17:44 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/98703526663.shtml)
-- 2026-06-29 17:45 - [日本主教练回应迎战巴西](http://www.blog.kurohicncr.top/Article/details/47513757.shtml)
-- 2026-06-29 17:20 - [T1 KC](http://www.share.kurohicncr.top/Article/details/001777954374.shtml)
-- 2026-06-29 17:36 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/262597195364.shtml)
-- 2026-06-29 17:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/3669383.shtml)
-- 2026-06-29 17:38 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.kurohicncr.top/Article/details/62030785621.shtml)
+- 2026-06-29 17:53 - [NBA交易](https://www.blog.minike.top/Article/details/71507111227.shtml)
+- 2026-06-29 17:45 - [截瘫男子心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/03419364930.shtml)
+- 2026-06-29 17:52 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/687537.shtml)
+- 2026-06-29 17:24 - [花万元相亲对象是50元雇的演员](http://www.share.minike.top/Article/details/338118833.shtml)
+- 2026-06-29 17:34 - [博主：黄金和原油回落不等于风险消失](http://www.blog.kurohicncr.top/Article/details/41079.shtml)
+- 2026-06-29 17:46 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/9518825096.shtml)
+- 2026-06-29 17:53 - [逆天祖国人](http://www.share.minike.top/Article/details/6990094.shtml)
+- 2026-06-29 17:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/14120222888.shtml)
+- 2026-06-29 17:29 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.minike.top/Article/details/5145714.shtml)
+- 2026-06-29 17:35 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/086346290.shtml)
+- 2026-06-29 17:49 - [花万元相亲对象是50元雇的演员](https://www.share.minike.top/Article/details/00324965686.shtml)
+- 2026-06-29 17:38 - [王楚钦开门红](https://www.blog.minike.top/Article/details/12820769.shtml)
+- 2026-06-29 17:31 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/5277461.shtml)
+- 2026-06-29 17:33 - [网友飞机上偶遇肖战](https://www.share.kurohicncr.top/Article/details/205289117.shtml)
+- 2026-06-29 17:51 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/62328063.shtml)

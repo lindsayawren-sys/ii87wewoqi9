@@ -1,50 +1,44 @@
-# 海南离岛免税购物金额达222.2亿元
+# 中央财政5亿元支持校园足球特色学校发展
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-新政策实施半年 海南离岛免税购物金额达222.2亿元 人民日报 本报海口5月12日电 (记者曹文轩)记者从海口海关获悉：自2025年11月海南离岛免税新政策实施至2026年4月30日，海关监管离岛免税购物金额222.2亿元，297.3万人次购物，购物1745万件，同比分别增长22.6%、9.4%、5.5%。离岛免税新政策围绕普通游客、岛内居民和离境出行人群3类消费主体进行规则优
+发布时间：2026年05月15日 09:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-新政策实施半年 海南离岛免税购物金额达222.2亿元 人民日报 本报海口5月12日电 (记者曹文轩)记者从海口海关获悉：自2025年11月海南离岛免税新政策实施至2026年4月30日，海关监管离岛免税购物金额222.2亿元，297.3万人次购物，购物1745万件，同比分别增长22.6%、9.4%、5.5%。
-
-离岛免税新政策围绕普通游客、岛内居民和离境出行人群3类消费主体进行规则优化，补齐了商品供给短板，拓宽免税商品品类范围，免税商品品类由原来的45个大类扩充至47个大类，同时对既有商品进行优化扩容，更好满足顾客多元化的消费需求。
-
-“新政策实施后，我们对店内销售、现场提货、离岛核销实行一物一码管理。
-
-”海口海关监管处相关负责人表示，将加大支持免税商品种类扩容力度，深化智慧监管，推动政策红利持续释放。
+发布时间：2026年05月15日 09:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 17:35 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 17:19 - [蔚来回应车漆洗车时被冲掉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 17:30 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 17:45 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 17:42 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 17:42 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 17:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 17:32 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 17:28 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 17:36 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 17:25 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 17:36 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 17:42 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 17:42 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 17:43 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 17:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 17:49 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-29 17:29 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 17:25 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-29 17:49 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 17:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 17:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 17:36 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:21 - [首个靠AI躺赢的国家](http://www.share.kurohicncr.top/Article/details/18769728.shtml)
-- 2026-06-29 17:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/530462.shtml)
-- 2026-06-29 17:36 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/6165644.shtml)
-- 2026-06-29 17:46 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/4173197909.shtml)
-- 2026-06-29 17:37 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/60008958159.shtml)
-- 2026-06-29 17:20 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/27093.shtml)
-- 2026-06-29 17:43 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.kurohicncr.top/Article/details/476091.shtml)
-- 2026-06-29 17:36 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/5093688.shtml)
-- 2026-06-29 17:20 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/93133.shtml)
-- 2026-06-29 17:23 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/215166806628.shtml)
-- 2026-06-29 17:18 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/1166975.shtml)
-- 2026-06-29 17:38 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/39200281.shtml)
-- 2026-06-29 17:43 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/65786639275.shtml)
-- 2026-06-29 17:47 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/65281.shtml)
-- 2026-06-29 17:39 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/95202335.shtml)
+- 2026-06-29 17:40 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/1831209156.shtml)
+- 2026-06-29 17:42 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/863171292.shtml)
+- 2026-06-29 17:38 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/81831955671.shtml)
+- 2026-06-29 17:43 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/45817881.shtml)
+- 2026-06-29 17:24 - [曹格把擦腋下的毛巾扔给粉丝](http://www.share.kurohicncr.top/Article/details/1407211315.shtml)
+- 2026-06-29 17:25 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/2087467742.shtml)
+- 2026-06-29 17:53 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/08836706.shtml)
+- 2026-06-29 17:46 - [周生如故](http://www.share.kurohicncr.top/Article/details/78127040.shtml)
+- 2026-06-29 17:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/14461.shtml)
+- 2026-06-29 17:37 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/83172981049.shtml)
+- 2026-06-29 17:40 - [学者：建设性战略稳定重塑中美关系](https://www.blog.minike.top/Article/details/1345609.shtml)
+- 2026-06-29 17:45 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/413639.shtml)
+- 2026-06-29 17:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/962655683335.shtml)
+- 2026-06-29 17:27 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/9613414.shtml)
+- 2026-06-29 17:36 - [叠纸](http://www.blog.minike.top/Article/details/056293111951.shtml)

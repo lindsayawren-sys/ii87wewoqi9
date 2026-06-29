@@ -1,60 +1,56 @@
-# 21国驻澳（港）领事官员走进云南 感受开放包容大美边疆
+# 台湾写真：台湾学子迎考试季 文昌宫里祈福忙
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网昆明5月13日电 (罗婕)12日，云南省副省长徐浩在昆明会见外国驻澳(港)领事官员团一行，双方围绕推进经贸、农业、科技等领域合作进行深入交流。外交部驻澳门特别行政区特派员公署、澳门特区政府总部事务局有关负责人参加会见。 “领团内地参访”活动是外交部驻澳公署和澳门特区政府合作举办的品牌活动。5月11日至14日，来自21个国家的驻澳(港)领事官员到访云南，旨在透过云南的发展历
+中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。 位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。宫庙自5月13日起连续三日举行法会，为考生集体祈福。连日来，该
 
 ## 正文
 
-中新网昆明5月13日电 (罗婕)12日，云南省副省长徐浩在昆明会见外国驻澳(港)领事官员团一行，双方围绕推进经贸、农业、科技等领域合作进行深入交流。
+中新社台北5月16日电 题：台湾学子迎考试季 文昌宫里祈福忙 中新社记者 陈建新 一年一度的台湾初中生升学会考16日开考。
 
-外交部驻澳门特别行政区特派员公署、澳门特区政府总部事务局有关负责人参加会见。
+考试来临之前，岛内各地已掀起祈福热潮，许多学子与家长纷纷前往供奉文昌帝君的宫庙参拜祈愿，成为台湾社会别具特色的民俗风情。
 
-“领团内地参访”活动是外交部驻澳公署和澳门特区政府合作举办的品牌活动。
+位于台北市中山区的台北市文昌宫，正殿供奉文昌帝君，是学子们祈福的热门宫庙。
 
-5月11日至14日，来自21个国家的驻澳(港)领事官员到访云南，旨在透过云南的发展历程，深入了解中国式现代化的发展理念与生动实践。
+宫庙自5月13日起连续三日举行法会，为考生集体祈福。
 
-云南地处中国西南边陲，民族文化多元、生物多样性富集、区位优势独特，正持续建设民族团结进步示范区、生态文明建设排头兵和面向南亚东南亚辐射中心。
+连日来，该宫庙人山人海，宫庙前空地上特意增设数张供品桌，便利民众摆放各式供品。
 
-作为领团代表，哥伦比亚驻香港总领事路易斯·费尔南多·奥洛斯科·巴雷拉表示，此次访问让他领略到云南蓬勃的发展活力，也为双方深化合作提供互利共赢的新契机。
+在中华传统文化中，文昌帝君掌管学业、考试与功名，倡导勤学向善，千百年来，广受读书人尊崇。
 
-哥伦比亚是鲜花出口大国，此行他将重点关注云南鲜花产业、农业以及乡村振兴等领域的发展。
+时至今日，学子赶考前“拜文昌”，祈求考试顺遂、金榜题名，已是两岸民间深入人心的一项传统。
 
-柬埔寨驻香港总领事李素文表示，此行主要目的是进一步巩固柬中两国传统友谊。
+走进台北市文昌宫，右侧入口处一幅写有“将相无种凭才德，男儿自强习文章”的对联赫然入目；两侧的柱子上，密密麻麻挂满考生许愿牌，写着对学业与未来的美好祝愿；供品桌上，准考证复印件、考生衣服以及葱、蒜、芹菜、白萝卜、粽子等各式供品整齐摆放。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 17:30 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 17:18 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 17:20 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 17:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 17:45 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 17:44 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 17:19 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 17:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 17:20 - [机器人学校开学了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 17:35 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 17:37 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
-- 2026-06-29 17:42 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-29 17:27 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 17:25 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 17:37 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 17:38 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-29 17:27 - [黄金也扛不住了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 17:29 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 17:47 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 17:48 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 17:32 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-29 17:45 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 17:39 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/897437308.shtml)
-- 2026-06-29 17:26 - [啊啊啊](https://www.share.minike.top/Article/details/092418669669.shtml)
-- 2026-06-29 17:36 - [时光音乐会](http://www.blog.minike.top/Article/details/36447769.shtml)
-- 2026-06-29 17:46 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/849652315083.shtml)
-- 2026-06-29 17:43 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/7570837724.shtml)
-- 2026-06-29 17:41 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/022008.shtml)
-- 2026-06-29 17:30 - [林昀儒不敌17岁小将止步首轮](https://www.blog.kurohicncr.top/Article/details/0013409610.shtml)
-- 2026-06-29 17:28 - [谢依霖夸杨幂靠谱](http://www.share.minike.top/Article/details/920323.shtml)
-- 2026-06-29 17:38 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/6629455024.shtml)
-- 2026-06-29 17:18 - [专家预计全球央行加息节奏将出现反复](https://www.blog.kurohicncr.top/Article/details/93113197544.shtml)
-- 2026-06-29 17:37 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/83265409.shtml)
-- 2026-06-29 17:42 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/95322408.shtml)
-- 2026-06-29 17:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/850062648829.shtml)
-- 2026-06-29 17:43 - [消息称斯塔默有意竞逐下任北约秘书长](http://www.share.kurohicncr.top/Article/details/515158.shtml)
-- 2026-06-29 17:47 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/23935.shtml)
+- 2026-06-29 17:35 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/326978831.shtml)
+- 2026-06-29 17:49 - [挪威王储妃长子两次强奸获刑](http://www.blog.kurohicncr.top/Article/details/533918.shtml)
+- 2026-06-29 17:46 - [当我回母校教书](http://www.share.minike.top/Article/details/7906202897.shtml)
+- 2026-06-29 17:50 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/307220.shtml)
+- 2026-06-29 17:38 - [欧洲高温会成下个印度吗](https://www.blog.minike.top/Article/details/0530825.shtml)
+- 2026-06-29 17:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/01087264372.shtml)
+- 2026-06-29 17:41 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/123664.shtml)
+- 2026-06-29 17:45 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/519955.shtml)
+- 2026-06-29 17:31 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/7236708.shtml)
+- 2026-06-29 17:47 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/896286924.shtml)
+- 2026-06-29 17:31 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/00898268760.shtml)
+- 2026-06-29 17:27 - [勇敢的心第二部](https://www.share.minike.top/Article/details/93992559.shtml)
+- 2026-06-29 17:48 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/68251678.shtml)
+- 2026-06-29 17:42 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/4503459129.shtml)
+- 2026-06-29 17:29 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/37546.shtml)

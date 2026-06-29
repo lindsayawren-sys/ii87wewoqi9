@@ -1,60 +1,55 @@
-# 浙理工首届中法班毕业大秀启幕 诠释“共生”主题
+# 重庆对11个区县启动市级防汛四级应急响应
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网杭州5月12日电(曹丹)5月11日晚，浙江理工大学马兰戈尼时尚设计学院(国际时装技术学院)2026届毕业设计联展《共生》在杭州启幕。该院首届中法合作项目的16名毕业生携60套设计作品亮相，展现科技、艺术与人文的融合。 “非常惊艳。”法国马兰戈尼学院校长Stefania Valenti在看完毕业生大秀后给予高度评价，“作品的质量、原创性和细节都超出预期”。 她特别指出，学生
+中新网重庆5月16日电 (记者 刘相琳)重庆市应急管理局发布消息称，重庆市防汛抗旱指挥部决定于16日14时，针对11个区县启动市级防汛四级应急响应。 根据重庆市气象防御专委(重庆市气象局)发布的“24小时气象预警”，预计16日20时至18日11时，重庆仍有强降雨，主要影响东部地区，累计雨量东部地区40至90毫米，局地120至140毫米，其余地区20至60毫米。重庆市汛旱防治专委
 
 ## 正文
 
-中新网杭州5月12日电(曹丹)5月11日晚，浙江理工大学马兰戈尼时尚设计学院(国际时装技术学院)2026届毕业设计联展《共生》在杭州启幕。
+中新网重庆5月16日电 (记者 刘相琳)重庆市应急管理局发布消息称，重庆市防汛抗旱指挥部决定于16日14时，针对11个区县启动市级防汛四级应急响应。
 
-该院首届中法合作项目的16名毕业生携60套设计作品亮相，展现科技、艺术与人文的融合。
+根据重庆市气象防御专委(重庆市气象局)发布的“24小时气象预警”，预计16日20时至18日11时，重庆仍有强降雨，主要影响东部地区，累计雨量东部地区40至90毫米，局地120至140毫米，其余地区20至60毫米。
 
-“非常惊艳。
+重庆市汛旱防治专委(市水利局)于16日13时调整了市级水旱灾害防御应急响应范围。
 
-”法国马兰戈尼学院校长Stefania Valenti在看完毕业生大秀后给予高度评价，“作品的质量、原创性和细节都超出预期”。
+按照《重庆市防汛抗旱应急预案》，经会商研判，重庆市防汛抗旱指挥部决定于16日14时，针对黔江区、涪陵区、城口县、丰都县、忠县、云阳县、奉节县、巫山县、巫溪县、石柱自治县、秀山自治县共11个区县启动市级防汛四级应急响应，继续维持万州区、巴南区、长寿区、江津区、南川区、綦江区、开州区、梁平区、武隆区、垫江县、酉阳自治县、彭水自治县、万盛经开区13个区县市级防汛四级应急响应，终止两江新区、渝中区、大渡口区、沙坪坝区、九龙坡区、南岸区、北碚区、合川区、永川区、大足区、璧山区、铜梁区、荣昌区、西部科学城重庆高新区14个区县市级防汛四级应急响应。
 
-她特别指出，学生对皮革与棉等不同材料的现代处理方式，以及造型的原创性令人印象深刻。
+重庆市防汛抗旱指挥部要求，该市防汛抗旱指挥部各成员单位、各区县防汛抗旱指挥机构要加强递进会商研判，结合本行业、本地区实际，严格落实预案规定，及时调整防汛应急响应等级和范围，切实抓好防汛抗旱各项工作落实。
 
-在她看来，这正是一种“共生”——恰与本次时装秀的主题相呼应，不同传统、文化与技能在此交汇共存。
-
-本届毕业设计立足于产业增速放缓、时尚样态转向工艺整体统筹的行业判断，将作品定位为“高级成衣”。
-
-教学过程中，传统“好不好看”“难不难做”的单一评判被拆解为形、纹、质、色四项造型要素与版型、面料、制成三项工艺类别对应的十二个设计要点，以设计伦理与价值导向为纲领，从历史与当代服装造型研究、市场调研到动手实践，层层推进。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 17:18 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 17:27 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 17:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 17:40 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 17:43 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 17:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 17:47 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 17:41 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-29 17:38 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 17:43 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 17:21 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 17:31 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 17:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 17:19 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 17:44 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 17:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 17:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 17:24 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 17:48 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 17:53 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 17:34 - [唐艺昕告别浪姐千字长文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 17:45 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 17:34 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 17:43 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 17:45 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 17:24 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 17:35 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [中方追加1亿元物资援助委内瑞拉](https://www.share.minike.top/Article/details/34874.shtml)
-- 2026-06-29 17:45 - [沙特外交大臣将访华](https://www.blog.kurohicncr.top/Article/details/7955800979.shtml)
-- 2026-06-29 17:27 - [沙特外交大臣将访华](https://www.share.minike.top/Article/details/062724.shtml)
-- 2026-06-29 17:40 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/1320137918.shtml)
-- 2026-06-29 17:20 - [我和我的家乡](https://www.blog.minike.top/Article/details/82170029.shtml)
-- 2026-06-29 17:22 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/79331272155.shtml)
-- 2026-06-29 17:38 - [TTG KSG](https://www.blog.minike.top/Article/details/6975857.shtml)
-- 2026-06-29 17:30 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/2811077222.shtml)
-- 2026-06-29 17:42 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/71240.shtml)
-- 2026-06-29 17:38 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/39919813.shtml)
-- 2026-06-29 17:26 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/892483891.shtml)
-- 2026-06-29 17:40 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/3687811.shtml)
-- 2026-06-29 17:39 - [T1零封KC MSI](http://www.share.minike.top/Article/details/27186403029.shtml)
-- 2026-06-29 17:34 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/61443.shtml)
-- 2026-06-29 17:34 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/038157.shtml)
+- 2026-06-29 17:37 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/562111.shtml)
+- 2026-06-29 17:48 - [12所大学更正招生目录](https://www.blog.kurohicncr.top/Article/details/292970914.shtml)
+- 2026-06-29 17:47 - [央视曝光涉黄App诈骗陷阱](http://www.share.kurohicncr.top/Article/details/6021070.shtml)
+- 2026-06-29 17:50 - [吴建豪和老婆差20岁](https://www.share.minike.top/Article/details/8349274.shtml)
+- 2026-06-29 17:40 - [《贺子珍》](https://www.share.minike.top/Article/details/366243501.shtml)
+- 2026-06-29 17:53 - [蔚来回应车漆洗车时被冲掉](http://www.blog.minike.top/Article/details/445215225.shtml)
+- 2026-06-29 17:46 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/127452630.shtml)
+- 2026-06-29 17:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/124372981638.shtml)
+- 2026-06-29 17:35 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/431242882024.shtml)
+- 2026-06-29 17:34 - [7款高价创新药有望降价](http://www.share.kurohicncr.top/Article/details/23922.shtml)
+- 2026-06-29 17:45 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/725660145.shtml)
+- 2026-06-29 17:48 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/20880910903.shtml)
+- 2026-06-29 17:53 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/972902.shtml)
+- 2026-06-29 17:46 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/30267729522.shtml)
+- 2026-06-29 17:53 - [FIFA回应佛得角队长被指控强奸](https://www.blog.minike.top/Article/details/751602.shtml)

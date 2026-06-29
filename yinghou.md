@@ -1,49 +1,60 @@
-# 晶瑞电材：公司将积极通过多种措施来降低原材料价格波动的影响
+# 高盛风险偏好指标飙至2021年来新高，罕见“双高”组合26年首现
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-证券日报网讯 5月13日，晶瑞电材在互动平台回答投资者提问时表示，公司将积极通过拓展采购渠道、与客户协商价格调整、推进内部降本增效、加强成本管理等措施来降低原材料价格波动的影响。（文章来源：证券日报）
+指标触及极端水平 高盛近日警告称，其风险偏好指标本周已飙升至1.1以上，创下2021年以来最高水平，自1991年有记录以来处于第99百分位。该指标基于固定收益、股票、流动性、大宗商品和信用五大类高频数据构建，自1950年以来仅有约2%的时间处于1以上区间。 与此同时，股票动量表现显著增强。以iShares MSCI USA Momentum Factor ETF为例，自3月30
 
 ## 正文
 
-证券日报网讯 5月13日，晶瑞电材在互动平台回答投资者提问时表示，公司将积极通过拓展采购渠道、与客户协商价格调整、推进内部降本增效、加强成本管理等措施来降低原材料价格波动的影响。
+指标触及极端水平 高盛近日警告称，其风险偏好指标本周已飙升至1.1以上，创下2021年以来最高水平，自1991年有记录以来处于第99百分位。
 
-（文章来源：证券日报）
+该指标基于固定收益、股票、流动性、大宗商品和信用五大类高频数据构建，自1950年以来仅有约2%的时间处于1以上区间。
+
+与此同时，股票动量表现显著增强。
+
+以iShares MSCI USA Momentum Factor ETF为例，自3月30日低点以来已上涨33%，同期标普500指数上涨18.25%，推动动量Z-Score突破3这一高位区间。
+
+26年来首次出现这一组合 高盛策略师Andrea Ferrario团队指出，这是自2000年初以来，风险偏好与动量表现首次同时处于如此极端的水平。
+
+报告称：“当前市场环境具有特殊性”，这种组合在历史上极为罕见。
+
+回顾1962年以来的数据，当RAI高于0.9且美股动量Z-Score超过2.0时，共出现过8次类似情形，其中3次在随后两年内演变为熊市。
+
+不过高盛也指出，在1999年和2021年，股市是在该信号首次出现约12个月后才见顶。
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 17:27 - [上海小区惊现鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 17:29 - [疑似吴建豪老婆正脸照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 17:39 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 17:42 - [看大国重器“云端穿针引线”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 17:46 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 17:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 17:36 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 17:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 17:21 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 17:40 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 17:43 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 17:26 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 17:45 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 17:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-29 17:26 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 17:31 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 17:45 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 17:49 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 17:27 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 17:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 17:40 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 17:27 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 17:48 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 17:33 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 17:28 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 17:51 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 17:44 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 17:45 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:27 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/459902828699.shtml)
-- 2026-06-29 17:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/0973151775.shtml)
-- 2026-06-29 17:41 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/859043.shtml)
-- 2026-06-29 17:42 - [虞书欣好辣的剧宣](http://www.share.kurohicncr.top/Article/details/52710938852.shtml)
-- 2026-06-29 17:26 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/975103.shtml)
-- 2026-06-29 17:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/49079493.shtml)
-- 2026-06-29 17:25 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/3006332785.shtml)
-- 2026-06-29 17:22 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/5820483598.shtml)
-- 2026-06-29 17:31 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/9355622.shtml)
-- 2026-06-29 17:29 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/3171101.shtml)
-- 2026-06-29 17:43 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/636410.shtml)
-- 2026-06-29 17:43 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/68763262406.shtml)
-- 2026-06-29 17:23 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/6461600487.shtml)
-- 2026-06-29 17:30 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/3414341536.shtml)
-- 2026-06-29 17:28 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/36557149.shtml)
+- 2026-06-29 17:40 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.kurohicncr.top/Article/details/797206335.shtml)
+- 2026-06-29 17:34 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/121332589187.shtml)
+- 2026-06-29 17:45 - [请回答王牌2019](https://www.share.minike.top/Article/details/4472165395.shtml)
+- 2026-06-29 17:51 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/422397536.shtml)
+- 2026-06-29 17:51 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/6643262879.shtml)
+- 2026-06-29 17:25 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/190373176.shtml)
+- 2026-06-29 17:27 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/8067932.shtml)
+- 2026-06-29 17:24 - [东方风云榜](http://www.blog.minike.top/Article/details/54060.shtml)
+- 2026-06-29 17:26 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/8697285073.shtml)
+- 2026-06-29 17:49 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/75401.shtml)
+- 2026-06-29 17:35 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/3535769.shtml)
+- 2026-06-29 17:25 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/470316228969.shtml)
+- 2026-06-29 17:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/05111761152.shtml)
+- 2026-06-29 17:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/2979962591.shtml)
+- 2026-06-29 17:30 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/34560394.shtml)

@@ -1,58 +1,58 @@
-# 美国参议院以54票对45票批准沃什出任美联储主席
+# RadexMarkets瑞德克斯:全球原油库存快速去化
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-美国参议院周三以按照党派划线的投票结果，确认凯文·沃什出任美联储第17任主席。这一投票结果反映出，与白宫的紧张关系已将美联储更深地卷入政治纷争。 沃什以54票赞成、45票反对的结果获得确认。他赢得了参议院所有共和党人的支持，而民主党方面仅有宾夕法尼亚州参议员约翰·费特曼一人投下赞成票。自1977年参议院批准成为出任该职位的必要条件以来，还没有哪位美联储主席以如此微弱的票数优势获
+5月15日，国际能源署（IEA）最新月度报告显示，全球原油库存正经历近年来罕见的快速去化。RadexMarkets瑞德克斯表示，受伊朗冲突持续与霍尔木兹通行受阻影响，四月份全球每日动用约四百万桶后备库存以填补供应缺口，库存缓冲层在多重压力下被快速消耗。 RadexMarkets瑞德克斯分析称，三月至四月期间，包括在途海上原油在内的全球可观测库存合计减少约2.5亿桶，相当于日均四
 
 ## 正文
 
-美国参议院周三以按照党派划线的投票结果，确认凯文·沃什出任美联储第17任主席。
+5月15日，国际能源署（IEA）最新月度报告显示，全球原油库存正经历近年来罕见的快速去化。
 
-这一投票结果反映出，与白宫的紧张关系已将美联储更深地卷入政治纷争。
+RadexMarkets瑞德克斯表示，受伊朗冲突持续与霍尔木兹通行受阻影响，四月份全球每日动用约四百万桶后备库存以填补供应缺口，库存缓冲层在多重压力下被快速消耗。
 
-沃什以54票赞成、45票反对的结果获得确认。
+RadexMarkets瑞德克斯分析称，三月至四月期间，包括在途海上原油在内的全球可观测库存合计减少约2.5亿桶，相当于日均四百万桶水平，刷新了IEA跟踪以来同期最高去库速度。
 
-他赢得了参议院所有共和党人的支持，而民主党方面仅有宾夕法尼亚州参议员约翰·费特曼一人投下赞成票。
+霍尔木兹海峡作为全球约五分之一海运原油的关键通道，目前基本陷入停滞；脆弱的停火框架使供应面紧张并非线性缓解，市场对潜在突发事件保持高度警觉。
 
-自1977年参议院批准成为出任该职位的必要条件以来，还没有哪位美联储主席以如此微弱的票数优势获得确认。
+从结构上看，机构判断，本轮去库覆盖了商业与战略储备双重维度，反映了真实的供应紧张而非短期套利行为。
 
-现任主席鲍威尔的任期将于周五结束，他在执掌美联储的两个任期中，每次都在参议院确认投票中获得了至少80张赞成票。
+叠加炼厂检修季结束、夏季出行需求回升，库存重建窗口被进一步推后，远期曲线呈现明显的现货溢价结构，提示市场对短缺预期持续强化。
 
-前任主席珍妮特·耶伦在2014年以56票赞成、26票反对的结果获得确认，当时许多参议员因恶劣天气而缺席。
+展望后市，RadexMarkets瑞德克斯预计，如果霍尔木兹通行短期内难以恢复，全球库存压力将延续。
 
-艰难的经济环境以及总统特朗普对美联储独立性的猛烈抨击，使得这家央行面临一次棘手的领导层过渡。
+即便部分海湾国家依托陆上管道增加出口，规模上仍难以完全替代海运通道。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 17:33 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-29 17:26 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 17:24 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 17:42 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 17:44 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 17:46 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 17:28 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 17:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 17:33 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 17:22 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 17:40 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 17:40 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 17:24 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 17:34 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 17:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 17:35 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 17:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-29 17:37 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 17:51 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 17:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 17:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 17:51 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-29 17:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/4319439.shtml)
-- 2026-06-29 17:26 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/6157133018.shtml)
-- 2026-06-29 17:46 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/62235492.shtml)
-- 2026-06-29 17:36 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/695044539.shtml)
-- 2026-06-29 17:25 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/9790526.shtml)
-- 2026-06-29 17:18 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/583259295.shtml)
-- 2026-06-29 17:34 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/6916193394.shtml)
-- 2026-06-29 17:44 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/875671721.shtml)
-- 2026-06-29 17:42 - [朱必达辞去湖南人大常委会委员职务](https://www.share.kurohicncr.top/Article/details/856045.shtml)
-- 2026-06-29 17:45 - [截瘫男子心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/5760856264.shtml)
-- 2026-06-29 17:47 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/55159636.shtml)
-- 2026-06-29 17:39 - [千与千寻](https://www.share.kurohicncr.top/Article/details/811443376467.shtml)
-- 2026-06-29 17:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/311777.shtml)
-- 2026-06-29 17:46 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/80549263798.shtml)
-- 2026-06-29 17:40 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/317946888679.shtml)
+- 2026-06-29 17:34 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/185584558.shtml)
+- 2026-06-29 17:53 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/467287.shtml)
+- 2026-06-29 17:35 - [税务总局披露5起合规申报个税案例](https://www.blog.kurohicncr.top/Article/details/7482933.shtml)
+- 2026-06-29 17:26 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/4966994143.shtml)
+- 2026-06-29 17:32 - [恋与深空 731](http://www.share.kurohicncr.top/Article/details/1755282502.shtml)
+- 2026-06-29 17:41 - [锅巴洋芋店员工光脚洗土豆 老板回应](http://www.share.minike.top/Article/details/2843430564.shtml)
+- 2026-06-29 17:52 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/9153570.shtml)
+- 2026-06-29 17:39 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/17092545232.shtml)
+- 2026-06-29 17:44 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/0690797892.shtml)
+- 2026-06-29 17:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/58043.shtml)
+- 2026-06-29 17:36 - [NBA交易](http://www.blog.minike.top/Article/details/80296546682.shtml)
+- 2026-06-29 17:51 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/78385770353.shtml)
+- 2026-06-29 17:27 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/70544731.shtml)
+- 2026-06-29 17:45 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/77941177351.shtml)
+- 2026-06-29 17:32 - [金牌调解](https://www.share.minike.top/Article/details/2500514603.shtml)

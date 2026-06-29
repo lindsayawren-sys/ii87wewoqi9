@@ -1,60 +1,61 @@
-# 哈佛生物科学重申2026年营收增长2%-4%，“维京计划”剑指年省400万美元
+# “粤海亮剑2026”：休渔半月查扣渔获24吨 64人被抓
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-哈佛生物科学公司周二公布第一季度财报，并重申全年业绩指引。尽管一季度营收同比略有下滑，公司仍维持2026全年营收增长2%至4%的预期，同时“维京计划”制造整合项目预计将在2028年起实现每年约400万美元的成本节约。 一季度业绩：营收符合预期，毛利率显著提升 财报显示，公司一季度营收为2080万美元，较去年同期的2180万美元下降5%，但符合公司此前的预期。毛利率同比提升约30
+中新网广州5月17日电 (方伟彬 张兴平)广东海警局16日发布消息，自5月1日12时起，南海进入为期三个半月的伏季休渔期。广东海警局深入推进“粤海亮剑2026”专项执法行动，加密海上巡查频次，强化精准管控。休渔仅半月，已累计在粤东、粤西及珠三角海域查获多起非法捕捞案，抓获涉案人员64名，查扣涉案船舶17艘、各类网具400余张(个)，查扣渔获物总量超24吨。 执法过程中，隐蔽作业
 
 ## 正文
 
-哈佛生物科学公司周二公布第一季度财报，并重申全年业绩指引。
+中新网广州5月17日电 (方伟彬 张兴平)广东海警局16日发布消息，自5月1日12时起，南海进入为期三个半月的伏季休渔期。
 
-尽管一季度营收同比略有下滑，公司仍维持2026全年营收增长2%至4%的预期，同时“维京计划”制造整合项目预计将在2028年起实现每年约400万美元的成本节约。
+广东海警局深入推进“粤海亮剑2026”专项执法行动，加密海上巡查频次，强化精准管控。
 
-一季度业绩：营收符合预期，毛利率显著提升 财报显示，公司一季度营收为2080万美元，较去年同期的2180万美元下降5%，但符合公司此前的预期。
+休渔仅半月，已累计在粤东、粤西及珠三角海域查获多起非法捕捞案，抓获涉案人员64名，查扣涉案船舶17艘、各类网具400余张(个)，查扣渔获物总量超24吨。
 
-毛利率同比提升约300个基点至59%，处于公司指引区间的高端。
+执法过程中，隐蔽作业与顶风作案并存。
 
-调整后EBITDA为80万美元，与去年同期持平。
+5月12日，汕尾海警夜间巡查连查2艘违规渔船，现场扣押“绝户网”捕捞的渔获约3吨。
 
-公司新任总裁兼首席执行官John Duke表示：“一季度营收符合预期，毛利率同比扩大，同时我们在调整后EBITDA层面保持了盈利。
+此类网具网目极小，严重破坏幼鱼资源及海底生态。
 
-我们正在重申全年指引，预计高利润率的新产品销售收入增长将推动下半年盈利增长。
+与此同时，不法分子作案手段不断翻新。
 
-” 分地区看，欧洲、中东及非洲市场表现强劲，收入增长7%。
+5月6日至12日，汕头、揭阳、珠海、江门、阳江、茂名、湛江等地海警相继查获8起典型案件。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 17:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 17:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 17:18 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 17:47 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 17:27 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-29 17:33 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-29 17:48 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 17:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 17:45 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 17:24 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
-- 2026-06-29 17:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 17:25 - [A股割裂行情有变化了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 17:18 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 17:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 17:42 - [互助版模拟高考志愿填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 17:34 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 17:54 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 17:26 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 17:42 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 17:36 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 17:33 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 17:38 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 17:36 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 17:53 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 17:37 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 17:26 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 17:48 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 17:51 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/710146194015.shtml)
-- 2026-06-29 17:29 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/535852890.shtml)
-- 2026-06-29 17:38 - [女心理师](https://www.share.minike.top/Article/details/33469047.shtml)
-- 2026-06-29 17:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/228312412890.shtml)
-- 2026-06-29 17:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/11276993496.shtml)
-- 2026-06-29 17:25 - [范志毅看好日本淘汰巴西](http://www.blog.minike.top/Article/details/538236506.shtml)
-- 2026-06-29 17:23 - [博主：黄金和原油回落不等于风险消失](https://www.blog.minike.top/Article/details/771780092.shtml)
-- 2026-06-29 17:22 - [普京介绍前线战事](http://www.share.kurohicncr.top/Article/details/21426302.shtml)
-- 2026-06-29 17:34 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/49582050447.shtml)
-- 2026-06-29 17:44 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/84675.shtml)
-- 2026-06-29 17:37 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/048508470283.shtml)
-- 2026-06-29 17:23 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.blog.kurohicncr.top/Article/details/41726001650.shtml)
-- 2026-06-29 17:19 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/7638583390.shtml)
-- 2026-06-29 17:45 - [未成年少女长期吸毒导致卧床不起](https://www.share.kurohicncr.top/Article/details/328536.shtml)
-- 2026-06-29 17:36 - [95后小伙突然确诊癌症 医生提醒](http://www.blog.kurohicncr.top/Article/details/079514064.shtml)
+- 2026-06-29 17:37 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.minike.top/Article/details/9828447.shtml)
+- 2026-06-29 17:46 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/048426.shtml)
+- 2026-06-29 17:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/83054.shtml)
+- 2026-06-29 17:26 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.kurohicncr.top/Article/details/554560.shtml)
+- 2026-06-29 17:52 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/30941.shtml)
+- 2026-06-29 17:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/129874.shtml)
+- 2026-06-29 17:44 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/404628124.shtml)
+- 2026-06-29 17:31 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/04470533758.shtml)
+- 2026-06-29 17:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/966057.shtml)
+- 2026-06-29 17:27 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/9046273.shtml)
+- 2026-06-29 17:53 - [谢依霖夸杨幂靠谱](https://www.blog.kurohicncr.top/Article/details/016925.shtml)
+- 2026-06-29 17:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/7401725.shtml)
+- 2026-06-29 17:39 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/159869068.shtml)
+- 2026-06-29 17:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/62073.shtml)
+- 2026-06-29 17:40 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/523694464014.shtml)

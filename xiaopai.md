@@ -1,57 +1,57 @@
-# 数据短缺，具身智能遭遇“成长的烦恼”
+# 2026长春马拉松鸣枪开跑 2万跑者挑战全马
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-让机器人开一颗核桃，它像磕鸡蛋一样把核桃砸向桌面；从冰箱里拿瓶矿泉水，机器人耗时10分钟才完成；让机器人叠衣服，它煞有介事不断瞄准、纠偏，最后还是揉成一团…… 在成为“舞蹈演员”和“长跑健将”之后，机器人被要求做更多“务实”工作，却带来了很多令人哭笑不得的翻车场景。 “机器人要做到实用，必须面对丰富的物理世界，这需要大量的具身智能数据来学习训练。”复旦大学长聘特聘教授、飞捷科思
+中新网长春5月17日电 (记者 郭佳)2026一汽红旗长春马拉松17日鸣枪开跑，3.5万名跑者从长春体育中心集结出发，穿行城市核心街区，在初夏“春城”之中比拼速度与耐力。 本届赛事，全程马拉松参赛人数扩容至2万人，半程马拉松保持1.5万人参赛规模。 赛事赛道串联人民广场、南湖公园、新民大街、中国一汽一号门等多处城市地标，既途经繁华商业片区，也囊括历史街区与生态景观，成为外界了解
 
 ## 正文
 
-让机器人开一颗核桃，它像磕鸡蛋一样把核桃砸向桌面；从冰箱里拿瓶矿泉水，机器人耗时10分钟才完成；让机器人叠衣服，它煞有介事不断瞄准、纠偏，最后还是揉成一团…… 在成为“舞蹈演员”和“长跑健将”之后，机器人被要求做更多“务实”工作，却带来了很多令人哭笑不得的翻车场景。
+中新网长春5月17日电 (记者 郭佳)2026一汽红旗长春马拉松17日鸣枪开跑，3.5万名跑者从长春体育中心集结出发，穿行城市核心街区，在初夏“春城”之中比拼速度与耐力。
 
-“机器人要做到实用，必须面对丰富的物理世界，这需要大量的具身智能数据来学习训练。
+本届赛事，全程马拉松参赛人数扩容至2万人，半程马拉松保持1.5万人参赛规模。
 
-”复旦大学长聘特聘教授、飞捷科思智能科技（上海）有限公司创始人张立华告诉科技日报记者，“据不完全统计，全球范围内研发端对高质量数据的需求量约为120万小时，而全行业每月数据产出量仅为25万—30万小时。
+赛事赛道串联人民广场、南湖公园、新民大街、中国一汽一号门等多处城市地标，既途经繁华商业片区，也囊括历史街区与生态景观，成为外界了解长春城市风貌的重要窗口。
 
-高质量具身智能数据稀缺已成为具身智能机器人发展的关键瓶颈之一。
+比赛当日天气凉爽、气温适宜，沿途市民热情驻足为参赛选手助威加油。
 
-” 2026年被业界称为具身智能数据元年，具身智能机器人行业从算法驱动转向数据驱动，高质量数据正成为行业竞逐的基础性战略资源。
+当地同步实施交通管控，调整公共交通运营安排，并在赛道全线布设补给站、医疗救助点与志愿服务岗，全方位保障赛事平稳进行。
 
-现有数据严重不足 近年来，人工智能大语言模型靠互联网上的海量文本数据学会了生成语言，发展突飞猛进。
+经过激烈角逐，男子全程马拉松桂冠由狄鋆摘得，完赛成绩2小时21分59秒；李政跃、刘富国分列二、三名，成绩分别为2小时26分24秒、2小时27分37秒。
 
-基于同样的逻辑，具身智能机器人需要依靠海量的人类动作数据，才能学会在真实世界里干活。
+女子方面，通拉嘎以2小时36分39秒斩获全程马拉松冠军，邓春艳、马洪利依次拿下亚军、季军，成绩分别为2小时43分58秒、2小时48分50秒。
 
-“用手捡起干木耳”这个对人来说轻而易举的动作，机器人需要调动物体材质辨识、空间姿态匹配等多个技能。
+如今马拉松赛事已成为展示城市形象、拉动文旅消费的重要载体。
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 17:27 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 17:43 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 17:31 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 17:18 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 17:32 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 17:19 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 17:43 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 17:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 17:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 17:47 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 17:27 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 17:24 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-29 17:43 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 17:24 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-29 17:53 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 17:25 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 17:47 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 17:29 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 17:38 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 17:37 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 17:51 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/5090122876.shtml)
-- 2026-06-29 17:47 - [徐昕暂不参加NBA夏季联赛](https://www.blog.kurohicncr.top/Article/details/7132039.shtml)
-- 2026-06-29 17:18 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/72027045.shtml)
-- 2026-06-29 17:44 - [小众羞耻点是吃麻辣烫](https://www.share.minike.top/Article/details/324118.shtml)
-- 2026-06-29 17:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/0248647.shtml)
-- 2026-06-29 17:38 - [扬名立万](http://www.blog.minike.top/Article/details/51876542235.shtml)
-- 2026-06-29 17:25 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/47820.shtml)
-- 2026-06-29 17:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/502223372071.shtml)
-- 2026-06-29 17:24 - [永远有话聊的原因](http://www.share.minike.top/Article/details/60555390166.shtml)
-- 2026-06-29 17:31 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/57762164121.shtml)
-- 2026-06-29 17:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/256190.shtml)
-- 2026-06-29 17:41 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/2276643321.shtml)
-- 2026-06-29 17:19 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/1133037854.shtml)
-- 2026-06-29 17:41 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/67520.shtml)
-- 2026-06-29 17:41 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/39363.shtml)
+- 2026-06-29 17:38 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/37495777.shtml)
+- 2026-06-29 17:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/15631.shtml)
+- 2026-06-29 17:28 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/884937.shtml)
+- 2026-06-29 17:51 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/480491874.shtml)
+- 2026-06-29 17:43 - [音乐人屠颖离世家属追责涉事酒店](https://www.share.kurohicncr.top/Article/details/542145781601.shtml)
+- 2026-06-29 17:50 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/184900.shtml)
+- 2026-06-29 17:46 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/64423889548.shtml)
+- 2026-06-29 17:35 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/844053009.shtml)
+- 2026-06-29 17:53 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/538448.shtml)
+- 2026-06-29 17:43 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/109069591239.shtml)
+- 2026-06-29 17:50 - [一生一世](http://www.share.minike.top/Article/details/8769232.shtml)
+- 2026-06-29 17:37 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/9753441513.shtml)
+- 2026-06-29 17:37 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/04012809.shtml)
+- 2026-06-29 17:31 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/113262438.shtml)
+- 2026-06-29 17:26 - [中国创新药股价要反攻了吗](https://www.blog.kurohicncr.top/Article/details/6917188754.shtml)

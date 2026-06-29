@@ -1,57 +1,57 @@
-# 中美侨商合作交流活动在海口国家高新区举办
+# 北京老佛爷百货将“落幕” 消费者前往“打卡”惜别
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网海口5月14日电(马文颖)5月13日，以“自贸赋能·链接硅谷”为主题的中美侨商合作交流活动在海口国家高新区举行。来自海口市侨商联合会、海口国家高新区、海南省侨商联合会等园区与商会的负责人，与美中硅谷商会企业代表开展座谈交流。双方重点介绍了海南自贸港的建设成果及海口国家高新区的产业活力，共同探讨合作共赢的广阔机遇。 在海口国家高新区美安科技新城的海南华研胶原科技股份有限公司
+中新网北京5月16日电 (记者 吕少威)法国高端百货品牌老佛爷百货宣布，其北京门店将于5月27日正式结束营业。得知这一消息后，北京市民、游客纷纷前往“打卡”留念，向这家拥有十余年历史的老牌地标性商场作最后道别。 5月16日，记者前往位于北京市西城区西单商圈的老佛爷百货店探访。当日，天气凉爽，游人如织。11时许，车辆就在该百货店停车场入口排起了长龙。 “前两天刷到了老佛爷将结束营
 
 ## 正文
 
-中新网海口5月14日电(马文颖)5月13日，以“自贸赋能·链接硅谷”为主题的中美侨商合作交流活动在海口国家高新区举行。
+中新网北京5月16日电 (记者 吕少威)法国高端百货品牌老佛爷百货宣布，其北京门店将于5月27日正式结束营业。
 
-来自海口市侨商联合会、海口国家高新区、海南省侨商联合会等园区与商会的负责人，与美中硅谷商会企业代表开展座谈交流。
+得知这一消息后，北京市民、游客纷纷前往“打卡”留念，向这家拥有十余年历史的老牌地标性商场作最后道别。
 
-双方重点介绍了海南自贸港的建设成果及海口国家高新区的产业活力，共同探讨合作共赢的广阔机遇。
+5月16日，记者前往位于北京市西城区西单商圈的老佛爷百货店探访。
 
-在海口国家高新区美安科技新城的海南华研胶原科技股份有限公司(简称“华研”)内，美中硅谷商会企业代表进行了实地考察，了解企业在海南的发展情况，以及海南的政策环境与营商环境。
+当日，天气凉爽，游人如织。
 
-代表们在参观华研时，首次了解到海洋胶原蛋白提取技术，表示后续将与华研进一步对接，洽谈原料供应相关合作。
+11时许，车辆就在该百货店停车场入口排起了长龙。
 
-随后，代表们还走访了东湖高新海口生物城，了解海口国家高新区在区位、政策等方面的优势以及对园区企业的服务水平。
+“前两天刷到了老佛爷将结束营业的消息，非常意外，趁着周末再来逛一下吧。
 
-海南省侨商联合会理事长潘家森称，随着海南自贸港封关运作蹄疾步稳，越来越多的全球侨界人士也对海南自贸港有着高度的关注与前所未有投资热情。
+”市民李甜是该商场的常客，她在门口自拍了几张照片作为留念。
 
-海南省侨商联合会作为全省服务侨商、联络侨胞的重要平台，期待通过此次活动与美中硅谷商会建立起常态化交流机制，多领域拓展务实合作，为广大侨商来琼投资兴业、创新创业搭建优质平台。
+记者在现场看到，许多店铺贴出了“闭店清仓”“低至五折”等字样，不少消费者在店内忙着选购。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 17:20 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 17:29 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 17:43 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-29 17:24 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 17:22 - [音乐人屠颖离世家属追责涉事酒店](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 17:40 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 17:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 17:38 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 17:28 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 17:47 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 17:28 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 17:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 17:50 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 17:42 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 17:43 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 17:26 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 17:26 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 17:50 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 17:50 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 17:28 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 17:51 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:26 - [勇敢的心第二部](http://www.share.minike.top/Article/details/96390022630.shtml)
-- 2026-06-29 17:21 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/738277.shtml)
-- 2026-06-29 17:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/8676857542.shtml)
-- 2026-06-29 17:25 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/1945054.shtml)
-- 2026-06-29 17:34 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/7450378848.shtml)
-- 2026-06-29 17:36 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/16408766.shtml)
-- 2026-06-29 17:40 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/44893.shtml)
-- 2026-06-29 17:44 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/284302386868.shtml)
-- 2026-06-29 17:47 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/73407191.shtml)
-- 2026-06-29 17:21 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/67592848473.shtml)
-- 2026-06-29 17:21 - [普京介绍前线战事](http://www.blog.kurohicncr.top/Article/details/5671016287.shtml)
-- 2026-06-29 17:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/81885954.shtml)
-- 2026-06-29 17:35 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/5580066504.shtml)
-- 2026-06-29 17:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/900411731976.shtml)
-- 2026-06-29 17:33 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/6580849727.shtml)
+- 2026-06-29 17:24 - [47岁吴建豪再婚](https://www.blog.kurohicncr.top/Article/details/8023827495.shtml)
+- 2026-06-29 17:40 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/138493268.shtml)
+- 2026-06-29 17:52 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/5744705041.shtml)
+- 2026-06-29 17:29 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/51483953510.shtml)
+- 2026-06-29 17:40 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/864328.shtml)
+- 2026-06-29 17:45 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/31690349283.shtml)
+- 2026-06-29 17:46 - [速度与激情9](http://www.share.minike.top/Article/details/45105.shtml)
+- 2026-06-29 17:28 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/138386.shtml)
+- 2026-06-29 17:25 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/50083690172.shtml)
+- 2026-06-29 17:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/975802643.shtml)
+- 2026-06-29 17:50 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/91857932.shtml)
+- 2026-06-29 17:48 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/7068535.shtml)
+- 2026-06-29 17:50 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/880339464.shtml)
+- 2026-06-29 17:44 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/0523691.shtml)
+- 2026-06-29 17:44 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/328905329748.shtml)

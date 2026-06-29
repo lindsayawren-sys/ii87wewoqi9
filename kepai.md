@@ -1,59 +1,61 @@
-# 鲜品猪肉淡季将至，5-7月能否迎来反弹？
+# 从“三个问题”出发 21国驻澳（港）领事在云南解码中国发展活力
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-卓创资讯肉类市场高级分析师马丽媛 【导语】五一假期落幕，国内猪肉市场正式迈入季节性消费淡季。伴随着气温持续攀升，终端家庭消费逐步转淡、餐饮宴席需求同步回落，叠加原料供应宽松、屠宰企业入库谨慎，5月上旬白条猪肉及鲜品分割品价格呈缓慢小降的走势。5月中旬行情依旧偏弱，月下旬至7月需求虽愈发滞缓，但因养殖端对后市存一定看涨预期，且原料集中释放力度减小，预计鲜品猪肉价格或环比持续上涨，
+中新网昆明5月16日电 题：从“三个问题”出发 21国驻澳(港)领事在云南解码中国发展活力 作者 罗婕 近日，来自21个国家的驻澳门(香港)领事官员走进云南昆明、大理等地，探访了解产业发展、民族文化、乡村振兴与绿色发展实践等内容。 从昆明斗南的缤纷花海，到喜洲古镇的白墙黛瓦；从云南民族村景区的欢歌热舞，到洱海畔的田园风光，各国领事官员一路走、一路看，也一路发问，试图从中国西南边
 
 ## 正文
 
-卓创资讯肉类市场高级分析师马丽媛 【导语】五一假期落幕，国内猪肉市场正式迈入季节性消费淡季。
+中新网昆明5月16日电 题：从“三个问题”出发 21国驻澳(港)领事在云南解码中国发展活力 作者 罗婕 近日，来自21个国家的驻澳门(香港)领事官员走进云南昆明、大理等地，探访了解产业发展、民族文化、乡村振兴与绿色发展实践等内容。
 
-伴随着气温持续攀升，终端家庭消费逐步转淡、餐饮宴席需求同步回落，叠加原料供应宽松、屠宰企业入库谨慎，5月上旬白条猪肉及鲜品分割品价格呈缓慢小降的走势。
+从昆明斗南的缤纷花海，到喜洲古镇的白墙黛瓦；从云南民族村景区的欢歌热舞，到洱海畔的田园风光，各国领事官员一路走、一路看，也一路发问，试图从中国西南边疆的发展脉络中，读懂中国式现代化的生动实践。
 
-5月中旬行情依旧偏弱，月下旬至7月需求虽愈发滞缓，但因养殖端对后市存一定看涨预期，且原料集中释放力度减小，预计鲜品猪肉价格或环比持续上涨，涨幅或有限。
+“云南如何让各民族紧紧团结在一起？
 
-从图1、图2看到，2026年“五一”节日过后，国内白条猪肉及鲜品分割品价格呈小幅回落的态势。
+” 云南地处中国西南边陲，26个民族在此和睦共居，多民族文化在交往交流交融中共生共荣。
 
-据卓创资讯统计，截至2025年5月12日，国内膘厚在2.5-3.5厘米的瘦肉型白条猪肉成交均价为12.52元/公斤，较节前下跌2.29%，较去年同期下跌33.45%；鲜品二号肉成交均价为15.56元/公斤，较节前下跌2.26%；鲜品四号肉成交均价为15.61元/公斤，较节前下跌2.42%；鲜品肋排成交均价为39.11元/公斤，较节前下跌1.74%；鲜品带皮五花成交均价为16.48元/公斤，较节前下跌0.93%；鲜品去颈前排成交均价为18.33元/公斤，较节前下跌0.72%。
+探访过程中，莫桑比克驻澳门总领事姆艾贝惊叹于云南多民族和谐共居的社会氛围，并好奇询问：“云南是如何让各民族团结在一起的？
 
-“五一”节后鲜品猪肉价格下降主要由供应充裕及需求低迷共同导致。
+” 走进云南民族村景区，铓锣声起，各国领事官员踏入景颇族目瑙纵歌队伍，挥刀摇扇、踏歌而行；在傣族村寨，感受泼水节的热烈氛围；围坐火塘边，聆听拉祜族欢乐悠扬的民歌。
 
-供应方面，5月份上游原料延续前期高产能释放惯性，随着养殖集团恢复出栏节奏，生猪供应较为宽松；屠宰企业收购顺畅，且因担忧后市，入库较为谨慎，多以鲜销为主，导致节后白条猪肉及鲜品分割品供应充裕。
+多彩的民族文化在欢声笑语中交融，也让远道而来的客人沉浸其中。
 
-需求方面，从猪肉消费季节性来看，随着气温升高，居民饮食倾向清淡，时令果蔬与水产品分流肉类需求，家庭消费、餐饮、团膳等多数渠道需求减少，贸易商随用随采，屠宰企业销售不畅而降价走量。
+姆艾贝说，云南秀美的自然风光、多彩的民族文化和热情友善的人们，让他印象深刻。
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 17:40 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 17:40 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 17:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 17:18 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 17:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-29 17:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 17:28 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 17:35 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 17:20 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 17:30 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 17:24 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 17:42 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 17:28 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 17:46 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 17:37 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 17:28 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 17:48 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 17:40 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 17:45 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 17:45 - [挪威王储妃长子2次强奸被判4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 17:53 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 17:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 17:45 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-29 17:53 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 17:49 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 17:31 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 17:49 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:34 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/12680.shtml)
-- 2026-06-29 17:40 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/198224194.shtml)
-- 2026-06-29 17:26 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/5215989.shtml)
-- 2026-06-29 17:47 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/088224461.shtml)
-- 2026-06-29 17:47 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/879000668801.shtml)
-- 2026-06-29 17:20 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/4392919545.shtml)
-- 2026-06-29 17:40 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.minike.top/Article/details/5040417.shtml)
-- 2026-06-29 17:23 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/1823757.shtml)
-- 2026-06-29 17:22 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/6759365933.shtml)
-- 2026-06-29 17:33 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/749540445.shtml)
-- 2026-06-29 17:38 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/57332094.shtml)
-- 2026-06-29 17:46 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/95913803.shtml)
-- 2026-06-29 17:30 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/08793304545.shtml)
-- 2026-06-29 17:32 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/240823277.shtml)
-- 2026-06-29 17:27 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/4277311.shtml)
+- 2026-06-29 17:33 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/51433289463.shtml)
+- 2026-06-29 17:32 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/41444556.shtml)
+- 2026-06-29 17:25 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/377000962173.shtml)
+- 2026-06-29 17:26 - [22岁民警拦截违法车辆被撞牺牲](http://www.blog.kurohicncr.top/Article/details/48165.shtml)
+- 2026-06-29 17:25 - [美国大满贯首日国乒主力均取胜](http://www.share.kurohicncr.top/Article/details/031161955527.shtml)
+- 2026-06-29 17:34 - [徐昕暂不参加NBA夏季联赛](http://www.share.kurohicncr.top/Article/details/84333443112.shtml)
+- 2026-06-29 17:49 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/59032.shtml)
+- 2026-06-29 17:29 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/7382264.shtml)
+- 2026-06-29 17:44 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/94455923655.shtml)
+- 2026-06-29 17:25 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/540498.shtml)
+- 2026-06-29 17:33 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/9369020.shtml)
+- 2026-06-29 17:49 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/330458.shtml)
+- 2026-06-29 17:28 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/558948.shtml)
+- 2026-06-29 17:46 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.kurohicncr.top/Article/details/6496128.shtml)
+- 2026-06-29 17:36 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/9368769.shtml)

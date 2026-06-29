@@ -1,57 +1,48 @@
-# 一针一线“绣”出新路 重庆秀山苗绣焕发当代生机
+# 宁波余姚农村商业银行被罚227.25万元：违反账户管理规定等
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-遭党内“逼宫” 斯塔默能迈过这道坎吗？Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？ 专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？保温杯等商品在多国热销 中式生活带动中国产品出海刷牙后立即漱口等于白刷？
+5月15日金融一线消息，中国人民银行宁波市分行行政处罚决定信息公示表显示，宁波余姚农村商业银行因违反账户管理规定；违反网络安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；未按照规定开展客户尽职调查；未按照规定报告可疑交易，被中国人民银行宁波市分行警告，没收违法所得4456.17元，罚款227.25万元。 序号 当事人名称 行政处罚 决定书文号 违法行为类型 行政
 
 ## 正文
 
-遭党内“逼宫” 斯塔默能迈过这道坎吗？
+5月15日金融一线消息，中国人民银行宁波市分行行政处罚决定信息公示表显示，宁波余姚农村商业银行因违反账户管理规定；违反网络安全管理规定；违反人民币流通管理规定；违反反假货币业务管理规定；未按照规定开展客户尽职调查；未按照规定报告可疑交易，被中国人民银行宁波市分行警告，没收违法所得4456.17元，罚款227.25万元。
 
-Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？
+序号 当事人名称 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚 决定机关名称 作出行政处罚 决定日期 公示期限 备注 1 宁波余姚农村商业银行股份有限公司 甬银罚决字〔2026〕1号 1.违反账户管理规定； 2.违反网络安全管理规定； 3.违反人民币流通管理规定； 4.违反反假货币业务管理规定； 5.未按照规定开展客户尽职调查； 6.未按照规定报告可疑交易。
 
-专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？
-
-央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？
-
-保温杯等商品在多国热销 中式生活带动中国产品出海刷牙后立即漱口等于白刷？
-
-医生建议情绪易怒爱走神是前额叶受损吗？
-
-保护大脑做好这4件事汶川地震十八载，我们从未忘记AI蒸馏复刻同事？
-
-潜藏三方面法律风险需关注图书广告引热议 “余华读得浑身发抖”被余华打假这种花是天然“消炎药”还能增强免疫力 有几类人要慎用徒步热潮下，山野垃圾谁来收？
+警告，没收违法所得4456.17元，罚款227.25万元 中国人民银行 宁波市分行 2026年5月9日 三年 责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 17:39 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 17:35 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 17:45 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 17:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 17:33 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 17:26 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 17:41 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 17:32 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 17:30 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 17:29 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 17:19 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 17:32 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 17:48 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 17:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 17:50 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 17:46 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 17:30 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 17:46 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 17:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 17:46 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-29 17:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 17:32 - [95后小伙突然确诊癌症 医生提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 17:53 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/067202.shtml)
-- 2026-06-29 17:21 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/2999917698.shtml)
-- 2026-06-29 17:36 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/492470860.shtml)
-- 2026-06-29 17:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/822237567079.shtml)
-- 2026-06-29 17:46 - [男孩复读一年减重20斤涨分111分](http://www.blog.kurohicncr.top/Article/details/169424.shtml)
-- 2026-06-29 17:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/395851154.shtml)
-- 2026-06-29 17:29 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/3090674364.shtml)
-- 2026-06-29 17:39 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/652211561.shtml)
-- 2026-06-29 17:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/22883900446.shtml)
-- 2026-06-29 17:25 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/7229675128.shtml)
-- 2026-06-29 17:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/2631453.shtml)
-- 2026-06-29 17:25 - [博主：黄金和原油回落不等于风险消失](https://www.share.kurohicncr.top/Article/details/074293535555.shtml)
-- 2026-06-29 17:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/942163.shtml)
-- 2026-06-29 17:31 - [新能源车能当外接空调用吗](http://www.blog.minike.top/Article/details/71278.shtml)
-- 2026-06-29 17:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/364292791.shtml)
+- 2026-06-29 17:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/933406.shtml)
+- 2026-06-29 17:49 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/3170463.shtml)
+- 2026-06-29 17:37 - [小娘惹](https://www.share.minike.top/Article/details/25178.shtml)
+- 2026-06-29 17:40 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/630445.shtml)
+- 2026-06-29 17:42 - [逆天祖国人](https://www.blog.minike.top/Article/details/72453254803.shtml)
+- 2026-06-29 17:46 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/5375239.shtml)
+- 2026-06-29 17:51 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/362151775173.shtml)
+- 2026-06-29 17:45 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/387514202.shtml)
+- 2026-06-29 17:43 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.minike.top/Article/details/389904.shtml)
+- 2026-06-29 17:42 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/966902.shtml)
+- 2026-06-29 17:48 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/196856.shtml)
+- 2026-06-29 17:34 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/5506010563.shtml)
+- 2026-06-29 17:49 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.kurohicncr.top/Article/details/0997507.shtml)
+- 2026-06-29 17:32 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/72589129938.shtml)
+- 2026-06-29 17:26 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/34153582.shtml)

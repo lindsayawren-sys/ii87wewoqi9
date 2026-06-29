@@ -1,56 +1,61 @@
-# 市场监管总局：一季度全国新设经营主体509.8万户
+# 用脚步丈量校园用速度展现风采 东南大学校庆马拉松燃情开跑
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网5月13日电 据“市说新语”微信公众号消息，5月13日，市场监管总局公布数据显示，2026年第一季度，全国新设经营主体509.8万户。其中，新设企业207.4万户，新设个体工商户301.4万户。经营主体发展稳中向好，为第一季度国民经济良好开局提供有力支撑。产业结构持续优化。第一季度，第一产业新设经营主体22.9万户、第二产业新设39.6万户、第三产业新设447.3万户。截
+从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？书记省长
 
 ## 正文
 
-中新网5月13日电 据“市说新语”微信公众号消息，5月13日，市场监管总局公布数据显示，2026年第一季度，全国新设经营主体509.8万户。
+从增量扩张到存量提质 建设现代化人民城市被立案调查后，携程在改吗？
 
-其中，新设企业207.4万户，新设个体工商户301.4万户。
+对话维妮娜：在乘风之前，她已经跑了很久小小香料，何以撬动大产业、香飘全世界？
 
-经营主体发展稳中向好，为第一季度国民经济良好开局提供有力支撑。
+桥头地瓜，竟是“地瓜界的爱马仕”造假摆拍，无底线博流量！
 
-产业结构持续优化。
+北京警方通报3起典型案例斯塔默政治前途“悬而未决” 潜在竞争者都有谁？
 
-第一季度，第一产业新设经营主体22.9万户、第二产业新设39.6万户、第三产业新设447.3万户。
+“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？
 
-截至3月底，全国登记在册“四新”经济企业2684.8万户，同比增长6.8%，占企业总量的40.9%。
+书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
 
-制造业相关企业迭代升级。
+年轻人的第一台“新家电”，为什么是3D打印机？
 
-第一季度，高技术制造业加快增长，其中“集成电路制造”新设经营主体同比增长31.0%，“智能无人飞行器制造”同比增长15.7%。
+人这一辈子，一定要去一趟眉山！
 
 ## 相关推荐
 
-- 2026-06-29 17:26 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 17:43 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-29 17:25 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 17:27 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 17:25 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 17:35 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 17:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 17:36 - [当我回母校教书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 17:19 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 17:43 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 17:39 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 17:25 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 17:31 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 17:39 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 17:26 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 17:50 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 17:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 17:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 17:32 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 17:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 17:38 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 17:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 17:44 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 17:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 17:42 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:41 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/9357090.shtml)
-- 2026-06-29 17:43 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/594471.shtml)
-- 2026-06-29 17:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/5792287.shtml)
-- 2026-06-29 17:39 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/971462.shtml)
-- 2026-06-29 17:46 - [刘扬任湖南省副省长](https://www.blog.kurohicncr.top/Article/details/1809779.shtml)
-- 2026-06-29 17:35 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.kurohicncr.top/Article/details/55361.shtml)
-- 2026-06-29 17:38 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/809830961.shtml)
-- 2026-06-29 17:26 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/271403180340.shtml)
-- 2026-06-29 17:22 - [22岁民警拦截违法车辆被撞牺牲](http://www.share.minike.top/Article/details/37405799.shtml)
-- 2026-06-29 17:33 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/078936.shtml)
-- 2026-06-29 17:29 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/404618043681.shtml)
-- 2026-06-29 17:43 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/9152188.shtml)
-- 2026-06-29 17:20 - [安徽水利厅启动洪水防御Ⅳ级应急响应](http://www.share.kurohicncr.top/Article/details/228571179.shtml)
-- 2026-06-29 17:20 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/041252173924.shtml)
-- 2026-06-29 17:18 - [倪春青跨市履新苏州市委组织部部长](http://www.share.kurohicncr.top/Article/details/861891765484.shtml)
+- 2026-06-29 17:36 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/431510436763.shtml)
+- 2026-06-29 17:49 - [内马尔打日本前先买百万美元豪表](https://www.blog.minike.top/Article/details/63941664128.shtml)
+- 2026-06-29 17:34 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/01504652.shtml)
+- 2026-06-29 17:34 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/023762758005.shtml)
+- 2026-06-29 17:52 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/208696437366.shtml)
+- 2026-06-29 17:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/307567074736.shtml)
+- 2026-06-29 17:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/988065270498.shtml)
+- 2026-06-29 17:45 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/953650331.shtml)
+- 2026-06-29 17:30 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/2074343.shtml)
+- 2026-06-29 17:31 - [普京承认俄出现燃料危机](https://www.share.minike.top/Article/details/76644679.shtml)
+- 2026-06-29 17:29 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/8675992428.shtml)
+- 2026-06-29 17:45 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/070430645052.shtml)
+- 2026-06-29 17:24 - [天价门票抬高美加墨世界杯观赛门槛](http://www.blog.kurohicncr.top/Article/details/745942989679.shtml)
+- 2026-06-29 17:47 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/62712627.shtml)
+- 2026-06-29 17:36 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/00428212.shtml)

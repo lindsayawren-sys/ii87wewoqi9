@@ -1,60 +1,57 @@
-# 受北美业务疲软及成本攀升拖累，印度药企西普拉第四财季利润大幅下滑
+# 顶点软件归母净利润降幅最大 研发人员占比最低|证券IT年报
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-5月13日，按营收计算的印度第三大制药企业西普拉（Cipla）发布最新季度财报。数据显示，受北美市场业务急剧萎缩及运营成本持续攀升等不利因素拖累，尽管印度本土市场需求保持强劲，该公司截至今年3月31日的第四财季净利润仍同比大幅下滑54.6%，整体业绩表现不及市场预期。 财报指出，西普拉第四财季实现合并净利润55.5亿卢比（约合5800万美元），远低于分析师此前平均预期的70.5
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：图灵 2025年是券商大年，150家证券公司合计实现营业收入5411.71亿元，同比增长19.95%；净利润2194.39亿元，同比增长31.2%。 作为券商行业上游的证券IT供应商，2025年经营表现显著分化：同花顺归母净利润同比增长76%，盈利是其他5家公司之和的两倍
 
 ## 正文
 
-5月13日，按营收计算的印度第三大制药企业西普拉（Cipla）发布最新季度财报。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-数据显示，受北美市场业务急剧萎缩及运营成本持续攀升等不利因素拖累，尽管印度本土市场需求保持强劲，该公司截至今年3月31日的第四财季净利润仍同比大幅下滑54.6%，整体业绩表现不及市场预期。
+出品：新浪财经上市公司研究院 作者：图灵 2025年是券商大年，150家证券公司合计实现营业收入5411.71亿元，同比增长19.95%；净利润2194.39亿元，同比增长31.2%。
 
-财报指出，西普拉第四财季实现合并净利润55.5亿卢比（约合5800万美元），远低于分析师此前平均预期的70.5亿卢比。
+作为券商行业上游的证券IT供应商，2025年经营表现显著分化：同花顺归母净利润同比增长76%，盈利是其他5家公司之和的两倍；恒生电子营收同比下滑12%，失去“一哥”位置；金证股份则仍处于亏损状态……这背后折射出商业模式、业务结构、经营水平等方面的差异。
 
-当季总营业收入同比下降2.8%至654.1亿卢比，同样未达市场预期。
+在未来行业竞争中，谁执牛耳，谁会掉队？
 
-从核心市场表现来看，作为该公司最大的营收来源，印度本土业务表现亮眼，营收同比增长15%至300.7亿卢比；然而，其北美市场业务遭遇重挫，营收大幅萎缩26%至141.4亿卢比。
+顶点软件归母净利润降幅最大 根据研报，券商IT可划分为两大细分领域：C端券商IT（面向个人投资者的行情交易软件及增值服务）、B端券商IT（面向券商及资管机构的交易系统与核心业务系统）。
 
-据悉，印度与北美两大市场合计占该公司总销售额的约四分之三。
+二者的商业模式存在显著差异：C端公司依赖用户流量与市场活跃度，B端公司依赖金融机构IT预算与产品升级需求。
 
-在盈利承压的同时，西普拉的各项成本支出显著增加。
+C端券商IT公司的核心产品形态为行情交易软件及系统维护、行情分析系统、证券交易系统的软件产品及维护。
 
-当季总支出增长近8.5%至188.2亿卢比。
+代表公司包括同花顺、财富趋势（通达信）、大智慧等。
 
 ## 相关推荐
 
-- 2026-06-29 17:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 17:20 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 17:34 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 17:39 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 17:21 - [倪春青跨市履新苏州市委组织部部长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 17:27 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 17:31 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 17:35 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 17:26 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 17:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 17:41 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 17:32 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 17:25 - [海口塔吊事故处罚结果公布](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 17:30 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 17:29 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 17:38 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 17:24 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 17:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 17:53 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:35 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 17:49 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 17:31 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 17:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-29 17:31 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 17:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/551620499278.shtml)
-- 2026-06-29 17:22 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/26843726.shtml)
-- 2026-06-29 17:20 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/594553116.shtml)
-- 2026-06-29 17:45 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/5430458775.shtml)
-- 2026-06-29 17:33 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/6404894378.shtml)
-- 2026-06-29 17:24 - [啊啊啊](https://www.blog.minike.top/Article/details/040066823775.shtml)
-- 2026-06-29 17:19 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/900685.shtml)
-- 2026-06-29 17:35 - [逃狱兄弟](http://www.blog.minike.top/Article/details/31066.shtml)
-- 2026-06-29 17:44 - [NBA交易](http://www.share.kurohicncr.top/Article/details/4529765.shtml)
-- 2026-06-29 17:34 - [小众羞耻点是吃麻辣烫](http://www.blog.minike.top/Article/details/50265030.shtml)
-- 2026-06-29 17:43 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/5342742.shtml)
-- 2026-06-29 17:32 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/484315429182.shtml)
-- 2026-06-29 17:29 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/5921789201.shtml)
-- 2026-06-29 17:22 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/6732608.shtml)
-- 2026-06-29 17:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/14751.shtml)
+- 2026-06-29 17:26 - [2026年，如果你有100万，你会怎么投资？](http://www.share.kurohicncr.top/Article/details/1449318559.shtml)
+- 2026-06-29 17:51 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/356978.shtml)
+- 2026-06-29 17:49 - [普京承认俄出现燃料危机](http://www.blog.minike.top/Article/details/892179573036.shtml)
+- 2026-06-29 17:37 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/49899479229.shtml)
+- 2026-06-29 17:46 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/6494441335.shtml)
+- 2026-06-29 17:53 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/65924.shtml)
+- 2026-06-29 17:46 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/490646369.shtml)
+- 2026-06-29 17:40 - [叠纸](http://www.blog.minike.top/Article/details/897838250825.shtml)
+- 2026-06-29 17:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/9751054798.shtml)
+- 2026-06-29 17:40 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/171275.shtml)
+- 2026-06-29 17:41 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/195938142.shtml)
+- 2026-06-29 17:42 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/0680539519.shtml)
+- 2026-06-29 17:28 - [谢霆锋王菲十指紧扣一起走](https://www.blog.minike.top/Article/details/437658904806.shtml)
+- 2026-06-29 17:39 - [美人鱼](https://www.share.kurohicncr.top/Article/details/13046328627.shtml)
+- 2026-06-29 17:43 - [抓特务票房破亿](https://www.share.kurohicncr.top/Article/details/71576.shtml)

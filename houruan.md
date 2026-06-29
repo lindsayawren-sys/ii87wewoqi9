@@ -1,59 +1,60 @@
-# 国有大行大额派息敲定！银行分红密集兑现助推高股息资产配置热情升温
+# 国航发燃机签约、广联航空等企业亮相，GTF2026航动燃机大会在上海举行，270余家企业覆盖“两机”全链条
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-昨日（26/5/12），A股市场震荡分化，红利类策略ETF依然凭借其较突出的攻守兼备特征逆势收获资金青睐。Wind数据显示，华泰柏瑞“红利全家桶”两大人气品种——红利ETF华泰柏瑞（510880）、红利低波ETF华泰柏瑞（512890）分别连续6个交易日实现净申购，累计“吸金”13.29亿元、9.47亿元，双双位居全市场红利类主题ETF前列。5月以来，央企红利ETF华泰柏瑞（5
+5月12日，2026第十三届航空动力和燃气轮机聚焦大会暨展览会（简称“GTF航动燃机大会”）在上海世博展览馆举行。本届大会以“聚焦产业链协同·共建创新生态·把握中国机遇”为主题，围绕航空发动机与燃气轮机产业技术创新、产业链协同、全球合作等议题展开交流。 本届大会由中国动力工程学会、中国航空学会、中国工程热物理学会、决策者智库联合主办。大会汇聚政府主管部门、两院院士、科研院校、国
 
 ## 正文
 
-昨日（26/5/12），A股市场震荡分化，红利类策略ETF依然凭借其较突出的攻守兼备特征逆势收获资金青睐。
+5月12日，2026第十三届航空动力和燃气轮机聚焦大会暨展览会（简称“GTF航动燃机大会”）在上海世博展览馆举行。
 
-Wind数据显示，华泰柏瑞“红利全家桶”两大人气品种——红利ETF华泰柏瑞（510880）、红利低波ETF华泰柏瑞（512890）分别连续6个交易日实现净申购，累计“吸金”13.29亿元、9.47亿元，双双位居全市场红利类主题ETF前列。
+本届大会以“聚焦产业链协同·共建创新生态·把握中国机遇”为主题，围绕航空发动机与燃气轮机产业技术创新、产业链协同、全球合作等议题展开交流。
 
-5月以来，央企红利ETF华泰柏瑞（561580）、港股通红利ETF华泰柏瑞（513530）同样5个交易日中4日获资金净流入，彰显资金对高股息资产的配置意愿显著增强。
+本届大会由中国动力工程学会、中国航空学会、中国工程热物理学会、决策者智库联合主办。
 
-一方面是低利率环境下红利策略的底层吸引力依然较稳固。
+大会汇聚政府主管部门、两院院士、科研院校、国内外龙头企业及产业链企业代表，试图在全球产业链加速重构背景下，为我国高端动力装备产业搭建一个更集中、更高规格的交流与对接平台。
 
-根据Wind数据，当前10年期国债收益率持续低位区间运行，银行1年定期存款利率更是全面进入“1时代”，对比之下红利指数、红利低波指数、央企红利指数、港股通高股息（CNY）等主流红利类指数股息率分别达4.27%、4.16%、4.09%、4.65%，与其存在较为明显的股息率优势，在当前的环境中尤为稀缺，有望成为追求长期回报的投资者的重要布局方向。
+航空发动机和燃气轮机通常被称为“两机”，是高端装备制造的重要组成部分，也长期被视为衡量一个国家工业基础、材料能力、制造水平和系统集成能力的重要领域。
 
-另一方面，从标的指数成份股行业构成看，由于银行板块在高股息资产中含量较高，随着银行迎来年度分红的密集兑现期，有望对高股息资产的表现构成有力支撑。
+当前，我国“两机”产业正处在技术突破、产业协同和供应链完善的关键阶段，自主创新、产学研协同以及产业链上下游联动，成为本届大会反复被提及的关键词。
 
-根据上市公司公告，红利指数、红利低波指数成份股中两大国有银行分别定于2026年5月13日同日派息，拟派发的2025年年度现金分红总额高达1057亿元。
+开幕式现场，蒋以任、刘大响、涂善东、董绍明等领导、院士，以及多地工信主管部门、行业学会、国际机构、国内主机厂、科研院所和产业链骨干企业负责人出席。
 
-上市银行采取高频次、高回报的现金分红方式，不仅有助于稳定股价、提振市场信心，还能吸引险资、养老金等长期资金持续流入，形成估值修复与股东回报的正向循环。
+与会嘉宾在致辞中表示，航空发动机与燃气轮机产业链条长、技术门槛高、应用场景广，行业发展既需要核心技术持续攻关，也需要产业生态不断完善。
 
 ## 相关推荐
 
-- 2026-06-29 17:32 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 17:32 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 17:23 - [货车司机雨中帮交警挪树获表扬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 17:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 17:43 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 17:21 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 17:25 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 17:25 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 17:39 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 17:25 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 17:29 - [四川达州发生一起交通事故致2死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 17:39 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 17:44 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 17:25 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 17:24 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 17:44 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-29 17:50 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 17:46 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 17:32 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 17:34 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 17:41 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 17:33 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 17:49 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 17:43 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 17:48 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 17:39 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 17:39 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [TFING全员黑西装](https://www.share.kurohicncr.top/Article/details/903176.shtml)
-- 2026-06-29 17:23 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/9021548928.shtml)
-- 2026-06-29 17:28 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/68103549.shtml)
-- 2026-06-29 17:32 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/632086.shtml)
-- 2026-06-29 17:27 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.share.kurohicncr.top/Article/details/658692204437.shtml)
-- 2026-06-29 17:21 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/907116113670.shtml)
-- 2026-06-29 17:21 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/049029698.shtml)
-- 2026-06-29 17:30 - [世界杯1/16决赛对阵出炉](https://www.share.minike.top/Article/details/84770.shtml)
-- 2026-06-29 17:43 - [一台空调背后的全球化逻辑](https://www.share.minike.top/Article/details/91484631835.shtml)
-- 2026-06-29 17:35 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/12797679.shtml)
-- 2026-06-29 17:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/97822291986.shtml)
-- 2026-06-29 17:44 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/62748.shtml)
-- 2026-06-29 17:31 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/046443977.shtml)
-- 2026-06-29 17:26 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/88188125362.shtml)
-- 2026-06-29 17:30 - [勇敢的心第二部](https://www.share.minike.top/Article/details/62284512.shtml)
+- 2026-06-29 17:31 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/48906.shtml)
+- 2026-06-29 17:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/301112421.shtml)
+- 2026-06-29 17:50 - [A股收评：科创50指数大涨4.61%](http://www.blog.minike.top/Article/details/3145770232.shtml)
+- 2026-06-29 17:50 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/8211845545.shtml)
+- 2026-06-29 17:36 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/091625847550.shtml)
+- 2026-06-29 17:45 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/15013594.shtml)
+- 2026-06-29 17:44 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/0281762956.shtml)
+- 2026-06-29 17:46 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/140953053.shtml)
+- 2026-06-29 17:53 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/3132637355.shtml)
+- 2026-06-29 17:52 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/12770.shtml)
+- 2026-06-29 17:32 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/9168628.shtml)
+- 2026-06-29 17:32 - [外交部谈对日出口管制措施](https://www.blog.kurohicncr.top/Article/details/50332118458.shtml)
+- 2026-06-29 17:27 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/3250168850.shtml)
+- 2026-06-29 17:46 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/0096917.shtml)
+- 2026-06-29 17:34 - [四川达州发生一起交通事故致2死](https://www.share.kurohicncr.top/Article/details/94779.shtml)

@@ -1,57 +1,60 @@
-# 景区“最后一公里”岂能成“最贵一公里”
+# 海南自贸港封关运作成绩单：实现高标准开局 红利加快释放
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-把摆渡车当成创收工具，归根结底是景区经营者在营收压力下陷入短视思维。根治摆渡车乱象，不能止于价格规范和服务提升，更需积极创新业态，拥抱文旅消费升级的新趋势。 外出旅行，不少人都有为景区“最后一公里”犯愁的经历：景区摆渡车收费直追景点门票，不坐腿软、坐了心疼。一辆坐也不是、不坐也不是的摆渡车，严重影响了游客体验。 近日，文化和旅游部点名多个景区存在摆渡车路线设计不科学、价格不合理
+中新网海口5月15日电 (记者 王子谦)海南自贸港全岛封关运作已接近5个月。自封关以来，海南自贸港政策红利加快释放，封关运作实现高标准开局，自贸港建设呈现出蹄疾步稳、欣欣向荣的良好态势。 在15日举行的“高标准建设海南自由贸易港”重庆市专场新闻发布会上，中共海南省委常委、宣传部部长，省委新闻发言人王斌作上述介绍。 2025年12月18日，海南自贸港正式启动全岛封关运作。近5个月
 
 ## 正文
 
-把摆渡车当成创收工具，归根结底是景区经营者在营收压力下陷入短视思维。
+中新网海口5月15日电 (记者 王子谦)海南自贸港全岛封关运作已接近5个月。
 
-根治摆渡车乱象，不能止于价格规范和服务提升，更需积极创新业态，拥抱文旅消费升级的新趋势。
+自封关以来，海南自贸港政策红利加快释放，封关运作实现高标准开局，自贸港建设呈现出蹄疾步稳、欣欣向荣的良好态势。
 
-外出旅行，不少人都有为景区“最后一公里”犯愁的经历：景区摆渡车收费直追景点门票，不坐腿软、坐了心疼。
+在15日举行的“高标准建设海南自由贸易港”重庆市专场新闻发布会上，中共海南省委常委、宣传部部长，省委新闻发言人王斌作上述介绍。
 
-一辆坐也不是、不坐也不是的摆渡车，严重影响了游客体验。
+2025年12月18日，海南自贸港正式启动全岛封关运作。
 
-近日，文化和旅游部点名多个景区存在摆渡车路线设计不科学、价格不合理、排队时间过长、服务态度较差等问题，并督促属地进行集中整治。
+近5个月来，政策红利从“纸面”落到“地面”，“零关税”、加工增值免关税、禁限清单等政策全面实施，享惠主体快速扩容，实际业务保持稳定增长，市场主体和老百姓“真金白银”的获得感不断增强。
 
-这传递出一种鲜明的态度，即景区摆渡车应回归畅通“最后一公里”的服务属性。
+数据显示，2025年12月18日至2026年4月30日，海南自贸港“零关税”政策进口货值22.6亿元、同比增长99.6%；加工增值免关税政策内销货值5.1亿元，减免关税2457.3万元；禁限清单政策完成15票业务，货值350.3万元。
 
-在部分地形复杂、生态脆弱、空间条件有限的景区，摆渡车确有存在的必要。
+放宽贸易管理政策措施取得新突破，6家企业获批保税维修资质，3家企业开展“两头在外”保税维修。
 
-它兼顾了安全、便利、环保等要求。
+政策叠加发力，不仅让企业实现了“低成本运营+高附加值收入”，也进一步延伸了产业链条，推动产业向价值链高端攀升，政策红利加速转化为发展动能。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 17:44 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 17:34 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 17:38 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 17:47 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 17:34 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 17:25 - [男孩复读一年减重20斤涨分111分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 17:30 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 17:34 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 17:35 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 17:37 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 17:30 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 17:48 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 17:28 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 17:40 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 17:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 17:30 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 17:52 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 17:49 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 17:51 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 17:40 - [南昌市委书记调整](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 17:41 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 17:37 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 17:51 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 17:40 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:43 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/97220.shtml)
-- 2026-06-29 17:41 - [滚石就音乐人屠颖去世事件发声明](https://www.blog.kurohicncr.top/Article/details/330385.shtml)
-- 2026-06-29 17:37 - [呼兰赵晓卉来东风奕派开专场了](https://www.blog.kurohicncr.top/Article/details/643175138631.shtml)
-- 2026-06-29 17:26 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/945860395.shtml)
-- 2026-06-29 17:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/23876868227.shtml)
-- 2026-06-29 17:37 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/9426639.shtml)
-- 2026-06-29 17:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/984597311145.shtml)
-- 2026-06-29 17:22 - [当我回母校教书](http://www.share.minike.top/Article/details/78658574349.shtml)
-- 2026-06-29 17:21 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/3040484.shtml)
-- 2026-06-29 17:24 - [共享单车“价格刺客”79分钟30元](https://www.share.kurohicncr.top/Article/details/76643.shtml)
-- 2026-06-29 17:44 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/109649717174.shtml)
-- 2026-06-29 17:40 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/23758114548.shtml)
-- 2026-06-29 17:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/13341555.shtml)
-- 2026-06-29 17:31 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/5198111083.shtml)
-- 2026-06-29 17:36 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/9624587485.shtml)
+- 2026-06-29 17:49 - [范志毅看好日本淘汰巴西](https://www.blog.minike.top/Article/details/2231507026.shtml)
+- 2026-06-29 17:44 - [刘扬任湖南省副省长](http://www.share.minike.top/Article/details/5846342499.shtml)
+- 2026-06-29 17:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/7344921.shtml)
+- 2026-06-29 17:29 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/7978486354.shtml)
+- 2026-06-29 17:45 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/09476.shtml)
+- 2026-06-29 17:26 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/577903258.shtml)
+- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/6156797061.shtml)
+- 2026-06-29 17:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/6455317.shtml)
+- 2026-06-29 17:42 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/36664915.shtml)
+- 2026-06-29 17:49 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/8772131.shtml)
+- 2026-06-29 17:51 - [叠纸](http://www.share.minike.top/Article/details/048654455990.shtml)
+- 2026-06-29 17:50 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/963472.shtml)
+- 2026-06-29 17:44 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.minike.top/Article/details/90245061197.shtml)
+- 2026-06-29 17:46 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.kurohicncr.top/Article/details/28733183.shtml)
+- 2026-06-29 17:27 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/26995846.shtml)

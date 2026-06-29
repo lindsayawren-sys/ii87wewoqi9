@@ -1,58 +1,48 @@
-# 外交部评日本几十年来最大规模反战抗议：重走军国主义回头路是不归路
+# 中兴通讯遭小摩减持约220.90万股 每股均价约27.48港元
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-5月13日，外交部发言人郭嘉昆主持例行记者会。有记者提问，自从高市政府宣布推动修宪以来，日本各界出现了大量的反对声音，甚至出现了几十年来规模最大的反战抗议活动，恐惧、担忧、警惕、愤怒成为了受访民众的高频词。有媒体评论称，修改宪法第九条将撼动日本和平国家的自我认同，引发社会撕裂。请问发言人对此有何评论？ 郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众亲眼目睹自己的国家一步步
+香港联交所最新资料显示，5月11日，小摩减持中兴通讯（00763）220.9036万股，每股均价27.4824港元，总金额约为6070.96万港元。减持后最新持股数目约为5271.04万股，最新持股比例为6.97%。责任编辑：卢昱君
 
 ## 正文
 
-5月13日，外交部发言人郭嘉昆主持例行记者会。
+香港联交所最新资料显示，5月11日，小摩减持中兴通讯（00763）220.9036万股，每股均价27.4824港元，总金额约为6070.96万港元。
 
-有记者提问，自从高市政府宣布推动修宪以来，日本各界出现了大量的反对声音，甚至出现了几十年来规模最大的反战抗议活动，恐惧、担忧、警惕、愤怒成为了受访民众的高频词。
+减持后最新持股数目约为5271.04万股，最新持股比例为6.97%。
 
-有媒体评论称，修改宪法第九条将撼动日本和平国家的自我认同，引发社会撕裂。
-
-请问发言人对此有何评论？
-
-郭嘉昆表示，历史是一面镜子，20世纪上半叶，日本民众亲眼目睹自己的国家一步步走向军国主义，沦为战争机器，饱尝战争恶果，最懂得日本政府承诺永不再战的意义。
-
-如今高市政府却企图抛弃和平主义，背弃战后国际社会接纳日本的根本前提，撕毁日本民众世代珍视的和平国家共识。
-
-郭嘉昆说，日本右翼势力推动扩军备武、突破和平宪法和国际法、国内法规制，是要打造所谓“战争国家”吗？
-
-是想在亚太地区重燃战火吗？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 17:40 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 17:31 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 17:20 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 17:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 17:33 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 17:47 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 17:23 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 17:32 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 17:21 - [未成年少女长期吸毒导致卧床不起](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 17:37 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 17:24 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 17:33 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 17:38 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-29 17:32 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 17:47 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 17:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 17:38 - [花万元相亲对象是50元雇的演员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 17:30 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 17:50 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 17:47 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 17:40 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 17:37 - [省市招考专家解读山西高考志愿政策](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 17:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 17:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:21 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/3306979.shtml)
-- 2026-06-29 17:37 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/5341126493.shtml)
-- 2026-06-29 17:33 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/342626.shtml)
-- 2026-06-29 17:28 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/6261467.shtml)
-- 2026-06-29 17:44 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/870398085.shtml)
-- 2026-06-29 17:29 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/230698803.shtml)
-- 2026-06-29 17:35 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.kurohicncr.top/Article/details/696886.shtml)
-- 2026-06-29 17:30 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/0076077.shtml)
-- 2026-06-29 17:18 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/03206702.shtml)
-- 2026-06-29 17:31 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/85040750358.shtml)
-- 2026-06-29 17:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.kurohicncr.top/Article/details/31351854.shtml)
-- 2026-06-29 17:45 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/81277659315.shtml)
-- 2026-06-29 17:33 - [王楚钦开门红](http://www.share.minike.top/Article/details/83636.shtml)
-- 2026-06-29 17:31 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.kurohicncr.top/Article/details/270962.shtml)
-- 2026-06-29 17:39 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/33640318785.shtml)
+- 2026-06-29 17:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/0301088315.shtml)
+- 2026-06-29 17:46 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.minike.top/Article/details/6081692162.shtml)
+- 2026-06-29 17:33 - [业内：全球市场迎来结构性投资窗口](https://www.blog.minike.top/Article/details/90694212.shtml)
+- 2026-06-29 17:39 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/618369698.shtml)
+- 2026-06-29 17:47 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/33530.shtml)
+- 2026-06-29 17:37 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/113001861900.shtml)
+- 2026-06-29 17:28 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.minike.top/Article/details/51130614818.shtml)
+- 2026-06-29 17:48 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/0574235.shtml)
+- 2026-06-29 17:31 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/1093543648.shtml)
+- 2026-06-29 17:35 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/503543.shtml)
+- 2026-06-29 17:36 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/933125557899.shtml)
+- 2026-06-29 17:32 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/96190884.shtml)
+- 2026-06-29 17:47 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/622827190139.shtml)
+- 2026-06-29 17:44 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/16300592.shtml)
+- 2026-06-29 17:35 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/488658220.shtml)

@@ -1,57 +1,51 @@
-# 美国暂停新家庭护理和临终关怀服务提供商的“联邦医疗保险”注册
+# 广州港南沙港区五期工程全面开工
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-据美国政府医疗保险和医疗补助服务中心周三发布的声明称，鉴于对欺诈行为泛滥的担忧，特朗普政府将至少在未来六个月内禁止新的家庭医疗保健和临终关怀服务提供商注册加入联邦医疗保险。 这项暂停令将暂时禁止上述类别的新服务提供商向“联邦医疗保险”申请报销。该计划是美国政府为65岁及以上老年人及残障人士提供的医疗保险项目。负责监管该计划的联邦医疗保险和医疗补助服务中心表示，此举不会影响已注册
+发布时间：2026年05月15日 18:26 来源：中国新闻网 5月15日，广州港南沙港区五期工程全面开工，项目设计年集装箱通过能力670万标准箱，建成后南沙港区集装箱通过能力将超过3500万标准箱，位于世界单一港区前列。 此次开工的广州港南沙港区五期工程项目位于广州市南沙区龙穴岛南端，地处粤港澳大湾区几何中心，项目总投资概算144.47亿元人民币，将建设4个20万吨级集装箱海
 
 ## 正文
 
-据美国政府医疗保险和医疗补助服务中心周三发布的声明称，鉴于对欺诈行为泛滥的担忧，特朗普政府将至少在未来六个月内禁止新的家庭医疗保健和临终关怀服务提供商注册加入联邦医疗保险。
+发布时间：2026年05月15日 18:26 来源：中国新闻网 5月15日，广州港南沙港区五期工程全面开工，项目设计年集装箱通过能力670万标准箱，建成后南沙港区集装箱通过能力将超过3500万标准箱，位于世界单一港区前列。
 
-这项暂停令将暂时禁止上述类别的新服务提供商向“联邦医疗保险”申请报销。
+此次开工的广州港南沙港区五期工程项目位于广州市南沙区龙穴岛南端，地处粤港澳大湾区几何中心，项目总投资概算144.47亿元人民币，将建设4个20万吨级集装箱海轮泊位，同步配套建设15个5000吨级集装箱驳船泊位、5个工作船泊位，总岸线长度超过3800米，可全天候靠泊全球超大型的集装箱船舶，适配远洋干线航运发展需求。
 
-该计划是美国政府为65岁及以上老年人及残障人士提供的医疗保险项目。
+广州港南沙港区五期工程建成后，将与南沙港区现有20个集装箱深水泊位和国际通用码头4个深水泊位高效联动、协同运营，集装箱年通过能力将超过3500万标准箱。
 
-负责监管该计划的联邦医疗保险和医疗补助服务中心表示，此举不会影响已注册“联邦医疗保险”的服务提供商。
-
-这是副总统万斯领导的反欺诈工作组为打击医疗保健诈骗所采取的最新举措。
-
-多年来，美国政府一直致力于解决Medicare向临终关怀和家庭医疗服务提供商支付的欺诈性款项问题。
-
-诈骗分子会就患者不需要或不想要的服务向联邦医疗保险报销，从而从美国政府手中骗取数百万美元。
-
-全国性反欺诈组织“老年人联邦医疗保险巡逻队”已就该问题多次发布警示。
+(记者 蔡敏婕 制作 乐小敏 视频来源 广州港集团) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 17:41 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 17:43 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 17:39 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 17:34 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 17:26 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 17:33 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 17:31 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 17:26 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 17:20 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 17:27 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 17:30 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 17:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 17:32 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 17:51 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 17:52 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 17:35 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 17:49 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 17:50 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 17:42 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 17:36 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 17:34 - [范志毅看好日本淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 17:32 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 17:40 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 17:27 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:48 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/2967436459.shtml)
-- 2026-06-29 17:22 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/746822304845.shtml)
-- 2026-06-29 17:43 - [普京为何喊话俄乌都别打对方纵深](https://www.blog.kurohicncr.top/Article/details/09112515.shtml)
-- 2026-06-29 17:39 - [95后小伙突然确诊癌症 医生提醒](https://www.share.minike.top/Article/details/634554.shtml)
-- 2026-06-29 17:31 - [工作靠AI算不算职场作弊](https://www.share.kurohicncr.top/Article/details/20433785.shtml)
-- 2026-06-29 17:25 - [请回答王牌2019](http://www.blog.minike.top/Article/details/126504918.shtml)
-- 2026-06-29 17:20 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/455340.shtml)
-- 2026-06-29 17:38 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/944791154263.shtml)
-- 2026-06-29 17:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/01259.shtml)
-- 2026-06-29 17:25 - [东方风云榜](http://www.share.minike.top/Article/details/793155285135.shtml)
-- 2026-06-29 17:36 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/3889717.shtml)
-- 2026-06-29 17:20 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/90865589606.shtml)
-- 2026-06-29 17:47 - [T1 KC](http://www.blog.kurohicncr.top/Article/details/4758004.shtml)
-- 2026-06-29 17:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/925025413319.shtml)
-- 2026-06-29 17:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/93233942.shtml)
+- 2026-06-29 17:41 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/921309.shtml)
+- 2026-06-29 17:51 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/568039661.shtml)
+- 2026-06-29 17:50 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/085453834491.shtml)
+- 2026-06-29 17:30 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/061542097.shtml)
+- 2026-06-29 17:37 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/2254849.shtml)
+- 2026-06-29 17:52 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/87031149.shtml)
+- 2026-06-29 17:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/0370998.shtml)
+- 2026-06-29 17:39 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.kurohicncr.top/Article/details/42197261772.shtml)
+- 2026-06-29 17:24 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/36050211.shtml)
+- 2026-06-29 17:45 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/21113755.shtml)
+- 2026-06-29 17:44 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/952827585942.shtml)
+- 2026-06-29 17:24 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/6371031530.shtml)
+- 2026-06-29 17:46 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/760479320.shtml)
+- 2026-06-29 17:27 - [博主：黄金和原油回落不等于风险消失](http://www.share.kurohicncr.top/Article/details/29246024236.shtml)
+- 2026-06-29 17:25 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/336305681.shtml)

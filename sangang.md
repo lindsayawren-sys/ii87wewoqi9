@@ -1,57 +1,55 @@
-# FOS选定Incat Crowther设计壳牌文莱作业高速CTV船队
+# 德国总理称不会建议自己孩子赴美工作 理由是当地“社会氛围”
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-Fast Offshore Supply已选定Incat Crowther设计一支由10艘DP2高速船员转运船组成的船队，用于支持壳牌与文莱政府合资的 Brunei Shell Petroleum 的海上作业。 据两家公司介绍，这些55米长的铝制船舶将用于向Brunei Shell Petroleum的资产运送海上人员和货物，并在包括FOS位于新加坡的自有船厂在内的多家地区船厂
+德国总理弗里德里希·默茨表示，他不会建议自己的孩子前往美国生活，理由是当地突然形成的某种“社会氛围”。 “我向来对美国推崇备至，但眼下，我的这种仰慕之情并未增加。”默茨在德国南部城市维尔茨堡对一群罗马天主教徒表示，“如今，我不会建议我的孩子到美国接受教育或在那里工作。” 默茨对白宫日益公开的批评引发美国总统唐纳德·特朗普的愤怒回应。特朗普已威胁要提高针对欧洲汽车制造商的关税，并
 
 ## 正文
 
-Fast Offshore Supply已选定Incat Crowther设计一支由10艘DP2高速船员转运船组成的船队，用于支持壳牌与文莱政府合资的 Brunei Shell Petroleum 的海上作业。
+德国总理弗里德里希·默茨表示，他不会建议自己的孩子前往美国生活，理由是当地突然形成的某种“社会氛围”。
 
-据两家公司介绍，这些55米长的铝制船舶将用于向Brunei Shell Petroleum的资产运送海上人员和货物，并在包括FOS位于新加坡的自有船厂在内的多家地区船厂建造。
+“我向来对美国推崇备至，但眼下，我的这种仰慕之情并未增加。
 
-每艘船可搭载多达80名乘客和150吨货物，航速可达30节。
+”默茨在德国南部城市维尔茨堡对一群罗马天主教徒表示，“如今，我不会建议我的孩子到美国接受教育或在那里工作。
 
-该船队已于2025年底启动建造，首批船舶预计于2027年初投入运营。
+” 默茨对白宫日益公开的批评引发美国总统唐纳德·特朗普的愤怒回应。
 
-Incat Crowther表示，该项目将采用其数字化造船流程，从而能够在多个船厂同时建造，同时保持整个船队的规格完全一致。
+特朗普已威胁要提高针对欧洲汽车制造商的关税，并宣布计划削减驻扎在德国的美军人数。
 
-这些船舶将配备DP2定位系统、用于海上人员转运的舷梯系统以及面积达200平方米的甲板。
-
-Incat Crowther欧洲董事总经理埃德·达德森表示：“在多个船厂建造这支船队将实现新船的快速部署，而我们的数字化设计与造船流程使这一目标得以实现。
-
-” “每个船厂都会收到一份相同的高度详细数字化资料包，其中包含建造所需的一切——从结构布置到辅助系统的内部管线、电缆桥架和暖通空调。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 17:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-29 17:23 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 17:43 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 17:37 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 17:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 17:23 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 17:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 17:46 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-29 17:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 17:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 17:29 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 17:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 17:32 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 17:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 17:43 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 17:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 17:34 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-29 17:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 17:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 17:54 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 17:28 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 17:35 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 17:43 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 17:28 - [曝屠颖去世和酒店失责有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:23 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/3030560733.shtml)
-- 2026-06-29 17:21 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/7335456.shtml)
-- 2026-06-29 17:26 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/602726354994.shtml)
-- 2026-06-29 17:42 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/55548731158.shtml)
-- 2026-06-29 17:39 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/5499702152.shtml)
-- 2026-06-29 17:25 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/443959.shtml)
-- 2026-06-29 17:30 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/663747732.shtml)
-- 2026-06-29 17:24 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/58108506856.shtml)
-- 2026-06-29 17:38 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/5017557553.shtml)
-- 2026-06-29 17:39 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/455247553252.shtml)
-- 2026-06-29 17:34 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/01305379.shtml)
-- 2026-06-29 17:32 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/454150355286.shtml)
-- 2026-06-29 17:42 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/8411932041.shtml)
-- 2026-06-29 17:30 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/2276554.shtml)
-- 2026-06-29 17:30 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/2576011555.shtml)
+- 2026-06-29 17:36 - [A股收评：科创50指数大涨4.61%](https://www.blog.minike.top/Article/details/07989498207.shtml)
+- 2026-06-29 17:53 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/33006249.shtml)
+- 2026-06-29 17:37 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/816096465518.shtml)
+- 2026-06-29 17:32 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/9527057681.shtml)
+- 2026-06-29 17:25 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.share.kurohicncr.top/Article/details/5720848.shtml)
+- 2026-06-29 17:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/86090106744.shtml)
+- 2026-06-29 17:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/853299200229.shtml)
+- 2026-06-29 17:46 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/8442762.shtml)
+- 2026-06-29 17:41 - [税务总局披露5起合规申报个税案例](https://www.share.minike.top/Article/details/28789.shtml)
+- 2026-06-29 17:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/37720.shtml)
+- 2026-06-29 17:28 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/57736.shtml)
+- 2026-06-29 17:41 - [毒液2](https://www.blog.minike.top/Article/details/1438812.shtml)
+- 2026-06-29 17:26 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/79613.shtml)
+- 2026-06-29 17:50 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/74121270.shtml)
+- 2026-06-29 17:53 - [看大国重器“云端穿针引线”](http://www.share.kurohicncr.top/Article/details/28098788.shtml)

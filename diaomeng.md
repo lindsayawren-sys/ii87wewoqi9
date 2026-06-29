@@ -1,57 +1,60 @@
-# 河南南阳大型修飞机现场：多元实训场景助力航空技能培养
+# 瞿昙之光，照亮汉藏交融之美
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？专家提醒己所不欲勿施于人，这条东方智慧我们免费送给欧洲朋友六旬环卫工11次跳海救人：自
+本报记者 吴艳 近日，“高原丝路 瞿昙之光——青海丝路文物与瞿昙寺壁画艺术展”在中国非物质文化遗产馆展出。展览以“民族交往交流交融”为主线，立足中华文明史宏观视角，深度挖掘青海丝路文物与瞿昙寺历史文化遗产，阐释青海在中华民族共同体构建中的地缘与文化价值，将汉藏交融的历史篇章、艺术瑰宝与时代内涵全景式呈现给公众。 作为青海著名的明代寺院建筑群，瞿昙寺被誉为“高原小故宫”。此次展览
 
 ## 正文
 
-电动化替代速度超预期，中国新能源汽车创新纪录《给阿嬷的情书》取景地走红，守宅人曾无偿借出老宅拍摄从手工编织到拼豆定制 消费者为何开始偏爱自己“造”？
+本报记者 吴艳 近日，“高原丝路 瞿昙之光——青海丝路文物与瞿昙寺壁画艺术展”在中国非物质文化遗产馆展出。
 
-门店企微骚扰顾客5000陪一晚 沪上阿姨致歉称被异地盗号降噪耳机或致听力受损？
+展览以“民族交往交流交融”为主线，立足中华文明史宏观视角，深度挖掘青海丝路文物与瞿昙寺历史文化遗产，阐释青海在中华民族共同体构建中的地缘与文化价值，将汉藏交融的历史篇章、艺术瑰宝与时代内涵全景式呈现给公众。
 
-专家提醒：要关注使用时长、音量打了网红“气血针”，能否“一针提神”？
+作为青海著名的明代寺院建筑群，瞿昙寺被誉为“高原小故宫”。
 
-专家提醒己所不欲勿施于人，这条东方智慧我们免费送给欧洲朋友六旬环卫工11次跳海救人：自学心肺复苏 报酬分文不取中英“乒乓外交”手记：小球轻转处，自有山海来人这一辈子，一定要三顾南阳！
+此次展览以瞿昙寺为叙事核心，汇聚精选文物84件(套)、壁画临摹艺术品113件。
 
-遭党内“逼宫” 斯塔默能迈过这道坎吗？
+展览还设置VR体验区和文创区，推出系列配套学术讲座，并同步上线线上数字虚拟展厅，打造永不落幕的“云端展览”。
 
-Wi-Fi会让记忆力下降系谣言达巍：今年有机会为“调适”中美关系构建新基础日本如何一步步挣脱战后束缚？
+多元通和青海，自古便是连接东西、沟通南北的“高原丝路”中枢。
 
-专家：警惕“新型军国主义”死灰复燃创新高后三大指数涨跌不一，该见好就收还是加速入场？
+从史前彩陶文明的西传与交融，到汉唐丝绸之路青海道的繁荣，再到明清“茶马互市”的兴盛，这片土地始终是各民族交往交流交融的活跃舞台，更是中华文明多元一体格局形成发展的重要区域。
 
-央行最新报告释信号：提升债券市场功能汶川大地震中被埋72小时的女孩，如今怎么样了？
+展览第一单元“同源异彩 多元通和”聚焦青海从史前至隋唐的历史时期，通过展品生动展现青海在中华文明早期形成与丝路文明兴起过程中，如何以开放包容实现“多元通和”。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 17:29 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 17:45 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 17:40 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 17:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 17:18 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 17:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 17:28 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
-- 2026-06-29 17:39 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 17:30 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 17:35 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 17:31 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 17:37 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 17:40 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 17:50 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 17:34 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 17:29 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 17:36 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 17:49 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 17:35 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 17:37 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 17:42 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 17:28 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 17:53 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 17:35 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:39 - [叠纸客服回应恋与深空新角色争议](http://www.share.kurohicncr.top/Article/details/703322042868.shtml)
-- 2026-06-29 17:34 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/3317110114.shtml)
-- 2026-06-29 17:31 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/1554430.shtml)
-- 2026-06-29 17:40 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/18627.shtml)
-- 2026-06-29 17:46 - [看大国重器“云端穿针引线”](https://www.share.minike.top/Article/details/9532632.shtml)
-- 2026-06-29 17:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/187108135.shtml)
-- 2026-06-29 17:31 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/9160761661.shtml)
-- 2026-06-29 17:24 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.kurohicncr.top/Article/details/336370260875.shtml)
-- 2026-06-29 17:18 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/3550206.shtml)
-- 2026-06-29 17:40 - [新能源车能当外接空调用吗](http://www.blog.minike.top/Article/details/3249814832.shtml)
-- 2026-06-29 17:23 - [第一炉香](https://www.share.minike.top/Article/details/49156567.shtml)
-- 2026-06-29 17:19 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/574451.shtml)
-- 2026-06-29 17:41 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.minike.top/Article/details/55694850670.shtml)
-- 2026-06-29 17:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/602691922.shtml)
-- 2026-06-29 17:44 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/07309050668.shtml)
+- 2026-06-29 17:27 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/1059667352.shtml)
+- 2026-06-29 17:45 - [东方风云榜](http://www.share.minike.top/Article/details/3153303001.shtml)
+- 2026-06-29 17:37 - [恋与深空各大应用商店评分](http://www.share.kurohicncr.top/Article/details/814171120457.shtml)
+- 2026-06-29 17:46 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/298664518329.shtml)
+- 2026-06-29 17:36 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/53569407.shtml)
+- 2026-06-29 17:36 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/43027313067.shtml)
+- 2026-06-29 17:38 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/950462790391.shtml)
+- 2026-06-29 17:42 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/179468.shtml)
+- 2026-06-29 17:27 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/5784042594.shtml)
+- 2026-06-29 17:29 - [滚石就音乐人屠颖去世事件发声明](http://www.share.kurohicncr.top/Article/details/7291935.shtml)
+- 2026-06-29 17:39 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/94393723.shtml)
+- 2026-06-29 17:52 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/16258.shtml)
+- 2026-06-29 17:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/0582280.shtml)
+- 2026-06-29 17:35 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/99756.shtml)
+- 2026-06-29 17:29 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/107169331.shtml)

@@ -1,61 +1,59 @@
-# 石油板块再起攻势，华宝基金石油ETF（159019）涨超1%！机构：市场或低估了油价短期和中期的上行风险
+# 美国据悉将撤销对印度富豪阿达尼刑事指控，或为100亿美元投资铺路
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-石油石化板块今日（5月13日）震荡上行。一键布局油气全产业链的石油ETF华宝（159019）开盘后迅速拉升，而后持续高位震荡，盘中场内价格一度涨超1%，截至发稿，涨0.8%。 成份股方面，油气装备、燃气、航运等板块部分个股涨幅居前。截至发稿，迪威尔、贵州燃气双双飙涨超7%，招商南油涨超5%，兰石重装、杰瑞股份、新天然气等多股涨超2%。 中信建投认为市场或低估了油价短期和中期的上
+据知情人士透露，美国司法部即将撤销对印度亿万富翁高塔姆·阿达尼的刑事欺诈指控，后者此前曾承诺向美国经济投资 100 亿美元。 阿达尼集团此前宣布与美国证券交易委员会 （SEC） 就民事欺诈指控达成和解，但和解协议需经法院批准。 阿达尼集团曾公开承诺，如果特朗普在2024年大选中获胜，将在美国投资100亿美元并创造15000个就业岗位。 据一位消息人士透露，阿达尼集团的律师罗伯特
 
 ## 正文
 
-石油石化板块今日（5月13日）震荡上行。
+据知情人士透露，美国司法部即将撤销对印度亿万富翁高塔姆·阿达尼的刑事欺诈指控，后者此前曾承诺向美国经济投资 100 亿美元。
 
-一键布局油气全产业链的石油ETF华宝（159019）开盘后迅速拉升，而后持续高位震荡，盘中场内价格一度涨超1%，截至发稿，涨0.8%。
+阿达尼集团此前宣布与美国证券交易委员会 （SEC） 就民事欺诈指控达成和解，但和解协议需经法院批准。
 
-成份股方面，油气装备、燃气、航运等板块部分个股涨幅居前。
+阿达尼集团曾公开承诺，如果特朗普在2024年大选中获胜，将在美国投资100亿美元并创造15000个就业岗位。
 
-截至发稿，迪威尔、贵州燃气双双飙涨超7%，招商南油涨超5%，兰石重装、杰瑞股份、新天然气等多股涨超2%。
+据一位消息人士透露，阿达尼集团的律师罗伯特·吉弗拉（同时也是美国总统唐纳德·特朗普的私人律师）上个月在向美国司法部官员作陈述时表示，在案件审理期间，阿达尼集团无法进行投资。
 
-中信建投认为市场或低估了油价短期和中期的上行风险。
+消息人士称，吉弗拉在长达100页的陈述中，大部分篇幅都在论证此案证据不足，理由是缺乏管辖权和证据。
 
-短期看，一方面是霍尔木兹海峡已经关闭数周，更多油井被迫关停，而长时间关停将会导致部分产能的永久损伤。
+上个月，吉弗拉在提交给美国证券交易委员会（SEC）的平行案件中也提出了类似的论点。
 
-长期看，在低资本开支的背景下，美国的库存井和新钻井数量屡创新低，这也意味着美国原油高产量难以为继，未来剩余供给和定价权有望掌握在中东手中。
+其中一位消息人士称，美国司法部一些检察官明确表示，这笔100亿美元的投资不会影响此案。
 
-此前市场过分乐观估计了中东战事的结束进度，然而现实世界的矛盾越发显著，近期市场开始逐渐定价远期油价的上行。
+目前尚不清楚其他检察官是否持不同意见。
 
 ## 相关推荐
 
-- 2026-06-29 17:31 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 17:23 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 17:39 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 17:35 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 17:43 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-29 17:42 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 17:28 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 17:19 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 17:20 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 17:38 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 17:44 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 17:45 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-29 17:42 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 17:38 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 17:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 17:27 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 17:28 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 17:25 - [每天通勤往返3h的感觉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 17:46 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 17:48 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 17:28 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 17:53 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 17:48 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 17:36 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 17:25 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 17:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 17:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 17:38 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:37 - [挪威王储妃长子2次强奸被判4年](http://www.blog.kurohicncr.top/Article/details/525829500723.shtml)
-- 2026-06-29 17:27 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/8897973080.shtml)
-- 2026-06-29 17:29 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/426969.shtml)
-- 2026-06-29 17:40 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/4401643857.shtml)
-- 2026-06-29 17:38 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/23607.shtml)
-- 2026-06-29 17:42 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/59953133084.shtml)
-- 2026-06-29 17:47 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/28566.shtml)
-- 2026-06-29 17:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/78519809.shtml)
-- 2026-06-29 17:42 - [乔家的儿女](https://www.blog.minike.top/Article/details/2567149326.shtml)
-- 2026-06-29 17:19 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/746928305.shtml)
-- 2026-06-29 17:30 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/96142.shtml)
-- 2026-06-29 17:27 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/7809339435.shtml)
-- 2026-06-29 17:20 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.minike.top/Article/details/00597335.shtml)
-- 2026-06-29 17:25 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/973717262738.shtml)
-- 2026-06-29 17:34 - [四川地震前夕 街头电线上站满燕子](http://www.blog.minike.top/Article/details/42484895449.shtml)
+- 2026-06-29 17:51 - [天柱山回应网红打卡树枝被砍](http://www.blog.minike.top/Article/details/6318280855.shtml)
+- 2026-06-29 17:52 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/0578799369.shtml)
+- 2026-06-29 17:26 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/949825153940.shtml)
+- 2026-06-29 17:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/99549.shtml)
+- 2026-06-29 17:29 - [依法管制阻遏日方军事化危险动向](http://www.blog.minike.top/Article/details/417844.shtml)
+- 2026-06-29 17:24 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/472161776.shtml)
+- 2026-06-29 17:31 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/6738155871.shtml)
+- 2026-06-29 17:36 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.share.kurohicncr.top/Article/details/39596.shtml)
+- 2026-06-29 17:42 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/771448885.shtml)
+- 2026-06-29 17:46 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/16927963.shtml)
+- 2026-06-29 17:42 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/00973037001.shtml)
+- 2026-06-29 17:25 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/75903167.shtml)
+- 2026-06-29 17:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/34871956.shtml)
+- 2026-06-29 17:29 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/90954249.shtml)
+- 2026-06-29 17:26 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/6836599256.shtml)

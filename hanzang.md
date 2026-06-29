@@ -1,46 +1,57 @@
-# 周锡玮怒批赖清德跪拜日本殖民者
+# 515投资者保护|十年共读123本书 中信保诚基金“一路书香”投资者服务项目荣获2026年度最具影响力投教项目奖
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月13日 22:15 来源：中国新闻网 5月13日，台湾旺旺集团副董事长周锡玮在北京接受采访时怒批赖清德跪拜日本殖民者的行径。(记者 刘子衿 制作 方敏) 责任编辑：【刘湃】
+专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。中信保诚基金凭借“一路书香”投资者服务项目，荣获2026年度“最具影响力投教项目奖”。 据悉，“一路书香”是中信保诚基金自主策划并持续运营的投教项目，以深度阅读为核心。项目自2016年启动以来已运行整整十年，累计共读图书123本。形式上，项目从最初的寄
 
 ## 正文
 
-发布时间：2026年05月13日 22:15 来源：中国新闻网 5月13日，台湾旺旺集团副董事长周锡玮在北京接受采访时怒批赖清德跪拜日本殖民者的行径。
+专题：515投资者保护！
 
-(记者 刘子衿 制作 方敏) 责任编辑：【刘湃】
+新浪财经2026年度投教案例评选结果公布 5月15日，新浪财经2026年度基金投教案例评选结果正式揭晓。
+
+中信保诚基金凭借“一路书香”投资者服务项目，荣获2026年度“最具影响力投教项目奖”。
+
+据悉，“一路书香”是中信保诚基金自主策划并持续运营的投教项目，以深度阅读为核心。
+
+项目自2016年启动以来已运行整整十年，累计共读图书123本。
+
+形式上，项目从最初的寄书共读拓展为“线下寄书+线上共读+高校对话”的立体化投教体系：线下共读每月一期，覆盖投资者约4万名；线上共读每周一期，累计触达超270万人次，形成稳定的陪伴节奏；学术延伸方面，项目走进复旦大学等高校，推动投教内容的专业化对话与社会化传播。
+
+选书逻辑上，项目不追逐短期市场热点，而是聚焦长期认知框架的构建。
+
+十年间所选书目跨越金融史、行为经济学、周期理论、地缘政治、产业变迁等多个领域，代表书目包括《时运变迁》《未来简史》《原则》《韧性社会》《周期》《波斯湾五千年》《从出口，到出海》等。
 
 ## 相关推荐
 
-- 2026-06-29 17:34 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
-- 2026-06-29 17:31 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 17:26 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 17:42 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 17:45 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 17:33 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 17:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 17:41 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 17:39 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 17:23 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-29 17:27 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 17:47 - [普京承认俄出现燃料危机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 17:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 17:29 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 17:50 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 17:32 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 17:34 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 17:52 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 17:34 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 17:43 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 17:38 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 17:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-29 17:38 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/62230.shtml)
-- 2026-06-29 17:41 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/75295358645.shtml)
-- 2026-06-29 17:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/5363681635.shtml)
-- 2026-06-29 17:39 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/694448986.shtml)
-- 2026-06-29 17:30 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/6087193579.shtml)
-- 2026-06-29 17:43 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/64961227.shtml)
-- 2026-06-29 17:41 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/163606.shtml)
-- 2026-06-29 17:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/613799.shtml)
-- 2026-06-29 17:23 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/8144732003.shtml)
-- 2026-06-29 17:23 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/4065864304.shtml)
-- 2026-06-29 17:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/824543201189.shtml)
-- 2026-06-29 17:22 - [啊啊啊](http://www.blog.minike.top/Article/details/246236298589.shtml)
-- 2026-06-29 17:35 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/77294232037.shtml)
-- 2026-06-29 17:32 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/49990645.shtml)
-- 2026-06-29 17:35 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/224822.shtml)
+- 2026-06-29 17:40 - [专家预计全球央行加息节奏将出现反复](https://www.share.kurohicncr.top/Article/details/012841.shtml)
+- 2026-06-29 17:51 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/1472922.shtml)
+- 2026-06-29 17:51 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.kurohicncr.top/Article/details/169164.shtml)
+- 2026-06-29 17:52 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/098711689.shtml)
+- 2026-06-29 17:53 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/17361.shtml)
+- 2026-06-29 17:45 - [永远有话聊的原因](https://www.share.minike.top/Article/details/69366.shtml)
+- 2026-06-29 17:25 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.kurohicncr.top/Article/details/748136951.shtml)
+- 2026-06-29 17:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/1561883.shtml)
+- 2026-06-29 17:40 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/323379.shtml)
+- 2026-06-29 17:39 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/48915.shtml)
+- 2026-06-29 17:40 - [谢依霖夸杨幂靠谱](https://www.blog.minike.top/Article/details/1910985042.shtml)
+- 2026-06-29 17:32 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/89148.shtml)
+- 2026-06-29 17:34 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/611281723.shtml)
+- 2026-06-29 17:42 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/79481.shtml)
+- 2026-06-29 17:39 - [港股爆发 美团百度阿里等集体大涨](http://www.share.kurohicncr.top/Article/details/267057050203.shtml)

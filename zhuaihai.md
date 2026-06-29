@@ -1,49 +1,56 @@
-# 市场监管总局：推动价格法等多部法律法规修订
+# 广汽集团冯兴亚：好品质是汽车行业不可动摇的底线
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-记者今天(13日)从市场监管总局发布会了解到，目前，市场监管总局正在积极推动《中华人民共和国价格法》《中华人民共和国计量法》《中华人民共和国认证认可条例》《中华人民共和国工业产品生产许可证管理条例》的修订，通过完善反垄断、反不正当竞争、价格、标准、质量监管等领域的法律法规，为纵深推进全国统一大市场建设提供法律支撑。与此同时，《市场监督管理行政处罚裁量规定》正在抓紧制定中，指导地
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。 在对话环节中，有观点提出，新能源智能网联汽越来越像快消品，消费者换车周期从过去的“十年八年”缩短至五年、三年甚至更短，似乎对安全和质量的坚守有所松动。 对此，广汽集团党委书记、董事长冯兴亚回应表示，品质始终是汽车产业的底线，也是自主品牌的“节操”。他指出，虽然首
 
 ## 正文
 
-记者今天(13日)从市场监管总局发布会了解到，目前，市场监管总局正在积极推动《中华人民共和国价格法》《中华人民共和国计量法》《中华人民共和国认证认可条例》《中华人民共和国工业产品生产许可证管理条例》的修订，通过完善反垄断、反不正当竞争、价格、标准、质量监管等领域的法律法规，为纵深推进全国统一大市场建设提供法律支撑。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-与此同时，《市场监督管理行政处罚裁量规定》正在抓紧制定中，指导地方进一步优化裁量权基准，促进严格规范公正文明执法。
+在对话环节中，有观点提出，新能源智能网联汽越来越像快消品，消费者换车周期从过去的“十年八年”缩短至五年、三年甚至更短，似乎对安全和质量的坚守有所松动。
 
-同时继续梳理基层执法难点问题，起草《市场监督管理若干法律疑难问题指引(二)》，以基层执法堵点的破解，助力破除妨碍统一大市场的卡点。
+对此，广汽集团党委书记、董事长冯兴亚回应表示，品质始终是汽车产业的底线，也是自主品牌的“节操”。
 
-(总台央视记者 高杰)
+他指出，虽然首任车主换车周期变短，但淘汰下来的车辆并不会报废，而是会进入二手车市场，由下一任车主继续使用八年到十年。
+
+“对下一任车主来说，在未来八年到十年的使用过程中，这辆车的品质问题，对其用车体验和价值会产生直接影响。
+
+” 冯兴亚强调，品质直接决定了二手车的残值。
+
+“如果一辆车品质好，它在二手车处理时的价值就高。
+
+这就像把钱存到银行一样，你买的时候可能贵了一点点，比如一万块钱，但等到两年后、三年后、五年后卖车时，这一万块钱甚至更多的价值就能收回来。
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 17:42 - [消息称斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 17:38 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 17:23 - [22岁民警拦截违法车辆被撞牺牲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 17:39 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 17:19 - [小说《无悔追踪》翻红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 17:18 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 17:18 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 17:24 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 17:44 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
-- 2026-06-29 17:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 17:27 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 17:28 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 17:29 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 17:32 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-29 17:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 17:49 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 17:52 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 17:48 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-29 17:44 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 17:53 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [古力娜扎美出新高度](https://www.share.kurohicncr.top/Article/details/3253085849.shtml)
-- 2026-06-29 17:42 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/260175821448.shtml)
-- 2026-06-29 17:22 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/4724241134.shtml)
-- 2026-06-29 17:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/45217.shtml)
-- 2026-06-29 17:41 - [当地回应林区违规放羊遭豹啃食](https://www.blog.kurohicncr.top/Article/details/696393819051.shtml)
-- 2026-06-29 17:41 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/972626311112.shtml)
-- 2026-06-29 17:19 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/59183740.shtml)
-- 2026-06-29 17:47 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/694679378.shtml)
-- 2026-06-29 17:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/04439076674.shtml)
-- 2026-06-29 17:18 - [一生一世](https://www.blog.kurohicncr.top/Article/details/96415254107.shtml)
-- 2026-06-29 17:18 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://www.blog.minike.top/Article/details/35496217819.shtml)
-- 2026-06-29 17:45 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/637581985.shtml)
-- 2026-06-29 17:36 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.blog.minike.top/Article/details/37060.shtml)
-- 2026-06-29 17:45 - [送你一朵小红花](http://www.blog.minike.top/Article/details/80384187975.shtml)
-- 2026-06-29 17:27 - [岛内舆论呼吁民进党放弃“台独”党纲](http://www.blog.minike.top/Article/details/57648.shtml)
+- 2026-06-29 17:45 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/9510718.shtml)
+- 2026-06-29 17:27 - [时光音乐会](https://www.blog.minike.top/Article/details/735875315.shtml)
+- 2026-06-29 17:47 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/37532849.shtml)
+- 2026-06-29 17:52 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/37057917276.shtml)
+- 2026-06-29 17:34 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/894682.shtml)
+- 2026-06-29 17:34 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/0664668.shtml)
+- 2026-06-29 17:52 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/882427569.shtml)
+- 2026-06-29 17:37 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/29478865.shtml)
+- 2026-06-29 17:52 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/25943.shtml)
+- 2026-06-29 17:26 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/80196414057.shtml)
+- 2026-06-29 17:26 - [王曼昱被突如其来的话筒逗笑了](http://www.share.kurohicncr.top/Article/details/7577182.shtml)
+- 2026-06-29 17:46 - [许建琼任湖南省检察院副检察长](https://www.share.kurohicncr.top/Article/details/26183046467.shtml)
+- 2026-06-29 17:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/80014176.shtml)
+- 2026-06-29 17:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/56765662.shtml)
+- 2026-06-29 17:48 - [沙丘](http://www.share.kurohicncr.top/Article/details/997583931.shtml)

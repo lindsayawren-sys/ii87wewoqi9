@@ -1,58 +1,56 @@
-# ETF日报：国内招标持续放量、海外缺电仍在演绎，关注电网设备ETF
+# “创二代”李寒穷接班，能否带领雅戈尔重返“青春”？
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-今日A股震荡盘整，沪指跌0.25%，深证成指跌0.47%，创业板指跌涨0.15%。沪深两市成交额约3.27万亿元，较上日有所缩量。个股跌多涨少，全市场超4000只个股下跌。行业层面，半导体设备、水泥制造、特高压等板块涨幅居前；稀土、工业气体、猪产业等方向则有所回调。 （资料来源：财联社） 昨晚，美股光通信板块全面爆发，Lumentum、Coherent、AAOI等多只标的实现大
+中新网北京5月15日电(记者 王昊)前几天，雅戈尔发布一系列董事会决议公告，其中现任公司副董事长兼总裁李寒穷被提名为公司新一届董事会非独立董事候选人，而创始人兼董事长李如成未出现在名单中。外界普遍解读，这意味着李寒穷大概率即将正式接班父亲李如成，执掌这家百亿服装巨头。 过去几十年，李如成书写了一个草根逆袭与跨界博弈的创业故事。如今，女儿将接过雅戈尔的百亿家业，这位新一代“裁缝”
 
 ## 正文
 
-今日A股震荡盘整，沪指跌0.25%，深证成指跌0.47%，创业板指跌涨0.15%。
+中新网北京5月15日电(记者 王昊)前几天，雅戈尔发布一系列董事会决议公告，其中现任公司副董事长兼总裁李寒穷被提名为公司新一届董事会非独立董事候选人，而创始人兼董事长李如成未出现在名单中。
 
-沪深两市成交额约3.27万亿元，较上日有所缩量。
+外界普遍解读，这意味着李寒穷大概率即将正式接班父亲李如成，执掌这家百亿服装巨头。
 
-个股跌多涨少，全市场超4000只个股下跌。
+过去几十年，李如成书写了一个草根逆袭与跨界博弈的创业故事。
 
-行业层面，半导体设备、水泥制造、特高压等板块涨幅居前；稀土、工业气体、猪产业等方向则有所回调。
+如今，女儿将接过雅戈尔的百亿家业，这位新一代“裁缝”面临的不再是白手起家的艰辛，而是主业利润微薄、品牌形象偏成熟、对年轻群体吸引力不足的转型阵痛。
 
-（资料来源：财联社） 昨晚，美股光通信板块全面爆发，Lumentum、Coherent、AAOI等多只标的实现大涨，同时芯片半导体领域也在延续上涨态势。
+从青春到雅戈尔 李寒穷，非常少见的名字。
 
-受到美股映射影响，今日A股半导体设备和通信板块表现也相对较好。
+有媒体报道，这个名字的来源与其父亲李如成的人生经历有关。
 
-今日小作文颇多，主要还是围绕“券商杠杆要求”有一定的讨论，因此市场情绪有所扰动。
+1977年李寒穷出生时，正值他人生最煎熬的阶段，寒意正浓，但也正是苦尽甘来、人生即将触底反弹的时刻。
 
-不过一般短期放量大涨之后，市场波动性也会有所增加。
+从雅戈尔的发展历史来看，似乎确实如此。
 
 ## 相关推荐
 
-- 2026-06-29 17:43 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 17:25 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-29 17:22 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 17:45 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 17:43 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-29 17:41 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 17:28 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 17:21 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 17:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 17:47 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 17:26 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 17:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 17:24 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 17:42 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 17:38 - [东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 17:53 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 17:39 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 17:40 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 17:47 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 17:25 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 17:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 17:28 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/643770892.shtml)
-- 2026-06-29 17:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/2726679940.shtml)
-- 2026-06-29 17:23 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.share.kurohicncr.top/Article/details/3101797.shtml)
-- 2026-06-29 17:20 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/802957.shtml)
-- 2026-06-29 17:46 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/19826597659.shtml)
-- 2026-06-29 17:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/0785909.shtml)
-- 2026-06-29 17:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/18088204162.shtml)
-- 2026-06-29 17:42 - [青春环游记第三季](http://www.blog.minike.top/Article/details/3855067189.shtml)
-- 2026-06-29 17:36 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.kurohicncr.top/Article/details/9472376.shtml)
-- 2026-06-29 17:41 - [金刚川](https://www.blog.minike.top/Article/details/9609193.shtml)
-- 2026-06-29 17:33 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/051675185014.shtml)
-- 2026-06-29 17:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/460849910.shtml)
-- 2026-06-29 17:38 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/96142550.shtml)
-- 2026-06-29 17:28 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/640190873.shtml)
-- 2026-06-29 17:26 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/17337684.shtml)
+- 2026-06-29 17:48 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/0777766.shtml)
+- 2026-06-29 17:28 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/101786585.shtml)
+- 2026-06-29 17:24 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/66931.shtml)
+- 2026-06-29 17:27 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/20111900097.shtml)
+- 2026-06-29 17:39 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/76484314600.shtml)
+- 2026-06-29 17:50 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/12368.shtml)
+- 2026-06-29 17:26 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/18968.shtml)
+- 2026-06-29 17:30 - [沙特外交大臣将访华](https://www.share.kurohicncr.top/Article/details/2489548.shtml)
+- 2026-06-29 17:45 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.minike.top/Article/details/1975496.shtml)
+- 2026-06-29 17:37 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/9719521.shtml)
+- 2026-06-29 17:27 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/352006.shtml)
+- 2026-06-29 17:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/326081476.shtml)
+- 2026-06-29 17:28 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/79062008.shtml)
+- 2026-06-29 17:32 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/244113266892.shtml)
+- 2026-06-29 17:46 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/385697438.shtml)

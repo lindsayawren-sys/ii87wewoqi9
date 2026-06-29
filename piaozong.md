@@ -1,46 +1,57 @@
-# 日本：一大型电机企业被曝存在大量违规问题
+# 多所高校撤销外语专业 外语类高校增加工科专业
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 09:06 来源：央视新闻 责任编辑：【王祎】
+近年来不少高校外语学院、外语类高校都在打造融合式专业，积极打造“外语+” 培养模式。 随着人工智能的发展及多种因素，外语类专业面临着诸多挑战。近年来，多所高校撤销或停招部分外语专业。 此前不久，教育部公布2025年度普通高等学校本科专业备案和审批结果。一些省份也公布了去年新增和撤销专业的情况。在新增151个本科专业点的同时，江苏高校撤销了55个专业点，包括电子商务、旅游管理、动
 
 ## 正文
 
-发布时间：2026年05月14日 09:06 来源：央视新闻 责任编辑：【王祎】
+近年来不少高校外语学院、外语类高校都在打造融合式专业，积极打造“外语+” 培养模式。
+
+随着人工智能的发展及多种因素，外语类专业面临着诸多挑战。
+
+近年来，多所高校撤销或停招部分外语专业。
+
+此前不久，教育部公布2025年度普通高等学校本科专业备案和审批结果。
+
+一些省份也公布了去年新增和撤销专业的情况。
+
+在新增151个本科专业点的同时，江苏高校撤销了55个专业点，包括电子商务、旅游管理、动画、美术学、市场营销、工商管理、劳动与社会保障、土地资源管理、公共事业管理、广播电视学、保险学、广告学、日语、朝鲜语等。
+
+麦可思研究根据高校信息公开网、最新的招生专业目录等，梳理统计了70所本科高校最新公布的停招专业名单，共涉及525个本科专业。
+
+其中，语言类专业调整较为明显。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 17:30 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 17:30 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 17:46 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 17:19 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 17:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 17:42 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 17:32 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 17:42 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 17:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 17:24 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 17:19 - [每代父母都困在自己的时代里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 17:40 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 17:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 17:51 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 17:39 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 17:45 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 17:43 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 17:50 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 17:25 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 17:50 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 17:39 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 17:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 17:49 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 17:52 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/45917023.shtml)
-- 2026-06-29 17:37 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/91065.shtml)
-- 2026-06-29 17:44 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/45973.shtml)
-- 2026-06-29 17:37 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/16306.shtml)
-- 2026-06-29 17:29 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/593896910.shtml)
-- 2026-06-29 17:37 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/716230710792.shtml)
-- 2026-06-29 17:21 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/182511.shtml)
-- 2026-06-29 17:42 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/49001658389.shtml)
-- 2026-06-29 17:44 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/506025828.shtml)
-- 2026-06-29 17:38 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/7634527.shtml)
-- 2026-06-29 17:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/944458522.shtml)
-- 2026-06-29 17:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/75819.shtml)
-- 2026-06-29 17:25 - [斗破苍穹](https://www.share.minike.top/Article/details/63072898.shtml)
-- 2026-06-29 17:44 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/5984357250.shtml)
-- 2026-06-29 17:30 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/1412942.shtml)
+- 2026-06-29 17:40 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/207830819811.shtml)
+- 2026-06-29 17:38 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/2545326.shtml)
+- 2026-06-29 17:25 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/76613603143.shtml)
+- 2026-06-29 17:38 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/90670.shtml)
+- 2026-06-29 17:25 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/179375.shtml)
+- 2026-06-29 17:27 - [每天通勤往返3h的感觉](http://www.blog.minike.top/Article/details/3996322.shtml)
+- 2026-06-29 17:52 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/6934855.shtml)
+- 2026-06-29 17:27 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/19714814872.shtml)
+- 2026-06-29 17:26 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/05854.shtml)
+- 2026-06-29 17:51 - [西十高铁让“朝秦暮楚”之地活了](http://www.blog.minike.top/Article/details/27020101.shtml)
+- 2026-06-29 17:40 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/26968.shtml)
+- 2026-06-29 17:28 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/52974.shtml)
+- 2026-06-29 17:30 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/157772.shtml)
+- 2026-06-29 17:44 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/732333.shtml)
+- 2026-06-29 17:45 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/1181187033.shtml)

@@ -1,58 +1,59 @@
-# On Holding业绩亮眼却股价大跌，市场聚焦关税隐忧
+# 福建各界关爱残疾群体 共绘幸福民生画卷
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-尽管On Holding周二盘前交出了一份超预期的一季报，并同步上调了全年盈利指引，但公司股价却重挫逾5%，上演“业绩涨股价跌”的戏码。 财报显示，这家瑞士跑鞋制造商业绩全面飘红。在截至3月31日的季度内，净销售额同比增长14.5%至8.319亿瑞士法郎，超出市场预期的8.185亿瑞士法郎；调整后每股收益达0.37瑞士法郎，远高于分析师平均预期的0.27瑞士法郎。公司毛利率从5
+中新网福州5月17日电 (叶秋云)在福建这片充满温情的土地上，众多企业家与爱心人士接力聚力，为残疾人搭建就业创业平台，用科技赋能为他们重燃生命希望，助力残障群体走出家门、融入社会，在双向奔赴中生动诠释着“春天的事业”的温度与力量。 从异乡漂泊到安稳扎根 “累倒是不会，工作强度也还好，这个活不用特别费劲。”近日，在永辉彩食鲜供应链管理有限公司(以下简称“彩食鲜”)，40多岁的黄桂
 
 ## 正文
 
-尽管On Holding周二盘前交出了一份超预期的一季报，并同步上调了全年盈利指引，但公司股价却重挫逾5%，上演“业绩涨股价跌”的戏码。
+中新网福州5月17日电 (叶秋云)在福建这片充满温情的土地上，众多企业家与爱心人士接力聚力，为残疾人搭建就业创业平台，用科技赋能为他们重燃生命希望，助力残障群体走出家门、融入社会，在双向奔赴中生动诠释着“春天的事业”的温度与力量。
 
-财报显示，这家瑞士跑鞋制造商业绩全面飘红。
+从异乡漂泊到安稳扎根 “累倒是不会，工作强度也还好，这个活不用特别费劲。
 
-在截至3月31日的季度内，净销售额同比增长14.5%至8.319亿瑞士法郎，超出市场预期的8.185亿瑞士法郎；调整后每股收益达0.37瑞士法郎，远高于分析师平均预期的0.27瑞士法郎。
+”近日，在永辉彩食鲜供应链管理有限公司(以下简称“彩食鲜”)，40多岁的黄桂生一边清扫着厂区道路，一边笑着说。
 
-公司毛利率从59.9%大幅提升至64.2%，净利润同比飙升82.2%至1.033亿瑞士法郎。
+这位来自福建三明的残疾人，自去年便来到彩食鲜工作，主要负责清洁工作。
 
-分地区看，亚太市场表现尤为亮眼，销售额同比大增44.4%；欧洲、中东及非洲市场增长22.8%；美洲市场仅微增3.1%。
+在此之前，他曾在老家辗转谋生，却始终难寻一份稳定的差事。
 
-鞋类业务仍是收入支柱，贡献7.637亿瑞士法郎，而服装及配饰业务分别实现45%和71%的高速增长。
+如今，黄桂生在厂区附近租了房子，家人偶尔来探望。
 
-展望未来，On Holding将全年净销售额增长预期维持在至少23%（按固定汇率计），同时将毛利率指引从63%上调至至少64.5%，调整后EBITDA利润率预计在19.5%至20.0%之间。
+“他们都说很好，觉得我在这里挺安稳的。
 
-分析人士指出，股价逆势下跌主要反映了市场对关税风险的担忧。
+”黄桂生的话语里皆是满足，他说，厂区里有不少像他一样的伙伴，大家互相帮助、彼此做伴，让这份看似平凡的工作多了几分温暖。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 17:25 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 17:39 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 17:29 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 17:45 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 17:27 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 17:25 - [叠纸客服回应恋与深空新角色争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 17:47 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 17:47 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 17:43 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 17:35 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-29 17:18 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 17:33 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 17:42 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 17:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 17:51 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 17:36 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 17:50 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 17:31 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 17:48 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 17:37 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 17:33 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 17:46 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 17:30 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 17:37 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:19 - [赵今麦时隔五年再演李诗情](http://www.blog.minike.top/Article/details/169325.shtml)
-- 2026-06-29 17:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/143822.shtml)
-- 2026-06-29 17:34 - [曹格把擦腋下的毛巾扔给粉丝](https://www.blog.kurohicncr.top/Article/details/14519270.shtml)
-- 2026-06-29 17:18 - [张雪机车杀向海外](https://www.share.kurohicncr.top/Article/details/8592153.shtml)
-- 2026-06-29 17:34 - [范志毅看好日本淘汰巴西](http://www.share.kurohicncr.top/Article/details/69036291.shtml)
-- 2026-06-29 17:23 - [明星大侦探第一季](http://www.share.minike.top/Article/details/824197033385.shtml)
-- 2026-06-29 17:42 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/998210.shtml)
-- 2026-06-29 17:24 - [宜宾地震后铁路工作人员叫停列车](https://www.blog.kurohicncr.top/Article/details/37501172.shtml)
-- 2026-06-29 17:34 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/82816126.shtml)
-- 2026-06-29 17:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/50008968.shtml)
-- 2026-06-29 17:30 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/5062780.shtml)
-- 2026-06-29 17:36 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/8130182.shtml)
-- 2026-06-29 17:22 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/13422.shtml)
-- 2026-06-29 17:41 - [截瘫男子心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/82802645590.shtml)
-- 2026-06-29 17:20 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/7886425.shtml)
+- 2026-06-29 17:49 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.share.kurohicncr.top/Article/details/05351574601.shtml)
+- 2026-06-29 17:46 - [当家电外通风口出现鸟窝](https://www.blog.minike.top/Article/details/33263480.shtml)
+- 2026-06-29 17:48 - [永远有话聊的原因](https://www.share.minike.top/Article/details/07048786019.shtml)
+- 2026-06-29 17:42 - [啊啊啊](http://www.share.minike.top/Article/details/5894255.shtml)
+- 2026-06-29 17:34 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/109505.shtml)
+- 2026-06-29 17:24 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/6829219.shtml)
+- 2026-06-29 17:31 - [TTG KSG](http://www.blog.kurohicncr.top/Article/details/0576817.shtml)
+- 2026-06-29 17:45 - [金牌调解](http://www.share.minike.top/Article/details/358157843.shtml)
+- 2026-06-29 17:38 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/79505413.shtml)
+- 2026-06-29 17:38 - [每天通勤往返3h的感觉](https://www.share.kurohicncr.top/Article/details/33642.shtml)
+- 2026-06-29 17:39 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/9137924.shtml)
+- 2026-06-29 17:32 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/4057175.shtml)
+- 2026-06-29 17:29 - [“养路费”谁来交 油电车主大吵](http://www.share.kurohicncr.top/Article/details/480059.shtml)
+- 2026-06-29 17:30 - [老板回应员工光脚清洗土豆](https://www.share.minike.top/Article/details/6504806.shtml)
+- 2026-06-29 17:28 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.kurohicncr.top/Article/details/1864114.shtml)

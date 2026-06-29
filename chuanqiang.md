@@ -1,56 +1,56 @@
-# 南宁江北中堤水毁段应急抢险工程封顶 邕江防洪屏障进一步巩固
+# 星巴克再裁300名企业员工并关闭多地办公室
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月13日电(张广权 谢敏 罗春梅)广西南宁市江北中堤二坑口水毁段应急抢险工程防洪堤12日顺利封顶。堤防现已具备防洪挡水能力，为后续机电金结安装、园区道路及绿化恢复施工筑牢坚实基础。 2025年10月，受台风天气影响，邕江水位持续上涨，造成江北中堤二坑水闸出现渗漏险情。中国安能一局第一时间抽调专业抢险力量驰援现场，高效稳妥完成应急处置工作。险情处置结束后，受地方政府部
+星巴克公司近日宣布，作为“回归星巴克”转型战略的一部分，公司正在裁减300个美国企业岗位。这些职位分布在美国各地，包括位于西雅图的总部。公司同时表示，正在审查海外企业岗位，预计未来将有更多非美国本土职位被裁减。 关闭四座区域办公室 除裁员外，星巴克还将关闭位于亚特兰大、芝加哥、达拉斯和加州伯班克的四座区域支持办公室。这些办公室原本是支持所在地区门店运营的枢纽，关闭后大部分员工将
 
 ## 正文
 
-中新网南宁5月13日电(张广权 谢敏 罗春梅)广西南宁市江北中堤二坑口水毁段应急抢险工程防洪堤12日顺利封顶。
+星巴克公司近日宣布，作为“回归星巴克”转型战略的一部分，公司正在裁减300个美国企业岗位。
 
-堤防现已具备防洪挡水能力，为后续机电金结安装、园区道路及绿化恢复施工筑牢坚实基础。
+这些职位分布在美国各地，包括位于西雅图的总部。
 
-2025年10月，受台风天气影响，邕江水位持续上涨，造成江北中堤二坑水闸出现渗漏险情。
+公司同时表示，正在审查海外企业岗位，预计未来将有更多非美国本土职位被裁减。
 
-中国安能一局第一时间抽调专业抢险力量驰援现场，高效稳妥完成应急处置工作。
+关闭四座区域办公室 除裁员外，星巴克还将关闭位于亚特兰大、芝加哥、达拉斯和加州伯班克的四座区域支持办公室。
 
-险情处置结束后，受地方政府部门委托，该局承接该水毁段灾后重建施工任务。
+这些办公室原本是支持所在地区门店运营的枢纽，关闭后大部分员工将转为远程办公。
 
-自进场施工以来，中国安能一局优化人员设备配置，配齐建强项目管理团队、施工班组及各类施工机械，全力保障工程推进。
+与此同时，星巴克正在纳什维尔投资1亿美元建立新的支持中心，预计未来五年内将容纳2000名员工。
 
-施工期间，项目团队先后攻克污水管渗漏、静载试验滞后、地质条件复杂等多项施工难题。
+重组成本与转型背景 星巴克预计将承担约4亿美元的重组费用，其中2.8亿美元为非现金资产减值，1.2亿美元为员工遣散补偿金。
 
-针对复杂地质易引发塌孔、地面沉降等问题，项目优化桩基施工工艺，采用专用护筒加固孔位，严格管控泥浆液面高程，规范护筒埋设、黏土夯实等施工流程，保持钻孔作业连续施工，同步做好施工隐患排查与上报处置，有效解决旋挖桩塌孔难题。
+这是首席执行官布莱恩·尼科尔主导的转型战略的一部分，公司正通过新产品、加大营销和优化订单服务来摆脱销售低迷，并计划在两年内削减20亿美元成本。
 
 ## 相关推荐
 
-- 2026-06-29 17:37 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 17:40 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 17:23 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 17:36 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 17:20 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 17:35 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 17:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 17:31 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 17:18 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 17:29 - [安徽水利厅启动洪水防御Ⅳ级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 17:26 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 17:31 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 17:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 17:52 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 17:41 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 17:28 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 17:25 - [东方风云榜红毯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 17:28 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 17:28 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 17:43 - [谢依霖夸杨幂靠谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:45 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/03411.shtml)
-- 2026-06-29 17:34 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/36699044251.shtml)
-- 2026-06-29 17:45 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/091328890238.shtml)
-- 2026-06-29 17:34 - [博主：黄金和原油回落不等于风险消失](https://www.share.minike.top/Article/details/07578547166.shtml)
-- 2026-06-29 17:46 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/74539.shtml)
-- 2026-06-29 17:37 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/338971286355.shtml)
-- 2026-06-29 17:31 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/166326074184.shtml)
-- 2026-06-29 17:27 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/41900684.shtml)
-- 2026-06-29 17:46 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/5870289.shtml)
-- 2026-06-29 17:36 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/63919935.shtml)
-- 2026-06-29 17:35 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/332637919078.shtml)
-- 2026-06-29 17:22 - [人类对空调和其他家电有多双标](https://www.blog.minike.top/Article/details/52059845851.shtml)
-- 2026-06-29 17:19 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/135293.shtml)
-- 2026-06-29 17:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/68688182.shtml)
-- 2026-06-29 17:25 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/699919985386.shtml)
+- 2026-06-29 17:43 - [小说《无悔追踪》翻红](https://www.share.kurohicncr.top/Article/details/15579.shtml)
+- 2026-06-29 17:31 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/89807.shtml)
+- 2026-06-29 17:41 - [流金岁月](https://www.blog.minike.top/Article/details/963551695.shtml)
+- 2026-06-29 17:30 - [美的“卡bug”空调在欧洲卖爆](http://www.share.minike.top/Article/details/996364.shtml)
+- 2026-06-29 17:50 - [港股蓝筹股的落寞才刚刚开始吗](https://www.blog.kurohicncr.top/Article/details/46066907841.shtml)
+- 2026-06-29 17:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/424684.shtml)
+- 2026-06-29 17:43 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.kurohicncr.top/Article/details/7105923469.shtml)
+- 2026-06-29 17:31 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/4833439.shtml)
+- 2026-06-29 17:33 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/40034130829.shtml)
+- 2026-06-29 17:29 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/03592.shtml)
+- 2026-06-29 17:24 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/98971401097.shtml)
+- 2026-06-29 17:42 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/768738.shtml)
+- 2026-06-29 17:34 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/4081398.shtml)
+- 2026-06-29 17:49 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/5080902.shtml)
+- 2026-06-29 17:24 - [毒液2](http://www.share.minike.top/Article/details/4845306286.shtml)

@@ -1,60 +1,55 @@
-# PPL宣布每股0.285美元季度股息，延续稳定分红政策
+# 中美关系是当今世界最重要的双边关系 习主席深刻阐释
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-PPL Corporation周三宣布，公司董事会已批准派发每股0.285美元的季度股息。 股息详情与支付安排 根据公司公告，本次股息将于2026年7月1日支付给6月10日登记在册的股东。此次派息延续了上一季度的分红水平，体现了公司对股东回报的持续承诺。 一季度业绩稳健，支撑分红政策 此次股息公告正值公司一季度财报发布之后。财报数据显示，PPL 2026年第一季度营收达27.7
+14日，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。当晚，习近平主席举行宴会，欢迎特朗普总统访华。15日上午，习近平主席在中南海同美国总统特朗普举行小范围会晤。两国元首就事关两国和世界的重大问题深入交换意见，达成一系列重要共识。 监制丨李浙 主编丨王兴栋 潘梦莹 制图丨孟祥龙 毕野
 
 ## 正文
 
-PPL Corporation周三宣布，公司董事会已批准派发每股0.285美元的季度股息。
+14日，国家主席习近平在北京人民大会堂同来华进行国事访问的美国总统特朗普举行会谈。
 
-股息详情与支付安排 根据公司公告，本次股息将于2026年7月1日支付给6月10日登记在册的股东。
+当晚，习近平主席举行宴会，欢迎特朗普总统访华。
 
-此次派息延续了上一季度的分红水平，体现了公司对股东回报的持续承诺。
+15日上午，习近平主席在中南海同美国总统特朗普举行小范围会晤。
 
-一季度业绩稳健，支撑分红政策 此次股息公告正值公司一季度财报发布之后。
+两国元首就事关两国和世界的重大问题深入交换意见，达成一系列重要共识。
 
-财报数据显示，PPL 2026年第一季度营收达27.74亿美元，同比增长10.8%；GAAP每股收益为0.60美元，持续经营业务每股收益为0.63美元，高于去年同期的0.60美元。
-
-公司重申2026年持续经营业务每股收益指引区间为1.90至1.98美元。
-
-长期增长目标与资本投资计划 PPL同时重申其长期财务目标：通过2029年实现6%至8%的年每股收益增长。
-
-公司持续推进约230亿美元的资本投资计划，以加强和现代化电网及天然气网络。
+监制丨李浙 主编丨王兴栋 潘梦莹 制图丨孟祥龙 毕野
 
 ## 相关推荐
 
-- 2026-06-29 17:24 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 17:23 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 17:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 17:23 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 17:33 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 17:45 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 17:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 17:28 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-29 17:45 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 17:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 17:26 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-29 17:18 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 17:26 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 17:38 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 17:25 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 17:27 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 17:26 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 17:50 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 17:29 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 17:25 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 17:37 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 17:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 17:34 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 17:25 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 17:49 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 17:49 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 17:26 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 17:45 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 17:36 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:42 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/627852927436.shtml)
-- 2026-06-29 17:37 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/716179865460.shtml)
-- 2026-06-29 17:19 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/97461196.shtml)
-- 2026-06-29 17:35 - [TTG KSG](https://www.blog.minike.top/Article/details/6032742192.shtml)
-- 2026-06-29 17:40 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/222674676.shtml)
-- 2026-06-29 17:25 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/8711334527.shtml)
-- 2026-06-29 17:32 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/73523246437.shtml)
-- 2026-06-29 17:41 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/71003085.shtml)
-- 2026-06-29 17:19 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/64294912.shtml)
-- 2026-06-29 17:25 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/3276263.shtml)
-- 2026-06-29 17:28 - [重度抑郁女孩没钱去做心理咨询](https://www.share.kurohicncr.top/Article/details/18039750940.shtml)
-- 2026-06-29 17:45 - [美国大满贯首日国乒主力均取胜](http://www.blog.minike.top/Article/details/610838049.shtml)
-- 2026-06-29 17:38 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/70667708497.shtml)
-- 2026-06-29 17:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/22607956993.shtml)
-- 2026-06-29 17:38 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/73194862.shtml)
+- 2026-06-29 17:51 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/6782324031.shtml)
+- 2026-06-29 17:38 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/401979884636.shtml)
+- 2026-06-29 17:33 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/699334041.shtml)
+- 2026-06-29 17:48 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/94681247058.shtml)
+- 2026-06-29 17:31 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/150616014.shtml)
+- 2026-06-29 17:49 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/940758008.shtml)
+- 2026-06-29 17:40 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/13926581.shtml)
+- 2026-06-29 17:29 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/537748.shtml)
+- 2026-06-29 17:42 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/3988645668.shtml)
+- 2026-06-29 17:30 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/396964.shtml)
+- 2026-06-29 17:27 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/7079741.shtml)
+- 2026-06-29 17:41 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/264485658.shtml)
+- 2026-06-29 17:48 - [首个靠AI躺赢的国家](http://www.blog.minike.top/Article/details/751103426334.shtml)
+- 2026-06-29 17:25 - [造谣县城满街都是小混混 男子被拘](https://www.blog.minike.top/Article/details/72568.shtml)
+- 2026-06-29 17:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/6059852211.shtml)

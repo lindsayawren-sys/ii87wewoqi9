@@ -1,57 +1,60 @@
-# 丹诺医药-B于5月14日至5月19日招股 预计5月22日上市
+# “人工智能＋”应用场景典型案例展示活动在乌鲁木齐举办
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-丹诺医药-B（06872）于2026年5月14日至5月19日招股，该公司拟全球发售828.055万股，其中香港发售占10%，国际发售占90%，发售价将为每股发售股份75.70港元，每手50股，预期股份将于2026年5月22日在联交所开始买卖。 公司于2013年注册成立，是一家临近商业化阶段的生物科技公司，专注于发现、开发及商业化差异化的创新药产品，以解决细菌感染及细菌代谢相关疾
+“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？年轻人的第一台“新家电”，为什
 
 ## 正文
 
-丹诺医药-B（06872）于2026年5月14日至5月19日招股，该公司拟全球发售828.055万股，其中香港发售占10%，国际发售占90%，发售价将为每股发售股份75.70港元，每手50股，预期股份将于2026年5月22日在联交所开始买卖。
+“空军一号”上让特朗普放下汉堡薯条的，是这三道“中餐”中国经济动能转换 融资结构现新变化印尼盾被低估了？
 
-公司于2013年注册成立，是一家临近商业化阶段的生物科技公司，专注于发现、开发及商业化差异化的创新药产品，以解决细菌感染及细菌代谢相关疾病领域的未被满足临床需求。
+书记省长密集会见民营企业家 政企互动促进高质量发展揭秘爆火的《ENEMY》：成本超百万 将有中长剧版多地网约车司机违规考核落地 绕道等列入“黑榜”行为烧烤摊主停业捐髓救助患者 带动多人加入中华骨髓库排队时间长、回复不及时……互联网医院“堵”在哪？
 
-截至最后实际可行日期，公司已建立一条由七项创新项目组成的管线，包括两项核心产品，即：利福特尼唑（TNP-2198），一款新分子实体（“NME”）候选药物在中国及美国作为三联疗法的一部分与阿莫西林和PPI联合使用治疗幽门螺杆菌感染，亦在中国作为单药疗法用于治疗细菌性阴道病及艰难梭菌感染；及利福喹酮（TNP-2092注射剂），一款三靶点治疗植入体相关细菌感染（如急性细菌性皮肤及皮肤结构感染（“ABSSSI”）及人工关节感染（“PJI”）以及在中国及美国治疗左心室辅助装置感染（“LVADI”）及中心静脉导管相关血流感染（“CRBSI”））的候选药物。
+年轻人的第一台“新家电”，为什么是3D打印机？
 
-公司已订立基石投资协议，据此基石投资者（AMR Action Fund， L.P、AMR Action Fund， SCSp、华圆管理咨询（香港）有限公司、东方资产管理（香港）有限公司、骏升环球有限公司）已同意（在若干条件规限下）按发售价认购合共2980万美元（或约2.335亿港元）可购买的相关数目的发售股份。
+人这一辈子，一定要去一趟眉山！
 
-按每股发售股份75.70港元的发售价计算，基石投资者将认购的发售股份总数将为308.44万股。
+王帆：中美合作共赢具有可持续性且有利于双方美国总统特朗普访华，为何逛北京的这座公园？
 
-假设发售量调整权及超额配股权未获行使且基于发售价为每股75.70港元，公司估计将获得全球发售所得款项净额约5.578亿港元。
+鸟归巢，人归乡：归国藏胞从“寻根”到“扎根”中美元首共同参观祈年殿！
 
-公司拟将全球发售所得款项净额用于以下用途：71.0%将用于公司核心产品的研究、开发、注册备案及商业化；7.0%将用于为TNP-2092口服制剂的研发提供资金；7.3%将用于研发公司的其他候选产品；7.2%将用于建设公司自有工厂；及7.5%将用作营运资金及其他一般公司用途。
+告诉你一个你所不知道的天坛天热了车里别放这些东西！
 
-责任编辑：卢昱君
+已有车辆遭“封印”用AI、大蒜鉴别野生菌毒性靠谱吗？
 
 ## 相关推荐
 
-- 2026-06-29 17:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 17:43 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:25 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 17:41 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 17:29 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 17:38 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 17:39 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 17:26 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-29 17:20 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 17:39 - [业内：全球市场迎来结构性投资窗口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 17:28 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-29 17:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 17:43 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 17:28 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 17:29 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 17:44 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 17:36 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 17:37 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 17:37 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 17:53 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 17:29 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 17:50 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 17:38 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 17:47 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 17:41 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:47 - [戒掉咖啡后我的身体变化](https://www.share.minike.top/Article/details/2563426.shtml)
-- 2026-06-29 17:25 - [倪春青跨市履新苏州市委组织部部长](https://www.blog.kurohicncr.top/Article/details/50757551703.shtml)
-- 2026-06-29 17:20 - [唐艺昕告别浪姐千字长文](https://www.blog.kurohicncr.top/Article/details/211606049.shtml)
-- 2026-06-29 17:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/606471369.shtml)
-- 2026-06-29 17:31 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/8835955924.shtml)
-- 2026-06-29 17:32 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/04925.shtml)
-- 2026-06-29 17:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/65880.shtml)
-- 2026-06-29 17:21 - [欧洲人买空调难点在哪](https://www.blog.kurohicncr.top/Article/details/5038461429.shtml)
-- 2026-06-29 17:28 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/837682.shtml)
-- 2026-06-29 17:45 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/663279.shtml)
-- 2026-06-29 17:23 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/422041.shtml)
-- 2026-06-29 17:38 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/912463.shtml)
-- 2026-06-29 17:30 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/916728.shtml)
-- 2026-06-29 17:33 - [扬名立万](https://www.share.kurohicncr.top/Article/details/82587540854.shtml)
-- 2026-06-29 17:26 - [新能源车能当外接空调用吗](http://www.blog.kurohicncr.top/Article/details/04723494654.shtml)
+- 2026-06-29 17:40 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/42754.shtml)
+- 2026-06-29 17:33 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/25288107736.shtml)
+- 2026-06-29 17:49 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/98568.shtml)
+- 2026-06-29 17:29 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/236086.shtml)
+- 2026-06-29 17:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/523698830.shtml)
+- 2026-06-29 17:50 - [天价门票抬高美加墨世界杯观赛门槛](http://www.share.kurohicncr.top/Article/details/82367206.shtml)
+- 2026-06-29 17:26 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/27460.shtml)
+- 2026-06-29 17:28 - [每代父母都困在自己的时代里](https://www.share.minike.top/Article/details/4678424.shtml)
+- 2026-06-29 17:31 - [消息称斯塔默有意竞逐下任北约秘书长](https://www.share.minike.top/Article/details/8065719.shtml)
+- 2026-06-29 17:25 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/6652437394.shtml)
+- 2026-06-29 17:27 - [媒体：听清自己内心的声音再填志愿](https://www.blog.kurohicncr.top/Article/details/56673.shtml)
+- 2026-06-29 17:31 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/0451340.shtml)
+- 2026-06-29 17:29 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/321436.shtml)
+- 2026-06-29 17:32 - [斗破苍穹](https://www.share.minike.top/Article/details/25172107.shtml)
+- 2026-06-29 17:35 - [NBA交易](https://www.blog.minike.top/Article/details/8434480724.shtml)

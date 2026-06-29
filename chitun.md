@@ -1,61 +1,59 @@
-# 习近平同塔吉克斯坦总统拉赫蒙会谈
+# 稳猪价再发力！新版生猪产能调控方案出炉 融资客提前押注多股(名单)
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-新华社北京5月12日电（记者温馨）5月12日下午，国家主席习近平在北京人民大会堂同来华进行国事访问的塔吉克斯坦总统拉赫蒙举行会谈。 习近平祝贺塔吉克斯坦独立35周年并取得国家建设重大成就。习近平指出，相互坚定支持是中塔关系的核心要义。无论外部环境如何变化，中塔两国永远是守望相助的好邻居、坦诚互信的好朋友、携手发展的好伙伴。双方签署《中塔永久睦邻友好合作条约》，将充分展现两国高水
+农业农村部正式印发修订版生猪产能调控方案，设定全国能繁母猪正常保有量稳定在3750万头左右。这是自2024年2月以来再次下调正常保有量目标。 全国能繁母猪正常保有量目标将动态调整 为完善生猪逆周期政策调控机制，提高调控工作精准性，推动猪价保持在合理水平，农业农村部14日印发《生猪产能综合调控实施方案（2026年修订）》。 其中提出，“十五五”初期，以满足全国猪肉消费正常需求为基
 
 ## 正文
 
-新华社北京5月12日电（记者温馨）5月12日下午，国家主席习近平在北京人民大会堂同来华进行国事访问的塔吉克斯坦总统拉赫蒙举行会谈。
+农业农村部正式印发修订版生猪产能调控方案，设定全国能繁母猪正常保有量稳定在3750万头左右。
 
-习近平祝贺塔吉克斯坦独立35周年并取得国家建设重大成就。
+这是自2024年2月以来再次下调正常保有量目标。
 
-习近平指出，相互坚定支持是中塔关系的核心要义。
+全国能繁母猪正常保有量目标将动态调整 为完善生猪逆周期政策调控机制，提高调控工作精准性，推动猪价保持在合理水平，农业农村部14日印发《生猪产能综合调控实施方案（2026年修订）》。
 
-无论外部环境如何变化，中塔两国永远是守望相助的好邻居、坦诚互信的好朋友、携手发展的好伙伴。
+其中提出，“十五五”初期，以满足全国猪肉消费正常需求为基准，设定全国能繁母猪正常保有量稳定在3750万头左右。
 
-双方签署《中塔永久睦邻友好合作条约》，将充分展现两国高水平政治互信，为中塔世代友好提供坚实保障。
+之后，将根据生猪生产效率和猪肉消费量等变化情况，动态调整全国能繁母猪正常保有量目标。
 
-中方愿同塔方一道，推动构建更加紧密的中塔命运共同体，更好造福两国人民。
+《方案》还明确，适当收紧能繁母猪存栏量绿色区域和黄色区域上限以及黄色区域下限，建立产能分级联动调控机制，强化生产和市场预期引导，促进生猪市场供需更加适配。
 
-习近平强调，中方将一如既往支持塔吉克斯坦走符合自身国情的发展道路，支持塔方维护国家独立、主权和安全。
+农业农村部表示，将密切跟踪方案落实情况，加强监测预警，压实地方属地责任，强化政策协同，健全上下联动、响应及时的生猪产能综合调控机制，推动生猪价格保持在合理水平，更好稳定产业发展。
 
-今年是中国“十五五”开局之年，塔方也在全力推进“2030年前国家发展战略”。
+值得注意的是，4月底召开的中央政治局会议强调，抓好农业生产，稳定生猪等农产品价格。
 
 ## 相关推荐
 
-- 2026-06-29 17:23 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 17:42 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 17:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 17:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 17:24 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 17:41 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 17:44 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 17:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 17:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 17:35 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 17:19 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 17:44 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 17:42 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 17:43 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-29 17:42 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 17:34 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 17:31 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 17:45 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 17:32 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 17:46 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 17:25 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 17:30 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 17:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-29 17:26 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 17:26 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 17:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 17:28 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 17:51 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/548500.shtml)
-- 2026-06-29 17:39 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/268348.shtml)
-- 2026-06-29 17:43 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/76805.shtml)
-- 2026-06-29 17:39 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/9033389.shtml)
-- 2026-06-29 17:23 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/4195677.shtml)
-- 2026-06-29 17:34 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/235750469869.shtml)
-- 2026-06-29 17:32 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/044946293477.shtml)
-- 2026-06-29 17:28 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/562074949.shtml)
-- 2026-06-29 17:18 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/6675814002.shtml)
-- 2026-06-29 17:18 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/29878.shtml)
-- 2026-06-29 17:40 - [剧宣天才虞书欣发力了](https://www.blog.minike.top/Article/details/44006.shtml)
-- 2026-06-29 17:41 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/0155130093.shtml)
-- 2026-06-29 17:41 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/625727109.shtml)
-- 2026-06-29 17:28 - [美人鱼](http://www.share.kurohicncr.top/Article/details/2252111218.shtml)
-- 2026-06-29 17:47 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/6544041057.shtml)
+- 2026-06-29 17:36 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/886226.shtml)
+- 2026-06-29 17:37 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/189594963.shtml)
+- 2026-06-29 17:42 - [货车司机雨中帮交警挪树获表扬](http://www.blog.minike.top/Article/details/8031791.shtml)
+- 2026-06-29 17:46 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/602926.shtml)
+- 2026-06-29 17:25 - [倪春青跨市履新苏州市委组织部部长](https://www.share.minike.top/Article/details/92850080157.shtml)
+- 2026-06-29 17:24 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.kurohicncr.top/Article/details/607971868.shtml)
+- 2026-06-29 17:28 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/864428.shtml)
+- 2026-06-29 17:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/4827628442.shtml)
+- 2026-06-29 17:45 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/96692669.shtml)
+- 2026-06-29 17:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/564448671.shtml)
+- 2026-06-29 17:51 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/7601756863.shtml)
+- 2026-06-29 17:27 - [爱很美味](https://www.share.minike.top/Article/details/43958963637.shtml)
+- 2026-06-29 17:26 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/8598430.shtml)
+- 2026-06-29 17:34 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/684744414681.shtml)
+- 2026-06-29 17:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/259909878718.shtml)

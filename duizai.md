@@ -1,47 +1,51 @@
-# 大国外交最前线丨现场报道！特朗普总统抵达北京
+# 内蒙古自治区兴安盟政协原党组成员、副主席赵田喜严重违纪违法被“双开”
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月14日 07:36 来源：央视新闻客户端 责任编辑：【韦俊龙】
+中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区兴安盟政协原党组成员、副主席赵田喜严重违纪违法问题进行了立案审查调查。 经查，赵田喜丧失理想信念，背弃初心使命，对抗组织审查，伪造证据；无视中央八项规定精神，由他人支付应当由本人支付的费用，接受可能影响公正执行公务的旅游安排，违规组织宴请并由他人支付费用，收受可能影响公正执
 
 ## 正文
 
-发布时间：2026年05月14日 07:36 来源：央视新闻客户端 责任编辑：【韦俊龙】
+中新网5月16日电 据内蒙古自治区纪委监委消息：经内蒙古自治区党委批准，内蒙古自治区纪委监委对内蒙古自治区兴安盟政协原党组成员、副主席赵田喜严重违纪违法问题进行了立案审查调查。
+
+经查，赵田喜丧失理想信念，背弃初心使命，对抗组织审查，伪造证据；无视中央八项规定精神，由他人支付应当由本人支付的费用，接受可能影响公正执行公务的旅游安排，违规组织宴请并由他人支付费用，收受可能影响公正执行公务的礼品、礼金；违反组织原则，不按规定报告个人有关事项；廉洁底线失守，利用职权或职务上的影响为他人谋取利益，其亲属收受财物；不正确履行职责，安排企业主支付有关款项；将公权力异化为攫取私利的工具，为他人在工程承揽、工程款拨付等方面谋利，并非法收受巨额财物。
+
+赵田喜严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，特别是党的二十大后仍不知止，性质严重、影响恶劣，应予严肃处理。
+
+依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经内蒙古自治区纪委常委会会议研究并报内蒙古自治区党委批准，决定给予赵田喜开除党籍处分；由内蒙古自治区监委给予其开除公职处分；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-29 17:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-29 17:40 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 17:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 17:31 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 17:32 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 17:46 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 17:26 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 17:29 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 17:44 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 17:44 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 17:30 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 17:23 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 17:45 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 17:42 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 17:39 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 17:24 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 17:50 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 17:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 17:32 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 17:44 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 17:32 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 17:27 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 17:39 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 17:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 17:48 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 17:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 17:37 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:35 - [流金岁月](https://www.share.minike.top/Article/details/90347.shtml)
-- 2026-06-29 17:41 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.share.minike.top/Article/details/35771.shtml)
-- 2026-06-29 17:32 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/97404765.shtml)
-- 2026-06-29 17:44 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/30323994481.shtml)
-- 2026-06-29 17:25 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/356456.shtml)
-- 2026-06-29 17:29 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/4470000.shtml)
-- 2026-06-29 17:25 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/1591282087.shtml)
-- 2026-06-29 17:40 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/920374.shtml)
-- 2026-06-29 17:42 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/73761916.shtml)
-- 2026-06-29 17:46 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/797900.shtml)
-- 2026-06-29 17:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/907594911.shtml)
-- 2026-06-29 17:45 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/79579.shtml)
-- 2026-06-29 17:38 - [波兰创该国高温纪录](http://www.blog.minike.top/Article/details/474849.shtml)
-- 2026-06-29 17:38 - [王楚钦首轮赢下国乒德比](http://www.share.minike.top/Article/details/6710820.shtml)
-- 2026-06-29 17:31 - [笔记本电脑一年涨价近一倍](http://www.share.minike.top/Article/details/911494576.shtml)
+- 2026-06-29 17:39 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/2269595.shtml)
+- 2026-06-29 17:40 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/75653446.shtml)
+- 2026-06-29 17:34 - [省市招考专家解读山西高考志愿政策](http://www.share.minike.top/Article/details/74617320703.shtml)
+- 2026-06-29 17:27 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/604484755.shtml)
+- 2026-06-29 17:25 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/46465.shtml)
+- 2026-06-29 17:51 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/193742808131.shtml)
+- 2026-06-29 17:28 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/398756532.shtml)
+- 2026-06-29 17:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/17274.shtml)
+- 2026-06-29 17:48 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/03748080294.shtml)
+- 2026-06-29 17:38 - [范志毅看好日本淘汰巴西](https://www.share.minike.top/Article/details/6918096048.shtml)
+- 2026-06-29 17:30 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/7639516.shtml)
+- 2026-06-29 17:24 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/366055.shtml)
+- 2026-06-29 17:48 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/8687891858.shtml)
+- 2026-06-29 17:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.minike.top/Article/details/67661701.shtml)
+- 2026-06-29 17:44 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/257459312.shtml)

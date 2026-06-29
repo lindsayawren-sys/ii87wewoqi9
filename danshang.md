@@ -1,48 +1,60 @@
-# 美国总统特朗普抵京 韩正前往机场迎接
+# 北京针对五大突出问题清理整顿人力资源市场
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-新华社北京5月13日电(记者马卓言)应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。国家副主席韩正前往机场迎接。
+中新网北京5月16日电 (记者 吕少威)北京市人社、市场监管、网信、教育、公安、金融监管六部门近日在北京联合开展2026年“护业北京”清理整顿人力资源市场秩序专项行动，将持续至7月31日。 专项行动将全面摸排市域内各类经营性人力资源服务机构、劳务派遣单位业务开展和用人单位招用工情况，对网络招聘行为不规范、“招转培(贷)”欺诈、就业歧视、侵害女职工权益、发布虚假招聘信息等行为集中
 
 ## 正文
 
-新华社北京5月13日电(记者马卓言)应国家主席习近平邀请，美国总统特朗普5月13日晚乘专机抵达北京，开始对中国进行国事访问。
+中新网北京5月16日电 (记者 吕少威)北京市人社、市场监管、网信、教育、公安、金融监管六部门近日在北京联合开展2026年“护业北京”清理整顿人力资源市场秩序专项行动，将持续至7月31日。
 
-国家副主席韩正前往机场迎接。
+专项行动将全面摸排市域内各类经营性人力资源服务机构、劳务派遣单位业务开展和用人单位招用工情况，对网络招聘行为不规范、“招转培(贷)”欺诈、就业歧视、侵害女职工权益、发布虚假招聘信息等行为集中整顿。
+
+通过集中纠治侵害劳动者公平就业权益、扰乱就业市场秩序的各类突出违法违规问题，为用人单位依法合规用工、劳动者高质量充分就业营造公平、健康的市场环境。
+
+专项行动期间，六部门将深化协调联动机制，突出分类管理、动态监控、联合处置。
+
+全市各区劳动监察部门将进一步严格规范基层行政执法，对人力资源服务机构开展针对性检查，同时畅通线上线下投诉举报渠道，充分利用12345、12333等政务热线，以及国家大学生就业服务平台，面向社会开展相关违法违规线索征集，全面掌握风险隐患底数，做到接诉即办。
+
+对违反相关法律法规，侵害求职者、劳动者合法权益，造成不良社会影响的，坚决从严从实查处，依法作出行政处理(处罚)。
+
+对涉嫌犯罪的，予以严厉打击，依法追究刑事责任。
+
+专项行动期间查处的重大违法案件，将及时向社会公布，形成有效警示震慑。
 
 ## 相关推荐
 
-- 2026-06-29 17:47 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 17:30 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 17:19 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 17:27 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-29 17:37 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 17:33 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 17:36 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 17:29 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-29 17:47 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 17:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 17:43 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 17:38 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 17:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 17:40 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 17:51 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 17:35 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 17:32 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 17:28 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 17:45 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 17:32 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 17:27 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 17:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 17:46 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 17:53 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 17:52 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 17:34 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 17:33 - [天价门票抬高美加墨世界杯观赛门槛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 17:52 - [博主：AI泡沫必须破灭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/334563.shtml)
-- 2026-06-29 17:30 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/4007141.shtml)
-- 2026-06-29 17:44 - [乔家的儿女](http://www.share.minike.top/Article/details/52579803.shtml)
-- 2026-06-29 17:30 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/225287.shtml)
-- 2026-06-29 17:37 - [和周杰伦在演唱会合唱了](http://www.share.kurohicncr.top/Article/details/411537151.shtml)
-- 2026-06-29 17:43 - [南昌市委书记调整](http://www.blog.kurohicncr.top/Article/details/796010143079.shtml)
-- 2026-06-29 17:27 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/139206825.shtml)
-- 2026-06-29 17:39 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/22363.shtml)
-- 2026-06-29 17:45 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/9605065.shtml)
-- 2026-06-29 17:20 - [看大国重器“云端穿针引线”](https://www.blog.kurohicncr.top/Article/details/56666.shtml)
-- 2026-06-29 17:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/58698983817.shtml)
-- 2026-06-29 17:29 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/533583474.shtml)
-- 2026-06-29 17:29 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/707456118.shtml)
-- 2026-06-29 17:28 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/749690497.shtml)
-- 2026-06-29 17:41 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.kurohicncr.top/Article/details/297590.shtml)
+- 2026-06-29 17:40 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.minike.top/Article/details/7372725.shtml)
+- 2026-06-29 17:31 - [剧宣天才虞书欣发力了](https://www.share.kurohicncr.top/Article/details/403042037.shtml)
+- 2026-06-29 17:31 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/942703.shtml)
+- 2026-06-29 17:33 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/963034518.shtml)
+- 2026-06-29 17:34 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/70962087.shtml)
+- 2026-06-29 17:34 - [媒体：中国田径压力与期待并存](https://www.blog.minike.top/Article/details/830450.shtml)
+- 2026-06-29 17:25 - [锅巴洋芋店员工光脚洗土豆 老板回应](https://www.blog.minike.top/Article/details/9902193.shtml)
+- 2026-06-29 17:34 - [波兰创该国高温纪录](http://www.share.minike.top/Article/details/86084559.shtml)
+- 2026-06-29 17:27 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/1791823078.shtml)
+- 2026-06-29 17:47 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/674702.shtml)
+- 2026-06-29 17:30 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/3445399840.shtml)
+- 2026-06-29 17:44 - [中国空间站为什么要升级扩容](https://www.blog.kurohicncr.top/Article/details/66307900986.shtml)
+- 2026-06-29 17:35 - [霍尔木兹海峡风波再起 油价走向何方](http://www.share.minike.top/Article/details/47001523.shtml)
+- 2026-06-29 17:53 - [王俊凯命名方式](http://www.share.minike.top/Article/details/74755.shtml)
+- 2026-06-29 17:34 - [滚石就音乐人屠颖去世事件发声明](https://www.share.kurohicncr.top/Article/details/838758283803.shtml)

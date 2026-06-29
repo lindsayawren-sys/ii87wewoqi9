@@ -1,57 +1,48 @@
-# 习近平会见文莱王储：欢迎你再次访华 相信这次访问将加深你对中国式现代化的了解
+# 宁夏贺兰山雨后放晴 邂逅梦幻双彩虹奇观
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-5月12日下午，国家主席习近平在北京人民大会堂会见来华进行正式访问的文莱王储比拉。 习近平指出，中国和文莱是亲密邻邦，海上丝绸之路将两国紧紧联系在一起。今年是中文建交35周年。面对变乱交织的国际形势，双方要以构建中文命运共同体为引领，加强战略沟通，深化务实合作，为地区和平稳定注入更多正能量。 比拉说：“主席先生，文莱与中国关系密切，是彼此的老朋友。我们将一如既往地尊重，并坚定奉
+发布时间：2026年05月16日 22:27 来源：中国新闻网 5月16日，随着宁夏全区降雨天气结束，雨霁天晴，巍峨的贺兰山上空惊现梦幻双彩虹奇观，为塞上大地增添了一抹绚丽的色彩。 雨后的贺兰山空气清新，澄澈的蓝天、青翠的山峦与横跨天际的双彩虹光晕相映成趣，勾勒出一幅宁静而壮美的塞上自然画卷。此次双彩虹景观出现在天气转晴之后，阳光透过残留雨滴折射出两道清晰可见的彩虹，两道彩虹层
 
 ## 正文
 
-5月12日下午，国家主席习近平在北京人民大会堂会见来华进行正式访问的文莱王储比拉。
+发布时间：2026年05月16日 22:27 来源：中国新闻网 5月16日，随着宁夏全区降雨天气结束，雨霁天晴，巍峨的贺兰山上空惊现梦幻双彩虹奇观，为塞上大地增添了一抹绚丽的色彩。
 
-习近平指出，中国和文莱是亲密邻邦，海上丝绸之路将两国紧紧联系在一起。
+雨后的贺兰山空气清新，澄澈的蓝天、青翠的山峦与横跨天际的双彩虹光晕相映成趣，勾勒出一幅宁静而壮美的塞上自然画卷。
 
-今年是中文建交35周年。
+此次双彩虹景观出现在天气转晴之后，阳光透过残留雨滴折射出两道清晰可见的彩虹，两道彩虹层叠交错，宛如七彩天桥悬挂于山巅，吸引了众多游客驻足仰望、拍照留念。
 
-面对变乱交织的国际形势，双方要以构建中文命运共同体为引领，加强战略沟通，深化务实合作，为地区和平稳定注入更多正能量。
-
-比拉说：“主席先生，文莱与中国关系密切，是彼此的老朋友。
-
-我们将一如既往地尊重，并坚定奉行一个中国政策。
-
-一直以来，中国是文莱的坚定伙伴，在您的倡导下，人类命运共同体理念已成为促进世界和平、稳定与发展的重要基石。
-
-” 总监制丨申勇 监制丨龚雪辉 记者丨史伟 王鹏飞 卢心雨 邢彬 马喆 摄像丨李铮 段德文 郭鸿 程铖 鄂介甫 范一鸣 录音丨程爱华
+(记者 谢宇 视频来源 宁夏贺兰山国家森林公园） 责任编辑：【李骏】
 
 ## 相关推荐
 
-- 2026-06-29 17:35 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 17:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-29 17:47 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-29 17:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 17:21 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 17:31 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 17:21 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 17:25 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 17:19 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 17:40 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 17:26 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 17:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 17:32 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 17:25 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 17:38 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 17:34 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 17:51 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 17:44 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 17:45 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 17:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 17:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/92622324.shtml)
-- 2026-06-29 17:37 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/11308065.shtml)
-- 2026-06-29 17:30 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/08592944.shtml)
-- 2026-06-29 17:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/225651812.shtml)
-- 2026-06-29 17:34 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.kurohicncr.top/Article/details/6928041.shtml)
-- 2026-06-29 17:39 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/674915689.shtml)
-- 2026-06-29 17:35 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/46802.shtml)
-- 2026-06-29 17:35 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/16720.shtml)
-- 2026-06-29 17:44 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/344456788.shtml)
-- 2026-06-29 17:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/6092746293.shtml)
-- 2026-06-29 17:42 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/08573.shtml)
-- 2026-06-29 17:23 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/8187302.shtml)
-- 2026-06-29 17:29 - [美议员呼吁断供以色列政府](https://www.blog.minike.top/Article/details/19930293171.shtml)
-- 2026-06-29 17:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/1468461.shtml)
-- 2026-06-29 17:35 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/005252.shtml)
+- 2026-06-29 17:42 - [葛军谈AI时代理科生出路](https://www.blog.minike.top/Article/details/5512356779.shtml)
+- 2026-06-29 17:30 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/45779.shtml)
+- 2026-06-29 17:31 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/3103204.shtml)
+- 2026-06-29 17:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/612318026707.shtml)
+- 2026-06-29 17:40 - [美议员呼吁断供以色列政府](http://www.blog.minike.top/Article/details/335011768552.shtml)
+- 2026-06-29 17:48 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/064217737.shtml)
+- 2026-06-29 17:30 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/588981748786.shtml)
+- 2026-06-29 17:26 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/62678563.shtml)
+- 2026-06-29 17:27 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/68477832729.shtml)
+- 2026-06-29 17:31 - [95后小伙突然确诊癌症 医生提醒](http://www.share.minike.top/Article/details/176308524956.shtml)
+- 2026-06-29 17:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/6737696867.shtml)
+- 2026-06-29 17:42 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/429909899.shtml)
+- 2026-06-29 17:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/257705183941.shtml)
+- 2026-06-29 17:34 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/2099398.shtml)
+- 2026-06-29 17:28 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/06166484.shtml)

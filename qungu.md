@@ -1,60 +1,61 @@
-# 美股科技连涨6周，还能上车吗？这只QDII基金给出答案
+# 星巴克在美国裁撤 300 名总部岗位员工，并关闭部分地区办事处
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-近期，在地缘政治风险降温、人工智能投资热潮延续、美股科技企业财报披露等一系列因素影响下，美股科技板块迎来了一波强势的上涨。Wind数据显示，截至2026年5月11日，纳斯达克指数已连涨6周，期间累计涨跌幅为25.42%。 聚焦美股科技投资的华夏移动互联混合（QDII）（代码：002891）也在科技行情下实现了不错的净值增长。Wind数据显示，截至2026年5月8日，该基金近6个
+星巴克于周五宣布，将在美国裁撤300名总部职员，力求重回其口中所说的稳健盈利增长轨道。这家咖啡连锁品牌还将关停多处地区办事处，涵盖亚特兰大、伯班克、芝加哥及达拉斯等地。 公司同时正在评估海外后勤团队架构，预计还将在海外市场进一步裁员。 这是星巴克新一轮裁员举措，去年该企业已削减1100个总部岗位。此番人事调整，是首席执行官布莱恩・尼科尔推行转型战略的一部分，其核心重心在于优化到
 
 ## 正文
 
-近期，在地缘政治风险降温、人工智能投资热潮延续、美股科技企业财报披露等一系列因素影响下，美股科技板块迎来了一波强势的上涨。
+星巴克于周五宣布，将在美国裁撤300名总部职员，力求重回其口中所说的稳健盈利增长轨道。
 
-Wind数据显示，截至2026年5月11日，纳斯达克指数已连涨6周，期间累计涨跌幅为25.42%。
+这家咖啡连锁品牌还将关停多处地区办事处，涵盖亚特兰大、伯班克、芝加哥及达拉斯等地。
 
-聚焦美股科技投资的华夏移动互联混合（QDII）（代码：002891）也在科技行情下实现了不错的净值增长。
+公司同时正在评估海外后勤团队架构，预计还将在海外市场进一步裁员。
 
-Wind数据显示，截至2026年5月8日，该基金近6个月净值增长率为70.64%，同期业绩比较基准以及纳斯达克指数涨跌幅分别为-1.71%、14.10%，基金业绩显著跑赢市场。
+这是星巴克新一轮裁员举措，去年该企业已削减1100个总部岗位。
 
-三大因素共振，支撑美股科技行情 面对快速上涨，不少投资者可能关心：涨幅迅猛，会否面临回调风险？
+此番人事调整，是首席执行官布莱恩・尼科尔推行转型战略的一部分，其核心重心在于优化到店消费体验。
 
-我们不妨分析本轮行情的核心驱动因素—— 首先，地缘因素缓和，资金回流推动反弹。
+此次裁员不涉及线下门店，星巴克反而正大力增聘门店咖啡师。
 
-此前受美伊地缘风险影响，各类投资者普遍减仓持币观望；随着地缘关系逐步缓和，这批观望资金快速回流进场，成为行情上行的基础动力。
+星巴克上月交出了两年多以来表现最佳的季度销售额增速，但自2024年末以来，公司利润率大幅下滑。
 
-与此同时，CTA趋势跟踪、风险平价以及期权相关的系统性交易策略，也跟随市场转强顺势加仓；美国各大投资机构则重启杠杆操作，提升风险资产配置比例。
+依据去年夏天获批的激励方案，若在2027年前顺利达成成本削减目标，星巴克高层管理人员每人最高可获600万美元奖励。
 
 ## 相关推荐
 
-- 2026-06-29 17:25 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 17:25 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 17:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 17:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 17:26 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 17:38 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-29 17:48 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 17:18 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 17:19 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 17:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 17:46 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 17:28 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 17:40 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 17:41 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 17:39 - [朱必达辞去湖南人大常委会委员职务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 17:47 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 17:26 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 17:26 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 17:43 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 17:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 17:43 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 17:45 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 17:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 17:43 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 17:34 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 17:28 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 17:48 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 17:47 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:38 - [疑似吴建豪老婆正脸照](http://www.share.minike.top/Article/details/516525623928.shtml)
-- 2026-06-29 17:20 - [A股割裂行情有变化了吗](https://www.blog.minike.top/Article/details/424322.shtml)
-- 2026-06-29 17:19 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/870193754621.shtml)
-- 2026-06-29 17:20 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.minike.top/Article/details/475276.shtml)
-- 2026-06-29 17:44 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/459317361.shtml)
-- 2026-06-29 17:24 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/14641294.shtml)
-- 2026-06-29 17:39 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/22586508.shtml)
-- 2026-06-29 17:20 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/602051688.shtml)
-- 2026-06-29 17:23 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/1476230.shtml)
-- 2026-06-29 17:42 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/009533.shtml)
-- 2026-06-29 17:30 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/12402.shtml)
-- 2026-06-29 17:32 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/768567886450.shtml)
-- 2026-06-29 17:46 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/2739625.shtml)
-- 2026-06-29 17:46 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/98794.shtml)
-- 2026-06-29 17:35 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/981400955714.shtml)
+- 2026-06-29 17:25 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/5632072909.shtml)
+- 2026-06-29 17:39 - [普京介绍前线战事](https://www.blog.minike.top/Article/details/9992750.shtml)
+- 2026-06-29 17:49 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/05218576529.shtml)
+- 2026-06-29 17:30 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/674266315.shtml)
+- 2026-06-29 17:39 - [王安宇尊重田曦薇的一切选择](http://www.blog.minike.top/Article/details/7436491.shtml)
+- 2026-06-29 17:38 - [依法管制阻遏日方军事化危险动向](http://www.blog.kurohicncr.top/Article/details/014933353430.shtml)
+- 2026-06-29 17:33 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/757873580.shtml)
+- 2026-06-29 17:44 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/2418972805.shtml)
+- 2026-06-29 17:49 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/63255728.shtml)
+- 2026-06-29 17:39 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/01982.shtml)
+- 2026-06-29 17:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/89709053.shtml)
+- 2026-06-29 17:53 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/41256059.shtml)
+- 2026-06-29 17:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/5050517014.shtml)
+- 2026-06-29 17:49 - [谢依霖夸杨幂靠谱](https://www.blog.kurohicncr.top/Article/details/135242.shtml)
+- 2026-06-29 17:53 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/9554483.shtml)

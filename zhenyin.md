@@ -1,61 +1,57 @@
-# 方意股份闯关北交所：一家三口控股近八成，拟募资1.76亿，刹车片高毛利被追问 | 长三角资本局
+# 机构投资者Q1纷纷建仓半导体公司股份
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 一家盐城刹车片企业，正在北交所门口回答几道硬题。 5月11日，江苏方意摩擦材料股份有限公司更新北交所上市申请审核动态，公司已回复第一轮审核问询函。 方意股份成立于2010年11月，主营制动摩擦产品，主要产品为盘式刹车片和鼓式刹车蹄。公司产品线不窄，已自主研制制动摩擦材料配方80余种。 业绩上看，方意股份并不是一家大体量公司。2022年至2024年及20
+对约6600家对冲基金、养老基金、大学基金及其他机构向美国证券交易委员会提交的文件进行梳理后发现，机构投资者在今年第一季度建仓了从英特尔到美光等半导体股，从而得以从延续至第二季度的火热行情中获利。 截至上周五下午，在所有已提交季度13-F报告的投资者中，近5000家报告称其买入了媒体追踪的17家半导体公司中的一家或多家。 美光科技是被最积极买入的芯片制造商之一，随着人工智能建设
 
 ## 正文
 
-文|新浪财经上海站 十里 一家盐城刹车片企业，正在北交所门口回答几道硬题。
+对约6600家对冲基金、养老基金、大学基金及其他机构向美国证券交易委员会提交的文件进行梳理后发现，机构投资者在今年第一季度建仓了从英特尔到美光等半导体股，从而得以从延续至第二季度的火热行情中获利。
 
-5月11日，江苏方意摩擦材料股份有限公司更新北交所上市申请审核动态，公司已回复第一轮审核问询函。
+截至上周五下午，在所有已提交季度13-F报告的投资者中，近5000家报告称其买入了媒体追踪的17家半导体公司中的一家或多家。
 
-方意股份成立于2010年11月，主营制动摩擦产品，主要产品为盘式刹车片和鼓式刹车蹄。
+美光科技是被最积极买入的芯片制造商之一，随着人工智能建设热潮推动内存芯片需求激增，该公司股价今年迄今已飙升154%。
 
-公司产品线不窄，已自主研制制动摩擦材料配方80余种。
+共有2，440家机构报告称建仓美光科技，其中包括洛克菲勒资本管理公司和施罗德投资管理公司。
 
-业绩上看，方意股份并不是一家大体量公司。
+紧随美光之后的是英特尔，这家正处于转型期的公司今年以来股价已暴涨195%。
 
-2022年至2024年及2025年上半年，公司营收分别为1.93亿元、2.05亿元、2.53亿元和1.36亿元；同期净利润分别为4451.39万元、4724.96万元、4613.61万元和2464.83万元。
+老虎环球管理公司披露， 其 于第一季度建仓英特尔，纽伯格伯曼和美国人寿资产管理公司也同步建仓。
 
-营收在增长，但利润并没有同步走出更陡的上升曲线，2024年营收增至2.53亿元，净利润反而低于2023年。
+这些向美国证券交易委员会（SEC）提交的文件，让我们得以一窥从对冲基金到养老基金及捐赠基金等大型机构投资者的投资组合。
 
-这门生意的底色，是外销。
+主要机构投资者必须在每个日历季度结束后的45天内，向美国证券交易委员会报告其投资组合及其构成所做的任何变更。
 
 ## 相关推荐
 
-- 2026-06-29 17:29 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 17:29 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 17:31 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 17:42 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 17:30 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 17:36 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 17:19 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 17:18 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 17:47 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 17:36 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 17:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 17:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 17:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 17:18 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 17:22 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 17:45 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 17:49 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 17:50 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 17:48 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 17:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 17:36 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 17:32 - [霍尔木兹海峡风波再起 油价走向何方](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 17:28 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 17:28 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 17:49 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 17:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:29 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/1498731476.shtml)
-- 2026-06-29 17:26 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/63860.shtml)
-- 2026-06-29 17:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/15000301.shtml)
-- 2026-06-29 17:34 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/797850217104.shtml)
-- 2026-06-29 17:20 - [天柱山回应网红打卡树枝被砍](http://www.share.minike.top/Article/details/8370951042.shtml)
-- 2026-06-29 17:41 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/029898.shtml)
-- 2026-06-29 17:34 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/53824.shtml)
-- 2026-06-29 17:36 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/4139757.shtml)
-- 2026-06-29 17:32 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/9203894.shtml)
-- 2026-06-29 17:30 - [送你一朵小红花](http://www.blog.minike.top/Article/details/71860.shtml)
-- 2026-06-29 17:24 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/19025542416.shtml)
-- 2026-06-29 17:19 - [你有像江语晨恨前夫一样恨过一个人吗](http://www.blog.kurohicncr.top/Article/details/960541832.shtml)
-- 2026-06-29 17:28 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/70788491.shtml)
-- 2026-06-29 17:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/45770.shtml)
-- 2026-06-29 17:43 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/042998.shtml)
+- 2026-06-29 17:44 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/4329540811.shtml)
+- 2026-06-29 17:50 - [葛军谈AI时代理科生出路](http://www.share.minike.top/Article/details/76740898646.shtml)
+- 2026-06-29 17:31 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/156861746687.shtml)
+- 2026-06-29 17:26 - [谢依霖夸杨幂靠谱](http://www.blog.kurohicncr.top/Article/details/57226795.shtml)
+- 2026-06-29 17:25 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/0877198716.shtml)
+- 2026-06-29 17:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/009476.shtml)
+- 2026-06-29 17:32 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/516812.shtml)
+- 2026-06-29 17:41 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/23338426.shtml)
+- 2026-06-29 17:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/17909659.shtml)
+- 2026-06-29 17:30 - [男子路过修车店瞬间被喷得一脸黑](https://www.share.minike.top/Article/details/96552.shtml)
+- 2026-06-29 17:24 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/8188640.shtml)
+- 2026-06-29 17:49 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/6624199234.shtml)
+- 2026-06-29 17:51 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/722019217647.shtml)
+- 2026-06-29 17:35 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/3337452034.shtml)
+- 2026-06-29 17:42 - [时光音乐会](https://www.share.minike.top/Article/details/421569365733.shtml)

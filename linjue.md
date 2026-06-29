@@ -1,57 +1,61 @@
-# 中经评论：立足城市体检，科学推进城市更新
+# 逐“电”赋能 筑链兴产——建行吉林省分行全力助推新能源汽车产业高质量发展
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-人需要定期体检以发现健康问题。城市和人一样，在成长过程中也会出现大大小小的“城市病”，同样需要定期开展“体检”。尤其是当前我国城镇化加速推进，城乡居民生活水平显著提升，但城市功能错配、滞后等问题也随之显现。开展城市体检，就是要找出这些潜在的城市“病症”，补齐影响可持续发展的短板弱项，破解群众反映强烈的难点、堵点、痛点问题，推动城市治理提质增效。“无体检，不更新。”城市体检已成为
+来源 新华财经 汽车产业是吉林制造的“金字招牌”，随着奥迪一汽新能源、红旗天工等新车型相继上市，全省新能源汽车产业升级蹄疾步稳。中国建设银行吉林省分行深耕新能源汽车赛道，聚焦产业集群发展，以精准高效的综合金融服务，为新能源汽车产业高质量发展注入强劲金融动能。 金融护航，助力主机厂迭代升级 五月的长春，奥迪一汽新能源超级工厂内一派繁忙。作为奥迪在国内首个基于PPE豪华纯电动平台打
 
 ## 正文
 
-人需要定期体检以发现健康问题。
+来源 新华财经 汽车产业是吉林制造的“金字招牌”，随着奥迪一汽新能源、红旗天工等新车型相继上市，全省新能源汽车产业升级蹄疾步稳。
 
-城市和人一样，在成长过程中也会出现大大小小的“城市病”，同样需要定期开展“体检”。
+中国建设银行吉林省分行深耕新能源汽车赛道，聚焦产业集群发展，以精准高效的综合金融服务，为新能源汽车产业高质量发展注入强劲金融动能。
 
-尤其是当前我国城镇化加速推进，城乡居民生活水平显著提升，但城市功能错配、滞后等问题也随之显现。
+金融护航，助力主机厂迭代升级 五月的长春，奥迪一汽新能源超级工厂内一派繁忙。
 
-开展城市体检，就是要找出这些潜在的城市“病症”，补齐影响可持续发展的短板弱项，破解群众反映强烈的难点、堵点、痛点问题，推动城市治理提质增效。
+作为奥迪在国内首个基于PPE豪华纯电动平台打造的生产基地，采用全自动化焊接、数字孪生等先进技术，是奥迪电动化战略的关键布局。
 
-“无体检，不更新。
+从开工奠基到预批量生产仅用时19个月，这份“中国速度”的背后，离不开建行的强力金融支撑。
 
-”城市体检已成为实施城市更新行动的前置要素。
+建行长春一汽支行第一时间组建专业团队，精准对接项目需求、定制综合金融方案，保障厂房建设及智能产线搭建。
 
-“十五五”规划纲要提出，“高质量推进城市更新，开展城市体检，加快建设完整社区，健全城市更新实施机制。
+“我们量身定制金融方案、开通绿色审批通道，助力企业破解发展瓶颈，陪伴企业从起步到壮大，共同擦亮‘吉林制造’的新能源名片。
 
-”只有对每一栋住房、每一个社区进行“体检”，摸清摸透“城市病”的症状，才能精准回应群众对城市发展的需求和期许，确保城市更新工作科学有效推进。
+”建行长春一汽支行相关人员说。
 
 ## 相关推荐
 
-- 2026-06-29 17:28 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 17:42 - [截瘫男子心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-29 17:27 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 17:20 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 17:32 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 17:27 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 17:33 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 17:29 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 17:20 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 17:47 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 17:22 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-29 17:51 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 17:43 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 17:47 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 17:44 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 17:27 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 17:51 - [岛内舆论呼吁民进党放弃“台独”党纲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 17:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 17:35 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 17:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
+- 2026-06-29 17:34 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 17:49 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 17:31 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 17:38 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 17:52 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 17:30 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:28 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/35539.shtml)
-- 2026-06-29 17:44 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/123779.shtml)
-- 2026-06-29 17:31 - [和周杰伦在演唱会合唱了](http://www.blog.minike.top/Article/details/06598308389.shtml)
-- 2026-06-29 17:44 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/883531.shtml)
-- 2026-06-29 17:29 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/45221.shtml)
-- 2026-06-29 17:38 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/99135140028.shtml)
-- 2026-06-29 17:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/93688.shtml)
-- 2026-06-29 17:41 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/97267005288.shtml)
-- 2026-06-29 17:37 - [专家：43℃热浪撕开欧洲环保假象](https://www.share.kurohicncr.top/Article/details/58645.shtml)
-- 2026-06-29 17:39 - [草根德比站上亚洲顶级魔鬼主场](http://www.share.minike.top/Article/details/57900.shtml)
-- 2026-06-29 17:44 - [东方风云榜](https://www.blog.minike.top/Article/details/302369.shtml)
-- 2026-06-29 17:31 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/93680.shtml)
-- 2026-06-29 17:26 - [叠纸](http://www.blog.minike.top/Article/details/2541913.shtml)
-- 2026-06-29 17:40 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/2675859498.shtml)
-- 2026-06-29 17:30 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/5154450.shtml)
+- 2026-06-29 17:36 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/36553884438.shtml)
+- 2026-06-29 17:47 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/082942176433.shtml)
+- 2026-06-29 17:43 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/62252.shtml)
+- 2026-06-29 17:35 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/951558070.shtml)
+- 2026-06-29 17:50 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/202658208.shtml)
+- 2026-06-29 17:40 - [一见倾心](https://www.blog.minike.top/Article/details/850021.shtml)
+- 2026-06-29 17:40 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/02763676134.shtml)
+- 2026-06-29 17:43 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/6898058617.shtml)
+- 2026-06-29 17:50 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/725690.shtml)
+- 2026-06-29 17:27 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/01233.shtml)
+- 2026-06-29 17:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/02158101.shtml)
+- 2026-06-29 17:25 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/0401928509.shtml)
+- 2026-06-29 17:32 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/847731123.shtml)
+- 2026-06-29 17:32 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/3776529.shtml)
+- 2026-06-29 17:34 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/45293677.shtml)

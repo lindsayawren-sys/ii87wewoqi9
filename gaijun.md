@@ -1,61 +1,56 @@
-# 黄金走低：美国通胀再度抬头，美联储加息概率上升
+# 2026年“5·19中国旅游日”江西分会场主题活动在龙虎山举行
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-美国最新经济数据显示通胀再度升温，市场进一步押注美联储将长期维持高利率，金价随之走低。 周三黄金现货最大跌幅达 1%。美国 4 月生产者物价（批发通胀） 加速上行，创 2022 年以来最大涨幅；中东冲突推高货运物流成本是重要推手。 10 年期美债收益率逼近 7 月以来高位，交易员对美联储鹰派政策的押注升温。黄金本身不产生利息收益，高利率环境通常对金价构成利空。 美国 PPI 同
+中新网鹰潭5月16日电 (熊锦阳)5月16日晚，2026年“中国旅游日”江西省分会场活动在“道教名山”江西龙虎山举行。 本次活动以“乐享品质旅游，共赴美好山河·诚信有约，夜游江西”为主题，集中点亮赣鄱夜间文旅消费新场景，展示“旅游诚信省”建设成效以及“江西风景独好”的独特魅力。 晚上6时，龙虎山游客中心广场灯光璀璨，活动正式进入“高能时刻”。沉浸式仙侠剑舞震撼登场，舞者身着飘逸
 
 ## 正文
 
-美国最新经济数据显示通胀再度升温，市场进一步押注美联储将长期维持高利率，金价随之走低。
+中新网鹰潭5月16日电 (熊锦阳)5月16日晚，2026年“中国旅游日”江西省分会场活动在“道教名山”江西龙虎山举行。
 
-周三黄金现货最大跌幅达 1%。
+本次活动以“乐享品质旅游，共赴美好山河·诚信有约，夜游江西”为主题，集中点亮赣鄱夜间文旅消费新场景，展示“旅游诚信省”建设成效以及“江西风景独好”的独特魅力。
 
-美国 4 月生产者物价（批发通胀） 加速上行，创 2022 年以来最大涨幅；中东冲突推高货运物流成本是重要推手。
+晚上6时，龙虎山游客中心广场灯光璀璨，活动正式进入“高能时刻”。
 
-10 年期美债收益率逼近 7 月以来高位，交易员对美联储鹰派政策的押注升温。
+沉浸式仙侠剑舞震撼登场，舞者身着飘逸仙裙，身姿灵动洒脱，伴随着悠扬古乐翩翩起舞，将龙虎山的仙侠意境演绎得淋漓尽致；红色歌曲《映山红》、说唱歌曲《龙虎天下绝》轮番唱响，现场氛围瞬间攀升至高潮，“夜游江西”新篇章正式启幕。
 
-黄金本身不产生利息收益，高利率环境通常对金价构成利空。
+“‘中国旅游日’这个节日源自《徐霞客游记》开篇之日，如今已成为全民共享、全民参与、全民乐享的文旅盛会。
 
-美国 PPI 同比大涨 6%，超出彭博所有经济学家预期；环比涨幅同样创下 2022 年以来新高。
+”江西省文化和旅游厅党组成员、副厅长周建文表示，近年来，江西始终围绕游客的需求，不断丰富供给、持续做优体验，让旅游服务更接地气、美好生活触手可及。
 
-剔除食品、能源的核心 PPI 同比上涨 5.2%，为三年多来最大增幅。
+“赣鄱大地，山水秀美、人文厚重、热情好客，我们诚挚邀请海内外朋友走进江西，共享山水之美、文化之韵、生活之乐，共赴一场诗与远方的‘诚信之约’。
 
-伊朗战争初期金价曾大幅下挫，此后陷入窄幅震荡。
+” 据介绍，本次活动围绕1个主体活动，4个配套特色活动展开，通过惠民政策发布、炫目灯光秀、非遗展演互动等形式，全方位展现“江西风景独好”的夜间魅力。
 
 ## 相关推荐
 
-- 2026-06-29 17:33 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-29 17:41 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 17:40 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 17:40 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-29 17:47 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 17:47 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 17:42 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
-- 2026-06-29 17:36 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 17:41 - [四川达州发生一起交通事故致2死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 17:27 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 17:29 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 17:22 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 17:18 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 17:23 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-29 17:38 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 17:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 17:53 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 17:24 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 17:42 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 17:43 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 17:29 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 17:53 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 17:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 17:50 - [叠纸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 17:42 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:21 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/19662.shtml)
-- 2026-06-29 17:44 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/91338307.shtml)
-- 2026-06-29 17:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/769142067.shtml)
-- 2026-06-29 17:41 - [挪威王储妃长子两次强奸获刑](http://www.share.minike.top/Article/details/77369.shtml)
-- 2026-06-29 17:21 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/048149.shtml)
-- 2026-06-29 17:41 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/55656221741.shtml)
-- 2026-06-29 17:26 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/061826494260.shtml)
-- 2026-06-29 17:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/29407.shtml)
-- 2026-06-29 17:42 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/522702.shtml)
-- 2026-06-29 17:31 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/31209429939.shtml)
-- 2026-06-29 17:21 - [唐艺昕告别浪姐千字长文](https://www.blog.minike.top/Article/details/83484.shtml)
-- 2026-06-29 17:32 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/75979694457.shtml)
-- 2026-06-29 17:24 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/4549319332.shtml)
-- 2026-06-29 17:26 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/643329690.shtml)
-- 2026-06-29 17:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.minike.top/Article/details/946907972945.shtml)
+- 2026-06-29 17:28 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/65257992057.shtml)
+- 2026-06-29 17:26 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/61232750.shtml)
+- 2026-06-29 17:47 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/78442665.shtml)
+- 2026-06-29 17:51 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/92810318436.shtml)
+- 2026-06-29 17:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/449032978225.shtml)
+- 2026-06-29 17:31 - [2026年，如果你有100万，你会怎么投资？](https://www.share.kurohicncr.top/Article/details/430382.shtml)
+- 2026-06-29 17:45 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/2909964.shtml)
+- 2026-06-29 17:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/94482793974.shtml)
+- 2026-06-29 17:49 - [东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/1942818253.shtml)
+- 2026-06-29 17:28 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/766683.shtml)
+- 2026-06-29 17:39 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/8051254264.shtml)
+- 2026-06-29 17:39 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/9838745.shtml)
+- 2026-06-29 17:35 - [当地回应林区违规放羊遭豹啃食](https://www.share.kurohicncr.top/Article/details/53185.shtml)
+- 2026-06-29 17:31 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/63343961.shtml)
+- 2026-06-29 17:32 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/2123857326.shtml)

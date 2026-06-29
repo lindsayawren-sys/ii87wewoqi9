@@ -1,57 +1,60 @@
-# eBay拒绝游戏驿站560亿美元收购要约：既不可信也不具吸引力
+# 给美联储新主席的“见面礼”：沃什刚上台，市场已“加息”
 
-> 更新时间：2026-06-29 17:48:02 UTC+8
+> 更新时间：2026-06-29 17:54:03 UTC+8
 
 ## 摘要
 
-eBay周二正式拒绝了游戏驿站提出的560亿美元收购要约，称该提议“既不可信也不具吸引力”。eBay董事会主席Paul Pressler在致游戏驿站首席执行官Ryan Cohen的信中明确表达了这一立场。 游戏驿站此前提出以每股125美元的价格收购eBay，较彼时股价溢价约20%，支付方式为50%现金加50%游戏驿站股票。然而，这笔“蛇吞象”式交易从一开始就面临严峻质疑：游戏驿
+华尔街见闻 10年期美债收益率升至4.48%，30年期突破5%，2年期站上联储利率目标区间上限。市场对年内加息概率预期已超30%。这轮债市重定价，正在压缩新任美联储主席沃什的政策空间。 沃什尚未主持首次美联储货币政策会议，债券市场已率先送上“加息大礼”。 5月14日周四，据华尔街见闻，美国4月零售销售创8个月最强涨幅，数据印证消费韧性，但通胀压力持续升温，打破短期降息的希望。
 
 ## 正文
 
-eBay周二正式拒绝了游戏驿站提出的560亿美元收购要约，称该提议“既不可信也不具吸引力”。
+华尔街见闻 10年期美债收益率升至4.48%，30年期突破5%，2年期站上联储利率目标区间上限。
 
-eBay董事会主席Paul Pressler在致游戏驿站首席执行官Ryan Cohen的信中明确表达了这一立场。
+市场对年内加息概率预期已超30%。
 
-游戏驿站此前提出以每股125美元的价格收购eBay，较彼时股价溢价约20%，支付方式为50%现金加50%游戏驿站股票。
+这轮债市重定价，正在压缩新任美联储主席沃什的政策空间。
 
-然而，这笔“蛇吞象”式交易从一开始就面临严峻质疑：游戏驿站市值仅约100亿美元，不到eBay市值的四分之一。
+沃什尚未主持首次美联储货币政策会议，债券市场已率先送上“加息大礼”。
 
-eBay的拒绝理由 eBay董事会在拒绝信中列举了多项考量因素：eBay的独立发展前景、融资方案的不确定性、对eBay长期增长和盈利能力的影响、合并后的杠杆与运营风险、估值影响，以及“游戏驿站的治理和高管激励措施”。
+5月14日周四，据华尔街见闻，美国4月零售销售创8个月最强涨幅，数据印证消费韧性，但通胀压力持续升温，打破短期降息的希望。
 
-eBay指出，公司近年来战略聚焦清晰、执行有力，已强化了市场和卖家体验，并持续向股东返还资本。
+数据后，对利率敏感的2年期美债收益率走高4基点、升至4%上方。
 
-2025年，eBay营收达116亿美元，平台拥有1.36亿活跃用户，年交易额高达800亿美元。
+10年期美债收益率升至4.48%，较2月底水平上行约50个基点。
 
-融资困境与代理权争夺 为筹措收购资金，游戏驿站计划向多伦多道明银行借贷200亿美元，但即便完成这一融资，距离560亿美元的总对价仍存在巨大缺口。
+债券市场的这一轮重定价，正在剥夺新任美联储主席沃什，本可拥有的政策腾挪空间。
 
 ## 相关推荐
 
-- 2026-06-29 17:38 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-29 17:21 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 17:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 17:45 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 17:47 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 17:39 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 17:28 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 17:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-29 17:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 17:39 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 17:38 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 17:31 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 17:24 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 17:42 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 17:34 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 17:40 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 17:48 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 17:31 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 17:28 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 17:34 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 17:29 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 17:31 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 17:45 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 17:49 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 17:37 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 17:36 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/4494057.shtml)
-- 2026-06-29 17:42 - [爱很美味](https://www.share.minike.top/Article/details/2398752.shtml)
-- 2026-06-29 17:44 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/2732872.shtml)
-- 2026-06-29 17:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/35934738.shtml)
-- 2026-06-29 17:47 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.kurohicncr.top/Article/details/49668647.shtml)
-- 2026-06-29 17:46 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/96093.shtml)
-- 2026-06-29 17:43 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/397221837884.shtml)
-- 2026-06-29 17:42 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/12062507.shtml)
-- 2026-06-29 17:26 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/173221600464.shtml)
-- 2026-06-29 17:43 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/75860.shtml)
-- 2026-06-29 17:38 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/837057149.shtml)
-- 2026-06-29 17:34 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/34504884421.shtml)
-- 2026-06-29 17:44 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/86976.shtml)
-- 2026-06-29 17:22 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/09359699.shtml)
-- 2026-06-29 17:42 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/21205401.shtml)
+- 2026-06-29 17:33 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/18909516.shtml)
+- 2026-06-29 17:29 - [港股蓝筹股的落寞才刚刚开始吗](http://www.blog.kurohicncr.top/Article/details/5493078.shtml)
+- 2026-06-29 17:29 - [美人鱼](https://www.blog.minike.top/Article/details/45275352.shtml)
+- 2026-06-29 17:43 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/3812785.shtml)
+- 2026-06-29 17:31 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/84885167.shtml)
+- 2026-06-29 17:46 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/319720952.shtml)
+- 2026-06-29 17:32 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/103069460699.shtml)
+- 2026-06-29 17:35 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/512363398.shtml)
+- 2026-06-29 17:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/9190010130.shtml)
+- 2026-06-29 17:26 - [极限挑战第一季](https://www.blog.minike.top/Article/details/79966949.shtml)
+- 2026-06-29 17:37 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/945031988141.shtml)
+- 2026-06-29 17:49 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/8701557861.shtml)
+- 2026-06-29 17:25 - [倪春青跨市履新苏州市委组织部部长](http://www.blog.minike.top/Article/details/8207469.shtml)
+- 2026-06-29 17:44 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/25843539.shtml)
+- 2026-06-29 17:30 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/54463013.shtml)
