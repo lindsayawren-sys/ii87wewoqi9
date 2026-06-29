@@ -1,56 +1,60 @@
-# 服务时效提速，耐克中国华北新物流中心落地北京
+# 三代守江人日夜巡护 黑龙江畔的“护渔”接力
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-耐克中国于5月22日宣布，正式启用位于北京经济技术开发区经海五路的华北物流中心。该中心由越海全球供应链运营，总面积约11万平方米，集全国配送中心、区域服务中心、城市服务中心三大功能仓及一座体育公园于一体，将服务华北八省的耐克零售合作伙伴、京津冀直营门店及全国电商消费者。 全新中心将帮助耐克更快速、更精准地服务消费者，平均履约时效缩短至3天内，北京、天津消费者有望实现当日达，同时
+自6月11日至7月15日，中俄界江黑龙江全线进入为期35天的伏季禁渔期。这段时间，当地边境派出所民警日夜巡护，严查禁渔期非法捕捞和越界作业行为。在伊春市嘉荫县，有这样一个家庭，他们三代人守边护边，一守就是数十年。说话的年轻民警名叫郑杨，随着界江禁渔期来临，他正带领民警沿着中俄界江黑龙江一线展开巡逻。嘉荫县乌云镇地处中俄界江黑龙江边，有24艘渔船在界江作业。针对个别人员伺机私自下
 
 ## 正文
 
-耐克中国于5月22日宣布，正式启用位于北京经济技术开发区经海五路的华北物流中心。
+自6月11日至7月15日，中俄界江黑龙江全线进入为期35天的伏季禁渔期。
 
-该中心由越海全球供应链运营，总面积约11万平方米，集全国配送中心、区域服务中心、城市服务中心三大功能仓及一座体育公园于一体，将服务华北八省的耐克零售合作伙伴、京津冀直营门店及全国电商消费者。
+这段时间，当地边境派出所民警日夜巡护，严查禁渔期非法捕捞和越界作业行为。
 
-全新中心将帮助耐克更快速、更精准地服务消费者，平均履约时效缩短至3天内，北京、天津消费者有望实现当日达，同时成为耐克在大中华区的第二大电商仓储中心。
+在伊春市嘉荫县，有这样一个家庭，他们三代人守边护边，一守就是数十年。
 
-为了进一步提升供应链效率，该物流中心在高度集成的功能体系下实现了智能化运营。
+说话的年轻民警名叫郑杨，随着界江禁渔期来临，他正带领民警沿着中俄界江黑龙江一线展开巡逻。
 
-例如，Auto Sorter自动分拣系统实现了从入库到分拣的端到端自动化流程。
+嘉荫县乌云镇地处中俄界江黑龙江边，有24艘渔船在界江作业。
 
-下一步还将逐步导入自动化立体仓储系统、机械臂作业单元及智能高速输送网络，推动仓储与分拨能力持续升级，向更高效率的“全自动化仓库”演进。
+针对个别人员伺机私自下江捕鱼的情况，边境派出所加大了巡逻的频次。
 
-耐克中国运营副总裁常远表示：“华北物流中心的启用，是耐克持续投资中国、加强本土供应链能力建设的重要一步。
+经过一夜的潜伏，没有发现私自下江打鱼人员，郑杨一行在早上收队。
 
-该项目将通过打造更加敏捷、稳健、并具可持续性的供应链体系，帮助我们以更快的速度和更高的效率服务华北市场，并惠及全国消费者。
+像这样的无功而返，是守江人的日常，而很多时候，需要斗智斗勇。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 13:32 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 13:06 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 13:19 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 13:26 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 13:20 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 13:24 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 13:09 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 13:31 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 13:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 13:32 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 13:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 13:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 13:26 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 13:35 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 13:18 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 13:35 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:38 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 13:19 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 13:16 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 13:13 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 13:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-29 13:18 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 13:30 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/0487773.shtml)
-- 2026-06-29 13:09 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/4344319899.shtml)
-- 2026-06-29 13:35 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/42149.shtml)
-- 2026-06-29 13:11 - [千与千寻](http://www.share.kurohicncr.top/Article/details/2020184560.shtml)
-- 2026-06-29 13:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/7060839.shtml)
-- 2026-06-29 13:17 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/467643029.shtml)
-- 2026-06-29 13:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/5175388.shtml)
-- 2026-06-29 13:28 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/9846290470.shtml)
-- 2026-06-29 13:16 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/0656826.shtml)
-- 2026-06-29 13:17 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/447758579.shtml)
-- 2026-06-29 13:11 - [张真源解读相思锁](https://www.share.kurohicncr.top/Article/details/801665.shtml)
-- 2026-06-29 13:18 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/80136043523.shtml)
-- 2026-06-29 13:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/011922792.shtml)
-- 2026-06-29 13:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/5936296.shtml)
-- 2026-06-29 13:25 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/714706.shtml)
+- 2026-06-29 13:33 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/977370.shtml)
+- 2026-06-29 13:30 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/00518.shtml)
+- 2026-06-29 13:24 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/64350582.shtml)
+- 2026-06-29 13:29 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/804646837565.shtml)
+- 2026-06-29 13:31 - [韩国拟将部分刑责年龄降至13岁](https://www.share.kurohicncr.top/Article/details/031996.shtml)
+- 2026-06-29 13:32 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/40775796803.shtml)
+- 2026-06-29 13:25 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/5294675705.shtml)
+- 2026-06-29 13:12 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/46314.shtml)
+- 2026-06-29 13:37 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/8311587.shtml)
+- 2026-06-29 13:25 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/793211983452.shtml)
+- 2026-06-29 13:12 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/258059135904.shtml)
+- 2026-06-29 13:17 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/378698438272.shtml)
+- 2026-06-29 13:12 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/96494133927.shtml)
+- 2026-06-29 13:12 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/53053231927.shtml)
+- 2026-06-29 13:23 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/4187417.shtml)

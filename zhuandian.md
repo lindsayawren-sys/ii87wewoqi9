@@ -1,56 +1,45 @@
-# 巴基斯坦总理夏巴兹抵达北京
+# 共识教育百问百答 | 梁世峰：如何理解“铸牢中华民族共同体意识”与“推进中华民族共同体建设”之间的关系？
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月24日电(记者曹嘉玥)5月24日晚，巴基斯坦总理夏巴兹·谢里夫抵达北京，继续访华行程。此前，夏巴兹已赴浙江省参访。 夏巴兹于5月23日至26日对中国进行正式访问。访问期间，习近平主席、李强总理将分别同夏巴兹会见、会谈。夏巴兹还将出席庆祝中巴建交75周年招待会。 外交部发言人日前表示，中巴两国是好朋友和全天候战略合作伙伴。中方期待双方以此访为契机，赓续传统友谊，深化
+发布时间：2026年06月22日 10:02 来源：中央社会主义学院 责任编辑：【刘湃】
 
 ## 正文
 
-新华社北京5月24日电(记者曹嘉玥)5月24日晚，巴基斯坦总理夏巴兹·谢里夫抵达北京，继续访华行程。
-
-此前，夏巴兹已赴浙江省参访。
-
-夏巴兹于5月23日至26日对中国进行正式访问。
-
-访问期间，习近平主席、李强总理将分别同夏巴兹会见、会谈。
-
-夏巴兹还将出席庆祝中巴建交75周年招待会。
-
-外交部发言人日前表示，中巴两国是好朋友和全天候战略合作伙伴。
-
-中方期待双方以此访为契机，赓续传统友谊，深化全方位合作，共同谱写构建新时代更加紧密的中巴命运共同体新篇章。
+发布时间：2026年06月22日 10:02 来源：中央社会主义学院 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 13:17 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 13:15 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
-- 2026-06-29 13:21 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:22 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 13:08 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-29 13:20 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 13:13 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 13:33 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-29 13:35 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 13:07 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-29 13:15 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 13:24 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 13:19 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 13:23 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 13:12 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:14 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 13:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 13:26 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 13:33 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 13:29 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 13:19 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 13:23 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:16 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 13:26 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/913152.shtml)
-- 2026-06-29 13:29 - [欧洲极端高温东扩](https://www.share.kurohicncr.top/Article/details/25200570.shtml)
-- 2026-06-29 13:17 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/3391749.shtml)
-- 2026-06-29 13:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/78572131.shtml)
-- 2026-06-29 13:30 - [游戏数据竟被用于军事目的](https://www.blog.kurohicncr.top/Article/details/17675.shtml)
-- 2026-06-29 13:29 - [第一炉香](https://www.blog.minike.top/Article/details/14675485771.shtml)
-- 2026-06-29 13:21 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/05964191071.shtml)
-- 2026-06-29 13:08 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/9722829.shtml)
-- 2026-06-29 13:29 - [加拿大92分钟绝杀南非](https://www.blog.minike.top/Article/details/7824298536.shtml)
-- 2026-06-29 13:09 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/0408291027.shtml)
-- 2026-06-29 13:28 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/943179021.shtml)
-- 2026-06-29 13:28 - [《贺子珍》](http://www.blog.minike.top/Article/details/6930089801.shtml)
-- 2026-06-29 13:22 - [流金岁月](http://www.share.kurohicncr.top/Article/details/68098109842.shtml)
-- 2026-06-29 13:25 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/70441213685.shtml)
-- 2026-06-29 13:17 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/8558527.shtml)
+- 2026-06-29 13:17 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/854846.shtml)
+- 2026-06-29 13:34 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/08223.shtml)
+- 2026-06-29 13:14 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/9724595645.shtml)
+- 2026-06-29 13:31 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/8454180.shtml)
+- 2026-06-29 13:19 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/27115928.shtml)
+- 2026-06-29 13:26 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/10850508.shtml)
+- 2026-06-29 13:29 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/82808.shtml)
+- 2026-06-29 13:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/171845164789.shtml)
+- 2026-06-29 13:35 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/42086.shtml)
+- 2026-06-29 13:27 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/2080489730.shtml)
+- 2026-06-29 13:30 - [这位猫咪，请你自重！](https://www.blog.kurohicncr.top/Article/details/529348290651.shtml)
+- 2026-06-29 13:31 - [逃狱兄弟](https://www.share.minike.top/Article/details/1001314077.shtml)
+- 2026-06-29 13:38 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/715913.shtml)
+- 2026-06-29 13:22 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/0527214199.shtml)
+- 2026-06-29 13:37 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/45540.shtml)

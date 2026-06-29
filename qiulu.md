@@ -1,58 +1,57 @@
-# 珠江流域全力应对强降雨 防汛人多举措筑牢“堤坝”
+# “蓉渝同心”赛龙舟 巴蜀健儿逐浪新津
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月22日电 (记者 王坚)“1-4时，福建龙岩市、广东韶关市出现短时强降雨，龙岩市武平县十方站110.0毫米”……连日来，珠江流域持续强降雨，水利部珠江水利委员会(下称“珠江委”)防汛值班室里，一条条预警信息不断“刷屏”，值班人员第一时间向地方发布预警提示、进行电话提醒。 在高空槽、偏南气流、切变线的共同影响下，5月13日以来，珠江流域接连遭遇2场强降雨过程，多地降
+中新网成都6月21日电 (袁牟知博)在成都市新津区举办的2026年全国龙舟大联动·川渝暨成德眉资(新津)天府端午龙舟会(下称2026年天府端午龙舟会)，20日圆满结束。56支龙舟劲旅，1300余名龙舟健儿共同上演了一场热血的“水上竞逐”。 据悉，2026年天府端午龙舟会，是成都与重庆两地“你中有我，我中有你”深度融合的又一生动实践，吸引了来自重庆、成都以及与四川省内德阳、眉山、
 
 ## 正文
 
-中新网广州5月22日电 (记者 王坚)“1-4时，福建龙岩市、广东韶关市出现短时强降雨，龙岩市武平县十方站110.0毫米”……连日来，珠江流域持续强降雨，水利部珠江水利委员会(下称“珠江委”)防汛值班室里，一条条预警信息不断“刷屏”，值班人员第一时间向地方发布预警提示、进行电话提醒。
+中新网成都6月21日电 (袁牟知博)在成都市新津区举办的2026年全国龙舟大联动·川渝暨成德眉资(新津)天府端午龙舟会(下称2026年天府端午龙舟会)，20日圆满结束。
 
-在高空槽、偏南气流、切变线的共同影响下，5月13日以来，珠江流域接连遭遇2场强降雨过程，多地降雨量刷新纪录，最大24小时降雨量广东阳江阳春市下双站录得1058.5毫米；超警、超保河流数量双双攀升，红水河支流曹渡河出现2004年以来历史第3高洪峰水位，汛情来势凶猛。
+56支龙舟劲旅，1300余名龙舟健儿共同上演了一场热血的“水上竞逐”。
 
-珠江委防御团队昼夜不懈，守护江河安澜。
+据悉，2026年天府端午龙舟会，是成都与重庆两地“你中有我，我中有你”深度融合的又一生动实践，吸引了来自重庆、成都以及与四川省内德阳、眉山、资阳的龙舟健儿们同台竞技。
 
-每天深夜，珠江委防汛值班室灯火通明；值班人员坚守防汛阵地，紧盯监测大屏、雷达回波、卫星云图，实时关注流域降雨落区、短临暴雨报警和河道水位涨幅。
+作为成都市绿色食品产业的主要承载地，四川省健康食品产业园内的众多商品也“搬”进了盛会现场，展位前大排长龙，游客们在观赏比赛之余，“一站式”品尝和选购川渝特色好物。
 
-特别是针对汛期夜间天气系统变化快、降雨落区难预判、风险隐患易突发等特点，全体值守人员始终保持高度戒备、丝毫不敢怠慢，运用珠江水旱灾害防御“四预”平台，对流域内396个主要河道站点和重点水库进行洪水预演，滚动研判732条中小河流防御风险。
+为助力蓉品蓉企出川出海，现场还开展了“天府好物”专场市场拓展活动，精选沈师傅、新津黄辣丁、希望食品、蜀锦研究所等近两百家企业的近千款优质产品集中亮相。
 
-“7时10分，贵州黔南州曹渡河平里河站水位涨至605.02米，超保1.72米，预计未来1-2小时水位继续上涨”……一条条预警信息不断“刷屏”，值班人员第一时间向地方发布预警提示、进行电话提醒；其间，累计发出汛情通报7期、防御通知2份，发布预报信息10万余条、预警短信9000余条，有效前置防御关口、争取处置主动，切实发挥防汛“前哨探头”和参谋助手作用。
+一系列精彩纷呈的配套活动也同步上演。
 
-5月18日0时21分、21时44分，广西柳州接连发生2次5.2级地震。
+“一站式”川渝非遗体验、民俗巡游“廊桥话民俗”展演、“龙舟江湖”沉浸式互动……参赛队员和游客沉浸式体验别样的端午龙舟盛会。
 
-地震发生后，珠江委立即启动重大水旱灾害调度指挥机制，防汛值班室连夜组织梳理震区水利工程分布情况，第一时间指导有关地方组织开展震区水利工程安全运行排查；工作组和专家团队连夜火速奔赴现场，冒着余震危险，协助分析研判险情趋势，指导做好工程排险和应急修复工作。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:15 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 13:26 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 13:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 13:11 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 13:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 13:06 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 13:25 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 13:28 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 13:09 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 13:20 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 13:12 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 13:19 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 13:16 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 13:20 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 13:27 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 13:21 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 13:39 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 13:17 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 13:27 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 13:32 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 13:35 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 13:16 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [毕业寄几百斤快递回家女生发声](https://www.blog.minike.top/Article/details/70849.shtml)
-- 2026-06-29 13:33 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/229721816287.shtml)
-- 2026-06-29 13:12 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/234363.shtml)
-- 2026-06-29 13:13 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/4324453.shtml)
-- 2026-06-29 13:14 - [多只A股发布股价异动公告](http://www.blog.minike.top/Article/details/685334499.shtml)
-- 2026-06-29 13:28 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/935452103.shtml)
-- 2026-06-29 13:10 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/9086733006.shtml)
-- 2026-06-29 13:11 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/382449358.shtml)
-- 2026-06-29 13:24 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/03286255.shtml)
-- 2026-06-29 13:20 - [世界杯打成了欧洲杯和美洲杯](http://www.share.kurohicncr.top/Article/details/02844107286.shtml)
-- 2026-06-29 13:27 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/6441669814.shtml)
-- 2026-06-29 13:27 - [马杜罗社交媒体账号再发文](http://www.share.kurohicncr.top/Article/details/45860.shtml)
-- 2026-06-29 13:17 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/53629007900.shtml)
-- 2026-06-29 13:08 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/2890253.shtml)
-- 2026-06-29 13:14 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/36118.shtml)
+- 2026-06-29 13:28 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/720505941863.shtml)
+- 2026-06-29 13:13 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/976909759987.shtml)
+- 2026-06-29 13:21 - [王楚钦美国大满贯晋级32强](https://www.share.kurohicncr.top/Article/details/34228878955.shtml)
+- 2026-06-29 13:26 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/00547783.shtml)
+- 2026-06-29 13:27 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/34121.shtml)
+- 2026-06-29 13:38 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/7621559813.shtml)
+- 2026-06-29 13:15 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/6411279.shtml)
+- 2026-06-29 13:15 - [海清白玉兰奖运](http://www.share.kurohicncr.top/Article/details/795855879760.shtml)
+- 2026-06-29 13:30 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/23164818.shtml)
+- 2026-06-29 13:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/51854469.shtml)
+- 2026-06-29 13:18 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/17423179.shtml)
+- 2026-06-29 13:41 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/57596.shtml)
+- 2026-06-29 13:12 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.share.kurohicncr.top/Article/details/772345.shtml)
+- 2026-06-29 13:26 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/5629112301.shtml)
+- 2026-06-29 13:25 - [为什么6月以来北方频繁降雨](http://www.blog.kurohicncr.top/Article/details/5703700354.shtml)

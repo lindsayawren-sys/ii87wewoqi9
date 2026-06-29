@@ -1,58 +1,57 @@
-# 江苏扬州航空-低空经济党外知识分子创新创业集聚区建设启动
+# 王沪宁主持召开全国政协主席会议
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网扬州5月22日电 (徐珊珊 任静)凝聚党外智识，赋能航空发展。5月22日，扬州航空-低空经济党外知识分子创新创业集聚区建设启动活动在生态科技新城举行。扬州市委常委、统战部部长丁四海，江苏省委统战部五处处长夏斌，扬州市政协副主席、市知联会会长华德荣，扬州市生态科技新城党工委书记王学峰出席活动，并共同启动集聚区建设。 丁四海在致辞中说，建设党外知识分子创新创业集聚区，是统一战
+新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。中共中央政治局常委、全国政协主席王沪宁主持并讲话。 会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政
 
 ## 正文
 
-中新网扬州5月22日电 (徐珊珊 任静)凝聚党外智识，赋能航空发展。
+新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。
 
-5月22日，扬州航空-低空经济党外知识分子创新创业集聚区建设启动活动在生态科技新城举行。
+中共中央政治局常委、全国政协主席王沪宁主持并讲话。
 
-扬州市委常委、统战部部长丁四海，江苏省委统战部五处处长夏斌，扬州市政协副主席、市知联会会长华德荣，扬州市生态科技新城党工委书记王学峰出席活动，并共同启动集聚区建设。
+会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。
 
-丁四海在致辞中说，建设党外知识分子创新创业集聚区，是统一战线“围绕中心、服务大局”的使命担当。
+王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政协性质定位、充分发挥专门协商机构作用、聚焦党和国家中心任务履职尽责的实际行动和工作成效上。
 
-扬州现有党外知识分子64万余人，近年来航空产业蓬勃发展，规上企业达92家，2025年规上工业开票收入达268亿元，建成全省唯一的航空航天先进结构与高端装备技术创新中心，53个低空应用场景落地见效。
+要深入学习贯彻习近平总书记对常态化做好东西部协作工作的重要指示精神，围绕促进区域协调发展、推进乡村全面振兴、推动全体人民共同富裕等积极建言献策。
 
-他表示，集聚区建设具备天时地利人和，要以此次启动为契机，强化思想引领、聚焦发展所需、发挥专业所长，营造近悦远来的服务环境，推动党外知识分子智慧与航空低空经济同频共振、双向赋能。
+要深入学习贯彻习近平总书记关于前瞻布局和发展未来产业的重要论述，引导经济界、科技界等相关界别政协委员通过视察考察调研、提案、社情民意信息等提出意见和建议。
 
-“生态科技新城拥有承载梦想的坚实基础和望见未来的广阔舞台。
+要深入学习贯彻习近平总书记关于一体推进教育科技人才发展的重要论述，聚焦建立健全教育科技人才一体推进协调机制、加快建设国家战略人才力量等重点问题，深入调查研究、协商议政，助力推动科技自主创新和人才自主培养。
 
-”王学峰在致辞中表示，生态科技新城作为扬州“东进”战略主战场和市域科创中心，近年来与中航工业集团深度合作，规划建设华东航空谷、低空经济产业园等重大项目。
+会议审议通过政协第十四届全国委员会常务委员会第十八次会议议程(草案)和日程，决定8月下旬在北京召开全国政协十四届常委会第十八次会议。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 13:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 13:35 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 13:12 - [大罗力挺内马尔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-29 13:32 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 13:31 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 13:19 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 13:13 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 13:17 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 13:30 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 13:23 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 13:30 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 13:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 13:30 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 13:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 13:40 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 13:27 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 13:33 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 13:15 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 13:26 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 13:30 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:24 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 13:21 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/94151.shtml)
-- 2026-06-29 13:26 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/2727852653.shtml)
-- 2026-06-29 13:15 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/70454.shtml)
-- 2026-06-29 13:31 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/538629900143.shtml)
-- 2026-06-29 13:22 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/4274997.shtml)
-- 2026-06-29 13:31 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/26942764.shtml)
-- 2026-06-29 13:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/12736224.shtml)
-- 2026-06-29 13:27 - [ENC瓦中国香港负印度数据图](https://www.blog.kurohicncr.top/Article/details/212432495208.shtml)
-- 2026-06-29 13:14 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/5658771606.shtml)
-- 2026-06-29 13:20 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/410832475.shtml)
-- 2026-06-29 13:28 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/75649837.shtml)
-- 2026-06-29 13:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/37099530186.shtml)
-- 2026-06-29 13:27 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/7153484.shtml)
-- 2026-06-29 13:34 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/77216450.shtml)
-- 2026-06-29 13:32 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/1100978044.shtml)
+- 2026-06-29 13:14 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/620939.shtml)
+- 2026-06-29 13:28 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1237852.shtml)
+- 2026-06-29 13:39 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/292988127.shtml)
+- 2026-06-29 13:32 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/90116598.shtml)
+- 2026-06-29 13:28 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/1089129.shtml)
+- 2026-06-29 13:40 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/50221.shtml)
+- 2026-06-29 13:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/36520.shtml)
+- 2026-06-29 13:21 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/29428130780.shtml)
+- 2026-06-29 13:13 - [爱情有烟火你是知道我爱看什么的](https://www.share.minike.top/Article/details/5147952639.shtml)
+- 2026-06-29 13:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/0446651.shtml)
+- 2026-06-29 13:22 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/4656254.shtml)
+- 2026-06-29 13:16 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/4347428852.shtml)
+- 2026-06-29 13:17 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/8890153.shtml)
+- 2026-06-29 13:23 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/3293691458.shtml)
+- 2026-06-29 13:37 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/76324.shtml)

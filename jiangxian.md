@@ -1,59 +1,60 @@
-# 印尼苏门答腊岛发生大规模停电 数百万人受影响
+# 芯片股狂欢周！美股基金流入创新高，日经7万点，韩股一年涨两倍
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新社雅加达5月23日电 (记者 李志全)印度尼西亚苏门答腊岛22日晚间发生大规模停电事故，数百万居民陷入断电状态，多个省份交通及公共活动受到影响。 印尼国家电力公司证实，当地时间22日18时44分左右，苏门答腊互联电网发生故障，导致亚齐省、北苏门答腊省、西苏门答腊省、廖内省以及苏门答腊中部部分地区大面积停电。其中，该公司在北苏门答腊、廖内、西苏门答腊和亚齐分别拥有约440万、
+市场聚焦下周三美光科技财报。 本周，芯片股再次成为了全球股市的焦点。 受益于美伊签署谅解备忘录，霍尔木兹海峡恢复通航，缓解全球通胀与加息恐慌，资金回流风险资产，同时AI景气持续超预期，多家芯片、存储企业财报指引上调，带动天量资金涌向美股，以及日韩等市场。 美股基金净流入创新高 由迈克尔·哈特内特牵头的美银策略团队在研报中援引全球资金流向监测机构EPFR数据称，截至6月17日的一
 
 ## 正文
 
-中新社雅加达5月23日电 (记者 李志全)印度尼西亚苏门答腊岛22日晚间发生大规模停电事故，数百万居民陷入断电状态，多个省份交通及公共活动受到影响。
+市场聚焦下周三美光科技财报。
 
-印尼国家电力公司证实，当地时间22日18时44分左右，苏门答腊互联电网发生故障，导致亚齐省、北苏门答腊省、西苏门答腊省、廖内省以及苏门答腊中部部分地区大面积停电。
+本周，芯片股再次成为了全球股市的焦点。
 
-其中，该公司在北苏门答腊、廖内、西苏门答腊和亚齐分别拥有约440万、260万、196万和170万用户。
+受益于美伊签署谅解备忘录，霍尔木兹海峡恢复通航，缓解全球通胀与加息恐慌，资金回流风险资产，同时AI景气持续超预期，多家芯片、存储企业财报指引上调，带动天量资金涌向美股，以及日韩等市场。
 
-初步调查显示，事故与一条275千伏输电线路故障有关，恶劣天气被认为是导致故障的重要原因。
+美股基金净流入创新高 由迈克尔·哈特内特牵头的美银策略团队在研报中援引全球资金流向监测机构EPFR数据称，截至6月17日的一周，美股股票基金净流入1192亿美元，创下历史最高纪录。
 
-截至23日7时，此次事故已造成540条供电线路受损，其中173条已恢复运行。
+美股中型股基金单周净流入199亿美元，刷新历史峰值；小盘股基金单周流入123亿美元，为历史第二高。
 
-印尼国家电力公司表示，已派出数百名技术人员开展抢修，并对输电系统进行全面检查。
+科技板块是资金聚焦核心，单周净流入192亿美元，为历史最高值。
 
-停电导致苏门答腊多地交通秩序受到影响。
+美股迎来天量资金的同时，科技企业集中开展大额股权融资。
 
-多地主要城市因交通信号灯停止运作，晚高峰期间多条道路出现严重拥堵。
+SpaceX已于6月12日完成史上规模最大IPO，股权融资额750亿美元；Anthropic、OpenAI也将紧随其后启动上市。
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 13:24 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 13:15 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-29 13:14 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 13:11 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:24 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 13:21 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 13:11 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 13:26 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 13:22 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 13:25 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 13:08 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 13:16 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 13:23 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 13:16 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 13:29 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 13:16 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 13:38 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
+- 2026-06-29 13:35 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 13:36 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:21 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 13:34 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-29 13:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-29 13:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 13:16 - [谢霆锋演唱会变大型呲水现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 13:37 - [杨紫《生命树》播放量破百亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.minike.top/Article/details/15106.shtml)
-- 2026-06-29 13:33 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/956421129.shtml)
-- 2026-06-29 13:28 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/63246007040.shtml)
-- 2026-06-29 13:20 - [啊啊啊](https://www.blog.minike.top/Article/details/759244179245.shtml)
-- 2026-06-29 13:25 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/827600382881.shtml)
-- 2026-06-29 13:25 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/893221672.shtml)
-- 2026-06-29 13:19 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/37671613.shtml)
-- 2026-06-29 13:10 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/28153423221.shtml)
-- 2026-06-29 13:31 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/67388825.shtml)
-- 2026-06-29 13:31 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/4189845.shtml)
-- 2026-06-29 13:06 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/8986306600.shtml)
-- 2026-06-29 13:31 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/08643130378.shtml)
-- 2026-06-29 13:15 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/8447301588.shtml)
-- 2026-06-29 13:33 - [美人鱼](https://www.share.minike.top/Article/details/9811351354.shtml)
-- 2026-06-29 13:13 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/5625823790.shtml)
+- 2026-06-29 13:34 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/101515549.shtml)
+- 2026-06-29 13:41 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/715708.shtml)
+- 2026-06-29 13:23 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/2585730095.shtml)
+- 2026-06-29 13:24 - [时光音乐会](http://www.blog.minike.top/Article/details/0117369.shtml)
+- 2026-06-29 13:25 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/303501401545.shtml)
+- 2026-06-29 13:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/592829917943.shtml)
+- 2026-06-29 13:22 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/810120028450.shtml)
+- 2026-06-29 13:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/33687130.shtml)
+- 2026-06-29 13:15 - [乔家的儿女](http://www.blog.minike.top/Article/details/429581.shtml)
+- 2026-06-29 13:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/04506.shtml)
+- 2026-06-29 13:17 - [急先锋](https://www.blog.kurohicncr.top/Article/details/41957029023.shtml)
+- 2026-06-29 13:36 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.kurohicncr.top/Article/details/6354804.shtml)
+- 2026-06-29 13:41 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/65235400962.shtml)
+- 2026-06-29 13:20 - [A股](https://www.blog.kurohicncr.top/Article/details/4016035377.shtml)
+- 2026-06-29 13:33 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/027090057.shtml)

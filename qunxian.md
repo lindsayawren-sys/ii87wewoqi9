@@ -1,48 +1,60 @@
-# 李秀宏、尹光星获批出任江西银行董事
+# “大国剑锋”越磨越利 解码中国导弹部队“千里眼顺风耳”
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-5月22日金融一线消息，江西金融监管局今日发布批复，核准李秀宏、尹光星江西银行董事任职资格。 责任编辑：秦艺
+在火箭军的战斗序列里，还有许多看不见的岗位，他们不直接按下发射按钮，却决定着导弹能否准时出鞘、精准到达。 在导弹作战体系中，通信被称为“千里眼顺风耳”，是指挥所与发射架之间最关键的纽带。如果说通信是神经，那测绘就是导弹的眼睛和风向标。在测绘岗位，一秒的误差都可能带来巨大偏差。 火箭军某部测绘兵 孟佳：我们平时在测量过程中是非常严谨的，能把它控制在0.01秒，绝对不会把它控制在0
 
 ## 正文
 
-5月22日金融一线消息，江西金融监管局今日发布批复，核准李秀宏、尹光星江西银行董事任职资格。
+在火箭军的战斗序列里，还有许多看不见的岗位，他们不直接按下发射按钮，却决定着导弹能否准时出鞘、精准到达。
 
-责任编辑：秦艺
+在导弹作战体系中，通信被称为“千里眼顺风耳”，是指挥所与发射架之间最关键的纽带。
+
+如果说通信是神经，那测绘就是导弹的眼睛和风向标。
+
+在测绘岗位，一秒的误差都可能带来巨大偏差。
+
+火箭军某部测绘兵 孟佳：我们平时在测量过程中是非常严谨的，能把它控制在0.01秒，绝对不会把它控制在0.1秒。
+
+导弹能战，战车先动。
+
+修理兵，每天和油污、零件、故障打交道，他们把战车看得比自己的生命还重要。
+
+有人负责把剑擦亮，还有人负责把剑磨快。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 13:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:30 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 13:16 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 13:34 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 13:15 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 13:28 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 13:22 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 13:07 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 13:34 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 13:21 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 13:10 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 13:33 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 13:14 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 13:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 13:29 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 13:40 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 13:16 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 13:23 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 13:30 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 13:39 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 13:27 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 13:40 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 13:17 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 13:16 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 13:17 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 13:30 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 13:22 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/067703072.shtml)
-- 2026-06-29 13:33 - [强⁶](https://www.share.minike.top/Article/details/35410513038.shtml)
-- 2026-06-29 13:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/234645.shtml)
-- 2026-06-29 13:17 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/849311251008.shtml)
-- 2026-06-29 13:29 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.kurohicncr.top/Article/details/3882114.shtml)
-- 2026-06-29 13:10 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/50499413074.shtml)
-- 2026-06-29 13:07 - [爱情有烟火你是知道我爱看什么的](http://www.blog.kurohicncr.top/Article/details/243574590.shtml)
-- 2026-06-29 13:26 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/47102.shtml)
-- 2026-06-29 13:30 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/32699707.shtml)
-- 2026-06-29 13:18 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/2318225.shtml)
-- 2026-06-29 13:19 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/148251819767.shtml)
-- 2026-06-29 13:34 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/636666182.shtml)
-- 2026-06-29 13:17 - [急先锋](http://www.blog.minike.top/Article/details/93099.shtml)
-- 2026-06-29 13:30 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.minike.top/Article/details/069065646171.shtml)
-- 2026-06-29 13:26 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/325374.shtml)
+- 2026-06-29 13:13 - [欧洲极端高温东扩](https://www.share.kurohicncr.top/Article/details/45905.shtml)
+- 2026-06-29 13:33 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/46977439749.shtml)
+- 2026-06-29 13:33 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/7447876.shtml)
+- 2026-06-29 13:14 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/74482.shtml)
+- 2026-06-29 13:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/06573449502.shtml)
+- 2026-06-29 13:32 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/200112851.shtml)
+- 2026-06-29 13:26 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/6762369.shtml)
+- 2026-06-29 13:16 - [第一炉香](https://www.share.minike.top/Article/details/699624943.shtml)
+- 2026-06-29 13:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/33141907.shtml)
+- 2026-06-29 13:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/6794251.shtml)
+- 2026-06-29 13:35 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/9811200781.shtml)
+- 2026-06-29 13:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/729364.shtml)
+- 2026-06-29 13:12 - [T1零封KC MSI](https://www.share.minike.top/Article/details/824288607104.shtml)
+- 2026-06-29 13:32 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/19246874.shtml)
+- 2026-06-29 13:40 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/428853.shtml)

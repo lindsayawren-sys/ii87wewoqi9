@@ -1,59 +1,59 @@
-# Cuprina宣布1比8反向拆股，为保住纳斯达克上市资格做最后努力
+# 牛市旗手回归，千亿巨头涨停！顶流券商ETF华宝（512000）猛攻5%，机构高呼：所有错杀，都会涨回
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-新加坡生物医疗公司Cuprina Holdings于5月22日宣布，将对其A类和B类普通股实施1比8的反向拆股，预计于5月27日前后生效。此举旨在使公司股价重新达到纳斯达克的最低1美元竞价要求，从而维持上市地位。 公司首席执行官David Quek表示，此举是维持公司纳斯达克上市地位、增强长期财务灵活性的重要一步。根据合并方案，每8股面值0.001美元的普通股将合并为1股面值0
+6月22日，券商异动猛攻，千亿巨头广发证券封板，长江证券冲击涨停，中信建投涨超7%，华泰证券涨超6%，中信证券、东方财富涨超5%。规模360亿元+的顶流券商ETF华宝（512000）低开高走，午后进一步拉升，场内价格现涨超5%。 分析认为，当下券商板块迎来多重逻辑支撑：首先是市场风格再平衡，中报有业绩支撑的券商板块弹性更强；二是券商行业并购重组加速推进，政策支持下行业集中度提升
 
 ## 正文
 
-新加坡生物医疗公司Cuprina Holdings于5月22日宣布，将对其A类和B类普通股实施1比8的反向拆股，预计于5月27日前后生效。
+6月22日，券商异动猛攻，千亿巨头广发证券封板，长江证券冲击涨停，中信建投涨超7%，华泰证券涨超6%，中信证券、东方财富涨超5%。
 
-此举旨在使公司股价重新达到纳斯达克的最低1美元竞价要求，从而维持上市地位。
+规模360亿元+的顶流券商ETF华宝（512000）低开高走，午后进一步拉升，场内价格现涨超5%。
 
-公司首席执行官David Quek表示，此举是维持公司纳斯达克上市地位、增强长期财务灵活性的重要一步。
+分析认为，当下券商板块迎来多重逻辑支撑：首先是市场风格再平衡，中报有业绩支撑的券商板块弹性更强；二是券商行业并购重组加速推进，政策支持下行业集中度提升，头部及区域券商竞争力有望增强；三是板块业绩与估值存在明显“剪刀差”，2025年以来多数券商业绩稳健增长但股价滞涨，估值修复空间充足；四是年内A股IPO数量及募资金额同比大幅增长，为券商投行带来稳定收入增量；五是A股交投活跃带动财富管理需求攀升，券商相关业务迎来成长机遇。
 
-根据合并方案，每8股面值0.001美元的普通股将合并为1股面值0.008美元的股份。
+东方财富证券指出，所有错杀，都会涨回。
 
-拆股后不会发行零碎股份，不足一股的部分将向上取整。
+强烈看好非银金融，尤其是券商，其ROE已创22年以来新高，仍有进一步提升空间。
 
-公司A类股将继续以代码CUPR交易，但将启用新的CUSIP编号。
+其PB低于历史90%时间。
 
-根据2025年11月收到的纳斯达克通知，公司有180天合规期至2026年5月26日，以解决股价长期低于1美元的问题。
+如果未来大A真有走熊那天，那么券商估值也已经率先完成这个进程。
 
-此次并股是解决合规问题的最终尝试。
+反之，市场因为任何理由极限压制券商估值，其后续终会像弹簧一样修复。
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 13:35 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 13:12 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:32 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 13:18 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 13:15 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 13:27 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:06 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 13:08 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 13:30 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 13:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 13:13 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 13:18 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 13:30 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-29 13:20 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 13:33 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-29 13:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 13:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 13:18 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 13:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 13:36 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 13:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 13:17 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 13:19 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:24 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [医护人员观影《四渡》传承长征精神](http://www.blog.kurohicncr.top/Article/details/912197569.shtml)
-- 2026-06-29 13:18 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/25936026424.shtml)
-- 2026-06-29 13:21 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/1008064538.shtml)
-- 2026-06-29 13:14 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/32156826996.shtml)
-- 2026-06-29 13:23 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/1093777134.shtml)
-- 2026-06-29 13:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/8767265.shtml)
-- 2026-06-29 13:23 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/179237.shtml)
-- 2026-06-29 13:27 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/0435893.shtml)
-- 2026-06-29 13:13 - [功率半导体缺货涨价](https://www.blog.minike.top/Article/details/921030791781.shtml)
-- 2026-06-29 13:14 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/70564483958.shtml)
-- 2026-06-29 13:29 - [扬名立万](https://www.blog.minike.top/Article/details/21182059.shtml)
-- 2026-06-29 13:21 - [双高胎](https://www.share.minike.top/Article/details/9281377696.shtml)
-- 2026-06-29 13:21 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/5396515.shtml)
-- 2026-06-29 13:22 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/01191.shtml)
-- 2026-06-29 13:30 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/395458300980.shtml)
+- 2026-06-29 13:16 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.minike.top/Article/details/808346340288.shtml)
+- 2026-06-29 13:21 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/447141182.shtml)
+- 2026-06-29 13:39 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/148558567.shtml)
+- 2026-06-29 13:21 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/49503889466.shtml)
+- 2026-06-29 13:34 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/350363.shtml)
+- 2026-06-29 13:35 - [流金岁月](https://www.share.kurohicncr.top/Article/details/00653391257.shtml)
+- 2026-06-29 13:31 - [张真源解读相思锁](https://www.share.minike.top/Article/details/475500874.shtml)
+- 2026-06-29 13:17 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/554951.shtml)
+- 2026-06-29 13:18 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/638498686364.shtml)
+- 2026-06-29 13:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/982240193.shtml)
+- 2026-06-29 13:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/494317693979.shtml)
+- 2026-06-29 13:33 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/137208439.shtml)
+- 2026-06-29 13:26 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/03585172.shtml)
+- 2026-06-29 13:31 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/6741582666.shtml)
+- 2026-06-29 13:32 - [白玉兰最佳女主角提名片段](https://www.blog.minike.top/Article/details/6448097523.shtml)

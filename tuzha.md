@@ -1,58 +1,56 @@
-# “一片叶子富一方百姓” 福建南平千年茶韵飘香中国非遗馆
+# 轻松健康午后涨超12% 近日与巴塞尔医疗订立三年战略合作备忘录
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电 (记者 应妮)5月21日是第7个国际茶日。由中国非物质文化遗产馆、福建省南平市人民政府联合主办的“岩骨正气 和合致远——‘三茶’统筹的南平实践”展览在中国非物质文化遗产馆开幕，以茶香引领观众品读中华文明的深邃智慧。 “中国传统制茶技艺及其相关习俗”于2022年11月列入联合国教科文组织人类非物质文化遗产代表作名录。福建省南平市是世界红茶祖地、乌龙茶故乡、
+轻松健康（02661）午后一度涨超20%，截至发稿，股价上涨12.19%，现报15.55港元，成交额2.51亿港元。 近日，轻松健康发布公告，公司与巴塞尔医疗集团有限公司（巴塞尔医疗，纳斯达克证券交易所股票代码：BMGL）经友好协商，订立一份有效期为三年的战略合作备忘录。本次合作依托集团自研的证元芳•MedClaw医疗AI协作体系统及AIcare技术栈优势、多年AI健康领域落地
 
 ## 正文
 
-中新网北京5月22日电 (记者 应妮)5月21日是第7个国际茶日。
+轻松健康（02661）午后一度涨超20%，截至发稿，股价上涨12.19%，现报15.55港元，成交额2.51亿港元。
 
-由中国非物质文化遗产馆、福建省南平市人民政府联合主办的“岩骨正气 和合致远——‘三茶’统筹的南平实践”展览在中国非物质文化遗产馆开幕，以茶香引领观众品读中华文明的深邃智慧。
+近日，轻松健康发布公告，公司与巴塞尔医疗集团有限公司（巴塞尔医疗，纳斯达克证券交易所股票代码：BMGL）经友好协商，订立一份有效期为三年的战略合作备忘录。
 
-“中国传统制茶技艺及其相关习俗”于2022年11月列入联合国教科文组织人类非物质文化遗产代表作名录。
+本次合作依托集团自研的证元芳•MedClaw医疗AI协作体系统及AIcare技术栈优势、多年AI健康领域落地经验展开，旨在实现技术输出与技术迭代双向发展。
 
-福建省南平市是世界红茶祖地、乌龙茶故乡、白茶发源地及万里茶道起点，此次展览通过实物展陈、数字交互、场景复原等现代技术手段的有机融合，系统呈现了南平市如何以茶为枢，贯通文化传承、产业创新、科技赋能与生态治理，在新时代鲜活诠释“绿水青山就是金山银山”的深刻内涵。
+双方一致认为，将集团经验证的健康AI基础设施，与巴塞尔医疗在东南亚的临床场景及市场入口相结合，有助于推动区域医疗服务的智能化升级，并为双方共同开拓新的市场机会。
 
-展览以“和合共生”为灵魂，以“岩骨正气”为风骨，系统梳理南平市在文化遗产保护、产业振兴与生态治理等方面的前沿探索。
+同时，双方拟以集团Alcare技术栈为基础，支持巴塞尔医疗在东南亚地区开展AI-native的医疗服务升级，并共同拓展区域市场，建立长期、稳定的战略合作关系。
 
-观众可以通过数字长卷与非遗技艺展示，溯源南平千年茶脉。
-
-现场还通过场景复原与传统工具，系统呈现了武夷岩茶、红茶及政和白茶制作技艺。
-
-武夷茶艺、建阳宋代点茶、八角亭龙须茶制作技艺、建窑建盏烧制技艺、浦城大口窑青白瓷制作技艺、竹编技艺(武夷山)、武夷竹刻等一批非遗技艺也在现场展示。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 13:31 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 13:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 13:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 13:31 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-29 13:25 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 13:28 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 13:34 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 13:22 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 13:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 13:08 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 13:21 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 13:18 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 13:27 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 13:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 13:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:37 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 13:36 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 13:39 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 13:31 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 13:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 13:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 13:16 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 13:24 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-29 13:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 13:13 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [起风了](http://www.share.minike.top/Article/details/08948528.shtml)
-- 2026-06-29 13:11 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/905738.shtml)
-- 2026-06-29 13:11 - [马杜罗社交媒体账号再发文](https://www.blog.minike.top/Article/details/99736.shtml)
-- 2026-06-29 13:28 - [尽量少用玻璃吸管](https://www.blog.kurohicncr.top/Article/details/645840.shtml)
-- 2026-06-29 13:32 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/925425.shtml)
-- 2026-06-29 13:24 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/6493548.shtml)
-- 2026-06-29 13:32 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/794959457.shtml)
-- 2026-06-29 13:28 - [实习期把公司领导开除了](https://www.share.minike.top/Article/details/837070.shtml)
-- 2026-06-29 13:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/0286232287.shtml)
-- 2026-06-29 13:16 - [大罗力挺内马尔](https://www.blog.minike.top/Article/details/18123891238.shtml)
-- 2026-06-29 13:24 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.minike.top/Article/details/89579.shtml)
-- 2026-06-29 13:16 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/716754490448.shtml)
-- 2026-06-29 13:27 - [房屋抵押权与租赁权如何协调](https://www.blog.kurohicncr.top/Article/details/606288.shtml)
-- 2026-06-29 13:35 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/029309.shtml)
-- 2026-06-29 13:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/1615787.shtml)
+- 2026-06-29 13:23 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/10375046.shtml)
+- 2026-06-29 13:35 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/882785.shtml)
+- 2026-06-29 13:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/587466765252.shtml)
+- 2026-06-29 13:36 - [爱很美味](https://www.share.minike.top/Article/details/451124800070.shtml)
+- 2026-06-29 13:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/425449354801.shtml)
+- 2026-06-29 13:15 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/63178154081.shtml)
+- 2026-06-29 13:21 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/578417517.shtml)
+- 2026-06-29 13:18 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.share.minike.top/Article/details/60542.shtml)
+- 2026-06-29 13:29 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/32799.shtml)
+- 2026-06-29 13:41 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/5681656.shtml)
+- 2026-06-29 13:36 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/05574.shtml)
+- 2026-06-29 13:20 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/66615524354.shtml)
+- 2026-06-29 13:31 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.minike.top/Article/details/5677160513.shtml)
+- 2026-06-29 13:23 - [斛珠夫人](http://www.share.minike.top/Article/details/83220.shtml)
+- 2026-06-29 13:20 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/54589797.shtml)

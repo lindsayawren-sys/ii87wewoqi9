@@ -1,50 +1,52 @@
-# 广东惠东：“北斗”护航 200只人工繁育海龟放归大海
+# 新疆塔城：端午节戍边民警巡逻路上吃粽子
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 18:50 来源：中国新闻网 5月23日“世界海龟日”前夕，在广东惠东海龟国家级自然保护区，200只人工繁育海龟被放归大海。科研人员在其中8只海龟身上安装了北斗卫星追踪器，并首次为1只海龟加装北斗视觉融合智能跟踪器，实现了海龟科研保护从“追踪位置”向“看见行为、验证数据、理解生态”的跨越升级。( 韦杰夫 刘艳玲 赖日宏 制作 侯诗蕊） 责任编辑
+发布时间：2026年06月19日 17:19 来源：中国新闻网 粽香飘北疆，戍边护佳节。6月19日，新疆托里沙孜边境派出所民警对边境重点区域开展巡逻踏查，确保节日期间边境地区安全稳定。巡逻间隙，民警围坐吃上自己包的粽子。粽叶包裹家国初心，藏蓝坚守守护万家团圆，全体民警以戈壁戍守诠释担当，遥祝全国人民端午安康。(作者：毛显文） 责任编辑：【魏聪聪】
 
 ## 正文
 
-发布时间：2026年05月23日 18:50 来源：中国新闻网 5月23日“世界海龟日”前夕，在广东惠东海龟国家级自然保护区，200只人工繁育海龟被放归大海。
+发布时间：2026年06月19日 17:19 来源：中国新闻网 粽香飘北疆，戍边护佳节。
 
-科研人员在其中8只海龟身上安装了北斗卫星追踪器，并首次为1只海龟加装北斗视觉融合智能跟踪器，实现了海龟科研保护从“追踪位置”向“看见行为、验证数据、理解生态”的跨越升级。
+6月19日，新疆托里沙孜边境派出所民警对边境重点区域开展巡逻踏查，确保节日期间边境地区安全稳定。
 
-( 韦杰夫 刘艳玲 赖日宏 制作 侯诗蕊） 责任编辑：【罗攀】
+巡逻间隙，民警围坐吃上自己包的粽子。
+
+粽叶包裹家国初心，藏蓝坚守守护万家团圆，全体民警以戈壁戍守诠释担当，遥祝全国人民端午安康。
+
+(作者：毛显文） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 13:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 13:23 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 13:26 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 13:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-29 13:10 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 13:14 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-29 13:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 13:32 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 13:07 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 13:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 13:06 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 13:06 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 13:15 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 13:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 13:24 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 13:24 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:28 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 13:39 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 13:25 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 13:26 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 13:21 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 13:26 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 13:27 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 13:24 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 13:26 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:21 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/485373.shtml)
-- 2026-06-29 13:17 - [恋与深空女玩家不该被冒犯](http://www.share.kurohicncr.top/Article/details/18932157390.shtml)
-- 2026-06-29 13:21 - [刘仲华院士愿当贺永辉导师](http://www.share.minike.top/Article/details/981588.shtml)
-- 2026-06-29 13:29 - [中方将20家日本实体列入关注名单](https://www.share.kurohicncr.top/Article/details/83557.shtml)
-- 2026-06-29 13:12 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/820029957528.shtml)
-- 2026-06-29 13:09 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/28408755.shtml)
-- 2026-06-29 13:09 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/041807.shtml)
-- 2026-06-29 13:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/370557.shtml)
-- 2026-06-29 13:08 - [周生如故](http://www.blog.minike.top/Article/details/364586.shtml)
-- 2026-06-29 13:16 - [法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/33855.shtml)
-- 2026-06-29 13:29 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/7055311145.shtml)
-- 2026-06-29 13:15 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.minike.top/Article/details/048538958367.shtml)
-- 2026-06-29 13:19 - [世界杯用球成部分门将噩梦](http://www.blog.kurohicncr.top/Article/details/9271026.shtml)
-- 2026-06-29 13:31 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/499110825.shtml)
-- 2026-06-29 13:30 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/5731646177.shtml)
+- 2026-06-29 13:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.kurohicncr.top/Article/details/50920385.shtml)
+- 2026-06-29 13:41 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/39626.shtml)
+- 2026-06-29 13:26 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/66880.shtml)
+- 2026-06-29 13:21 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/33857186163.shtml)
+- 2026-06-29 13:19 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/0874366.shtml)
+- 2026-06-29 13:15 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.kurohicncr.top/Article/details/71603804256.shtml)
+- 2026-06-29 13:21 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/98608.shtml)
+- 2026-06-29 13:26 - [我们注定是一撮县城葱姜蒜](http://www.share.kurohicncr.top/Article/details/774486.shtml)
+- 2026-06-29 13:33 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/5957804.shtml)
+- 2026-06-29 13:13 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/32053.shtml)
+- 2026-06-29 13:17 - [白玉兰最佳女主角提名片段](http://www.blog.kurohicncr.top/Article/details/6800306578.shtml)
+- 2026-06-29 13:40 - [扬名立万](http://www.share.minike.top/Article/details/614050.shtml)
+- 2026-06-29 13:29 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/5573033246.shtml)
+- 2026-06-29 13:32 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/05948259.shtml)
+- 2026-06-29 13:25 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/7141036.shtml)

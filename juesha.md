@@ -1,50 +1,54 @@
-# 桨板作垫、落日为伴：银川“水上瑜伽”治愈又“出片”
+# 韩国国民年金服务将于7月恢复国内股票再平衡
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月24日 17:37 来源：中国新闻网 5月23日傍晚，夕阳将银川市阅海湖面染上一层金辉。在轻柔的晚风中，一场别开生面的“瑜伽+桨板”融合运动正在湖面进行——8名瑜伽爱好者端立于桨板之上，在教练的专业指导下，将瑜伽的柔韧与桨板的平衡合二为一，于湖光水色间舒展身心，与自然和谐共生。(记者 谢宇 宁夏银川报道） 责任编辑：【王凯】
+据韩联社Infomax报道，韩国国民年金服务（NPS）将在6月底暂停后，于下月恢复国内股票的再平衡工作。 报道指出，此前NPS已将2026年底国内股票权重目标从14.9%上调至20.8%，并将战略资产配置区间扩大一倍，达到6个百分点。目前NPS持有的国内股票占比估计约为30%，已超过允许上限。因此，NPS可能需要逐步出售价值高达55万亿韩元的国内股票，以实现投资组合的再平衡。责
 
 ## 正文
 
-发布时间：2026年05月24日 17:37 来源：中国新闻网 5月23日傍晚，夕阳将银川市阅海湖面染上一层金辉。
+据韩联社Infomax报道，韩国国民年金服务（NPS）将在6月底暂停后，于下月恢复国内股票的再平衡工作。
 
-在轻柔的晚风中，一场别开生面的“瑜伽+桨板”融合运动正在湖面进行——8名瑜伽爱好者端立于桨板之上，在教练的专业指导下，将瑜伽的柔韧与桨板的平衡合二为一，于湖光水色间舒展身心，与自然和谐共生。
+报道指出，此前NPS已将2026年底国内股票权重目标从14.9%上调至20.8%，并将战略资产配置区间扩大一倍，达到6个百分点。
 
-(记者 谢宇 宁夏银川报道） 责任编辑：【王凯】
+目前NPS持有的国内股票占比估计约为30%，已超过允许上限。
+
+因此，NPS可能需要逐步出售价值高达55万亿韩元的国内股票，以实现投资组合的再平衡。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 13:32 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 13:27 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 13:26 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 13:20 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 13:09 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 13:08 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 13:30 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-29 13:27 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 13:14 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 13:23 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 13:35 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 13:23 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 13:14 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 13:34 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-29 13:26 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 13:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 13:26 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 13:27 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 13:25 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 13:26 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 13:19 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 13:19 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 13:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 13:21 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 13:41 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 13:13 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 13:36 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/0058690477.shtml)
-- 2026-06-29 13:17 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/2918491532.shtml)
-- 2026-06-29 13:15 - [千与千寻](https://www.share.minike.top/Article/details/06839252.shtml)
-- 2026-06-29 13:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/746441025.shtml)
-- 2026-06-29 13:34 - [光与夜之恋](https://www.blog.minike.top/Article/details/8963185206.shtml)
-- 2026-06-29 13:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/094504.shtml)
-- 2026-06-29 13:23 - [张一山说杨紫早该拿奖了](http://www.share.kurohicncr.top/Article/details/543648.shtml)
-- 2026-06-29 13:33 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/21125.shtml)
-- 2026-06-29 13:12 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.minike.top/Article/details/35649409667.shtml)
-- 2026-06-29 13:13 - [AG 钟意](http://www.share.minike.top/Article/details/87359.shtml)
-- 2026-06-29 13:19 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/021627433238.shtml)
-- 2026-06-29 13:12 - [功率半导体缺货涨价](https://www.blog.minike.top/Article/details/574411.shtml)
-- 2026-06-29 13:09 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/662073066429.shtml)
-- 2026-06-29 13:27 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/622571.shtml)
-- 2026-06-29 13:23 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/186476331182.shtml)
+- 2026-06-29 13:41 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/01138302.shtml)
+- 2026-06-29 13:25 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/53857404.shtml)
+- 2026-06-29 13:33 - [赵今麦客串电影版开端](https://www.blog.kurohicncr.top/Article/details/436096844.shtml)
+- 2026-06-29 13:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/935964907445.shtml)
+- 2026-06-29 13:20 - [沙丘](https://www.share.minike.top/Article/details/530681.shtml)
+- 2026-06-29 13:17 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/760815.shtml)
+- 2026-06-29 13:40 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/23820.shtml)
+- 2026-06-29 13:40 - [光与夜之恋](http://www.share.minike.top/Article/details/6145885.shtml)
+- 2026-06-29 13:19 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/242262106953.shtml)
+- 2026-06-29 13:19 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.minike.top/Article/details/60444080.shtml)
+- 2026-06-29 13:29 - [强⁶](https://www.blog.minike.top/Article/details/6228664.shtml)
+- 2026-06-29 13:37 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/76478.shtml)
+- 2026-06-29 13:33 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/28646.shtml)
+- 2026-06-29 13:39 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/5895840181.shtml)
+- 2026-06-29 13:40 - [当我回母校教书](http://www.share.minike.top/Article/details/862431724870.shtml)

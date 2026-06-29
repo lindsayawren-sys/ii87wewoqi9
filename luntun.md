@@ -1,42 +1,57 @@
-# 留神峪煤矿事故企业负责人被控制
+# 长江有色：22日铜价下跌 矿紧锭松，淡季畏高施压
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-记者从山西通洲集团留神峪煤矿瓦斯爆炸事故救援指挥部了解到，涉事企业负责人已被依法采取控制措施。
+长江有色金属网 6月22日铜期货市场动态：今日沪期铜主力月2608合约高开下挫，午后区间窄幅震荡；开盘价报104660元/吨，最高105370元/吨，最低104300元/吨，昨结105060元/吨，今日收盘价报105000元/吨，跌60元，跌幅0.06%，沪铜主力2608合约全天成交量43535手减少28548手。持仓量147012手减少34149手。亚盘时段，伦铜偏强震荡，北
 
 ## 正文
 
-记者从山西通洲集团留神峪煤矿瓦斯爆炸事故救援指挥部了解到，涉事企业负责人已被依法采取控制措施。
+长江有色金属网 6月22日铜期货市场动态：今日沪期铜主力月2608合约高开下挫，午后区间窄幅震荡；开盘价报104660元/吨，最高105370元/吨，最低104300元/吨，昨结105060元/吨，今日收盘价报105000元/吨，跌60元，跌幅0.06%，沪铜主力2608合约全天成交量43535手减少28548手。
+
+持仓量147012手减少34149手。
+
+亚盘时段，伦铜偏强震荡，北京时间15：12最新报价13704.5美元/吨，涨117.5 美元/吨，涨幅0.86%。
+
+长江铜业网铜价格统计：今日国内现货铜价格下跌，长江现货1#铜价报104590元/吨，跌680元，升水100-升水140，持平；长江综合1#铜价报104550元/吨，跌705元，升水30-升水130，跌25元；广东现货1#铜价报104560元/吨，跌750元，贴水10-升水190，跌70元；上海地区1#铜价报104500元/吨，跌680元，贴水10-升水70，持平。
+
+长江铜市分析： 宏观层面：美联储转鹰，美元破百 6月17日，美联储新任主席沃什首场议息会议落地。
+
+FOMC声明精简至130字，点阵图却释放强烈鹰派信号——9人支持年内加息，8人主张按兵不动，仅1人看降息。
+
+受此提振，美元指数突破100关口，目前在100.8附近震荡偏强，对铜价形成压制。
+
+地缘方面，伊朗再次关闭霍尔木兹海峡，WTI一度冲高至78美元，但供应担忧尚未转化为实质缺口，油价自高位回落，避险溢价逐步消退。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 13:19 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 13:20 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 13:14 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 13:15 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 13:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-29 13:18 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 13:16 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 13:27 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 13:23 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 13:33 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 13:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 13:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 13:22 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 13:31 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 13:20 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 13:12 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 13:35 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 13:36 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 13:24 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 13:21 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [刘仲华院士愿当贺永辉导师](http://www.share.kurohicncr.top/Article/details/009256671794.shtml)
-- 2026-06-29 13:17 - [加拿大92分钟绝杀南非](http://www.blog.minike.top/Article/details/56506.shtml)
-- 2026-06-29 13:32 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/46914254655.shtml)
-- 2026-06-29 13:10 - [宜宾地震致13人受轻微伤](http://www.blog.minike.top/Article/details/342010348.shtml)
-- 2026-06-29 13:33 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/329723.shtml)
-- 2026-06-29 13:11 - [NBA交易](https://www.share.minike.top/Article/details/567299244.shtml)
-- 2026-06-29 13:09 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/88084.shtml)
-- 2026-06-29 13:33 - [房屋抵押权与租赁权如何协调](http://www.blog.kurohicncr.top/Article/details/33807991098.shtml)
-- 2026-06-29 13:08 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/675028503.shtml)
-- 2026-06-29 13:18 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.kurohicncr.top/Article/details/341637886.shtml)
-- 2026-06-29 13:18 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/40226804.shtml)
-- 2026-06-29 13:35 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/1930114.shtml)
-- 2026-06-29 13:29 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/794675165948.shtml)
-- 2026-06-29 13:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/51331936.shtml)
-- 2026-06-29 13:20 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/602410144009.shtml)
+- 2026-06-29 13:16 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/231056917.shtml)
+- 2026-06-29 13:30 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/750599.shtml)
+- 2026-06-29 13:39 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/028512687.shtml)
+- 2026-06-29 13:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/77878150954.shtml)
+- 2026-06-29 13:30 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/57207933.shtml)
+- 2026-06-29 13:28 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/68839.shtml)
+- 2026-06-29 13:19 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/9679513.shtml)
+- 2026-06-29 13:28 - [俄称继续推进 乌称打击俄军设施](https://www.blog.minike.top/Article/details/484577766.shtml)
+- 2026-06-29 13:18 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/09030.shtml)
+- 2026-06-29 13:37 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/872326746165.shtml)
+- 2026-06-29 13:36 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/22390582016.shtml)
+- 2026-06-29 13:16 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/6914508.shtml)
+- 2026-06-29 13:22 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/385403947.shtml)
+- 2026-06-29 13:24 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/86189464.shtml)
+- 2026-06-29 13:41 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/8613164724.shtml)

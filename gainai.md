@@ -1,60 +1,61 @@
-# 上海：多智能体协同赋能超大城市公卫安全
+# 3省联动，57名采茶工的欠薪追回来了！
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网上海5月24日电 (记者 陈静)上海市疾病预防控制中心(上海市预防医学科学院)主任陈昕24日在沪接受采访时表示，面对超大城市的公共卫生安全挑战，上海提出从“被动应对”转向“主动智防”的治理理念，针对各类公共卫生风险开展智能精准研判预警、早期主动识别和分析以及有效干预和控制。同时，聚焦不明原因肺炎等具有潜在风险的传染病，上海构建了多智能体协同的监测预警体系：“诊间风险识别”
+工会“娘家人”全链追责，保障超龄劳动者权益“不落空” 【工会工作法治化·实践行】3省联动，57名采茶工的欠薪追回来了！ 开栏的话 法治是工会发挥桥梁纽带作用、履行维权服务基本职责、推动构建和谐劳动关系的有效途径。近年来，各地工会大力推进工会工作法治化，切实维护劳动领域政治安全，持续深化工会改革和建设，充分发挥党联系职工群众的桥梁纽带作用。即日起，本报推出“工会工作法治化·实践行
 
 ## 正文
 
-中新网上海5月24日电 (记者 陈静)上海市疾病预防控制中心(上海市预防医学科学院)主任陈昕24日在沪接受采访时表示，面对超大城市的公共卫生安全挑战，上海提出从“被动应对”转向“主动智防”的治理理念，针对各类公共卫生风险开展智能精准研判预警、早期主动识别和分析以及有效干预和控制。
+工会“娘家人”全链追责，保障超龄劳动者权益“不落空” 【工会工作法治化·实践行】3省联动，57名采茶工的欠薪追回来了！
 
-同时，聚焦不明原因肺炎等具有潜在风险的传染病，上海构建了多智能体协同的监测预警体系：“诊间风险识别”智能体可在30秒内解析病历、提取关键特征，再由“风险研判评估”“分类报告”“流调辅助”等智能体联动，实现疑似病例的早期捕捉。
+开栏的话 法治是工会发挥桥梁纽带作用、履行维权服务基本职责、推动构建和谐劳动关系的有效途径。
 
-上述过程用传统方法排查一般需25天以上，而在人工智能辅助下可压缩至7天内(缩短约72%)。
+近年来，各地工会大力推进工会工作法治化，切实维护劳动领域政治安全，持续深化工会改革和建设，充分发挥党联系职工群众的桥梁纽带作用。
 
-试点运行以来，上海已精准高效排查上千例高风险病例。
+即日起，本报推出“工会工作法治化·实践行”专栏，聚焦各地工会深入推进工会工作法治化的创新探索，充分展现各地工会以法治为护盾做好维权服务，积极运用法治思维和法治方式调处劳动关系矛盾，保障职工合法权益，在法治轨道上推动工会工作不断迈上新台阶的生动实践。
 
-刚参加第79届世界卫生大会回沪的陈昕对记者表示，在世界卫生大会这一国际平台分享来自上海疾控的人工智能方案，既是对超大城市公共卫生治理经验的系统总结，又能为全球健康贡献前沿技术实践参考。
+敬请垂注。
 
-据悉，2025年8月，上海市疾控中心牵头成立上海市公共卫生数据实验室，围绕超大城市公共卫生核心需求，将疾控业务与人工智能技术深度融合，搭建涵盖数据治理、知识图谱、算力支撑和模型研发的完整技术链路，重点把握场景、算法、语料、算力四大核心要素。
+从贵州黔东南到浙江淳安，再到江苏宿迁，跨越3个省份，历时5个多月——57名采茶工的血汗钱，终于一分不少地追回来了。
 
-相关部门通过明确真实业务需求场景厘清工作核心痛点、卡点、堵点与关键优化环节，推动算法适配业务规则；在公共卫生语料治理中充分发挥专业积淀，构建多维语料资源体系；而算力作为底层基础设施，为全流程智能运转提供坚实支撑。
+不久前，江苏省宿迁市总工会工作人员来到贵州省黔东南自治州黎平县，向57名采茶工现场发放被拖欠的12万余元工资。
 
-在构建了多智能体协同的监测预警体系的同时，围绕青少年、中青年和职业人群、老年人群的差异化慢性病防控需求，上海依托健康画像等人工智能技术，实现居民慢性病辅助评估风险等级，智能生成个性化的饮食、运动、用药、复诊等健康建议方案，居民通过手机即可获得精准、连续的慢病服务。
+发放现场，工人们笑容满面，唱起了侗族民歌《欢迎你到侗寨来》以表达感谢。
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 13:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 13:21 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 13:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 13:08 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 13:23 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 13:31 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 13:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 13:09 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-29 13:28 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 13:30 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 13:26 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 13:30 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 13:16 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 13:19 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 13:40 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-29 13:27 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 13:23 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 13:41 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 13:39 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 13:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 13:13 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 13:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 13:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 13:13 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 13:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 13:13 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-29 13:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 13:21 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/706080956.shtml)
-- 2026-06-29 13:22 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/65835.shtml)
-- 2026-06-29 13:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/046054.shtml)
-- 2026-06-29 13:09 - [世界杯打成了欧洲杯和美洲杯](http://www.share.minike.top/Article/details/8389450.shtml)
-- 2026-06-29 13:06 - [双高胎](http://www.blog.kurohicncr.top/Article/details/00293643.shtml)
-- 2026-06-29 13:14 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/3538419.shtml)
-- 2026-06-29 13:07 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/51514.shtml)
-- 2026-06-29 13:35 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/4444110329.shtml)
-- 2026-06-29 13:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/200859.shtml)
-- 2026-06-29 13:12 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/50024918.shtml)
-- 2026-06-29 13:15 - [天道](https://www.blog.kurohicncr.top/Article/details/619773.shtml)
-- 2026-06-29 13:27 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.minike.top/Article/details/759195261529.shtml)
-- 2026-06-29 13:15 - [陈露发声引舆论反转](http://www.share.kurohicncr.top/Article/details/675668.shtml)
-- 2026-06-29 13:21 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/9734974.shtml)
-- 2026-06-29 13:26 - [医护人员观影《四渡》传承长征精神](http://www.share.minike.top/Article/details/96328472910.shtml)
+- 2026-06-29 13:17 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/321602100.shtml)
+- 2026-06-29 13:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/05365.shtml)
+- 2026-06-29 13:28 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/50400226.shtml)
+- 2026-06-29 13:32 - [斛珠夫人](http://www.share.minike.top/Article/details/76052.shtml)
+- 2026-06-29 13:33 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/92594593322.shtml)
+- 2026-06-29 13:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/4162435.shtml)
+- 2026-06-29 13:37 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/691161212.shtml)
+- 2026-06-29 13:23 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/6266625.shtml)
+- 2026-06-29 13:40 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/537965644.shtml)
+- 2026-06-29 13:14 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/21961369150.shtml)
+- 2026-06-29 13:31 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/67795075214.shtml)
+- 2026-06-29 13:24 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/926030119.shtml)
+- 2026-06-29 13:30 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/02614809837.shtml)
+- 2026-06-29 13:34 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/706009594799.shtml)
+- 2026-06-29 13:27 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/45902975.shtml)

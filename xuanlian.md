@@ -1,57 +1,47 @@
-# 长桥证券：积极响应两地监管指引 将稳步推进合规工作
+# 霍尔木兹海峡已关闭
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！人民财讯5月23日电，5月23日，长桥证券就近期中国跨境证券业务监管事项作进一步说明。长桥证券表示，香港证监会与中国证监会等内地监管部门近期相继发布了关于跨境证券业务的最新监管要求，对面向内地投资者的相关服务作出了行业层面的统一规范。本次监管规则面向所有境外
+新华社快讯：据伊朗媒体20日报道，霍尔木兹海峡已关闭。 来源：新华社 责任编辑：李铁民
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社快讯：据伊朗媒体20日报道，霍尔木兹海峡已关闭。
 
-人民财讯5月23日电，5月23日，长桥证券就近期中国跨境证券业务监管事项作进一步说明。
-
-长桥证券表示，香港证监会与中国证监会等内地监管部门近期相继发布了关于跨境证券业务的最新监管要求，对面向内地投资者的相关服务作出了行业层面的统一规范。
-
-本次监管规则面向所有境外金融机构。
-
-长桥积极响应两地监管指引，将严格按照相关要求稳步推进合规工作。
-
-长桥证券表示，本次监管要求清理的账户范围有限且明确，主要针对两类账户，一是使用可疑或伪造文件开立的投资账户；二是零结余不动投资账户。
-
-对于正常合规开立、有真实资产与持仓的客户账户，不在本次清理范围内。
-
-长桥坚决支持监管对虚假开户行为零容忍的态度，将严格按照监管要求处理。
+来源：新华社 责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:22 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 13:08 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 13:32 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 13:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 13:30 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 13:34 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 13:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 13:30 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 13:33 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 13:10 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 13:32 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 13:35 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-29 13:15 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 13:31 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 13:21 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 13:27 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 13:17 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 13:41 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 13:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 13:23 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 13:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 13:35 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 13:29 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:21 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/849612957.shtml)
-- 2026-06-29 13:24 - [灿如繁星定档](http://www.share.minike.top/Article/details/683563985.shtml)
-- 2026-06-29 13:18 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/85498.shtml)
-- 2026-06-29 13:13 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/61093168.shtml)
-- 2026-06-29 13:22 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/439424724.shtml)
-- 2026-06-29 13:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/00385170.shtml)
-- 2026-06-29 13:17 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/341080839306.shtml)
-- 2026-06-29 13:20 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/47519969.shtml)
-- 2026-06-29 13:11 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/8513777509.shtml)
-- 2026-06-29 13:21 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/95385088771.shtml)
-- 2026-06-29 13:31 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/0328940.shtml)
-- 2026-06-29 13:17 - [医药股集体爆发](https://www.blog.minike.top/Article/details/2664203229.shtml)
-- 2026-06-29 13:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/236512930.shtml)
-- 2026-06-29 13:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/50976.shtml)
-- 2026-06-29 13:22 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/318515308.shtml)
+- 2026-06-29 13:32 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/467009.shtml)
+- 2026-06-29 13:19 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/5186348.shtml)
+- 2026-06-29 13:39 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/633557.shtml)
+- 2026-06-29 13:20 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.minike.top/Article/details/461945065.shtml)
+- 2026-06-29 13:36 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/60523583517.shtml)
+- 2026-06-29 13:35 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/6092076679.shtml)
+- 2026-06-29 13:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/903246510.shtml)
+- 2026-06-29 13:37 - [BW2026游览指南](https://www.share.kurohicncr.top/Article/details/56861584480.shtml)
+- 2026-06-29 13:18 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/015718743.shtml)
+- 2026-06-29 13:35 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/2967106738.shtml)
+- 2026-06-29 13:32 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/868709353342.shtml)
+- 2026-06-29 13:25 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/09757.shtml)
+- 2026-06-29 13:19 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/94819.shtml)
+- 2026-06-29 13:23 - [我和我的家乡](http://www.share.minike.top/Article/details/34810294076.shtml)
+- 2026-06-29 13:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/09633.shtml)

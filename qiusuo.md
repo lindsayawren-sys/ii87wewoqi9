@@ -1,54 +1,54 @@
-# 摩根大通拟剥离40亿美元私募相关贷款风险
+# 5名偷渡人员冲卡躲进甘蔗地，民警连夜抓获
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-知情人士透露，摩根大通正寻求剥离规模超40亿美元的私募股权基金贷款相关风险敞口。 该银行正在洽谈风险转移方案，该方案将允许其保留资产负债表上由私募股权基金资产支持的净资产值贷款，同时将部分潜在损失转移给投资者。 根据协议，摩根大通将转移高达12.5%的净资产值贷款池风险，该贷款池价值超过40亿美元。 该结构将为投资者提供十几个百分点低位区间的回报，以弥补净资产贷款的第一笔损失。
+发布时间：2026年06月22日 13:07 来源：中国新闻网 近日，广西崇左边境管理支队龙州边境管理大队根据工作中掌握的信息，在重点路段设伏布控。行动中，嫌疑车辆发现民警拦截后仓皇倒车，车辆驶入路边甘蔗地，车上嫌疑人迅速往甘蔗林深处逃跑。民警立即展开搜捕，最终将5名非法入境人员全部抓获。经查，5人均无合法证件，在境外非法务工，企图偷渡回国时被查获。目前，案件正在进一步办理中。
 
 ## 正文
 
-知情人士透露，摩根大通正寻求剥离规模超40亿美元的私募股权基金贷款相关风险敞口。
+发布时间：2026年06月22日 13:07 来源：中国新闻网 近日，广西崇左边境管理支队龙州边境管理大队根据工作中掌握的信息，在重点路段设伏布控。
 
-该银行正在洽谈风险转移方案，该方案将允许其保留资产负债表上由私募股权基金资产支持的净资产值贷款，同时将部分潜在损失转移给投资者。
+行动中，嫌疑车辆发现民警拦截后仓皇倒车，车辆驶入路边甘蔗地，车上嫌疑人迅速往甘蔗林深处逃跑。
 
-根据协议，摩根大通将转移高达12.5%的净资产值贷款池风险，该贷款池价值超过40亿美元。
+民警立即展开搜捕，最终将5名非法入境人员全部抓获。
 
-该结构将为投资者提供十几个百分点低位区间的回报，以弥补净资产贷款的第一笔损失。
+经查，5人均无合法证件，在境外非法务工，企图偷渡回国时被查获。
 
-该资产池包括数十笔与北美、欧洲和中东各地私募股权基金相关的贷款。
+目前，案件正在进一步办理中。
 
-摩根大通方面拒绝对此报道置评。
-
-责任编辑：王永生
+(作者：袁金锋、博林、曾鑫) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 13:30 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 13:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 13:28 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 13:24 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 13:32 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-29 13:26 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 13:11 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 13:20 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 13:24 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-29 13:28 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 13:36 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 13:12 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 13:13 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 13:20 - [谢霆锋演唱会变大型呲水现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 13:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 13:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 13:31 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 13:21 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 13:12 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 13:37 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 13:34 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/334141.shtml)
-- 2026-06-29 13:14 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.kurohicncr.top/Article/details/35994800741.shtml)
-- 2026-06-29 13:23 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/40680.shtml)
-- 2026-06-29 13:28 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/65034410640.shtml)
-- 2026-06-29 13:32 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/4942512.shtml)
-- 2026-06-29 13:27 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/056280.shtml)
-- 2026-06-29 13:28 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/80145.shtml)
-- 2026-06-29 13:21 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/388747925169.shtml)
-- 2026-06-29 13:15 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/0571957335.shtml)
-- 2026-06-29 13:25 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/2361062946.shtml)
-- 2026-06-29 13:29 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/568263192912.shtml)
-- 2026-06-29 13:23 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/487223235913.shtml)
-- 2026-06-29 13:25 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/4826422.shtml)
-- 2026-06-29 13:12 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/834568128383.shtml)
-- 2026-06-29 13:11 - [恋与深空女玩家不该被冒犯](http://www.blog.kurohicncr.top/Article/details/54499033235.shtml)
+- 2026-06-29 13:18 - [欧洲极端高温东扩](http://www.blog.kurohicncr.top/Article/details/52326.shtml)
+- 2026-06-29 13:36 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/158985.shtml)
+- 2026-06-29 13:22 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.blog.minike.top/Article/details/5602432515.shtml)
+- 2026-06-29 13:30 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/97897673.shtml)
+- 2026-06-29 13:35 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/0469007090.shtml)
+- 2026-06-29 13:17 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/38976.shtml)
+- 2026-06-29 13:17 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/37267378582.shtml)
+- 2026-06-29 13:16 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/268530.shtml)
+- 2026-06-29 13:19 - [美人鱼](http://www.share.minike.top/Article/details/66077801544.shtml)
+- 2026-06-29 13:32 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/93049588.shtml)
+- 2026-06-29 13:32 - [《贺子珍》](http://www.blog.minike.top/Article/details/265099.shtml)
+- 2026-06-29 13:20 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/01643445.shtml)
+- 2026-06-29 13:36 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/909623.shtml)
+- 2026-06-29 13:21 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/6900918312.shtml)
+- 2026-06-29 13:21 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/2165301309.shtml)

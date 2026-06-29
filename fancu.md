@@ -1,58 +1,57 @@
-# 太惨了！借账户炒股19年，不赚反亏476万！这位证券从业人员被罚
+# 这些年轻创业者选择在市集“出道”
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！券商从业人员“借用他人账户炒股”的悲剧案例再添一例。 近日，天津证监局披露了一则行政处罚决定书，证券从业人员迟某因长达19年的借用他人证券账户买卖股票行为，不仅累计亏损高达476.21万元，还收到了监管的25万元罚单。 天津证监局公告显示，迟某在涉案期间为证券公司从业人员，自2005年8月至2024年2月，
+一个画着鹈鹕、鸭子和小鸟的卡通动物形象摊位招牌，在不久前举办的北京新桥艺术市集里格外吸睛。招牌下，赵玮雯将冰箱贴、钥匙扣、装饰画等文创产品摆放整齐，开启了她两年来的第26场市集旅程。每当有顾客驻足围观，她都热情地讲述作品背后的创作故事与巧思。当全国各地办起了主题鲜明、形式多样的市集，越来越多的创业者把目光投向这里。 结束了2026首届北京碳水季的市集出摊，孟茹又马不停蹄地赶往河
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+一个画着鹈鹕、鸭子和小鸟的卡通动物形象摊位招牌，在不久前举办的北京新桥艺术市集里格外吸睛。
 
-券商从业人员“借用他人账户炒股”的悲剧案例再添一例。
+招牌下，赵玮雯将冰箱贴、钥匙扣、装饰画等文创产品摆放整齐，开启了她两年来的第26场市集旅程。
 
-近日，天津证监局披露了一则行政处罚决定书，证券从业人员迟某因长达19年的借用他人证券账户买卖股票行为，不仅累计亏损高达476.21万元，还收到了监管的25万元罚单。
+每当有顾客驻足围观，她都热情地讲述作品背后的创作故事与巧思。
 
-天津证监局公告显示，迟某在涉案期间为证券公司从业人员，自2005年8月至2024年2月，实际控制并使用多个他人证券账户交易多只股票，经监管部门计算，累计亏损高达476.21万元。
+当全国各地办起了主题鲜明、形式多样的市集，越来越多的创业者把目光投向这里。
 
-根据相关劳动合同、询问笔录、证券及银行账户资料等多重证据，监管认定了其违法事实。
+结束了2026首届北京碳水季的市集出摊，孟茹又马不停蹄地赶往河南郑州海汇港咖啡嘉年华。
 
-券商中国记者注意到，实际上，监管系统早已对迟某的违规行为实施了预警。
+这一次，她带去了两款全新特调米酒。
 
-2024年11月，天津证监局就曾对迟某作出过行政监管措施决定。
+“跑全国市集是最快速也是最精准触达消费群体的方式。
 
-相关决定书载明，迟某在财达证券天津狮子林大街证券营业部任职期间，存在借用他人证券账户买卖股票的行为，违反了《证券法》第四十条第一款的规定，天津证监局当时已对其采取出具警示函的监督管理措施，并记入证券期货市场诚信档案。
+” 曾经依靠线上网店销售手工编织类产品的邱婷，在销量下滑后同样选择了市集破局，她带着原创产品从杭州走向上海、北京，在一场场线下相遇中重新打开了市场。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 13:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 13:32 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 13:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 13:21 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 13:25 - [乌拉圭出局之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 13:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 13:12 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-29 13:06 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 13:27 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 13:07 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 13:29 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 13:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 13:21 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 13:12 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 13:21 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 13:22 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:24 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 13:17 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 13:18 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-29 13:19 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 13:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:29 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/3341923239.shtml)
-- 2026-06-29 13:21 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/24780239.shtml)
-- 2026-06-29 13:19 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/57903981.shtml)
-- 2026-06-29 13:28 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/4734855163.shtml)
-- 2026-06-29 13:14 - [叶一茜森碟一起回北京了](https://www.blog.kurohicncr.top/Article/details/0221180.shtml)
-- 2026-06-29 13:29 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/904240810.shtml)
-- 2026-06-29 13:32 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/10571296.shtml)
-- 2026-06-29 13:15 - [金牌调解](https://www.share.minike.top/Article/details/4029741.shtml)
-- 2026-06-29 13:07 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/2341571.shtml)
-- 2026-06-29 13:07 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/9560027.shtml)
-- 2026-06-29 13:34 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/156001.shtml)
-- 2026-06-29 13:31 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/5774269.shtml)
-- 2026-06-29 13:09 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/526772017.shtml)
-- 2026-06-29 13:10 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/132632295501.shtml)
-- 2026-06-29 13:15 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/1110269742.shtml)
+- 2026-06-29 13:31 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/20196.shtml)
+- 2026-06-29 13:24 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/35198258676.shtml)
+- 2026-06-29 13:27 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/3287706.shtml)
+- 2026-06-29 13:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/7755216.shtml)
+- 2026-06-29 13:39 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/842308418600.shtml)
+- 2026-06-29 13:21 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/1278289.shtml)
+- 2026-06-29 13:23 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/15388.shtml)
+- 2026-06-29 13:22 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/712203714536.shtml)
+- 2026-06-29 13:27 - [时光音乐会](https://www.blog.minike.top/Article/details/536102.shtml)
+- 2026-06-29 13:25 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/436248.shtml)
+- 2026-06-29 13:15 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/4126430.shtml)
+- 2026-06-29 13:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/959582596.shtml)
+- 2026-06-29 13:14 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.minike.top/Article/details/843653089.shtml)
+- 2026-06-29 13:36 - [世界杯欧美八大豪强悉数出线](https://www.share.minike.top/Article/details/698924546.shtml)
+- 2026-06-29 13:39 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/74084043992.shtml)

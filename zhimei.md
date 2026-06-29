@@ -1,61 +1,60 @@
-# 共建全链生态 浙江发力打造大宗商品资源配置枢纽
+# 前Meta首席AI科学家杨立昆：马斯克的xAI已失败，只能靠出租算力来收回成本
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月22日电(奚金燕)22日，中国(浙江)自由贸易试验区大宗商品资源配置枢纽全产业链联盟第一届成员大会暨大宗商品全产业链生态合作与发展对接会在杭州举办。大会以“共建大宗商品全链生态，打造国际一流资源配置枢纽”为主题，凝聚全产业链合力，共商生态合作、共谋发展大计。 会上，联盟执行秘书处、浙江国际大宗商品交易中心相关负责人介绍了联盟基本情况、章程及年度工作要点。现场还为1
+前Meta首席AI科学家、AMI Labs创始人杨立昆（Yann LeCun）最近在一次采访中表示，埃隆·马斯克的人工智能初创公司xAI是一个“失败”，无法在人工智能前沿领域展开竞争。他还阐述了自己对可能导致该行业“泡沫破裂”的看法。 杨立昆的言论再次引发了他与马斯克之间由来已久的争论，并令一些全球最大的人工智能公司的估值蒙受质疑。 过去几年里，杨立昆与马斯克在人工智能以及他所
 
 ## 正文
 
-中新网杭州5月22日电(奚金燕)22日，中国(浙江)自由贸易试验区大宗商品资源配置枢纽全产业链联盟第一届成员大会暨大宗商品全产业链生态合作与发展对接会在杭州举办。
+前Meta首席AI科学家、AMI Labs创始人杨立昆（Yann LeCun）最近在一次采访中表示，埃隆·马斯克的人工智能初创公司xAI是一个“失败”，无法在人工智能前沿领域展开竞争。
 
-大会以“共建大宗商品全链生态，打造国际一流资源配置枢纽”为主题，凝聚全产业链合力，共商生态合作、共谋发展大计。
+他还阐述了自己对可能导致该行业“泡沫破裂”的看法。
 
-会上，联盟执行秘书处、浙江国际大宗商品交易中心相关负责人介绍了联盟基本情况、章程及年度工作要点。
+杨立昆的言论再次引发了他与马斯克之间由来已久的争论，并令一些全球最大的人工智能公司的估值蒙受质疑。
 
-现场还为15家联盟理事单位颁发证书。
+过去几年里，杨立昆与马斯克在人工智能以及他所称的特斯拉CEO在社交媒体上散布的“阴谋论”等诸多话题上都存在分歧。
 
-浙江省商务厅相关处室负责人介绍了大宗商品资源配置枢纽的建设情况及下步工作计划。
+而马斯克则指责杨立昆“长期以来对人工智能一无所知”。
 
-杭州海关、人行浙江省分行相关负责人对浙江自贸试验区大宗商品贸易便利化、金融开放支持政策作宣传解读。
+杨立昆在最近的采访中表示：“坦白说，xAI在某种程度上算是失败了，因为创始团队已经解散了， “埃隆现在处境非常艰难，很难招到人工智能领域的顶尖人才，因为他对待之前的团队的方式不太好。
 
-浙江自贸试验区舟山、宁波片区推介了大宗枢纽营商环境和重点项目，杭州、金义片区代表大宗枢纽联动创新区域发言。
+” 过去一年，xAI 的几位联合创始人相继离开了公司。
 
-工商银行浙江省分行、浙江省海港集团、浙商中拓、浙石化等成员单位在会上作了分享交流。
+今年2月，马斯克将SpaceX与xAI合并，这笔巨额交易对xAI的估值高达1.25万亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 13:31 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 13:10 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-29 13:24 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 13:30 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 13:16 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 13:23 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 13:06 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 13:12 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 13:22 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 13:06 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 13:08 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 13:29 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 13:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 13:14 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 13:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 13:15 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 13:30 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 13:29 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 13:19 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 13:15 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-29 13:36 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 13:12 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 13:12 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 13:13 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 13:23 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 13:26 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 13:20 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/443849456374.shtml)
-- 2026-06-29 13:33 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/2823541211.shtml)
-- 2026-06-29 13:24 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/507843.shtml)
-- 2026-06-29 13:13 - [异世界一点都不好玩！](http://www.share.minike.top/Article/details/670849452.shtml)
-- 2026-06-29 13:13 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/6276931598.shtml)
-- 2026-06-29 13:14 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/07459540.shtml)
-- 2026-06-29 13:32 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/631225334892.shtml)
-- 2026-06-29 13:33 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.share.kurohicncr.top/Article/details/709226.shtml)
-- 2026-06-29 13:08 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/231393942.shtml)
-- 2026-06-29 13:14 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/617322507203.shtml)
-- 2026-06-29 13:19 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/045970593.shtml)
-- 2026-06-29 13:31 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/719203.shtml)
-- 2026-06-29 13:14 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/701882.shtml)
-- 2026-06-29 13:27 - [韩国拟将部分刑责年龄降至13岁](https://www.share.kurohicncr.top/Article/details/831364.shtml)
-- 2026-06-29 13:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/85158.shtml)
+- 2026-06-29 13:14 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/246748922088.shtml)
+- 2026-06-29 13:37 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/764288.shtml)
+- 2026-06-29 13:31 - [DSpark论文深度解读](http://www.blog.kurohicncr.top/Article/details/292257584821.shtml)
+- 2026-06-29 13:13 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/851177262.shtml)
+- 2026-06-29 13:34 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/0121096.shtml)
+- 2026-06-29 13:34 - [宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/22149.shtml)
+- 2026-06-29 13:34 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/0712390.shtml)
+- 2026-06-29 13:23 - [毕业寄几百斤快递回家女生发声](https://www.share.kurohicncr.top/Article/details/89372324.shtml)
+- 2026-06-29 13:30 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.kurohicncr.top/Article/details/218558.shtml)
+- 2026-06-29 13:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/273236360968.shtml)
+- 2026-06-29 13:41 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/5998592048.shtml)
+- 2026-06-29 13:40 - [本周做什么都顺的星座](https://www.share.minike.top/Article/details/94975164097.shtml)
+- 2026-06-29 13:36 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/02637964860.shtml)
+- 2026-06-29 13:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/50165.shtml)
+- 2026-06-29 13:14 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/49873331.shtml)

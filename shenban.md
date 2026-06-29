@@ -1,53 +1,47 @@
-# 在霍尔木兹海峡有望重新开放之际油价下跌
+# 内蒙古呼伦贝尔：海拉尔天空现日晕奇观
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-在霍尔木兹海峡有望重新开放之际，油价在亚洲早盘交易中下跌；霍尔木兹海峡是一条关键水道，全球五分之一的石油通常经此运输。媒体援引一名美国官员周日的话称，已达成一项原则性协议，根据该协议，伊朗将重新开放霍尔木兹海峡。与此同时，美国总统特朗普周日表示，他不急于与伊朗达成结束战争的协议。近月西得州中质油期货下跌5.1%，至每桶91.71美元；近月布伦特原油期货下跌5.1%，至每桶98.
+发布时间：2026年06月22日 10:39 来源：中国新闻网 6月22日，内蒙古呼伦贝尔海拉尔天空现日晕奇观，美轮美奂，美不胜收。日晕，又叫圆虹，是日光通过卷层云时，受到冰晶的折射或反射而形成的一种大气光学现象。(作者：余昌军） 责任编辑：【魏聪聪】
 
 ## 正文
 
-在霍尔木兹海峡有望重新开放之际，油价在亚洲早盘交易中下跌；霍尔木兹海峡是一条关键水道，全球五分之一的石油通常经此运输。
+发布时间：2026年06月22日 10:39 来源：中国新闻网 6月22日，内蒙古呼伦贝尔海拉尔天空现日晕奇观，美轮美奂，美不胜收。
 
-媒体援引一名美国官员周日的话称，已达成一项原则性协议，根据该协议，伊朗将重新开放霍尔木兹海峡。
+日晕，又叫圆虹，是日光通过卷层云时，受到冰晶的折射或反射而形成的一种大气光学现象。
 
-与此同时，美国总统特朗普周日表示，他不急于与伊朗达成结束战争的协议。
-
-近月西得州中质油期货下跌5.1%，至每桶91.71美元；近月布伦特原油期货下跌5.1%，至每桶98.29美元。
-
-责任编辑：王永生
+(作者：余昌军） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 13:08 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-29 13:15 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 13:06 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 13:06 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 13:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 13:10 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 13:09 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 13:18 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 13:16 - [俄政府批准巩固俄语地位行动计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 13:12 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 13:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 13:12 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 13:41 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 13:34 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 13:17 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 13:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 13:34 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 13:40 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 13:20 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 13:14 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 13:27 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 13:38 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 13:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/904365018.shtml)
-- 2026-06-29 13:12 - [拄拐少年高考663分：用行动回报社会](http://www.share.kurohicncr.top/Article/details/72544957.shtml)
-- 2026-06-29 13:24 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/07228149425.shtml)
-- 2026-06-29 13:14 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/08108276.shtml)
-- 2026-06-29 13:24 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/612548982.shtml)
-- 2026-06-29 13:31 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/5776456202.shtml)
-- 2026-06-29 13:29 - [法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/707538.shtml)
-- 2026-06-29 13:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/2436630.shtml)
-- 2026-06-29 13:19 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/39142582.shtml)
-- 2026-06-29 13:21 - [退休化学教授帮医药研发人员制毒](https://www.share.minike.top/Article/details/3719244.shtml)
-- 2026-06-29 13:06 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/683533.shtml)
-- 2026-06-29 13:29 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.kurohicncr.top/Article/details/021625869.shtml)
-- 2026-06-29 13:08 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/73006453712.shtml)
-- 2026-06-29 13:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/018002066.shtml)
-- 2026-06-29 13:25 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/77879638.shtml)
+- 2026-06-29 13:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/223032901743.shtml)
+- 2026-06-29 13:35 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/392055495.shtml)
+- 2026-06-29 13:40 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/3008723668.shtml)
+- 2026-06-29 13:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/29374.shtml)
+- 2026-06-29 13:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/32177933.shtml)
+- 2026-06-29 13:26 - [金牌调解](http://www.share.minike.top/Article/details/67986767.shtml)
+- 2026-06-29 13:25 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/02734.shtml)
+- 2026-06-29 13:37 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/26174.shtml)
+- 2026-06-29 13:27 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/16757581.shtml)
+- 2026-06-29 13:39 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/68988.shtml)
+- 2026-06-29 13:34 - [恋与深空失控领地](http://www.share.kurohicncr.top/Article/details/2387280.shtml)
+- 2026-06-29 13:20 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/2680859.shtml)
+- 2026-06-29 13:37 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/63798292427.shtml)
+- 2026-06-29 13:34 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/365701573.shtml)
+- 2026-06-29 13:38 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/97354193.shtml)

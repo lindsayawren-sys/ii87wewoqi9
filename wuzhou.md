@@ -1,54 +1,57 @@
-# 【澜湄印象】越南茶叶协会会长：加强引进中国先进技术生产茶叶
+# 上千市民圣保罗街头共品“端午”邂逅“六月节”
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 21:13 来源：中国新闻网 5月21日，“国际茶日”中国主场活动在广西南宁举行，吸引越南、老挝、缅甸、斯里兰卡等国茶企及联合国粮农组织代表等300余人，共探茶产业国际合作新路径。越南茶叶协会会长黄永隆表示，两地合作深厚，越南长期进口中国制茶设备并出口原料，正推进绿色标准生产，加强技术引进。同期举办“人工智能+茶叶”研修班，老挝学员惊叹AI制茶
+中新网圣保罗6月21日电 (记者 林春茵)当地时间20日晚，一场融合中国端午节和巴西六月节习俗的嘉年华庆典在巴西圣保罗州立大学孔子学院所在街区举行。逾千名当地民众参与，乐享中巴习俗融合碰撞。 圣保罗州立大学孔子学院巴方院长路易斯·安东尼奥·保利诺表示，本届活动规模和参与人数均超过往年，“希望推动中巴文化交流走出课堂、走向街头，让更多普通民众感受彼此文化魅力。” 当晚，彩旗、灯饰
 
 ## 正文
 
-发布时间：2026年05月22日 21:13 来源：中国新闻网 5月21日，“国际茶日”中国主场活动在广西南宁举行，吸引越南、老挝、缅甸、斯里兰卡等国茶企及联合国粮农组织代表等300余人，共探茶产业国际合作新路径。
+中新网圣保罗6月21日电 (记者 林春茵)当地时间20日晚，一场融合中国端午节和巴西六月节习俗的嘉年华庆典在巴西圣保罗州立大学孔子学院所在街区举行。
 
-越南茶叶协会会长黄永隆表示，两地合作深厚，越南长期进口中国制茶设备并出口原料，正推进绿色标准生产，加强技术引进。
+逾千名当地民众参与，乐享中巴习俗融合碰撞。
 
-同期举办“人工智能+茶叶”研修班，老挝学员惊叹AI制茶高效，四人可产四五吨，盼技术推广。
+圣保罗州立大学孔子学院巴方院长路易斯·安东尼奥·保利诺表示，本届活动规模和参与人数均超过往年，“希望推动中巴文化交流走出课堂、走向街头，让更多普通民众感受彼此文化魅力。
 
-当地企业应用AI实现花茶窨制全流程智能化，显著提升良品率与效益，越南工贸部等已表达明确合作意向。
+” 当晚，彩旗、灯饰将街道装点得热闹喜庆。
 
-王以照 广西南宁报道 责任编辑：【李季】
+巴西民众按六月丰收节习俗，身着格子衫、牛仔裤和碎花裙等六月节传统盛装赴会，穿梭于中华文化体验摊位和美食区之间。
+
+折纸龙舟、编织五彩绳、套圈、钓鱼等互动项目吸引不少家庭驻足体验。
+
+舞台上，欢快的手风琴声拉开庆典序幕。
+
+本地龙狮团队腾跃翻飞间赢得阵阵喝彩；中国古典舞、民族乐曲展现东方韵味，巴西传统四方舞则热情奔放，不少观众被邀请加入舞池，现场气氛热烈。
 
 ## 相关推荐
 
-- 2026-06-29 13:13 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 13:13 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 13:22 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 13:21 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 13:15 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 13:29 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 13:24 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 13:21 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 13:18 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 13:09 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 13:32 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-29 13:12 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:27 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 13:15 - [去了一趟潮汕。](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 13:23 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 13:36 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 13:30 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:39 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 13:25 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-29 13:13 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 13:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 13:23 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 13:29 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 13:30 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 13:27 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/6743772439.shtml)
-- 2026-06-29 13:20 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/76937694.shtml)
-- 2026-06-29 13:09 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/68547228.shtml)
-- 2026-06-29 13:07 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/31365345.shtml)
-- 2026-06-29 13:19 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/15494.shtml)
-- 2026-06-29 13:27 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.kurohicncr.top/Article/details/9907794.shtml)
-- 2026-06-29 13:33 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/54508950084.shtml)
-- 2026-06-29 13:16 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/334520.shtml)
-- 2026-06-29 13:24 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/455285353010.shtml)
-- 2026-06-29 13:11 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/2682646118.shtml)
-- 2026-06-29 13:08 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/2509259565.shtml)
-- 2026-06-29 13:14 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/187649.shtml)
-- 2026-06-29 13:20 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/840484901818.shtml)
-- 2026-06-29 13:30 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/0890594.shtml)
-- 2026-06-29 13:14 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/83241785931.shtml)
+- 2026-06-29 13:29 - [向佑说向佐是一生依靠](https://www.share.kurohicncr.top/Article/details/420572689.shtml)
+- 2026-06-29 13:38 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/32319746.shtml)
+- 2026-06-29 13:32 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/111107.shtml)
+- 2026-06-29 13:37 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/1887897.shtml)
+- 2026-06-29 13:37 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/297550220130.shtml)
+- 2026-06-29 13:33 - [天道](http://www.blog.kurohicncr.top/Article/details/712325584.shtml)
+- 2026-06-29 13:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/575290147156.shtml)
+- 2026-06-29 13:28 - [媒体：这一次合肥芜湖在伯仲之间](http://www.share.kurohicncr.top/Article/details/658284705663.shtml)
+- 2026-06-29 13:20 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/94139.shtml)
+- 2026-06-29 13:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/296246.shtml)
+- 2026-06-29 13:40 - [谢霆锋演唱会变大型呲水现场](http://www.share.kurohicncr.top/Article/details/6195116.shtml)
+- 2026-06-29 13:36 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/45791031.shtml)
+- 2026-06-29 13:37 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/9079293.shtml)
+- 2026-06-29 13:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/68235284.shtml)
+- 2026-06-29 13:38 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/932512614377.shtml)

@@ -1,50 +1,60 @@
-# 国务院印发《关于推行常住地提供基本公共服务的实施意见》
+# 《整治涉企侵权信息 优化营商网络环境自律公约》全文发布
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-为推行常住地提供基本公共服务，促进基本公共服务均等化水平明显提升，有力支撑深入实施以人为本的新型城镇化战略，国务院日前印发《关于推行常住地提供基本公共服务的实施意见》。 意见强调，由常住地提供基本公共服务，促进未落户常住人口与户籍人口同等享有基本公共服务，有利于满足人民日益增长的美好生活需要，对提升城镇化质量、释放国内需求潜力、构建新发展格局具有重要意义。 意见提出，要加强随迁
+本文转载自：中国证券投资基金业协会 近期，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息优化营商网络环境自律公约》（以下简称《公约》）。 《公约》明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，加强榜单涉企话题管理，持续优化算法推荐机制，杜绝涉企负面信息“投流”行为，从严管理非法牟利行为，取消经常性发布涉企负面信息“自媒体”账号营利权
 
 ## 正文
 
-为推行常住地提供基本公共服务，促进基本公共服务均等化水平明显提升，有力支撑深入实施以人为本的新型城镇化战略，国务院日前印发《关于推行常住地提供基本公共服务的实施意见》。
+本文转载自：中国证券投资基金业协会 近期，在国家网信办指导下，重点网站平台共同制定《整治涉企侵权信息优化营商网络环境自律公约》（以下简称《公约》）。
 
-意见强调，由常住地提供基本公共服务，促进未落户常住人口与户籍人口同等享有基本公共服务，有利于满足人民日益增长的美好生活需要，对提升城镇化质量、释放国内需求潜力、构建新发展格局具有重要意义。
+《公约》明确网站平台要及时清理侵犯企业家个人权益信息，主动清除已核实的涉企虚假不实信息，加强榜单涉企话题管理，持续优化算法推荐机制，杜绝涉企负面信息“投流”行为，从严管理非法牟利行为，取消经常性发布涉企负面信息“自媒体”账号营利权限，加强涉事账号处置力度。
 
-意见提出，要加强随迁子女教育保障，推动更多城市将稳定就业居住的未落户常住人口家庭纳入公租房保障范围，全面取消在就业地参加职工社会保险的户籍限制，加强常住地基本医疗保障，强化就业基本公共服务，逐步将未落户常住人口纳入常住地儿童关爱、养老助老、社会救助、扶残助残等基本公共服务范围。
+国家网信办有关负责人表示，该《公约》的制定发布，有利于凝聚行业共识，强化行业自律，加强涉企侵权信息治理，进一步优化营商网络环境，保护企业和企业家网络合法权益。
 
-记者：魏玉坤、戴锦镕 海报制作：吴彬尔 新华社国内部出品
+下一步，将加强对网站平台的指导督促，扎实推动《公约》落地见效。
+
+同时，欢迎社会各界广泛参与、积极监督，共同营造清朗营商网络环境。
+
+整治涉企侵权信息优化营商网络环境 自律公约 一、清除侵犯个人权益信息。
+
+及时清理泄露企业家个人隐私的信息，严管侮辱谩骂、造谣诽谤企业家的言论。
+
+二、统一同类信息处置标准。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 13:34 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 13:18 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 13:15 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:29 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 13:35 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-29 13:12 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 13:33 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 13:19 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 13:23 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 13:22 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 13:18 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 13:14 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 13:31 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 13:26 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-29 13:31 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 13:26 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 13:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 13:22 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 13:28 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-29 13:30 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 13:41 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 13:24 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 13:21 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 13:17 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 13:22 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/198175.shtml)
-- 2026-06-29 13:07 - [腾讯回应做独立支付APP](http://www.blog.minike.top/Article/details/016949.shtml)
-- 2026-06-29 13:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/67943223.shtml)
-- 2026-06-29 13:33 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/45791359171.shtml)
-- 2026-06-29 13:31 - [沙丘](https://www.blog.kurohicncr.top/Article/details/25411275.shtml)
-- 2026-06-29 13:10 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/44703429406.shtml)
-- 2026-06-29 13:34 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/1135958.shtml)
-- 2026-06-29 13:14 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/259162195.shtml)
-- 2026-06-29 13:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/58422086.shtml)
-- 2026-06-29 13:07 - [韩国政府将对世界杯出局追责](http://www.share.minike.top/Article/details/354079254651.shtml)
-- 2026-06-29 13:07 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/36515321.shtml)
-- 2026-06-29 13:34 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/85987.shtml)
-- 2026-06-29 13:19 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.share.kurohicncr.top/Article/details/2259259777.shtml)
-- 2026-06-29 13:15 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/086005909162.shtml)
-- 2026-06-29 13:17 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/723467012.shtml)
+- 2026-06-29 13:17 - [马杜罗社交媒体账号再发文](http://www.share.kurohicncr.top/Article/details/937947838.shtml)
+- 2026-06-29 13:12 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/39167268.shtml)
+- 2026-06-29 13:14 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/674372.shtml)
+- 2026-06-29 13:34 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/57715162146.shtml)
+- 2026-06-29 13:29 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/306172952979.shtml)
+- 2026-06-29 13:33 - [美媒：空警-3000服役即成全球最强](https://www.share.minike.top/Article/details/8376136.shtml)
+- 2026-06-29 13:29 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/7323815.shtml)
+- 2026-06-29 13:33 - [ENC瓦中国香港负印度数据图](http://www.share.minike.top/Article/details/14279891038.shtml)
+- 2026-06-29 13:14 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/877977697.shtml)
+- 2026-06-29 13:36 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/18338.shtml)
+- 2026-06-29 13:18 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/7346258.shtml)
+- 2026-06-29 13:19 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.minike.top/Article/details/47708.shtml)
+- 2026-06-29 13:20 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/46611911.shtml)
+- 2026-06-29 13:22 - [异世界一点都不好玩！](http://www.blog.kurohicncr.top/Article/details/48205234.shtml)
+- 2026-06-29 13:22 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/890163890.shtml)

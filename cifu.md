@@ -1,53 +1,58 @@
-# 大和：古茗目标价下降至32港元 重申“买入”评级
+# 京华乡韵烘焙+茶咖文化推广活动在京启幕 打造更多新消费场景
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-大和发布研报称，古茗（01364）股价在第二季至今累跌约18%，主要受两大因素影响，一是补贴战高基期下同店销售增长放缓的忧虑，二是新店开业速度低于预期。该行下调2026至28年每股盈利预测4%至5%，并将目标价由36港元下调至32港元，重申“买入”评级。根据“窄门餐眼”数据，古茗今年前四个月新开590家门店，开店速度明显慢于市场预期的2026年净增3，345家。责任编辑：卢昱君
+中新网北京6月20日电 (记者 陈杭)以“日光乡焙·云涧茶咖”为主题的2026年京华乡韵烘焙+茶咖文化推广活动19日在北京市密云区日光山谷景区拉开帷幕。 今年，北京市密云区全新发布“来密云看海”城市品牌，日光山谷是其中的热门观景点之一，活动现场，“日光·烘焙区”“云端·茶咖区”“共创·市集区”和“山谷·欢乐派对”互动体验活动丰富、趣味十足，涵盖技艺比拼、手作互动、好物展销与休闲
 
 ## 正文
 
-大和发布研报称，古茗（01364）股价在第二季至今累跌约18%，主要受两大因素影响，一是补贴战高基期下同店销售增长放缓的忧虑，二是新店开业速度低于预期。
+中新网北京6月20日电 (记者 陈杭)以“日光乡焙·云涧茶咖”为主题的2026年京华乡韵烘焙+茶咖文化推广活动19日在北京市密云区日光山谷景区拉开帷幕。
 
-该行下调2026至28年每股盈利预测4%至5%，并将目标价由36港元下调至32港元，重申“买入”评级。
+今年，北京市密云区全新发布“来密云看海”城市品牌，日光山谷是其中的热门观景点之一，活动现场，“日光·烘焙区”“云端·茶咖区”“共创·市集区”和“山谷·欢乐派对”互动体验活动丰富、趣味十足，涵盖技艺比拼、手作互动、好物展销与休闲演艺，让市民游客沉浸式感受京郊乡村产业新风貌、乡土生活新乐趣。
 
-根据“窄门餐眼”数据，古茗今年前四个月新开590家门店，开店速度明显慢于市场预期的2026年净增3，345家。
+窑烤烘焙风情秀是本次活动的一大核心亮点，20余家优质烘焙主体齐聚一堂，浓郁麦香弥漫山谷，吸引游客免费品鉴并选购窑烤面包、手工披萨、杂粮点心等特色美食。
 
-责任编辑：卢昱君
+乡村烘焙大师赛也在火热进行，由烘焙从业者、乡村烘焙爱好者组成的参赛队伍同台竞技、各展所长，赛事最终评选出日光臻味奖、海韵风华奖、谷畔灵创奖三大奖项，现场举办颁奖仪式并集中展示优秀参赛作品。
+
+市集区域人气兴旺，各类好物集中亮相。
+
+密云风物专场共布设20余个展销摊位，特色农产品、文旅文创、民俗手工艺品等整齐陈列，吸引了不少市民前来选购。
+
+密云区对口协作单位内蒙古自治区通辽市库伦旗、山西省长治市壶关县两地展商也携本地特色农产品前来参展。
+
+北京市农业农村宣传中心相关负责人表示，本次活动借助“来密云看海”品牌热度，把“看海”流量转化为发展增量，集中展示了京郊烘焙、茶饮、咖啡产业发展成果，吸引城市客流下乡，让山水美景融于消费新场景，打造“来密云看海+到密云逛集”的双主题IP。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 13:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 13:24 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 13:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 13:24 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 13:13 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 13:34 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:13 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 13:30 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 13:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 13:33 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 13:15 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 13:34 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 13:28 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 13:09 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 13:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 13:41 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 13:24 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 13:30 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 13:25 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 13:17 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 13:21 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 13:19 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 13:38 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 13:24 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 13:20 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 13:20 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/58470783.shtml)
-- 2026-06-29 13:21 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/04169236.shtml)
-- 2026-06-29 13:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/3966309.shtml)
-- 2026-06-29 13:30 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/48582.shtml)
-- 2026-06-29 13:35 - [灿如繁星定档](http://www.share.minike.top/Article/details/3497020.shtml)
-- 2026-06-29 13:31 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/8986813.shtml)
-- 2026-06-29 13:24 - [韩体育部长回应李在明痛批](https://www.blog.minike.top/Article/details/276067104100.shtml)
-- 2026-06-29 13:10 - [吴磊爱上回收了](http://www.blog.minike.top/Article/details/98765.shtml)
-- 2026-06-29 13:33 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/60769424.shtml)
-- 2026-06-29 13:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/7237686927.shtml)
-- 2026-06-29 13:18 - [DeepSeek联合北京大学发布论文](https://www.share.minike.top/Article/details/135267.shtml)
-- 2026-06-29 13:14 - [啊啊啊](http://www.share.minike.top/Article/details/76045922326.shtml)
-- 2026-06-29 13:06 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/631150795.shtml)
-- 2026-06-29 13:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/458532961038.shtml)
-- 2026-06-29 13:25 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/279354021.shtml)
+- 2026-06-29 13:28 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/862011146.shtml)
+- 2026-06-29 13:19 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/14655039745.shtml)
+- 2026-06-29 13:31 - [媒体评恋与深空争议](http://www.share.minike.top/Article/details/6965639.shtml)
+- 2026-06-29 13:36 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/960257902011.shtml)
+- 2026-06-29 13:18 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/807846695.shtml)
+- 2026-06-29 13:25 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/517168051960.shtml)
+- 2026-06-29 13:30 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/851242921114.shtml)
+- 2026-06-29 13:25 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.minike.top/Article/details/875097425231.shtml)
+- 2026-06-29 13:30 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/06754.shtml)
+- 2026-06-29 13:26 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/364787062818.shtml)
+- 2026-06-29 13:38 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/3595392.shtml)
+- 2026-06-29 13:21 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/73223685.shtml)
+- 2026-06-29 13:12 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/8316087132.shtml)
+- 2026-06-29 13:24 - [恋与深空失控领地](https://www.share.minike.top/Article/details/291876.shtml)
+- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/114304356.shtml)

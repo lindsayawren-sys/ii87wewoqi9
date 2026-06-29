@@ -1,44 +1,56 @@
-# 仲辛醇商品报价动态（2026-05-24）
+# 可持续市场倡议首席执行官赛菲：中国在应用AI以及绿电方面已经是引领世界的角色
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 山东北鲁恒升化工有限公司 山东 山东省 10000元/吨 （文章来源：生意社）责任编辑：陈平
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。可持续市场倡议首席执行官赛菲表示，中国目前在应用AI，以及绿电这方面已经做到了引领世界的角色。 她认为，AI将是未来转型的基础。当前，全球在实现可持续发展2030目标、巴黎气候协定脱碳目标以及生物多样性公约等方面仍面临诸多不足。
 
 ## 正文
 
-生意社05月24日讯 交易商 品牌/产地 交货地 最新报价 山东北鲁恒升化工有限公司 山东 山东省 10000元/吨 （文章来源：生意社）责任编辑：陈平
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
+
+可持续市场倡议首席执行官赛菲表示，中国目前在应用AI，以及绿电这方面已经做到了引领世界的角色。
+
+她认为，AI将是未来转型的基础。
+
+当前，全球在实现可持续发展2030目标、巴黎气候协定脱碳目标以及生物多样性公约等方面仍面临诸多不足。
+
+在面对包括地缘政治在内的各种全球挑战时，AI可以成为帮助人类实现最初设定目标的极佳工具。
+
+针对全球互联互通的新趋势，赛菲表示，世界各国和各经济体之间的连接正变得日益紧密，金融行业以及各类新兴消费模式都在广泛运用AI等新技术。
+
+她强调，如今全球民众普遍通过智能手机实现互联互通，而AI能够嵌入到智能手机中，成为手机上的AI智能体，从而深度融入人们的日常生活与连接之中。
+
+展望未来，塞菲特别强调了弥合数字鸿沟的重要性。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 13:12 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 13:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 13:19 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 13:25 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 13:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 13:27 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 13:23 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 13:24 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 13:34 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 13:31 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 13:15 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 13:32 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 13:15 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 13:24 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 13:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 13:20 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 13:32 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 13:17 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 13:41 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-29 13:17 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 13:31 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/305392.shtml)
-- 2026-06-29 13:07 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/754823.shtml)
-- 2026-06-29 13:11 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/15499161897.shtml)
-- 2026-06-29 13:17 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/33412226.shtml)
-- 2026-06-29 13:29 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/414393.shtml)
-- 2026-06-29 13:32 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/7850052.shtml)
-- 2026-06-29 13:30 - [毒液2](https://www.share.minike.top/Article/details/409398.shtml)
-- 2026-06-29 13:29 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/348243237403.shtml)
-- 2026-06-29 13:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/84148.shtml)
-- 2026-06-29 13:13 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/04799400.shtml)
-- 2026-06-29 13:25 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/4830128.shtml)
-- 2026-06-29 13:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/914009.shtml)
-- 2026-06-29 13:33 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/042418627.shtml)
-- 2026-06-29 13:31 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/93404.shtml)
-- 2026-06-29 13:16 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/14711.shtml)
+- 2026-06-29 13:13 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/1910358.shtml)
+- 2026-06-29 13:25 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/35515.shtml)
+- 2026-06-29 13:25 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/72573051527.shtml)
+- 2026-06-29 13:15 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/2762914.shtml)
+- 2026-06-29 13:34 - [逃狱兄弟](http://www.share.minike.top/Article/details/8294151.shtml)
+- 2026-06-29 13:18 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/4136086.shtml)
+- 2026-06-29 13:27 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/01822624515.shtml)
+- 2026-06-29 13:37 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/7119058993.shtml)
+- 2026-06-29 13:41 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/2070773424.shtml)
+- 2026-06-29 13:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/1788926582.shtml)
+- 2026-06-29 13:31 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.minike.top/Article/details/665451.shtml)
+- 2026-06-29 13:23 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/4793852.shtml)
+- 2026-06-29 13:27 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/930008356648.shtml)
+- 2026-06-29 13:31 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/20285364.shtml)
+- 2026-06-29 13:18 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/34782620684.shtml)

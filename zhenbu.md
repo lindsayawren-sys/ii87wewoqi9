@@ -1,59 +1,42 @@
-# 科技赋能+宠物友好：上海杨浦“减碳嘉年华”探索减碳循环新范式
+# 6月22日周末要闻：美伊谈判暂停 伊朗指责特朗普 油价上涨
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网上海5月23日电 (记者 陈静)由废旧餐盒、牛奶盒再生制造的户外座椅和台几，塑料瓶变身手机壳，旧纺织品化身为潮包，碎花布头做的发夹……一场“减碳嘉年华”23日在上海杨浦区大学路限时步行街举行，吸引众多民众参与互动。 据悉，本届“减碳嘉年华”全面升级，围绕科技赋能、主题深化、参与优化三大方向，引入AI互动装置，打造沉浸式科技体验场景；增设宠物友好专区，围绕宠物食品包材复用等
+上周国际市场回顾 全球股市强势收官，但整体情绪谨慎 欧洲股市因伊朗推迟谈判下跌 诺和诺德股价逆势大涨 宏观 美伊开启和平谈判 特朗普扬言将打击伊朗 美股股指期货下跌 霍尔木兹海峡紧张局势持续，油价飙升、标普500股指期货下挫 特朗普言论令伊美未来的谈判走向仍不明朗 黎真主党领导人：将对以色列的任何侵犯行为作出回应 消息人士：伊朗方面并未离场，伊美之间的谈判仍在继续 伊朗谈判团队
 
 ## 正文
 
-中新网上海5月23日电 (记者 陈静)由废旧餐盒、牛奶盒再生制造的户外座椅和台几，塑料瓶变身手机壳，旧纺织品化身为潮包，碎花布头做的发夹……一场“减碳嘉年华”23日在上海杨浦区大学路限时步行街举行，吸引众多民众参与互动。
-
-据悉，本届“减碳嘉年华”全面升级，围绕科技赋能、主题深化、参与优化三大方向，引入AI互动装置，打造沉浸式科技体验场景；增设宠物友好专区，围绕宠物食品包材复用等内容，拓展宣传维度与参与广度；优化升级电子地图打卡与减碳互动核销，构建“线上预热引流—线下沉浸体验—联动商户绿色消费”完整活动链，让垃圾分类行为“看得见、用得上”，让民众在“有趣”“有用”中深度感受垃圾分类与减碳循环的长远意义。
-
-本届“减碳嘉年华”活动携手上海市资源利用和垃圾分类管理事务中心、杨浦区精神文明建设办公室和杨浦区生态环境局，汇聚30余个低碳生活方式摊主，联动上海儿童基金会可持续环保专项项目，联合10家可持续低碳企业，设置15处电子集章环节、20余处互动打卡点，联动70余家大学路周边商户，形成“商旅文体展”深度融合、线上线下有机联动的碳普惠应用场景。
-
-牛奶饮料盒(饮料纸基复合包装)如何变成纸包装、笔记本、卫生纸等产品？
-
-“减碳嘉年华”活动中一台宣教互动设备回答了民众心中的疑问。
-
-这台宣教互动设备旨在将繁杂的再生流程直观地展示在民众面前。
-
-据介绍，回收后的牛奶饮料盒被送往再生处理企业，经过纸塑分离和铝塑分离工艺制成新的再生产品，其工作原理是将饮料纸基复合包装送入碎浆洗浆系统，使其在一定条件下进行纸纤维与铝塑膜脱离，待脱离后进入分选系统进行分选、净化，然后得到纯净的纸浆和干净的铝塑膜。
-
-在减碳市集里，记者看到，手工爱好者展示用蛋托制作的小鱼并义卖；企业用产品包装、塑料pp杯兑换环保产品；用回收的海洋废弃橡胶制成的海洋橡胶圆形杯垫十分精巧；用回收的咖啡渣制成的咖啡杯简约轻便；用可再生纸纤维制成的纸纤维电脑内胆包受到不少年轻人的关注。
+上周国际市场回顾 全球股市强势收官，但整体情绪谨慎 欧洲股市因伊朗推迟谈判下跌 诺和诺德股价逆势大涨 宏观 美伊开启和平谈判 特朗普扬言将打击伊朗 美股股指期货下跌 霍尔木兹海峡紧张局势持续，油价飙升、标普500股指期货下挫 特朗普言论令伊美未来的谈判走向仍不明朗 黎真主党领导人：将对以色列的任何侵犯行为作出回应 消息人士：伊朗方面并未离场，伊美之间的谈判仍在继续 伊朗谈判团队成员称伊石油制裁豁免草案已敲定 抗议特朗普威胁言论 伊朗代表团离开谈判地点 真主党领导人明确拒绝以色列在黎巴嫩境内设立任何安全区 伊朗议长称不会把美国的威胁当回事 伊朗抗议特朗普近期发出的威胁 并正在考量应对举措 伊朗：若以色列不从黎巴嫩撤军，将终止与美国的谈判 以军总参谋长：在黎巴嫩军事行动仍在继续 以总理称以军将根据需要继续驻留黎巴嫩南部 美伊首轮谈判结束后 伊朗与卡塔尔进
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 13:21 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 13:23 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 13:13 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 13:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 13:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 13:29 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 13:26 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 13:30 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:06 - [DeepSeek联合北京大学发布论文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 13:12 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 13:22 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 13:33 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 13:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 13:18 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 13:34 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 13:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 13:24 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 13:37 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 13:35 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 13:34 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 13:22 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 13:15 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:29 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/490977140.shtml)
-- 2026-06-29 13:25 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/747767.shtml)
-- 2026-06-29 13:16 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.minike.top/Article/details/450577.shtml)
-- 2026-06-29 13:32 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/73049.shtml)
-- 2026-06-29 13:32 - [绘画区你赢了](http://www.blog.minike.top/Article/details/12133559547.shtml)
-- 2026-06-29 13:17 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/90690713726.shtml)
-- 2026-06-29 13:30 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/369572.shtml)
-- 2026-06-29 13:17 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/2937492.shtml)
-- 2026-06-29 13:13 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/49963453.shtml)
-- 2026-06-29 13:33 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/9734081.shtml)
-- 2026-06-29 13:29 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/1778457.shtml)
-- 2026-06-29 13:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/69950531593.shtml)
-- 2026-06-29 13:17 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/79751885145.shtml)
-- 2026-06-29 13:09 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/53781285754.shtml)
-- 2026-06-29 13:15 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.kurohicncr.top/Article/details/64783166237.shtml)
+- 2026-06-29 13:28 - [王楚钦周启豪爆分](https://www.share.minike.top/Article/details/6068016.shtml)
+- 2026-06-29 13:31 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/82411547.shtml)
+- 2026-06-29 13:28 - [请回答王牌2019](http://www.blog.minike.top/Article/details/4336473296.shtml)
+- 2026-06-29 13:34 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/703418.shtml)
+- 2026-06-29 13:14 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/2420833.shtml)
+- 2026-06-29 13:39 - [小娘惹](https://www.share.kurohicncr.top/Article/details/901363.shtml)
+- 2026-06-29 13:35 - [曾沛慈夺冠后人气](https://www.share.minike.top/Article/details/0240208.shtml)
+- 2026-06-29 13:32 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/63026.shtml)
+- 2026-06-29 13:30 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/86801437.shtml)
+- 2026-06-29 13:35 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/3745444.shtml)
+- 2026-06-29 13:31 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/8329123443.shtml)
+- 2026-06-29 13:35 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/366786223.shtml)
+- 2026-06-29 13:30 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/501494252.shtml)
+- 2026-06-29 13:35 - [急先锋](http://www.share.kurohicncr.top/Article/details/651264.shtml)
+- 2026-06-29 13:24 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/0664216878.shtml)

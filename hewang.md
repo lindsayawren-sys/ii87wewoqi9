@@ -1,60 +1,55 @@
-# 百万经营主体领跑全国 解码义乌的“三重跨越”
+# 装载8000万桶原油的超级油轮蓄势待发 准备穿越霍尔木兹海峡
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网义乌5月24日电(奚金燕)义乌，是一座“建在市场上的城市”。最新数据显示，经过20年的发展，义乌经营主体总量实现跨越式增长，全市经营主体总量突破128万户，位居全国县级区域第一。 若按常住人口计算，这意味着在义乌，大约每两个人中就有一人从事与商贸相关的经营活动。他们中有敢闯敢拼的第一代市场经营户，有肤色各异的“洋老板”，有善于求新求变的“商二代”。千万个滚烫的创业梦想，在
+据彭博，载有近8000万桶石油的超级油轮正停泊在波斯湾，一旦交易商和船东发出指令，它们就能立即启程穿越霍尔木兹海峡。这些石油来自波斯湾产油国（不包括伊朗）的非制裁原油，目前装载在40艘超大型原油运输船（VLCC）上。若将较小型油轮计算在内，波斯湾内储存的原油总量可能还要更高。去年，该地区每天约有1500万桶原油运往亚洲市场。责任编辑：张恒星
 
 ## 正文
 
-中新网义乌5月24日电(奚金燕)义乌，是一座“建在市场上的城市”。
+据彭博，载有近8000万桶石油的超级油轮正停泊在波斯湾，一旦交易商和船东发出指令，它们就能立即启程穿越霍尔木兹海峡。
 
-最新数据显示，经过20年的发展，义乌经营主体总量实现跨越式增长，全市经营主体总量突破128万户，位居全国县级区域第一。
+这些石油来自波斯湾产油国（不包括伊朗）的非制裁原油，目前装载在40艘超大型原油运输船（VLCC）上。
 
-若按常住人口计算，这意味着在义乌，大约每两个人中就有一人从事与商贸相关的经营活动。
+若将较小型油轮计算在内，波斯湾内储存的原油总量可能还要更高。
 
-他们中有敢闯敢拼的第一代市场经营户，有肤色各异的“洋老板”，有善于求新求变的“商二代”。
+去年，该地区每天约有1500万桶原油运往亚洲市场。
 
-千万个滚烫的创业梦想，在这片神奇的热土上，写下了无数个质朴动人的创富故事，也成就了这座城市的传奇。
-
-市场之变：从“鸡毛换糖”到“买卖全球”的跨越 义乌，地处浙江省中部，既不靠海，也不沿边。
-
-20世纪80年代，由于土地贫瘠，许多胆大的义乌人冒着被扣上“投机倒把”帽子的风险，摇着拨浪鼓走街串巷，鸡毛换糖。
-
-这群“货担郎”也是最早的一批弄潮儿。
+责任编辑：张恒星
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 13:12 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 13:23 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 13:07 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 13:33 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 13:16 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 13:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 13:16 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 13:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 13:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 13:10 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 13:29 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 13:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 13:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-29 13:20 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 13:22 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-29 13:39 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:31 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 13:21 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 13:19 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-29 13:32 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 13:16 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 13:20 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 13:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 13:34 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 13:39 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 13:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 13:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 13:15 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/131725991624.shtml)
-- 2026-06-29 13:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/04051032010.shtml)
-- 2026-06-29 13:24 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/03055025.shtml)
-- 2026-06-29 13:27 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/39074215405.shtml)
-- 2026-06-29 13:19 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/910177568.shtml)
-- 2026-06-29 13:29 - [5万块的威力](http://www.share.minike.top/Article/details/536044542425.shtml)
-- 2026-06-29 13:06 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/0137065769.shtml)
-- 2026-06-29 13:10 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/393241710.shtml)
-- 2026-06-29 13:28 - [周生如故](http://www.share.minike.top/Article/details/753231.shtml)
-- 2026-06-29 13:11 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/7584088.shtml)
-- 2026-06-29 13:20 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/2172539995.shtml)
-- 2026-06-29 13:06 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/865691601709.shtml)
-- 2026-06-29 13:34 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/67849.shtml)
-- 2026-06-29 13:34 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/4399425.shtml)
-- 2026-06-29 13:15 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/02664408939.shtml)
+- 2026-06-29 13:32 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/8144948641.shtml)
+- 2026-06-29 13:39 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/67636565386.shtml)
+- 2026-06-29 13:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/69093858.shtml)
+- 2026-06-29 13:16 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/48160855.shtml)
+- 2026-06-29 13:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/2310481914.shtml)
+- 2026-06-29 13:18 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/4453054698.shtml)
+- 2026-06-29 13:21 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/33305971207.shtml)
+- 2026-06-29 13:36 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/43682.shtml)
+- 2026-06-29 13:25 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/390562547410.shtml)
+- 2026-06-29 13:27 - [欧洲极端高温东扩](http://www.blog.kurohicncr.top/Article/details/763996.shtml)
+- 2026-06-29 13:28 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/56833036259.shtml)
+- 2026-06-29 13:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/52976314594.shtml)
+- 2026-06-29 13:27 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/2765526503.shtml)
+- 2026-06-29 13:38 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/778821281.shtml)
+- 2026-06-29 13:36 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/67058712.shtml)

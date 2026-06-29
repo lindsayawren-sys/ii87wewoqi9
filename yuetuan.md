@@ -1,60 +1,51 @@
-# 当留学生遇上“中国龙” ：“我的心里有了热爱”
+# 大象控股集团发布年度业绩 股东应占利润580.5万港元
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 18:50 来源：中国新闻网 5月23日，安徽建筑大学第二届校园师生龙舟赛在校内“易海”湖上开赛。其中13名留学生组成“国际龙舟队”，与其余队伍开展比赛。自2023年起，该校创新性地将龙舟课程纳入体育课选修系统，课程既吸引了在校留学生积极参与，又增进了他们对中国文化的了解。留学生直呼：“我的心里有了热爱。”(记者 储玮玮) 【同期】塔吉克斯坦籍
+大象控股集团（08635）发布截至2026年3月31日止年度业绩，收入1.75亿港元，同比增长875.5%；公司拥有人应占利润580.5万港元，上年同期亏损1946.5万港元；每股基本盈利1.27港仙。 期内业绩扭亏为盈的表现反映集团战略重新定位的成功执行，以及人工智能驱动解决方案分部的强劲增长动力。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月23日 18:50 来源：中国新闻网 5月23日，安徽建筑大学第二届校园师生龙舟赛在校内“易海”湖上开赛。
+大象控股集团（08635）发布截至2026年3月31日止年度业绩，收入1.75亿港元，同比增长875.5%；公司拥有人应占利润580.5万港元，上年同期亏损1946.5万港元；每股基本盈利1.27港仙。
 
-其中13名留学生组成“国际龙舟队”，与其余队伍开展比赛。
+期内业绩扭亏为盈的表现反映集团战略重新定位的成功执行，以及人工智能驱动解决方案分部的强劲增长动力。
 
-自2023年起，该校创新性地将龙舟课程纳入体育课选修系统，课程既吸引了在校留学生积极参与，又增进了他们对中国文化的了解。
-
-留学生直呼：“我的心里有了热爱。
-
-”(记者 储玮玮) 【同期】塔吉克斯坦籍留学生 阿里 第一次划过之后，从我的心里就是有了一个“爱情”(热爱)，对这个运动知道吧。
-
-所以在中国，我最喜欢的运动是这个龙舟。
-
-【同期】吉尔吉斯斯坦籍留学生 刘春夜 很开心，因为这是第二次我参加这个比赛，感觉很开心。
-
-【同期】俄罗斯籍留学生 尼基塔 因为这个是中国的传统文化，大家可以一起协作。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 13:25 - [白鹿呵呵挽手比心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-29 13:20 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 13:19 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 13:06 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 13:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 13:31 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 13:35 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 13:30 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 13:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 13:32 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-29 13:24 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 13:23 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 13:28 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:37 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 13:34 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 13:34 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 13:26 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 13:26 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 13:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-29 13:40 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 13:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 13:15 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 13:21 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 13:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 13:19 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 13:22 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 13:28 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 13:26 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/85541.shtml)
-- 2026-06-29 13:13 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/821022.shtml)
-- 2026-06-29 13:09 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.minike.top/Article/details/467585416.shtml)
-- 2026-06-29 13:31 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/179110976.shtml)
-- 2026-06-29 13:27 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/89603.shtml)
-- 2026-06-29 13:22 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/03261.shtml)
-- 2026-06-29 13:27 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/273897.shtml)
-- 2026-06-29 13:30 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/568409992175.shtml)
-- 2026-06-29 13:08 - [韩国记者：解码“合肥模式”](http://www.blog.kurohicncr.top/Article/details/79445833.shtml)
-- 2026-06-29 13:21 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/3385540.shtml)
-- 2026-06-29 13:27 - [小娘惹](http://www.blog.minike.top/Article/details/7444627.shtml)
-- 2026-06-29 13:16 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/46373854438.shtml)
-- 2026-06-29 13:09 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/56720350.shtml)
-- 2026-06-29 13:19 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.kurohicncr.top/Article/details/389141842898.shtml)
-- 2026-06-29 13:22 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/37843289763.shtml)
+- 2026-06-29 13:15 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/96113.shtml)
+- 2026-06-29 13:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/11755172.shtml)
+- 2026-06-29 13:17 - [逃狱兄弟](https://www.blog.minike.top/Article/details/0454452132.shtml)
+- 2026-06-29 13:16 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/91009.shtml)
+- 2026-06-29 13:15 - [记者暗访贵州和云南多个养老机构](http://www.blog.minike.top/Article/details/24783.shtml)
+- 2026-06-29 13:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/728366065.shtml)
+- 2026-06-29 13:12 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/22204.shtml)
+- 2026-06-29 13:26 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/042307.shtml)
+- 2026-06-29 13:32 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/2936645.shtml)
+- 2026-06-29 13:35 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/6133731953.shtml)
+- 2026-06-29 13:34 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/909116851451.shtml)
+- 2026-06-29 13:27 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/8173344939.shtml)
+- 2026-06-29 13:29 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/18446660076.shtml)
+- 2026-06-29 13:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/15835.shtml)
+- 2026-06-29 13:24 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/5170023007.shtml)

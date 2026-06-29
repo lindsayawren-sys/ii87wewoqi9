@@ -1,61 +1,58 @@
-# 深圳文博会：中国文创潮玩“圈粉”八方来客
+# 美国股市：芯片股大涨推动大盘走高 半导体指数创历史新高
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！你的股票和黄金，后市怎么走？郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，
+美国股市周四上涨，芯片股延续前一日涨势，费城半导体指数上涨6.4%，触及纪录高点。 标普500指数上涨1.1%，以科技股为主的纳斯达克100指数上涨2.5%。 芯片公司美光科技和博通在标普500指数成分股中涨幅居前。 英特尔也上涨，美国总统特朗普早些时候称这家芯片制造商与苹果商定芯片协议。 苹果小幅走高，该公司首席执行官库克表示，计划提高产品价格以抵消内存和存储芯片涨价。 成交
 
 ## 正文
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
+美国股市周四上涨，芯片股延续前一日涨势，费城半导体指数上涨6.4%，触及纪录高点。
 
-618大战，为何先从手机降价开始？
+标普500指数上涨1.1%，以科技股为主的纳斯达克100指数上涨2.5%。
 
-埃及胡夫金字塔如何抗震？
+芯片公司美光科技和博通在标普500指数成分股中涨幅居前。
 
-国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
+英特尔也上涨，美国总统特朗普早些时候称这家芯片制造商与苹果商定芯片协议。
 
-你的股票和黄金，后市怎么走？
+苹果小幅走高，该公司首席执行官库克表示，计划提高产品价格以抵消内存和存储芯片涨价。
 
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
+成交量高于平均水平，并在六月节（Juneteenth）长周末来临前的尾盘明显放大。
 
-建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
+美国史上规模最大的期权到期日也在周四，Citadel Securities数据显示有8.3万亿美元的名义敞口到期。
 
-最高法案例“划重点”黄金，再跌也不能买了？
+随着特朗普签署美伊临时协议且油轮开始通过霍尔木兹海峡，WTI基本持平于每桶77美元左右。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 13:31 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 13:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 13:11 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 13:07 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 13:22 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:19 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 13:23 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 13:09 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 13:14 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:30 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 13:09 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 13:22 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 13:13 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 13:06 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 13:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 13:25 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 13:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 13:22 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 13:39 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 13:41 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 13:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 13:35 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 13:35 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 13:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 13:23 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 13:33 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.kurohicncr.top/Article/details/979689.shtml)
-- 2026-06-29 13:26 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/0923759.shtml)
-- 2026-06-29 13:28 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/4917844748.shtml)
-- 2026-06-29 13:24 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/3094361.shtml)
-- 2026-06-29 13:33 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/199165.shtml)
-- 2026-06-29 13:12 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.kurohicncr.top/Article/details/12001471.shtml)
-- 2026-06-29 13:19 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/23415549432.shtml)
-- 2026-06-29 13:14 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/2816813.shtml)
-- 2026-06-29 13:11 - [爱很美味](https://www.share.minike.top/Article/details/8812002994.shtml)
-- 2026-06-29 13:09 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/33187063991.shtml)
-- 2026-06-29 13:32 - [恋与深空需直面玩家6大疑问](http://www.blog.minike.top/Article/details/71595846.shtml)
-- 2026-06-29 13:21 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/1777554.shtml)
-- 2026-06-29 13:12 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/699802.shtml)
-- 2026-06-29 13:21 - [韩媒称韩国队遭中国网民嘲讽](https://www.blog.kurohicncr.top/Article/details/034263634241.shtml)
-- 2026-06-29 13:20 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/44763962860.shtml)
+- 2026-06-29 13:12 - [5万块的威力](https://www.blog.minike.top/Article/details/4681190371.shtml)
+- 2026-06-29 13:30 - [沙特足协主席发布声明主动请辞](http://www.share.minike.top/Article/details/11443.shtml)
+- 2026-06-29 13:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/13345.shtml)
+- 2026-06-29 13:26 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/1280903.shtml)
+- 2026-06-29 13:40 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/5661425211.shtml)
+- 2026-06-29 13:18 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/511959.shtml)
+- 2026-06-29 13:34 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.share.minike.top/Article/details/44980846631.shtml)
+- 2026-06-29 13:15 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/142374124685.shtml)
+- 2026-06-29 13:25 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/677289.shtml)
+- 2026-06-29 13:18 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.kurohicncr.top/Article/details/21622425.shtml)
+- 2026-06-29 13:37 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/29112.shtml)
+- 2026-06-29 13:31 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/485017171302.shtml)
+- 2026-06-29 13:38 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/5625972.shtml)
+- 2026-06-29 13:24 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/2912512.shtml)
+- 2026-06-29 13:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/255327.shtml)

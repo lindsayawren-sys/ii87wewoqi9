@@ -1,59 +1,60 @@
-# 朱杨柱谈香港同胞首次飞天：这是中国梦、航天梦的“同心圆”
+# （乡村行·看振兴）孟子故里以三把“钥匙”开启全国文明村建设之路
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网酒泉5月23日电 (记者 马帅莎 郭超凯)5月23日，神舟二十三号乘组在酒泉卫星发射中心问天阁与中外媒体记者集体见面。神舟二十三号乘组指令长朱杨柱表示，此次任务，第三批、第四批航天员将同步亮相太空，特别是香港同胞首次飞天，共享航天荣光，这是家国情怀的生动凝聚，也是中国梦、航天梦的“同心圆”。朱杨柱说，中国载人航天一路走来，从一人一天到多人多天，到即将突破一年期在轨驻留，这
+中新网山东邹城6月22日电 题：孟子故里以三把“钥匙”开启全国文明村建设之路 作者 沙见龙 王其峰 宋文强 普通农业村风气怎么转？富裕村精神怎么立？古村落治理怎么暖？在孟子故里山东省邹城市，三个全国文明村的乡村文明建设，藏着三把不同的“钥匙”。 把“孝善”变成看得见的荣誉 一张喜报，能否改变一个村的风气？在邹城市峄山镇大庄二村，答案是肯定的。 每当村里评出“好媳妇”，报喜队伍便
 
 ## 正文
 
-中新网酒泉5月23日电 (记者 马帅莎 郭超凯)5月23日，神舟二十三号乘组在酒泉卫星发射中心问天阁与中外媒体记者集体见面。
+中新网山东邹城6月22日电 题：孟子故里以三把“钥匙”开启全国文明村建设之路 作者 沙见龙 王其峰 宋文强 普通农业村风气怎么转？
 
-神舟二十三号乘组指令长朱杨柱表示，此次任务，第三批、第四批航天员将同步亮相太空，特别是香港同胞首次飞天，共享航天荣光，这是家国情怀的生动凝聚，也是中国梦、航天梦的“同心圆”。
+富裕村精神怎么立？
 
-朱杨柱说，中国载人航天一路走来，从一人一天到多人多天，到即将突破一年期在轨驻留，这一个又一个全新的“首次”，串起了中国航天事业一次次发展的步伐。
+古村落治理怎么暖？
 
-正是因为载人航天事业的快速发展，才有一批批航天员太空接力，实现梦想。
+在孟子故里山东省邹城市，三个全国文明村的乡村文明建设，藏着三把不同的“钥匙”。
 
-朱杨柱表示，这次任务中，第三批、第四批航天员将同步亮相太空，特别是香港同胞首次飞天，共享航天荣光，这是家国情怀的生动凝聚，也是中国梦、航天梦的“同心圆”，让我们跨域融合，把个人理想汇聚成为国出征的共同目标。
+把“孝善”变成看得见的荣誉 一张喜报，能否改变一个村的风气？
 
-朱杨柱说，面对这么多“首次”，我们深感使命光荣，责任十分重大。
+在邹城市峄山镇大庄二村，答案是肯定的。
 
-这不是简单的数字叠加，而是对生理心理、应急处置、协同配合，以及在轨工作生活能力等全方位考验。
+每当村里评出“好媳妇”，报喜队伍便敲锣打鼓来到她的娘家，送上烫金喜报，挂起“教女有方”牌匾。
 
-朱杨柱表示，作为指令长，他想得最多的是该如何做好各项准备，如何带领团队零失误零差错圆满完成飞行任务。
+娘家父母戴上大红花，街坊邻居围上来道喜。
 
 ## 相关推荐
 
-- 2026-06-29 13:12 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 13:15 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 13:12 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-29 13:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 13:33 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 13:31 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-29 13:30 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:18 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 13:33 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 13:32 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:33 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 13:35 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 13:23 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:30 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 13:42 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 13:14 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 13:31 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 13:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 13:14 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 13:38 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 13:21 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 13:13 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 13:35 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-29 13:27 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 13:28 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 13:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 13:36 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/26833.shtml)
-- 2026-06-29 13:13 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/8431244142.shtml)
-- 2026-06-29 13:07 - [毒液2](https://www.share.kurohicncr.top/Article/details/20126.shtml)
-- 2026-06-29 13:09 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.minike.top/Article/details/738386975.shtml)
-- 2026-06-29 13:31 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/345735479.shtml)
-- 2026-06-29 13:35 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/06743928.shtml)
-- 2026-06-29 13:25 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/01170235838.shtml)
-- 2026-06-29 13:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/299734620360.shtml)
-- 2026-06-29 13:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/1675595.shtml)
-- 2026-06-29 13:27 - [金牌调解](https://www.share.kurohicncr.top/Article/details/305831645.shtml)
-- 2026-06-29 13:22 - [李连杰回应网传不管前妻俩女儿](https://www.share.kurohicncr.top/Article/details/947747288636.shtml)
-- 2026-06-29 13:15 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/6230175.shtml)
-- 2026-06-29 13:27 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/199205.shtml)
-- 2026-06-29 13:29 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/219416298.shtml)
-- 2026-06-29 13:28 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.kurohicncr.top/Article/details/9028182149.shtml)
+- 2026-06-29 13:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/03459841.shtml)
+- 2026-06-29 13:40 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/663529006149.shtml)
+- 2026-06-29 13:32 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/481944755575.shtml)
+- 2026-06-29 13:15 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.kurohicncr.top/Article/details/90432.shtml)
+- 2026-06-29 13:24 - [强⁶](http://www.share.kurohicncr.top/Article/details/00126550.shtml)
+- 2026-06-29 13:17 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/854832455.shtml)
+- 2026-06-29 13:33 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/570034.shtml)
+- 2026-06-29 13:38 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/7808418813.shtml)
+- 2026-06-29 13:34 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/62385146.shtml)
+- 2026-06-29 13:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/88027.shtml)
+- 2026-06-29 13:35 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/708568205354.shtml)
+- 2026-06-29 13:35 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/420904.shtml)
+- 2026-06-29 13:37 - [TOP 无畏契约](http://www.share.kurohicncr.top/Article/details/55713147.shtml)
+- 2026-06-29 13:15 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/30704.shtml)
+- 2026-06-29 13:13 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.minike.top/Article/details/17181614.shtml)

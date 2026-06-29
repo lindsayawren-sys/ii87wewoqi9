@@ -1,61 +1,56 @@
-# 石油大省阿尔伯塔将就脱离加拿大举行公投
+# 中国长江中下游等地现持续强降雨 官方部署防范应对
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-核心要点 阿尔伯塔省省长丹妮尔・史密斯宣布，这座石油资源丰富的省份将于今年秋季举行一场无法律约束力的公投，表决民众是否愿意留在加拿大境内；若倾向脱离，则后续将举行具备法律效力的独立公投。 这是加拿大历史上，魁北克之外首个就独立问题发起全民表决的省份，此前当地分离势力已开展数月宣传活动。 史密斯周四晚间发表电视讲话称，个人立场支持本省留在加拿大，也会在公投中投出赞成留存的一票。
+中新社北京6月21日电 (记者 陈溯)近日，中国长江中下游等地出现持续强降雨，气象部门21日预计，强降雨将持续发展，中国官方部署防范应对。 中央气象台预计，21日至24日，贵州至长江中下游一带强降雨持续发展。中央气象台21日10时继续发布暴雨黄色预警和强对流天气蓝色预警。 “南方本轮强降雨主要由江淮切变线主导。南下冷空气与暖湿气流在江淮流域交汇形成切变线，冷暖空气势力相当，江淮
 
 ## 正文
 
-核心要点 阿尔伯塔省省长丹妮尔・史密斯宣布，这座石油资源丰富的省份将于今年秋季举行一场无法律约束力的公投，表决民众是否愿意留在加拿大境内；若倾向脱离，则后续将举行具备法律效力的独立公投。
+中新社北京6月21日电 (记者 陈溯)近日，中国长江中下游等地出现持续强降雨，气象部门21日预计，强降雨将持续发展，中国官方部署防范应对。
 
-这是加拿大历史上，魁北克之外首个就独立问题发起全民表决的省份，此前当地分离势力已开展数月宣传活动。
+中央气象台预计，21日至24日，贵州至长江中下游一带强降雨持续发展。
 
-史密斯周四晚间发表电视讲话称，个人立场支持本省留在加拿大，也会在公投中投出赞成留存的一票。
+中央气象台21日10时继续发布暴雨黄色预警和强对流天气蓝色预警。
 
-她同时表示：“尽管我个人主张维持联邦统一，但一项不当的法院判决侵犯了数十万阿尔伯塔民众的民主权利，这令我深感忧虑。
+“南方本轮强降雨主要由江淮切变线主导。
 
-” 此前当地一名法官驳回了民众发起的脱省请愿。
+南下冷空气与暖湿气流在江淮流域交汇形成切变线，冷暖空气势力相当，江淮切变线稳定维持，切变线及气旋波使大气辐合抬升、对流发展，低层水汽被带到高空，凝结成暴雨云团，带来持续强降雨天气。
 
-民间组织 “自由阿尔伯塔” 是独立诉求的支持者，该组织已收集超 30.1 万份联名签名。
+”中央气象台首席预报员马学款说。
 
-支持者认为，渥太华联邦政府长期忽视本省利益。
+国家防汛抗旱总指挥部(国家防总)办公室、应急管理部21日组织多部门联合会商，研判近期降雨趋势和汛情形势，研究部署重点地区防汛工作。
 
-不过民意调查显示，独立主张并未获得广泛民意支持。
+会商指出，珠江流域柳江发生2026年主要江河第1号洪水，为今年主要江河首次编号洪水。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 13:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 13:33 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 13:17 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 13:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-29 13:31 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 13:28 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 13:21 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:17 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 13:14 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 13:06 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 13:17 - [BW2026游览指南](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
-- 2026-06-29 13:11 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-29 13:17 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 13:21 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 13:39 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 13:30 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 13:34 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 13:24 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 13:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 13:39 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 13:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 13:12 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 13:23 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 13:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/1172728.shtml)
-- 2026-06-29 13:22 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/63621604.shtml)
-- 2026-06-29 13:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/2205719711.shtml)
-- 2026-06-29 13:07 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/4897308473.shtml)
-- 2026-06-29 13:33 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/758248975082.shtml)
-- 2026-06-29 13:29 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/503461519562.shtml)
-- 2026-06-29 13:32 - [我们注定是一撮县城葱姜蒜](https://www.share.minike.top/Article/details/159040726.shtml)
-- 2026-06-29 13:21 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/658566273711.shtml)
-- 2026-06-29 13:20 - [马杜罗社交媒体账号再发文](https://www.blog.minike.top/Article/details/129973273198.shtml)
-- 2026-06-29 13:28 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/88892.shtml)
-- 2026-06-29 13:08 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/20234329.shtml)
-- 2026-06-29 13:17 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/71872961637.shtml)
-- 2026-06-29 13:10 - [曾沛慈夺冠后人气](https://www.share.minike.top/Article/details/963029814.shtml)
-- 2026-06-29 13:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/029914903.shtml)
-- 2026-06-29 13:28 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/95303616.shtml)
+- 2026-06-29 13:22 - [德国队前往比赛场地遭遇囧途](https://www.share.minike.top/Article/details/16485556.shtml)
+- 2026-06-29 13:37 - [比亚迪为什么卖得越多市值越低](https://www.share.kurohicncr.top/Article/details/510822982.shtml)
+- 2026-06-29 13:28 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/327522.shtml)
+- 2026-06-29 13:14 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/49213887.shtml)
+- 2026-06-29 13:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/20121973.shtml)
+- 2026-06-29 13:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/1481265012.shtml)
+- 2026-06-29 13:41 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/17703615324.shtml)
+- 2026-06-29 13:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/11716.shtml)
+- 2026-06-29 13:21 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/9875865.shtml)
+- 2026-06-29 13:12 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/03144.shtml)
+- 2026-06-29 13:36 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/0728333269.shtml)
+- 2026-06-29 13:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/15864490.shtml)
+- 2026-06-29 13:33 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/38701708743.shtml)
+- 2026-06-29 13:18 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/258311006969.shtml)
+- 2026-06-29 13:12 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/863066179.shtml)

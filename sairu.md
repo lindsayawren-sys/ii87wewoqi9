@@ -1,61 +1,59 @@
-# “山河共生”项目：基层社区探索以本土智慧应对气候危机
+# “东北超”大连主场赛事启幕 6.28万人到场观赛刷新上座历史纪录
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月24日电 (记者 张素)在青海三江源区域的嘉塘与年保玉则，项目支持牧民成立共管委员会，利用“牛粪伴种”等本土智慧修复黑土滩2590亩；同时，扶持妇女成立合作社发展手工艺，2025年营业额突破20万元人民币…… 5月22日正值国际生物多样性日，“山河共生——气候变化适应与社区可持续发展实践项目总结会暨影像展”在北京举行。会上，来自青海玉树嘉塘社区的参会代表介绍上述情
+中新网大连6月21日电 (杨毅 王涵)20日晚，2026东北地区城市足球联赛(简称“东北超”)第三轮比赛在大连梭鱼湾足球场正式启幕，最终，大连队1:1沈阳队。本场比赛共计62826名球迷到场观赛，刷新大连梭鱼湾足球场建成以来的主场观赛人数历史纪录，同时创下“东北超”赛事观赛人数新高。 19时整，大连梭鱼湾足球场灯光骤暗，盛大的暖场文艺演出启幕。大型激光秀《足球之城爱在东北》画面
 
 ## 正文
 
-中新网北京5月24日电 (记者 张素)在青海三江源区域的嘉塘与年保玉则，项目支持牧民成立共管委员会，利用“牛粪伴种”等本土智慧修复黑土滩2590亩；同时，扶持妇女成立合作社发展手工艺，2025年营业额突破20万元人民币…… 5月22日正值国际生物多样性日，“山河共生——气候变化适应与社区可持续发展实践项目总结会暨影像展”在北京举行。
+中新网大连6月21日电 (杨毅 王涵)20日晚，2026东北地区城市足球联赛(简称“东北超”)第三轮比赛在大连梭鱼湾足球场正式启幕，最终，大连队1:1沈阳队。
 
-会上，来自青海玉树嘉塘社区的参会代表介绍上述情况。
+本场比赛共计62826名球迷到场观赛，刷新大连梭鱼湾足球场建成以来的主场观赛人数历史纪录，同时创下“东北超”赛事观赛人数新高。
 
-据介绍，气候变化适应与社区可持续发展实践项目自2023年启动以来，在旱作农业、草原牧区、高原生态三个场景下，探索出一条“社区主导、生态修复、生计适配”的可持续发展路径。
+19时整，大连梭鱼湾足球场灯光骤暗，盛大的暖场文艺演出启幕。
 
-多个基层社区纷纷以本土智慧应对全球气候危机。
+大型激光秀《足球之城爱在东北》画面如海，“足球之城”的自豪感油然而生。
 
-与会专家介绍，在河北涉县王金庄与内蒙古敖汉旗，项目建立了“农民种子银行”，活态保存了270余种本土特色种质资源，并利用自然选择淘汰弱势品种，让“老种子”越种越壮。
+随后，踏着铿锵的步伐，伴着《海风协奏》的浪漫旋律，由百名手风琴、小提琴、铜管乐器演奏者以行进式方阵走进场内。
 
-敖汉旗还通过“企业反哺+公共空间改造”，将种子收益转化为社区集体资产。
+大连队、沈阳队“巨型队服”联动亮相，将“整装东北”的深情厚谊展现得淋漓尽致。
 
-针对太行山陡坡缺水难题，王金庄修缮了112处水窖与水池，并配备太阳能滴灌与远程水位监测。
+“小时候妈妈对我讲，大海，就是我故乡。
 
-老乡在手机上即可随时查看水窖余量，配合无人机全域巡田，实现了585亩梯田水利全覆盖。
+”摇滚版《大海啊故乡》融入长海号子与复州鼓乐，王雷、李小萌一家与大连童声合唱团、球迷代表、名老中青时装模特同台巡游合唱，充分展现大连山海情怀与人文魅力。
 
 ## 相关推荐
 
-- 2026-06-29 13:09 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 13:30 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:07 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-29 13:20 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 13:17 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 13:10 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 13:20 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-29 13:21 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
-- 2026-06-29 13:28 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 13:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 13:12 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 13:29 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 13:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 13:16 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 13:21 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 13:35 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 13:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 13:27 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 13:25 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 13:19 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 13:26 - [AG 钟意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 13:15 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 13:26 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 13:39 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 13:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 13:15 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 13:18 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 13:16 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [灿如繁星定档](http://www.blog.minike.top/Article/details/69708.shtml)
-- 2026-06-29 13:10 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/59615.shtml)
-- 2026-06-29 13:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/22868123985.shtml)
-- 2026-06-29 13:10 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/94778129269.shtml)
-- 2026-06-29 13:32 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/205328549361.shtml)
-- 2026-06-29 13:17 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/257049785.shtml)
-- 2026-06-29 13:25 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/79307750.shtml)
-- 2026-06-29 13:31 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/8268607053.shtml)
-- 2026-06-29 13:13 - [谢霆锋演唱会变大型呲水现场](https://www.share.kurohicncr.top/Article/details/253315901870.shtml)
-- 2026-06-29 13:24 - [房屋抵押权与租赁权如何协调](http://www.share.kurohicncr.top/Article/details/177913796792.shtml)
-- 2026-06-29 13:24 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/00678271.shtml)
-- 2026-06-29 13:11 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/331069910.shtml)
-- 2026-06-29 13:35 - [张一山说杨紫早该拿奖了](https://www.share.kurohicncr.top/Article/details/085029.shtml)
-- 2026-06-29 13:19 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/105500307490.shtml)
-- 2026-06-29 13:07 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/031004.shtml)
+- 2026-06-29 13:13 - [扬名立万](https://www.blog.minike.top/Article/details/18303698.shtml)
+- 2026-06-29 13:27 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/3682551272.shtml)
+- 2026-06-29 13:31 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/976790.shtml)
+- 2026-06-29 13:33 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/1420818079.shtml)
+- 2026-06-29 13:14 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/04087520368.shtml)
+- 2026-06-29 13:12 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/573814.shtml)
+- 2026-06-29 13:24 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/034360154389.shtml)
+- 2026-06-29 13:40 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/427603.shtml)
+- 2026-06-29 13:22 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/18662324303.shtml)
+- 2026-06-29 13:33 - [伊朗球员致歉](https://www.blog.kurohicncr.top/Article/details/2524083.shtml)
+- 2026-06-29 13:37 - [BW2026游览指南](http://www.share.minike.top/Article/details/6622065.shtml)
+- 2026-06-29 13:37 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/011801526663.shtml)
+- 2026-06-29 13:25 - [谢霆锋演唱会变大型呲水现场](https://www.share.minike.top/Article/details/989333.shtml)
+- 2026-06-29 13:27 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/33738597.shtml)
+- 2026-06-29 13:27 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/115964060938.shtml)

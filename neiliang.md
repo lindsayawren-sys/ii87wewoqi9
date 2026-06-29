@@ -1,46 +1,57 @@
-# 4月中国企业信用水平持续保持向好态势
+# 英媒：首相生涯将落幕 斯塔默预计今天宣布离任时间表
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 08:55 来源：央视新闻 责任编辑：【王祎】
+中新网6月22日电 据英国《卫报》报道，预计英国首相斯塔默将于当地时间22日上午宣布他的离任时间表，这将为安迪·伯纳姆在秋季前无需正式竞选即可成为首相铺平道路。 英国内阁大臣们表示，斯塔默将在唐宁街10号外宣布他的离任时间表，这将开启英国十年内选出第七位首相的进程。 唐宁街10号官员仍然坚持斯塔默19日作出的承诺，即迎战伯纳姆可能发起的工党领袖职位挑战。然而，已经有六位以上的内
 
 ## 正文
 
-发布时间：2026年05月22日 08:55 来源：央视新闻 责任编辑：【王祎】
+中新网6月22日电 据英国《卫报》报道，预计英国首相斯塔默将于当地时间22日上午宣布他的离任时间表，这将为安迪·伯纳姆在秋季前无需正式竞选即可成为首相铺平道路。
+
+英国内阁大臣们表示，斯塔默将在唐宁街10号外宣布他的离任时间表，这将开启英国十年内选出第七位首相的进程。
+
+唐宁街10号官员仍然坚持斯塔默19日作出的承诺，即迎战伯纳姆可能发起的工党领袖职位挑战。
+
+然而，已经有六位以上的内阁部长私下告诉斯塔默，他的首相任期“已经走到尽头”，首相整个周末都在契克斯庄园敲定可能的离任计划。
+
+一位内阁大臣表示：“从逻辑上讲，对伯纳姆和斯塔默来说，最好的情况是斯塔默留任至9月份。
+
+伯纳姆还没有准备好入主唐宁街的团队，他需要时间。
+
+这也能让斯塔默有时间规划他的离任之路。
+
+”此前报道，英国大曼彻斯特市长安迪·伯纳姆19日赢得马克菲尔德选区下院议员补选，将重返议会下院，从而具备参与工党党首竞争、进而角逐首相职位的条件。
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 13:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:25 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 13:28 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 13:21 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 13:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 13:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 13:28 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 13:08 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 13:10 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 13:21 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 13:33 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-29 13:23 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 13:07 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 13:36 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 13:37 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 13:37 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 13:20 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 13:14 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 13:22 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 13:12 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 13:15 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 13:13 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 13:15 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 13:14 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/55370039.shtml)
-- 2026-06-29 13:15 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/700852.shtml)
-- 2026-06-29 13:23 - [海清白玉兰奖运](http://www.blog.minike.top/Article/details/13924.shtml)
-- 2026-06-29 13:27 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/8289567599.shtml)
-- 2026-06-29 13:19 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/917758219.shtml)
-- 2026-06-29 13:28 - [行程万里不忘初心](http://www.share.minike.top/Article/details/7630099.shtml)
-- 2026-06-29 13:15 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/84192459806.shtml)
-- 2026-06-29 13:14 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/39388640775.shtml)
-- 2026-06-29 13:20 - [中国避暑神器在欧洲卖爆了](http://www.blog.minike.top/Article/details/3643052.shtml)
-- 2026-06-29 13:15 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.minike.top/Article/details/50905226.shtml)
-- 2026-06-29 13:14 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/8637282.shtml)
-- 2026-06-29 13:27 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/687657.shtml)
-- 2026-06-29 13:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/48476918053.shtml)
-- 2026-06-29 13:09 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/109592140.shtml)
-- 2026-06-29 13:09 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/32333.shtml)
+- 2026-06-29 13:34 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/75537256.shtml)
+- 2026-06-29 13:17 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/85895218709.shtml)
+- 2026-06-29 13:17 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/59405174.shtml)
+- 2026-06-29 13:39 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/946414.shtml)
+- 2026-06-29 13:40 - [Mrbeast的30天不吃饭挑战](https://www.blog.kurohicncr.top/Article/details/91826852.shtml)
+- 2026-06-29 13:15 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/24580441593.shtml)
+- 2026-06-29 13:33 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/06852154.shtml)
+- 2026-06-29 13:28 - [加拿大92分钟绝杀成世界杯首个16强](http://www.blog.kurohicncr.top/Article/details/78639214438.shtml)
+- 2026-06-29 13:37 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/398915654988.shtml)
+- 2026-06-29 13:37 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/30276.shtml)
+- 2026-06-29 13:35 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.kurohicncr.top/Article/details/28989868.shtml)
+- 2026-06-29 13:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/08938320.shtml)
+- 2026-06-29 13:24 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/3051118394.shtml)
+- 2026-06-29 13:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/58186148.shtml)
+- 2026-06-29 13:29 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/2386041205.shtml)

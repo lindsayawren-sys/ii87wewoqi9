@@ -1,55 +1,55 @@
-# “科技馆体系协同开展区域性科学教育中心建设项目”进行总结交流
+# 广东水利防汛Ⅳ级应急响应结束
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。 “科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，
+中新网广州6月21日电 (记者 王坚)广东水利防汛Ⅳ级应急响应于6月21日18时结束。 广东省水利厅介绍，鉴于本轮强降雨过程已基本结束，全省雨情水情总体平稳，水利工情安全可控，根据《广东省水利厅水旱灾害防御工作规则》，广东省水利厅水旱灾害防御领导小组决定于6月21日18时结束水利防汛Ⅳ级应急响应。 当前全省仍处于“龙舟水”防御关键期，受前期持续性强降雨影响，江河湖库底水偏高，土
 
 ## 正文
 
-中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。
+中新网广州6月21日电 (记者 王坚)广东水利防汛Ⅳ级应急响应于6月21日18时结束。
 
-“科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，充分发挥区域性枢纽作用，聚焦机制模式探索、资源研发供给、科学教师研修、专家库资源库共建共享、科学教育研究实践五大核心任务，立足区域特色、深耕实践创新，在体制机制上破局、在资源供给上提质、在师资培养上赋能、在平台共建上聚力、在研究实践上深耕。
+广东省水利厅介绍，鉴于本轮强降雨过程已基本结束，全省雨情水情总体平稳，水利工情安全可控，根据《广东省水利厅水旱灾害防御工作规则》，广东省水利厅水旱灾害防御领导小组决定于6月21日18时结束水利防汛Ⅳ级应急响应。
 
-目前，该项目不仅形成一批可复制、可推广的建设成果与典型经验，丰富了科技馆行业智库资源，而且有效开拓了科技馆联合教育部门、大中小学及社会资源单位协同开展科学教育的新路径，初步形成家校社创新合作与多元协同育人的新局面。
+当前全省仍处于“龙舟水”防御关键期，受前期持续性强降雨影响，江河湖库底水偏高，土壤含水量趋于饱和。
 
-“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动现场，还举行建设成果展示和优质科普活动展演，10所地市级科技馆分别展示项目周期内开发的优质科教资源，涵盖科学课资源包、活动教具、活动手册等，不仅内容丰富、形式多样，而且地域特色鲜明。
+广东省水利厅要求，全省各级水利部门和有关单位务必克服麻痹松懈思想，继续关注天气变化，严格落实24小时值班值守制度，做好洪水退水阶段水利工程巡查工作，抓紧抢修水毁水利工程设施，持续落实落细各项防御措施，全力保障人民群众生命财产安全。
 
-在科普展演环节，各馆则带来科学与文化融合的科普课程。
-
-中国科技馆称，下一步将继续发挥示范引领作用，加强经验总结与顶层谋划，持续强化体系协同，通过区域联动筑牢教育强国建设根基，开创“十五五”科学教育发展新局面。
+同时，西江沿线各地要密切关注上游来水，落实落细洪水防御各项工作。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 13:27 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 13:28 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 13:12 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 13:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 13:06 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 13:10 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 13:17 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 13:31 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 13:32 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 13:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 13:23 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 13:41 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 13:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 13:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:31 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 13:32 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 13:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 13:27 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 13:37 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 13:40 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 13:22 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 13:38 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 13:15 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [女心理师](http://www.share.minike.top/Article/details/440157186.shtml)
-- 2026-06-29 13:11 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/45699703613.shtml)
-- 2026-06-29 13:08 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.minike.top/Article/details/331611.shtml)
-- 2026-06-29 13:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/95894241.shtml)
-- 2026-06-29 13:30 - [啊啊啊](https://www.blog.minike.top/Article/details/94409691.shtml)
-- 2026-06-29 13:13 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/741736349.shtml)
-- 2026-06-29 13:25 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/89297.shtml)
-- 2026-06-29 13:26 - [赵今麦客串电影版开端](http://www.blog.minike.top/Article/details/502467.shtml)
-- 2026-06-29 13:17 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/32860723294.shtml)
-- 2026-06-29 13:29 - [周生如故](https://www.blog.kurohicncr.top/Article/details/7680361419.shtml)
-- 2026-06-29 13:18 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/01734.shtml)
-- 2026-06-29 13:34 - [起风了](http://www.share.minike.top/Article/details/898079597289.shtml)
-- 2026-06-29 13:10 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/147208791218.shtml)
-- 2026-06-29 13:10 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/1133102010.shtml)
-- 2026-06-29 13:24 - [薛之谦演唱会](https://www.share.minike.top/Article/details/27308682616.shtml)
+- 2026-06-29 13:17 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/113234550.shtml)
+- 2026-06-29 13:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/8207417.shtml)
+- 2026-06-29 13:15 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.minike.top/Article/details/35139576.shtml)
+- 2026-06-29 13:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/253172398.shtml)
+- 2026-06-29 13:27 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/03974241377.shtml)
+- 2026-06-29 13:35 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/30342270937.shtml)
+- 2026-06-29 13:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/0209350.shtml)
+- 2026-06-29 13:40 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/48308752.shtml)
+- 2026-06-29 13:28 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/076104078.shtml)
+- 2026-06-29 13:15 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/1277388688.shtml)
+- 2026-06-29 13:40 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/95822800.shtml)
+- 2026-06-29 13:35 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/14201.shtml)
+- 2026-06-29 13:18 - [金牌调解](https://www.share.minike.top/Article/details/9292238659.shtml)
+- 2026-06-29 13:15 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/452852123776.shtml)
+- 2026-06-29 13:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/6518973.shtml)

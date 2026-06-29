@@ -1,60 +1,57 @@
-# BMO宣布旗下多只ETF及基金系列5月月度派息方案
+# 专访香港中乐团艺术总监：文化自信方能迈向世界
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-加拿大蒙特利尔银行资产管理公司于5月22日宣布，旗下多只BMO交易所交易基金及共同基金ETF系列的5月现金分配方案，涵盖月度分红的各类ETF产品。 根据公告，本次除息日和登记日均为5月28日，派息日预计为6月2日。其中，BMO备兑看涨系列ETF备受关注：加拿大银行备兑看涨ETF每单位派息0.15加元，目标现金流单位派息0.488加元；科技行业备兑看涨ETF每单位派息0.35加元
+发布时间：2026年06月19日 18:33 来源：中国新闻网 香港中乐团第50乐季暨国际笙簧节发布会6月18日在广州举行。这是香港中乐团首次将乐季发布会移师粤港澳大湾区内地城市，标志着其在区域文化融合进程中迈出关键一步。 发布会上，香港中乐团公布了第50乐季的详细规划。其中开幕音乐会“千簧一宇”，将于9月19日至20日在香港文化中心上演，将汇聚世界各地著名笙演奏家，展现从晋北
 
 ## 正文
 
-加拿大蒙特利尔银行资产管理公司于5月22日宣布，旗下多只BMO交易所交易基金及共同基金ETF系列的5月现金分配方案，涵盖月度分红的各类ETF产品。
+发布时间：2026年06月19日 18:33 来源：中国新闻网 香港中乐团第50乐季暨国际笙簧节发布会6月18日在广州举行。
 
-根据公告，本次除息日和登记日均为5月28日，派息日预计为6月2日。
+这是香港中乐团首次将乐季发布会移师粤港澳大湾区内地城市，标志着其在区域文化融合进程中迈出关键一步。
 
-其中，BMO备兑看涨系列ETF备受关注：加拿大银行备兑看涨ETF每单位派息0.15加元，目标现金流单位派息0.488加元；科技行业备兑看涨ETF每单位派息0.35加元，公用事业备兑看涨ETF目标现金流单位派息达0.625加元。
+发布会上，香港中乐团公布了第50乐季的详细规划。
 
-债券类产品方面，BMO综合债券指数ETF每单位派息0.038加元，长期公司债券指数ETF派息0.055加元，美国优先股指数ETF派息0.089加元。
+其中开幕音乐会“千簧一宇”，将于9月19日至20日在香港文化中心上演，将汇聚世界各地著名笙演奏家，展现从晋北声腔、唐笙遗制、黔桂芦笙到欧洲管风琴的簧属乐器完整谱系。
 
-权益类产品中，加拿大股息ETF派息0.075加元，美国股息ETF派息0.055美元，加拿大等权重银行指数ETF派息0.145加元。
+现场来自香港中乐团的乐手们也为广州市民带来了精彩的演绎，并向大家介绍这一古老又相对小众的传统乐器。
 
-BMO资产管理公司是加拿大领先的ETF供应商之一，其ETF产品线覆盖股票、债券、备兑看涨策略和ESG投资等多个领域。
+香港中乐团艺术总监兼终身指挥阎惠昌介绍，笙是中华三千年礼乐文明的活化石，本次国际笙簧节将推动中西簧片乐器交融合奏，借此连接全球乐手与大众，彰显中国传统音乐的文化感染力。
 
-公司于今年5月还宣布了对BMO全球股票基金主动ETF系列单位的特别再投资分配，以及对BMO大宗商品ETF的名义非现金再投资分配。
-
-投资者需注意，基金分配并非保证，可能根据市场状况发生变化。
+记者 王庆然 广州报道 责任编辑：【孙静波】
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-29 13:09 - [陈露发声引舆论反转](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 13:28 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 13:21 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 13:14 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 13:13 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 13:32 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-29 13:22 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 13:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 13:31 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-29 13:08 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 13:24 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 13:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 13:15 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 13:40 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 13:25 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 13:24 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 13:13 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 13:26 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 13:20 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 13:15 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 13:18 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 13:35 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-29 13:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 13:31 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 13:40 - [DeepSeek联合北京大学发布论文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 13:39 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/723453.shtml)
-- 2026-06-29 13:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/58586722.shtml)
-- 2026-06-29 13:20 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/5215775.shtml)
-- 2026-06-29 13:20 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/75865477.shtml)
-- 2026-06-29 13:27 - [三轮车被自家狗“推”进池塘](http://www.share.kurohicncr.top/Article/details/413535289.shtml)
-- 2026-06-29 13:34 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.kurohicncr.top/Article/details/24496.shtml)
-- 2026-06-29 13:23 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/7023410.shtml)
-- 2026-06-29 13:25 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/951271148662.shtml)
-- 2026-06-29 13:24 - [在委侨团负责人：家乡的帮助很及时](http://www.share.kurohicncr.top/Article/details/913109.shtml)
-- 2026-06-29 13:17 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/14605.shtml)
-- 2026-06-29 13:12 - [四川宜宾地震](https://www.blog.minike.top/Article/details/106510.shtml)
-- 2026-06-29 13:22 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/588741.shtml)
-- 2026-06-29 13:30 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/098250638.shtml)
-- 2026-06-29 13:07 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/59935430.shtml)
-- 2026-06-29 13:33 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/8911344.shtml)
+- 2026-06-29 13:15 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/3579003346.shtml)
+- 2026-06-29 13:27 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/07781621464.shtml)
+- 2026-06-29 13:38 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/57673.shtml)
+- 2026-06-29 13:25 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/690141614.shtml)
+- 2026-06-29 13:26 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/451921681.shtml)
+- 2026-06-29 13:25 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/36428.shtml)
+- 2026-06-29 13:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/432375099018.shtml)
+- 2026-06-29 13:24 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/439485.shtml)
+- 2026-06-29 13:39 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/4023756655.shtml)
+- 2026-06-29 13:35 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/103943209566.shtml)
+- 2026-06-29 13:16 - [恋与深空需直面玩家6大疑问](http://www.blog.minike.top/Article/details/401892551245.shtml)
+- 2026-06-29 13:37 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.share.kurohicncr.top/Article/details/72083.shtml)
+- 2026-06-29 13:39 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/063381.shtml)
+- 2026-06-29 13:29 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/303674972.shtml)
+- 2026-06-29 13:40 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/7223397.shtml)

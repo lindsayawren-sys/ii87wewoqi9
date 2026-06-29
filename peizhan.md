@@ -1,60 +1,52 @@
-# 广东举行高技能人才专题招聘活动 释放超1.5万个岗位
+# 2026端午游园会在澳大利亚悉尼举行
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。 此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。 据统计，现场吸引超1.1万人次求职者入场，初
+发布时间：2026年06月21日 11:47 来源：中国新闻网 当地时间6月19日，2026端午游园会在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。本次活动由悉尼科技大学中国学联、悉尼大学中国学联联合举办。活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。(记者 薄雯雯 制作 侯诗蕊）
 
 ## 正文
 
-中新网广州5月23日电 (记者 程景伟)“百万英才汇南粤”2026年高技能人才专题招聘活动23日在广东省轻工业技师学院增城校区举行。
+发布时间：2026年06月21日 11:47 来源：中国新闻网 当地时间6月19日，2026端午游园会在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。
 
-此次活动由广东省委人才办、省人力资源和社会保障厅、省教育厅联合主办，300余家企业参加招聘，线上线下释放超15000个岗位，岗位设置贴合产业发展实际，覆盖技术研发、生产制造、运营管理、市场服务全链条。
+本次活动由悉尼科技大学中国学联、悉尼大学中国学联联合举办。
 
-据统计，现场吸引超1.1万人次求职者入场，初步达成就业意向2500多人次，人才供需对接精准度高、落地成效显著。
+活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。
 
-招聘会特设“先进制造业”与“现代服务业”两大专区。
-
-小鹏集团、海天机械等制造业龙头企业与京东、中移铁通等服务企业同台揽才，西门子更是联合50家生态企业组团推出千余个岗位。
-
-电驱试验技师、机器人试制技师、智慧家庭工程师、AI设计师……岗位遍布新能源、智能制造、工业机器人、智能运维等新赛道。
-
-在制造业与服务业加速融合的趋势下，企业不再满足于招聘掌握单一技能的人才，而是急需兼具设备操作、系统管理、客户服务的技能复合型人才。
-
-招聘会上，企业岗位设置呈现出明显的“两业融合”特征，从单纯的制造端向数字营销、智能运维、新零售等现代服务业延伸，精准匹配产业链与价值链的深度融合需求。
+(记者 薄雯雯 制作 侯诗蕊） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 13:34 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 13:18 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 13:20 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 13:06 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 13:22 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 13:07 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 13:11 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 13:24 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 13:06 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 13:29 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 13:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 13:13 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-29 13:41 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 13:15 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 13:38 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 13:29 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 13:15 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 13:34 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:20 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 13:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 13:29 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 13:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 13:28 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 13:17 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 13:37 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-29 13:19 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:33 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/157075553962.shtml)
-- 2026-06-29 13:30 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/4361002916.shtml)
-- 2026-06-29 13:07 - [四川宜宾地震](http://www.blog.minike.top/Article/details/095176410.shtml)
-- 2026-06-29 13:16 - [普京称俄处于命运攸关之际](http://www.blog.minike.top/Article/details/572778690.shtml)
-- 2026-06-29 13:25 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/4132354.shtml)
-- 2026-06-29 13:21 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.minike.top/Article/details/2958696.shtml)
-- 2026-06-29 13:22 - [梅朗雄主张法国退出北约](https://www.blog.minike.top/Article/details/7756393.shtml)
-- 2026-06-29 13:21 - [千与千寻](https://www.blog.minike.top/Article/details/12469386103.shtml)
-- 2026-06-29 13:28 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.share.kurohicncr.top/Article/details/6754956140.shtml)
-- 2026-06-29 13:19 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/54005375033.shtml)
-- 2026-06-29 13:29 - [袁隆平院士 不容诋毁！](http://www.share.kurohicncr.top/Article/details/84914430589.shtml)
-- 2026-06-29 13:12 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/6837894.shtml)
-- 2026-06-29 13:08 - [内马尔世界杯期间豪购百万美元腕表](https://www.share.minike.top/Article/details/541129165127.shtml)
-- 2026-06-29 13:10 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/569827211.shtml)
-- 2026-06-29 13:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/99151830.shtml)
+- 2026-06-29 13:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6203101264.shtml)
+- 2026-06-29 13:32 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/2053143.shtml)
+- 2026-06-29 13:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/3988710695.shtml)
+- 2026-06-29 13:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/6719556211.shtml)
+- 2026-06-29 13:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/2904219.shtml)
+- 2026-06-29 13:35 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/92898.shtml)
+- 2026-06-29 13:19 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/385240.shtml)
+- 2026-06-29 13:16 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/685355.shtml)
+- 2026-06-29 13:24 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/06212262071.shtml)
+- 2026-06-29 13:18 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/774039364.shtml)
+- 2026-06-29 13:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/689279.shtml)
+- 2026-06-29 13:20 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/58749863932.shtml)
+- 2026-06-29 13:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/32660668.shtml)
+- 2026-06-29 13:15 - [天道](http://www.share.minike.top/Article/details/71542588.shtml)
+- 2026-06-29 13:24 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/11940590813.shtml)

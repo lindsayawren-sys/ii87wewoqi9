@@ -1,52 +1,56 @@
-# 伊朗方面表示：巴基斯坦陆军参谋长的德黑兰之行延续“同一外交进程”
+# 西北师大携手田家炳基金会二十五载深耕西部教育育英才
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-伊朗官方通讯社援引伊朗外交部发言人Esmail Baghaei的话报道称，伊朗仍未接近与美国达成协议，巴基斯坦陆军参谋长穆尼尔在德黑兰的会晤并不是为了显示协议即将达成。 Baghaei表示，“谈判重点是结束战争”，而不是核问题。 “卡塔尔代表团正在与伊朗外交部磋商，但巴基斯坦方面仍是主要调解方，”他表示。责任编辑：何云
+中新网兰州6月21日电 (白忠兴)从捐资兴建教学楼宇，到深耕师资培育、赋能基础教育发展；从单向公益捐助，到双向协同育人……二十五年来，西北师范大学与田家炳基金会深度携手，立足陇原大地辐射整个西部地区，持续完善教师培养体系，培育新时代教育领域“大先生”，助力中国西部基础教育实现高质量升级。 缘起金城：公益捐资筑基，携手开启育人之约 位于甘肃兰州的西北师范大学校园里，“田家炳教育书
 
 ## 正文
 
-伊朗官方通讯社援引伊朗外交部发言人Esmail Baghaei的话报道称，伊朗仍未接近与美国达成协议，巴基斯坦陆军参谋长穆尼尔在德黑兰的会晤并不是为了显示协议即将达成。
+中新网兰州6月21日电 (白忠兴)从捐资兴建教学楼宇，到深耕师资培育、赋能基础教育发展；从单向公益捐助，到双向协同育人……二十五年来，西北师范大学与田家炳基金会深度携手，立足陇原大地辐射整个西部地区，持续完善教师培养体系，培育新时代教育领域“大先生”，助力中国西部基础教育实现高质量升级。
 
-Baghaei表示，“谈判重点是结束战争”，而不是核问题。
+缘起金城：公益捐资筑基，携手开启育人之约 位于甘肃兰州的西北师范大学校园里，“田家炳教育书院”大楼静静伫立，这座2001年正式落成的现代化建筑，是双方合作的起点，也是香港知名实业家、慈善家田家炳先生“中国的希望在教育”理念落地西北的重要载体。
 
-“卡塔尔代表团正在与伊朗外交部磋商，但巴基斯坦方面仍是主要调解方，”他表示。
+彼时，田家炳先生捐资500万元人民币，助力西北师大打造总面积一万六千余平方米的专业化教育教学场馆。
 
-责任编辑：何云
+作为西北地区老牌师范类高校，西北师大深耕教师教育领域百年，是区域内公认的“教师摇篮”，深厚的办学底蕴与服务西部教育的使命担当，成为双方合作的重要基石。
+
+“我并非甘肃人，在甘肃也无投资，但得知这里需要我的支持，我非常重视。
+
+”田家炳先生质朴的话语至今仍激励着该校学子。
+
+历经二十余年发展，双方合作模式与时俱进、迭代升级。
+
+2025年底，田家炳基金会行政总裁田立仁专程到访西北师大。
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 13:24 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 13:20 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 13:20 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 13:18 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 13:29 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 13:26 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 13:24 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 13:20 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-29 13:21 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 13:17 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 13:21 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 13:26 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 13:18 - [中国战机大片上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 13:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 13:16 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 13:19 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:29 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 13:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 13:23 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 13:26 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 13:12 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 13:34 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 13:17 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/1491761.shtml)
-- 2026-06-29 13:24 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/31197.shtml)
-- 2026-06-29 13:22 - [时光音乐会](https://www.blog.minike.top/Article/details/932770.shtml)
-- 2026-06-29 13:09 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/63145243680.shtml)
-- 2026-06-29 13:26 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/5668396.shtml)
-- 2026-06-29 13:12 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/94549188204.shtml)
-- 2026-06-29 13:18 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/211770440.shtml)
-- 2026-06-29 13:18 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/89670.shtml)
-- 2026-06-29 13:28 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/227995769142.shtml)
-- 2026-06-29 13:27 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/9312211.shtml)
-- 2026-06-29 13:20 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/46073044.shtml)
-- 2026-06-29 13:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/41924944430.shtml)
-- 2026-06-29 13:23 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/24791733565.shtml)
-- 2026-06-29 13:18 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/171395.shtml)
-- 2026-06-29 13:35 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/989223811956.shtml)
+- 2026-06-29 13:13 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/767400.shtml)
+- 2026-06-29 13:16 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/596211445.shtml)
+- 2026-06-29 13:41 - [一见倾心](https://www.share.kurohicncr.top/Article/details/02670022987.shtml)
+- 2026-06-29 13:33 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/52546413607.shtml)
+- 2026-06-29 13:40 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/27203562823.shtml)
+- 2026-06-29 13:35 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/0527151.shtml)
+- 2026-06-29 13:18 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/60177176.shtml)
+- 2026-06-29 13:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/537570.shtml)
+- 2026-06-29 13:31 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/05573401208.shtml)
+- 2026-06-29 13:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/6465885239.shtml)
+- 2026-06-29 13:13 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/416911891308.shtml)
+- 2026-06-29 13:35 - [恋与深空需直面玩家6大疑问](https://www.blog.kurohicncr.top/Article/details/822979623391.shtml)
+- 2026-06-29 13:13 - [乔家的儿女](http://www.share.minike.top/Article/details/458651913468.shtml)
+- 2026-06-29 13:27 - [韩国政府将对世界杯出局追责](https://www.share.kurohicncr.top/Article/details/488723.shtml)
+- 2026-06-29 13:35 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/73936832020.shtml)

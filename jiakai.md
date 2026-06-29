@@ -1,60 +1,59 @@
-# 海峡航运暗中恢复 印度时隔数月再度接收海湾液化天然气
+# 俄央行宣布下调基准利率至14.25%
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-一艘驶往印度的液化天然气油轮已驶出霍尔木兹海峡。自数月前伊朗战事爆发以来，这是印度首次从波斯湾接收此类货运，区域出口方正隐秘地向主要客户供货。 船舶追踪数据显示，阿布扎比国家石油物流服务公司旗下的“哈姆拉”号油轮近日满载货物，驶向印度西部地区。该船曾在4月19日前后关闭定位信号，彼时船只空载，停靠在霍尔木兹海峡东侧入口处待命。 船舶数据分析机构克普勒表示，船只失联期间，这艘油轮
+中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。 俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。可持续通胀率将在2026年下半年达到4%左右。 俄央行表示，中期内，通胀风险
 
 ## 正文
 
-一艘驶往印度的液化天然气油轮已驶出霍尔木兹海峡。
+中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。
 
-自数月前伊朗战事爆发以来，这是印度首次从波斯湾接收此类货运，区域出口方正隐秘地向主要客户供货。
+俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。
 
-船舶追踪数据显示，阿布扎比国家石油物流服务公司旗下的“哈姆拉”号油轮近日满载货物，驶向印度西部地区。
+可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。
 
-该船曾在4月19日前后关闭定位信号，彼时船只空载，停靠在霍尔木兹海峡东侧入口处待命。
+俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。
 
-船舶数据分析机构克普勒表示，船只失联期间，这艘油轮于海峡内侧波斯湾海域的阿布扎比国家石油公司达斯岛出口码头完成装货。
+可持续通胀率将在2026年下半年达到4%左右。
 
-卫星影像显示，仍有液化天然气船舶停靠该码头，但周边船只均未开启位置播报。
+俄央行表示，中期内，通胀风险将继续超过通缩风险。
 
-船舶数据显示，印度往年超半数液化天然气进口来自卡塔尔与阿联酋，近数月相关运输基本中断。
+通胀风险主要与高通胀预期、工资增长长期超过生产率增长、全球经济前景恶化以及地缘政治紧张局势下全球物价压力上升有关。
 
-供气锐减迫使印度转向价格更高的现货市场采购，同时压缩部分工业用气配额。
+俄央行行长纳比乌琳娜当天在新闻发布会上表示，受一次性因素影响，当前物价上涨速度明显放缓，持续通胀预期也略有下降。
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 13:30 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-29 13:25 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 13:28 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 13:26 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 13:22 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-29 13:15 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 13:18 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 13:24 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 13:21 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 13:29 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 13:12 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 13:28 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 13:20 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 13:28 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 13:29 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 13:21 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 13:30 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 13:35 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-29 13:32 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 13:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 13:22 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 13:30 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 13:15 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 13:28 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 13:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/4842252145.shtml)
-- 2026-06-29 13:18 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/3627753228.shtml)
-- 2026-06-29 13:13 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/297009733.shtml)
-- 2026-06-29 13:16 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/408829816.shtml)
-- 2026-06-29 13:27 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/67502105282.shtml)
-- 2026-06-29 13:34 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/6128952.shtml)
-- 2026-06-29 13:10 - [强⁶](https://www.share.kurohicncr.top/Article/details/5345930.shtml)
-- 2026-06-29 13:25 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/0795873.shtml)
-- 2026-06-29 13:06 - [退休化学教授帮医药研发人员制毒](http://www.blog.minike.top/Article/details/5839629252.shtml)
-- 2026-06-29 13:29 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/7047810718.shtml)
-- 2026-06-29 13:25 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/101386593772.shtml)
-- 2026-06-29 13:16 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/65625.shtml)
-- 2026-06-29 13:29 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/791450359317.shtml)
-- 2026-06-29 13:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/2905222.shtml)
-- 2026-06-29 13:10 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/8417230337.shtml)
+- 2026-06-29 13:37 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.minike.top/Article/details/381032529951.shtml)
+- 2026-06-29 13:16 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/13064096932.shtml)
+- 2026-06-29 13:27 - [啊啊啊](https://www.share.minike.top/Article/details/7494282.shtml)
+- 2026-06-29 13:23 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/1400113.shtml)
+- 2026-06-29 13:34 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/42020066.shtml)
+- 2026-06-29 13:22 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/11363185949.shtml)
+- 2026-06-29 13:18 - [第一炉香](http://www.blog.minike.top/Article/details/94075.shtml)
+- 2026-06-29 13:35 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/682152.shtml)
+- 2026-06-29 13:38 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/448661425.shtml)
+- 2026-06-29 13:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/1548471.shtml)
+- 2026-06-29 13:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/7506299291.shtml)
+- 2026-06-29 13:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/38103.shtml)
+- 2026-06-29 13:26 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/633127452339.shtml)
+- 2026-06-29 13:39 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/89090.shtml)
+- 2026-06-29 13:32 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/062732.shtml)

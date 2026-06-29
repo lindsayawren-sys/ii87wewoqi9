@@ -1,57 +1,57 @@
-# 好事达宣布普通股季度派息1.08美元
+# 1年期和5年期以上LPR仍按兵不动 专家：未来LPR报价形成机制可能逐步变化
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-好事达公司于5月22日宣布，董事会已批准派发每股1.08美元的季度现金股息，与上一季度持平。按年计算，年度股息为4.32美元，按5月22日收盘价计算，远期收益率约为2.0%。 此次普通股股息将于7月1日支付，股权登记日为6月1日，除息日同样为6月1日。这一派息水平自2026年3月从1.00美元上调至1.08美元后已连续第二个季度维持在该水平，增幅为8%。 好事达公司是美国最大的
+每经记者|张寿林 每经编辑|陈旭 6月22日，中国人民银行授权全国银行间同业拆借中心公布，当日贷款市场报价利率（LPR）为：1年期LPR为3.0%，5年期以上LPR为3.5%。 中信证券首席经济学家明明团队表示，未来隔夜逆回购工具可能会类似7天逆回购工具实现常态化操作。伴随利率调控框架改革，未来LPR报价形成机制也可能从7天逆回购利率加点的方式逐步变化。 东方金诚王青团队判断，
 
 ## 正文
 
-好事达公司于5月22日宣布，董事会已批准派发每股1.08美元的季度现金股息，与上一季度持平。
+每经记者|张寿林 每经编辑|陈旭 6月22日，中国人民银行授权全国银行间同业拆借中心公布，当日贷款市场报价利率（LPR）为：1年期LPR为3.0%，5年期以上LPR为3.5%。
 
-按年计算，年度股息为4.32美元，按5月22日收盘价计算，远期收益率约为2.0%。
+中信证券首席经济学家明明团队表示，未来隔夜逆回购工具可能会类似7天逆回购工具实现常态化操作。
 
-此次普通股股息将于7月1日支付，股权登记日为6月1日，除息日同样为6月1日。
+伴随利率调控框架改革，未来LPR报价形成机制也可能从7天逆回购利率加点的方式逐步变化。
 
-这一派息水平自2026年3月从1.00美元上调至1.08美元后已连续第二个季度维持在该水平，增幅为8%。
+东方金诚王青团队判断，下半年稳增长政策有望加码，实施政策性降息的可能性较大，进而带动LPR报价跟进下调。
 
-好事达公司是美国最大的财产保险和意外伤害保险公司之一，总部位于伊利诺伊州诺斯布鲁克。
+这是下半年促消费扩投资、有效对冲外部不确定性的一个重要发力点。
 
-该公司长期致力于通过稳定的股息政策回馈股东，其普通股已连续超过25年保持股息持续增长。
+1年期LPR走势 6月22日发布的LPR在下一次发布前有效。
 
-除普通股外，好事达同日还宣布了多只优先股的季度股息分配方案，包括H系列、I系列、J系列存托优先股，派息金额分别为0.31875美元、0.296875美元和0.4609375美元，支付日为7月15日。
+明明团队认为，2025年5月LPR报价跟随逆回购利率下调10个基点后，利率工具持续企稳，截至2026年6月逆回购利率再无调整，1年期、5年期以上LPR报价和逆回购利率加点分别维持在1.6个百分点和2.1个百分点。
 
-责任编辑：张俊 SF065
+王青团队判断，LPR持续维持不变有两个直接原因：首先，当月定价基础没有变化。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 13:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 13:25 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 13:10 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 13:33 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 13:23 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 13:13 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 13:32 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 13:34 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 13:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 13:17 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 13:19 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 13:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 13:35 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 13:27 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-29 13:37 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 13:26 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 13:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 13:12 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 13:23 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 13:32 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 13:33 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [沙特足协主席发布声明主动请辞](https://www.blog.kurohicncr.top/Article/details/47363.shtml)
-- 2026-06-29 13:07 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/858569.shtml)
-- 2026-06-29 13:08 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/608092807945.shtml)
-- 2026-06-29 13:12 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/344938535.shtml)
-- 2026-06-29 13:16 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/62117182.shtml)
-- 2026-06-29 13:35 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/291197200063.shtml)
-- 2026-06-29 13:08 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/377846.shtml)
-- 2026-06-29 13:08 - [外网预言中国举办世界杯时间](http://www.blog.minike.top/Article/details/815473674.shtml)
-- 2026-06-29 13:29 - [俄称继续推进 乌称打击俄军设施](https://www.blog.minike.top/Article/details/071356358202.shtml)
-- 2026-06-29 13:18 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/8156223028.shtml)
-- 2026-06-29 13:26 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/29962956937.shtml)
-- 2026-06-29 13:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/522840.shtml)
-- 2026-06-29 13:34 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/4510606719.shtml)
-- 2026-06-29 13:20 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/80011140172.shtml)
-- 2026-06-29 13:14 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.blog.minike.top/Article/details/2222483.shtml)
+- 2026-06-29 13:37 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/446809135.shtml)
+- 2026-06-29 13:38 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/08152754.shtml)
+- 2026-06-29 13:13 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.kurohicncr.top/Article/details/099146360486.shtml)
+- 2026-06-29 13:39 - [明星大侦探第一季](https://www.share.minike.top/Article/details/16447805.shtml)
+- 2026-06-29 13:23 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/19880460.shtml)
+- 2026-06-29 13:20 - [张一山说杨紫早该拿奖了](https://www.share.kurohicncr.top/Article/details/688313391842.shtml)
+- 2026-06-29 13:38 - [游戏数据竟被用于军事目的](https://www.blog.kurohicncr.top/Article/details/229595048696.shtml)
+- 2026-06-29 13:41 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/460039.shtml)
+- 2026-06-29 13:14 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.minike.top/Article/details/9537048790.shtml)
+- 2026-06-29 13:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/43253540.shtml)
+- 2026-06-29 13:21 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/9112940615.shtml)
+- 2026-06-29 13:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/9609997.shtml)
+- 2026-06-29 13:38 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/627122.shtml)
+- 2026-06-29 13:33 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/767241569595.shtml)
+- 2026-06-29 13:14 - [行程万里不忘初心](http://www.share.minike.top/Article/details/87861.shtml)

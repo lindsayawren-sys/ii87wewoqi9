@@ -1,56 +1,59 @@
-# Stellantis CEO：考虑在墨西哥、加拿大生产中国品牌车型，美国暂无计划
+# 西藏普兰边关“野生萌”糌粑粽寄平安
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-Stellantis首席执行官Antonio Filosa于5月22日表示，公司正考虑在墨西哥和加拿大扩大与中国合作伙伴零跑汽车的合作，可能在这两个市场生产中国品牌车型，但美国市场目前没有空间。 Filosa在底特律附近Stellantis北美总部举行的投资者日活动后表示，他认为墨西哥市场存在机会，加拿大或许也有空间。此前彭博社已报道，Stellantis正与零跑汽车就在加拿大
+中新网拉萨6月19日电 题：西藏普兰边关“野生萌”糌粑粽寄平安 作者 贡桑拉姆 郑江渝 李晞乔 仲夏风暖，粽叶传情。又是一年端午至，在雪域高原西南边陲，西藏普兰出入境边防检查站立足驻地民俗特色，邀约周边藏族村民开展警民端午共建活动。戍边民警与藏族乡亲围坐一堂，融传统端午民俗与高原本土风物于一体，就地取材创意制作藏式糌粑粽，在烟火暖意中共度佳节、共话团结、共寄边关美好祝福。 地处
 
 ## 正文
 
-Stellantis首席执行官Antonio Filosa于5月22日表示，公司正考虑在墨西哥和加拿大扩大与中国合作伙伴零跑汽车的合作，可能在这两个市场生产中国品牌车型，但美国市场目前没有空间。
+中新网拉萨6月19日电 题：西藏普兰边关“野生萌”糌粑粽寄平安 作者 贡桑拉姆 郑江渝 李晞乔 仲夏风暖，粽叶传情。
 
-Filosa在底特律附近Stellantis北美总部举行的投资者日活动后表示，他认为墨西哥市场存在机会，加拿大或许也有空间。
+又是一年端午至，在雪域高原西南边陲，西藏普兰出入境边防检查站立足驻地民俗特色，邀约周边藏族村民开展警民端午共建活动。
 
-此前彭博社已报道，Stellantis正与零跑汽车就在加拿大安大略省布兰普顿的闲置工厂生产电动车进行洽谈。
+戍边民警与藏族乡亲围坐一堂，融传统端午民俗与高原本土风物于一体，就地取材创意制作藏式糌粑粽，在烟火暖意中共度佳节、共话团结、共寄边关美好祝福。
 
-该工厂自2024年关闭后，一直面临产能闲置问题，若协议落地，零跑将成为首个在北美实现本土化生产的中国新势力品牌。
+地处阿里地区南部的普兰县，坐落于中国西南边境前沿，毗邻印度、尼泊尔。
 
-Filosa同时明确排除了在美国本土生产中国品牌汽车的可能性。
+境内的普兰口岸，是西藏重要的对外通商口岸，也是中尼经贸往来、文化互通的关键窗口，常年有边民、游客、商贸人员往来穿梭，一代代边检民警扎根雪域、坚守国门，守护着边境口岸的安宁与畅通。
 
-他表示现在美国没有空间，看不到。
+高原风物藏温情，民俗烟火寄平安。
 
-这一判断基于美国对中国汽车制造商进入北美市场的持续担忧。
+在普兰当地，“一口糌粑配酥油茶，吃进肚里，一天安安全全”的谚语家喻户晓、代代相传。
 
-传统车企一直担心中国车企可能通过合作渠道渗透至美国消费者市场，而美国政策层面对中国汽车的准入态度也持续趋严。
+千百年来，糌粑、酥油茶早已融入高原群众的烟火日常，不仅是适配高寒气候的特色饮食，更承载着当地群众祈愿平安顺遂、岁岁安康的质朴初心，是雪域高原最纯粹的平安期许。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:12 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 13:26 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 13:17 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 13:33 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-29 13:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 13:34 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 13:35 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 13:18 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 13:12 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 13:37 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 13:27 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 13:12 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 13:27 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 13:31 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-29 13:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 13:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 13:22 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 13:30 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 13:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 13:24 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 13:18 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/62415866.shtml)
-- 2026-06-29 13:21 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/2121687.shtml)
-- 2026-06-29 13:25 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/3911427.shtml)
-- 2026-06-29 13:23 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/15555747015.shtml)
-- 2026-06-29 13:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/04236597246.shtml)
-- 2026-06-29 13:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/200462455.shtml)
-- 2026-06-29 13:23 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/7675508.shtml)
-- 2026-06-29 13:28 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/501535817909.shtml)
-- 2026-06-29 13:26 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.minike.top/Article/details/963229688798.shtml)
-- 2026-06-29 13:25 - [金牌调解](http://www.share.minike.top/Article/details/15514181047.shtml)
-- 2026-06-29 13:21 - [李连杰回应网传不管前妻俩女儿](http://www.blog.kurohicncr.top/Article/details/16419.shtml)
-- 2026-06-29 13:31 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/843207.shtml)
-- 2026-06-29 13:35 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/83228872.shtml)
-- 2026-06-29 13:25 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/283371.shtml)
-- 2026-06-29 13:06 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/5515242409.shtml)
+- 2026-06-29 13:24 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/56869787.shtml)
+- 2026-06-29 13:39 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/42862.shtml)
+- 2026-06-29 13:35 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/650151.shtml)
+- 2026-06-29 13:39 - [DeepSeek联合北京大学发布论文](https://www.share.kurohicncr.top/Article/details/693312339.shtml)
+- 2026-06-29 13:33 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/64110809.shtml)
+- 2026-06-29 13:23 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/8580401.shtml)
+- 2026-06-29 13:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/86068243.shtml)
+- 2026-06-29 13:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1214706079.shtml)
+- 2026-06-29 13:27 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.minike.top/Article/details/70836313.shtml)
+- 2026-06-29 13:16 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/1870932755.shtml)
+- 2026-06-29 13:30 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/676618.shtml)
+- 2026-06-29 13:35 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/0850963308.shtml)
+- 2026-06-29 13:13 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/348647738335.shtml)
+- 2026-06-29 13:23 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.kurohicncr.top/Article/details/848072.shtml)
+- 2026-06-29 13:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/4597514057.shtml)

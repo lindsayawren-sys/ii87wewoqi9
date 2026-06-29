@@ -1,58 +1,57 @@
-# 5月23日收盘：道指再创新高 标普500指数连续第八周上涨
+# 高中签率，深交所最大IPO明日申购！“复兴号”供应商也来了
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-北京时间5月23日凌晨，美股周五收高，道指再创历史新高。三大指数本周均录得涨幅。投资者正在密切关注美伊谈判进展。凯文沃什宣誓就任美联储主席。 道指涨294.04点，涨幅为0.58%，报50579.70点；纳指涨50.87点，涨幅为0.19%，报26343.97点；标普500指数涨27.73点，涨幅为0.37%，报7473.45点。 本周标普500指数上涨0.88%，录得连续第八
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股打新投资者注意啦！ 6月22日共有2只新股可申购，分别主板的华润新能源（001248.SZ），以及北交所的益坤电气（920222.BJ）。 预期“高中签率”新股 深交所最大IPO来啦 截至6月21日，华润新能源拟发行股份总数、网上发行股份数量，分别排名2026年以来沪深两市新股第一位、第二位。即投资者参
 
 ## 正文
 
-北京时间5月23日凌晨，美股周五收高，道指再创历史新高。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-三大指数本周均录得涨幅。
+A股打新投资者注意啦！
 
-投资者正在密切关注美伊谈判进展。
+6月22日共有2只新股可申购，分别主板的华润新能源（001248.SZ），以及北交所的益坤电气（920222.BJ）。
 
-凯文沃什宣誓就任美联储主席。
+预期“高中签率”新股 深交所最大IPO来啦 截至6月21日，华润新能源拟发行股份总数、网上发行股份数量，分别排名2026年以来沪深两市新股第一位、第二位。
 
-道指涨294.04点，涨幅为0.58%，报50579.70点；纳指涨50.87点，涨幅为0.19%，报26343.97点；标普500指数涨27.73点，涨幅为0.37%，报7473.45点。
+即投资者参与申购华润新能源，“中签”概率较高。
 
-本周标普500指数上涨0.88%，录得连续第八周收涨，创2023年末结束的九周连涨以来最长的周度连涨纪录。
+华润新能源主营业务为投资、开发、运营和管理风力、太阳能发电站，是国内最大的新能源发电运营商之一。
 
-道指本周上涨2.1%，实现四周内第三次周度收涨。
+此次冲击上市，公司拟募集资金245亿元。
 
-纳斯达克综合指数上涨0.45%，该指数在过去八周中第七次周度上涨。
+经统计，华润新能源将刷新深交所IPO融资纪录，超越2020年上市的金龙鱼，成为深交所史上最大规模IPO。
 
 ## 相关推荐
 
-- 2026-06-29 13:13 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 13:10 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 13:22 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 13:15 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 13:23 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 13:28 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 13:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 13:15 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 13:32 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 13:15 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-29 13:35 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 13:34 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-29 13:31 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-29 13:17 - [韩体育部长回应李在明痛批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 13:24 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 13:23 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 13:19 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 13:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 13:12 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 13:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 13:41 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 13:12 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 13:28 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [欧洲极端高温东扩](http://www.blog.minike.top/Article/details/61247.shtml)
-- 2026-06-29 13:18 - [杨紫《生命树》播放量破百亿](http://www.share.kurohicncr.top/Article/details/04908.shtml)
-- 2026-06-29 13:15 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/124825.shtml)
-- 2026-06-29 13:25 - [A股](http://www.share.minike.top/Article/details/532431533.shtml)
-- 2026-06-29 13:15 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/620695153081.shtml)
-- 2026-06-29 13:08 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/551874.shtml)
-- 2026-06-29 13:16 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/2838188.shtml)
-- 2026-06-29 13:31 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/40149729285.shtml)
-- 2026-06-29 13:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/796498440.shtml)
-- 2026-06-29 13:06 - [北极荒岛生存挑战](https://www.blog.kurohicncr.top/Article/details/1797751.shtml)
-- 2026-06-29 13:10 - [记者暗访贵州和云南多个养老机构](https://www.blog.minike.top/Article/details/334352849.shtml)
-- 2026-06-29 13:25 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/05268.shtml)
-- 2026-06-29 13:35 - [沙丘](https://www.blog.kurohicncr.top/Article/details/41897618016.shtml)
-- 2026-06-29 13:22 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/449011.shtml)
-- 2026-06-29 13:09 - [和阿根廷球员家属一起看球](http://www.share.minike.top/Article/details/773147.shtml)
+- 2026-06-29 13:16 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/949254309480.shtml)
+- 2026-06-29 13:41 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.kurohicncr.top/Article/details/99470.shtml)
+- 2026-06-29 13:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/24690702503.shtml)
+- 2026-06-29 13:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/352435334023.shtml)
+- 2026-06-29 13:39 - [为什么欧洲人不装空调](https://www.share.kurohicncr.top/Article/details/957940.shtml)
+- 2026-06-29 13:23 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/6694451.shtml)
+- 2026-06-29 13:37 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/772089206.shtml)
+- 2026-06-29 13:16 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/67078216.shtml)
+- 2026-06-29 13:12 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/565656719.shtml)
+- 2026-06-29 13:13 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/570053.shtml)
+- 2026-06-29 13:30 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/715501.shtml)
+- 2026-06-29 13:39 - [毒液2](http://www.blog.minike.top/Article/details/27270.shtml)
+- 2026-06-29 13:37 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/46756.shtml)
+- 2026-06-29 13:38 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/1792767.shtml)
+- 2026-06-29 13:28 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/19436199.shtml)

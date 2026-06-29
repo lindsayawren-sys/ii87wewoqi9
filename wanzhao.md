@@ -1,61 +1,58 @@
-# 三年四赴国际舞台，海南雨林童声与世界“对唱”
+# 广州车陂再现“又有龙船又有戏” 广府端午风情浓郁
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新社海南五指山5月24日电 题：三年四赴国际舞台，海南雨林童声与世界“对唱” 作者 张月和 今年国际茶日(5月21日)，一群身着海南黎族、苗族盛装的孩子，在位于意大利罗马的联合国粮食及农业组织总部，唱响黎族原创歌曲《黎山茶歌》和意大利民歌《桑塔露琪亚》，清亮的童声和欢快的节奏充满感染力，现场的外国友人跟着打起节拍，鼓掌喝彩。 这是五指山雨林童声合唱团(下称“合唱团”)三年来第
+中新网广州6月20日电 (程景伟 文瑶 李喜燕)端午假期，广州天河车陂街道再现“又有龙船又有戏”特色民俗盛景，18日至19日一连两晚上演粤剧粤曲惠民系列活动，来自广州粤剧院的名家新秀轮番登台演出，让戏迷直呼“过瘾”。 广州天河车陂村始建于唐朝，村内龙舟文化已有300多年历史。2022年，“车陂龙舟景”入选广东省第八批省级非物质文化遗产代表性项目名录。粤剧与车陂渊源深厚，早在二十
 
 ## 正文
 
-中新社海南五指山5月24日电 题：三年四赴国际舞台，海南雨林童声与世界“对唱” 作者 张月和 今年国际茶日(5月21日)，一群身着海南黎族、苗族盛装的孩子，在位于意大利罗马的联合国粮食及农业组织总部，唱响黎族原创歌曲《黎山茶歌》和意大利民歌《桑塔露琪亚》，清亮的童声和欢快的节奏充满感染力，现场的外国友人跟着打起节拍，鼓掌喝彩。
+中新网广州6月20日电 (程景伟 文瑶 李喜燕)端午假期，广州天河车陂街道再现“又有龙船又有戏”特色民俗盛景，18日至19日一连两晚上演粤剧粤曲惠民系列活动，来自广州粤剧院的名家新秀轮番登台演出，让戏迷直呼“过瘾”。
 
-这是五指山雨林童声合唱团(下称“合唱团”)三年来第四次踏上国际舞台与世界对唱。
+广州天河车陂村始建于唐朝，村内龙舟文化已有300多年历史。
 
-这个合唱团来自海南热带雨林深处，由一群黎族、苗族、汉族小学生组成。
+2022年，“车陂龙舟景”入选广东省第八批省级非物质文化遗产代表性项目名录。
 
-2024年，他们先后在法国、韩国唱响黎音苗韵；2025年他们再度赴法，与巴黎宝丽声童声合唱团接续友谊。
+粤剧与车陂渊源深厚，早在二十世纪二三十年代，节庆搭棚唱大戏已是当地民俗，粤剧早已融入百姓日常生活。
 
-“今年合唱团规模扩大了，来自不同乡镇的孩子们都参与了进来，有接近80名成员。
+今年端午假期，广州天河车陂热闹非凡，白天有龙舟巡游，夜晚有大戏开锣，村民们齐聚一堂，赏龙舟、睇大戏，尽享广府地道的端午风情。
 
-”合唱团指挥兼艺术指导刘旻24日受访时说，此次前往罗马的18个孩子中，既有参与过此前出访交流活动的，也有第一次出国表演的，“孩子们很激动，整体演出效果非常好”。
+18日晚，折子戏专场以传统例戏《八仙贺寿》开场，寓意吉祥安康。
 
-为了呼应国际茶日的主题，合唱团排练了黎族原创歌曲《黎山茶歌》，将五指山特有的雨林大叶茶以歌唱的形式介绍给外国友人。
+本场演出不仅有广州粤剧院专业演员献演《步月抒怀》《拾筝》《扈家庄》《抢笛》《花好月圆》《刁蛮公主戆驸马》等作品选段，还有车陂粤剧私伙局的发烧友演出《梦会太湖》《七月七日长生殿》《艳曲动皇心》等折子戏。
 
-此外，孩子们还特地练习了几首意大利语歌曲，有《桑塔露琪亚》，也有米兰冬奥会的主题曲《直到黎明》。
+19日晚，粤剧表演艺术家、中国戏剧梅花奖得主倪惠英倾情演唱经典粤曲《贵妃醉酒》选段，一展粤剧名家风采。
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 13:06 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 13:35 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 13:17 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 13:07 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-29 13:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 13:25 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 13:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 13:30 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 13:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 13:33 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 13:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 13:18 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 13:34 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 13:28 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 13:32 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 13:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-29 13:22 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 13:35 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 13:41 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 13:13 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 13:33 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 13:14 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 13:38 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 13:12 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:18 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 13:19 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/6275653975.shtml)
-- 2026-06-29 13:26 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/16531769.shtml)
-- 2026-06-29 13:10 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/97936002.shtml)
-- 2026-06-29 13:06 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/272031083076.shtml)
-- 2026-06-29 13:07 - [三轮车被自家狗“推”进池塘](https://www.blog.kurohicncr.top/Article/details/9783243913.shtml)
-- 2026-06-29 13:29 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/07926902.shtml)
-- 2026-06-29 13:10 - [向佑说向佐是一生依靠](https://www.blog.minike.top/Article/details/765605660652.shtml)
-- 2026-06-29 13:31 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/6074296.shtml)
-- 2026-06-29 13:12 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/6597455851.shtml)
-- 2026-06-29 13:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/9134880.shtml)
-- 2026-06-29 13:29 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/2130352.shtml)
-- 2026-06-29 13:23 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/113077283479.shtml)
-- 2026-06-29 13:34 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/3427290.shtml)
-- 2026-06-29 13:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/1754742255.shtml)
-- 2026-06-29 13:19 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/23317175.shtml)
+- 2026-06-29 13:14 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/96592938950.shtml)
+- 2026-06-29 13:13 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/44121552.shtml)
+- 2026-06-29 13:27 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/40635.shtml)
+- 2026-06-29 13:38 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/762337.shtml)
+- 2026-06-29 13:33 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/39519012071.shtml)
+- 2026-06-29 13:17 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/13604128.shtml)
+- 2026-06-29 13:21 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/40651791.shtml)
+- 2026-06-29 13:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/820838190.shtml)
+- 2026-06-29 13:25 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/472687507503.shtml)
+- 2026-06-29 13:28 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/915098256.shtml)
+- 2026-06-29 13:14 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/478394.shtml)
+- 2026-06-29 13:36 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/762893.shtml)
+- 2026-06-29 13:35 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/295161692656.shtml)
+- 2026-06-29 13:24 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/189937660814.shtml)
+- 2026-06-29 13:29 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.kurohicncr.top/Article/details/53304295.shtml)

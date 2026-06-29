@@ -1,56 +1,61 @@
-# 英国4月财政赤字创同期次高 斯塔默政府面临经济与政治双重挑战
+# 创新生态聚引力，外资行看多中国资产
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-英国国家统计局最新公布的数据显示，英国4月份公共财政借款达243亿英镑，远超预期并创下历史同期次高。在经济下行风险积聚与执政党民调低迷的背景下，英国首相凯尔·斯塔默面临的政治与经济双重压力正持续加剧。 本财年首月的财政赤字大幅高于此前经济学家预估的209亿英镑。具体数据显示，英国4月份政府财政收入同比增长2.9%，而公共支出增幅则高达6.5%。此外，截至今年3月的上一财年，英国
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社记者任军 多家外资行近期表示，中国经济韧性凸显，新质生产力加速形成，全球资本对中国市场的信心攀升，境外投资者增持中国资产的意愿持续增强。 “对外资而言，中国资产已从‘是否配置’转向‘如何配置’。”瑞银集团中国区总裁、瑞银证券董事长胡知鸷表示。 瑞银证券全球投资银行部联席主管谌戈介绍，从瑞银今年上半年参
 
 ## 正文
 
-英国国家统计局最新公布的数据显示，英国4月份公共财政借款达243亿英镑，远超预期并创下历史同期次高。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在经济下行风险积聚与执政党民调低迷的背景下，英国首相凯尔·斯塔默面临的政治与经济双重压力正持续加剧。
+新华社记者任军 多家外资行近期表示，中国经济韧性凸显，新质生产力加速形成，全球资本对中国市场的信心攀升，境外投资者增持中国资产的意愿持续增强。
 
-本财年首月的财政赤字大幅高于此前经济学家预估的209亿英镑。
+“对外资而言，中国资产已从‘是否配置’转向‘如何配置’。
 
-具体数据显示，英国4月份政府财政收入同比增长2.9%，而公共支出增幅则高达6.5%。
+”瑞银集团中国区总裁、瑞银证券董事长胡知鸷表示。
 
-此外，截至今年3月的上一财年，英国公共借款总额为1290亿英镑，占国内生产总值（GDP）的4.2%。
+瑞银证券全球投资银行部联席主管谌戈介绍，从瑞银今年上半年参与的IPO、定增、可转债项目来看，不论是摩根大通、富达投资等西方长线资金，还是卡塔尔投资局、阿布扎比投资局等中东主权基金，都在布局中国资产方面展现出活跃态度。
 
-尽管该比例低于此前一年的5.2%，但财政状况依然严峻。
+不少机构都是首次参与港股的基石投资，这意味着它们要接受6个月锁定期限制，显示出对所投标的的信心。
 
-英国预算机构此前预计，2026至2027财年该国公共部门借款占GDP比重有望降至3.6%，以期达到新冠疫情暴发以来的最低赤字水平。
+中国经济的稳定性、确定性及强大创新动能已成为配置中国资产的重要驱动力。
 
-近期爆发的伊朗冲突进一步加剧了英国经济的脆弱性。
+“不论是AI大模型，还是AI基础设施的产业链投资，中国都有很好的投资标的。
 
 ## 相关推荐
 
-- 2026-06-29 13:12 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 13:22 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 13:14 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-29 13:14 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:11 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 13:15 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 13:34 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 13:10 - [谢霆锋演唱会变大型呲水现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-29 13:23 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-29 13:09 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 13:37 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 13:14 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 13:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 13:28 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 13:26 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 13:25 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 13:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 13:36 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 13:36 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 13:27 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 13:39 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 13:20 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 13:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 13:13 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/81917.shtml)
-- 2026-06-29 13:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/175703.shtml)
-- 2026-06-29 13:17 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/6349209316.shtml)
-- 2026-06-29 13:06 - [本周做什么都顺的星座](http://www.share.kurohicncr.top/Article/details/144898342384.shtml)
-- 2026-06-29 13:10 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/8493594869.shtml)
-- 2026-06-29 13:25 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/4108475.shtml)
-- 2026-06-29 13:25 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/708500283.shtml)
-- 2026-06-29 13:06 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/09118442417.shtml)
-- 2026-06-29 13:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/9979442.shtml)
-- 2026-06-29 13:19 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/87999990.shtml)
-- 2026-06-29 13:14 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.kurohicncr.top/Article/details/87869224945.shtml)
-- 2026-06-29 13:10 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/8910177513.shtml)
-- 2026-06-29 13:22 - [Mrbeast的30天不吃饭挑战](http://www.blog.minike.top/Article/details/69091050.shtml)
-- 2026-06-29 13:16 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/436190.shtml)
-- 2026-06-29 13:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/072212.shtml)
+- 2026-06-29 13:12 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/48205.shtml)
+- 2026-06-29 13:32 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/765418.shtml)
+- 2026-06-29 13:35 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/56342498652.shtml)
+- 2026-06-29 13:13 - [双高胎](https://www.blog.minike.top/Article/details/659924269836.shtml)
+- 2026-06-29 13:28 - [谢霆锋演唱会变大型呲水现场](http://www.blog.kurohicncr.top/Article/details/715357553309.shtml)
+- 2026-06-29 13:40 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/7946836.shtml)
+- 2026-06-29 13:20 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/7481948400.shtml)
+- 2026-06-29 13:20 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/293186.shtml)
+- 2026-06-29 13:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/23075600443.shtml)
+- 2026-06-29 13:38 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/80829.shtml)
+- 2026-06-29 13:26 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/14152434.shtml)
+- 2026-06-29 13:17 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/17253310005.shtml)
+- 2026-06-29 13:32 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/269173819.shtml)
+- 2026-06-29 13:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/768559829634.shtml)
+- 2026-06-29 13:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/226924588.shtml)

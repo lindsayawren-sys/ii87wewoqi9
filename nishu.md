@@ -1,58 +1,54 @@
-# 西藏冈仁波齐与札达土林频现雪豹身影
+# 美军在加勒比海打击“贩毒船”致2人死亡
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新社拉萨5月22日电 (记者 江飞波)5月22日是国际生物多样性日，记者从西藏自治区阿里地区林业和草原局获悉，在冈仁波齐以及西藏札达土林国家地质公园等区域，科研团队近期通过野外红外相机，多次捕捉到中国国家一级保护动物雪豹的珍贵影像。此次调查为阿里地区的野生动物监测填补了重要的分布信息。 2025年10月起，阿里地区林业和草原局联合北京大学自然保护和社会发展研究中心以及山水自然
+美军南方司令部当地时间21日发表声明说，美军当天在加勒比海打击了一艘“贩毒船”，船上2人被打死。 声明说，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上2名男性，无美军人员伤亡。 自2025年9月初以来，美军在加勒比海和东太平洋对美方指称的所谓“贩毒船”进行多次打击，并于当年11月13日宣布发起
 
 ## 正文
 
-中新社拉萨5月22日电 (记者 江飞波)5月22日是国际生物多样性日，记者从西藏自治区阿里地区林业和草原局获悉，在冈仁波齐以及西藏札达土林国家地质公园等区域，科研团队近期通过野外红外相机，多次捕捉到中国国家一级保护动物雪豹的珍贵影像。
+美军南方司令部当地时间21日发表声明说，美军当天在加勒比海打击了一艘“贩毒船”，船上2人被打死。
 
-此次调查为阿里地区的野生动物监测填补了重要的分布信息。
+声明说，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上2名男性，无美军人员伤亡。
 
-2025年10月起，阿里地区林业和草原局联合北京大学自然保护和社会发展研究中心以及山水自然保护中心等科研机构在札达土林、冈仁波齐、普兰等区域开展长期监测工作，在近一万个红外相机工作日中，经初步统计共拍摄到雪豹150余次，其中包含多次雪豹携幼崽出游的镜头。
+自2025年9月初以来，美军在加勒比海和东太平洋对美方指称的所谓“贩毒船”进行多次打击，并于当年11月13日宣布发起“南方之矛”军事行动。
 
-北京大学教授、山水自然保护中心创始人吕植表示，雪豹作为高原生态系统的顶级捕食者和“伞护种”，对栖息地环境和生态系统完整性都有着很高的要求。
+然而，美国政府一直未公布任何可以证明其攻击目标涉毒的证据。
 
-在冈仁波齐以及札达土林等区域频频现身，意味着该区域不仅拥有较为完整的食物链，也表明阿里地区的荒漠与高寒生态系统处于较为健康和稳定的状态。
-
-此外，相较于物种分布的发现，此次雪豹在冈仁波齐与札达土林的现身，具有更为广泛的人文和生态意义。
-
-“这不仅是一次生物学上的有趣发现，也是阿里地区传统生态文化与现代科学生物多样性保护理念的华丽碰撞与结合。
-
-”吕植说。
+(央视新闻客户端)
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 13:31 - [天津打雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 13:34 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 13:14 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 13:26 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 13:21 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 13:29 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 13:10 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 13:20 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 13:19 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-29 13:12 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 13:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 13:26 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 13:20 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 13:23 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 13:23 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 13:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 13:40 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:32 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 13:39 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 13:32 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:12 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 13:30 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 13:32 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-29 13:17 - [BW2026游览指南](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 13:24 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/3409299795.shtml)
-- 2026-06-29 13:31 - [房屋抵押权与租赁权如何协调](https://www.blog.minike.top/Article/details/943248.shtml)
-- 2026-06-29 13:31 - [急先锋](https://www.blog.kurohicncr.top/Article/details/258221859987.shtml)
-- 2026-06-29 13:18 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/71182145.shtml)
-- 2026-06-29 13:22 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.minike.top/Article/details/626956392.shtml)
-- 2026-06-29 13:16 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/13190618312.shtml)
-- 2026-06-29 13:11 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.minike.top/Article/details/093625475.shtml)
-- 2026-06-29 13:32 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/00724591.shtml)
-- 2026-06-29 13:33 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/175058439067.shtml)
-- 2026-06-29 13:12 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/9239039.shtml)
-- 2026-06-29 13:26 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/464389443.shtml)
-- 2026-06-29 13:13 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/8552379105.shtml)
-- 2026-06-29 13:14 - [第一炉香](https://www.share.minike.top/Article/details/2537660941.shtml)
-- 2026-06-29 13:32 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/82019180344.shtml)
-- 2026-06-29 13:13 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/23222794.shtml)
+- 2026-06-29 13:26 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/8257120699.shtml)
+- 2026-06-29 13:29 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/716613828699.shtml)
+- 2026-06-29 13:24 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/7954971410.shtml)
+- 2026-06-29 13:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/65070.shtml)
+- 2026-06-29 13:33 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/7516032080.shtml)
+- 2026-06-29 13:15 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/4143753289.shtml)
+- 2026-06-29 13:27 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/184218.shtml)
+- 2026-06-29 13:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/87284.shtml)
+- 2026-06-29 13:38 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/1452611.shtml)
+- 2026-06-29 13:32 - [一生一世](https://www.blog.minike.top/Article/details/379522.shtml)
+- 2026-06-29 13:31 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/5994486781.shtml)
+- 2026-06-29 13:25 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/57099147.shtml)
+- 2026-06-29 13:40 - [马杜罗社交媒体账号再发文](https://www.blog.kurohicncr.top/Article/details/911245333392.shtml)
+- 2026-06-29 13:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/793254544571.shtml)
+- 2026-06-29 13:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/05453.shtml)

@@ -1,51 +1,47 @@
-# 湖南省水利厅提升洪水防御应急响应至三级
+# 周六福于6月18日斥资799.57万港元回购49.61万股
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-根据当前防汛形势，按照《湖南省水利厅水旱灾害防御应急响应工作规程(修订)》有关规定，省水利厅于5月22日9时将洪水防御四级应急响应提升至三级。 据气象水文部门最新预测预报，5月22日开始，湘中以北地区将再次遭遇强降雨过程，局地有暴雨、大暴雨。此次降雨过程累计雨量大、落区与前期降雨集中区高度重叠，致灾风险极高。全省各级水利部门要充分认识当前严峻的洪水防御形势，密切跟踪雨情、水情、
+周六福（06168）发布公告，于2026年6月18日斥资799.57万港元回购49.61万股。责任编辑：卢昱君
 
 ## 正文
 
-根据当前防汛形势，按照《湖南省水利厅水旱灾害防御应急响应工作规程(修订)》有关规定，省水利厅于5月22日9时将洪水防御四级应急响应提升至三级。
+周六福（06168）发布公告，于2026年6月18日斥资799.57万港元回购49.61万股。
 
-据气象水文部门最新预测预报，5月22日开始，湘中以北地区将再次遭遇强降雨过程，局地有暴雨、大暴雨。
-
-此次降雨过程累计雨量大、落区与前期降雨集中区高度重叠，致灾风险极高。
-
-全省各级水利部门要充分认识当前严峻的洪水防御形势，密切跟踪雨情、水情、汛情发展变化，及时启动洪水防御相应等级响应，进一步加强值班值守、会商研判、监测预报预警、水工程调度、巡查防守和抢险技术支撑，重点做好中小河流洪水、山洪灾害防御和水利工程安全度汛工作，全力确保人民群众生命财产安全。
-
-(总台记者 傅蕾 高媛）
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 13:13 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 13:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 13:13 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 13:18 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 13:34 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:30 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:27 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 13:14 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 13:29 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 13:33 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 13:18 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 13:23 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 13:36 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 13:25 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 13:32 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-29 13:25 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 13:14 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 13:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 13:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 13:40 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 13:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 13:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [金牌调解](http://www.blog.minike.top/Article/details/4837773684.shtml)
-- 2026-06-29 13:27 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/5277345.shtml)
-- 2026-06-29 13:29 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/5657327983.shtml)
-- 2026-06-29 13:31 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/62617.shtml)
-- 2026-06-29 13:23 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/435262967933.shtml)
-- 2026-06-29 13:30 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/1850941.shtml)
-- 2026-06-29 13:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/68201703841.shtml)
-- 2026-06-29 13:33 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/1438624.shtml)
-- 2026-06-29 13:34 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/1594400954.shtml)
-- 2026-06-29 13:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/168135.shtml)
-- 2026-06-29 13:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/544347635.shtml)
-- 2026-06-29 13:21 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/9718194358.shtml)
-- 2026-06-29 13:06 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/99294.shtml)
-- 2026-06-29 13:27 - [TOP 无畏契约](http://www.share.minike.top/Article/details/0211240295.shtml)
-- 2026-06-29 13:20 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/001083.shtml)
+- 2026-06-29 13:24 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/56432885706.shtml)
+- 2026-06-29 13:39 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/7485386.shtml)
+- 2026-06-29 13:37 - [C罗关心罗德里戈伤情](http://www.share.kurohicncr.top/Article/details/080273614265.shtml)
+- 2026-06-29 13:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/524594600317.shtml)
+- 2026-06-29 13:33 - [毕业群都在出什么东西](https://www.blog.kurohicncr.top/Article/details/530839.shtml)
+- 2026-06-29 13:33 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/450437.shtml)
+- 2026-06-29 13:30 - [BW2026游览指南](https://www.share.kurohicncr.top/Article/details/89150200.shtml)
+- 2026-06-29 13:23 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/905920254271.shtml)
+- 2026-06-29 13:27 - [布里奇斯被交易至太阳](https://www.share.minike.top/Article/details/529134.shtml)
+- 2026-06-29 13:33 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/7395056547.shtml)
+- 2026-06-29 13:26 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/72373.shtml)
+- 2026-06-29 13:38 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/471966923247.shtml)
+- 2026-06-29 13:38 - [《贺子珍》](http://www.blog.minike.top/Article/details/21499645.shtml)
+- 2026-06-29 13:25 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/76844143.shtml)
+- 2026-06-29 13:25 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/705221.shtml)

@@ -1,59 +1,61 @@
-# AI时代，教育应培养学生哪些能力
+# 党的十一届三中全会开启改革开放和社会主义现代化建设新时期
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-“几秒钟梳理完十年文献核心观点，一键生成定制化PPT模板，几句话搭好完整的文章分析框架。”近日，在北京师范大学“京师智库对话第一期”——“AI时代的教育价值重估”现场，北京师范大学教育学部高等教育研究院院长周海涛开场便用三个日常场景点出了AI带来的变革。那么，当AI把数小时的工作压缩到转瞬之间，一个核心问题不得不让人思考：AI时代，未来教育最该培养学生什么能力？ 周海涛表示：“
+原标题：伟大征程丨党的十一届三中全会开启改革开放和社会主义现代化建设新时期 1978年12月，党的十一届三中全会召开，实现党和国家工作中心的战略转移，开启了改革开放和社会主义现代化建设新时期。今天的《伟大征程》系列节目，我们一起回顾中华民族从站起来到富起来的光辉历程。 曾经的小渔村，如今全球瞩目的繁华都市，一座开荒牛雕塑，不仅是深圳的城市标志，也见证着中国改革开放波澜壮阔的发展
 
 ## 正文
 
-“几秒钟梳理完十年文献核心观点，一键生成定制化PPT模板，几句话搭好完整的文章分析框架。
+原标题：伟大征程丨党的十一届三中全会开启改革开放和社会主义现代化建设新时期 1978年12月，党的十一届三中全会召开，实现党和国家工作中心的战略转移，开启了改革开放和社会主义现代化建设新时期。
 
-”近日，在北京师范大学“京师智库对话第一期”——“AI时代的教育价值重估”现场，北京师范大学教育学部高等教育研究院院长周海涛开场便用三个日常场景点出了AI带来的变革。
+今天的《伟大征程》系列节目，我们一起回顾中华民族从站起来到富起来的光辉历程。
 
-那么，当AI把数小时的工作压缩到转瞬之间，一个核心问题不得不让人思考：AI时代，未来教育最该培养学生什么能力？
+曾经的小渔村，如今全球瞩目的繁华都市，一座开荒牛雕塑，不仅是深圳的城市标志，也见证着中国改革开放波澜壮阔的发展历程。
 
-周海涛表示：“当前最需要警惕的是：人类自己放弃思维、让渡思维能力，这一问题需要通过教育变革来引领和解决。
+回望1978年，一篇《实践是检验真理的唯一标准》的文章，引发了关于真理标准问题的大讨论。
 
-” 中国教育科学研究院2025年暑期开展了一项覆盖全国31个省份、面向32万名中小学生、28万名家长与5万名教师的大规模问卷调查及访谈。
+实践证明，这场大讨论成为党的十一届三中全会实现伟大历史转折的思想先导。
 
-中国教育科学研究院党委书记、院长李永智表示，调查结果显示，我国中西部地区99.7%的中小学生已接触AI，85.6%的学生使用过AI完成作业。
+1978年12月，党的十一届三中全会召开，全会作出把党和国家工作重心转移到经济建设上来、实行改革开放的历史性决策。
 
-而老师、家长却对此存在明显认知盲区——仅13.8%的教师、17.8%的家长认为学生普遍使用AI。
+中国共产党和中国人民以英勇顽强的奋斗，向世界庄严宣告，改革开放是决定当代中国前途命运的关键一招，中国特色社会主义道路是指引中国发展繁荣的正确道路，中国大踏步赶上了时代。
 
-这说明，大量学生处于无监督、无引导的AI使用状态。
+那年冬天，安徽凤阳小岗生产队的18户农民创造出的“包干到户”的做法，拉开了我国农村改革的序幕。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 13:30 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 13:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 13:29 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 13:34 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 13:20 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 13:16 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 13:21 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 13:18 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 13:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 13:25 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 13:11 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 13:34 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 13:22 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 13:15 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 13:28 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 13:32 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 13:20 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 13:33 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 13:26 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:21 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 13:31 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 13:27 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 13:31 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-29 13:21 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 13:30 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 13:29 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 13:30 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/420083555162.shtml)
-- 2026-06-29 13:16 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/488099483249.shtml)
-- 2026-06-29 13:30 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/38827.shtml)
-- 2026-06-29 13:11 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/45021804.shtml)
-- 2026-06-29 13:06 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/8891958663.shtml)
-- 2026-06-29 13:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/700423853.shtml)
-- 2026-06-29 13:17 - [艾莎唱出了多少牛马的心声🥹](https://www.share.kurohicncr.top/Article/details/69263.shtml)
-- 2026-06-29 13:34 - [吴磊爱上回收了](http://www.blog.minike.top/Article/details/443806109659.shtml)
-- 2026-06-29 13:11 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/1181575010.shtml)
-- 2026-06-29 13:35 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/3049517.shtml)
-- 2026-06-29 13:13 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/585318138.shtml)
-- 2026-06-29 13:33 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/534158.shtml)
-- 2026-06-29 13:24 - [世界杯：日本将与巴西争夺16强席位](https://www.share.kurohicncr.top/Article/details/6275267.shtml)
-- 2026-06-29 13:13 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/232165350.shtml)
-- 2026-06-29 13:11 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/760781.shtml)
+- 2026-06-29 13:23 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/68896.shtml)
+- 2026-06-29 13:25 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/7732563.shtml)
+- 2026-06-29 13:41 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/76421023740.shtml)
+- 2026-06-29 13:22 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/909582748.shtml)
+- 2026-06-29 13:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/2598850445.shtml)
+- 2026-06-29 13:36 - [谢霆锋演唱会变大型呲水现场](http://www.blog.minike.top/Article/details/222009858.shtml)
+- 2026-06-29 13:35 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/539782010.shtml)
+- 2026-06-29 13:35 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/0906349.shtml)
+- 2026-06-29 13:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/1244099675.shtml)
+- 2026-06-29 13:28 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/91486649.shtml)
+- 2026-06-29 13:16 - [刘仲华院士愿当贺永辉导师](http://www.share.minike.top/Article/details/83659111878.shtml)
+- 2026-06-29 13:29 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/94447598260.shtml)
+- 2026-06-29 13:26 - [广州一高校通报网传禁止小米汽车入校](http://www.blog.kurohicncr.top/Article/details/3548913.shtml)
+- 2026-06-29 13:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/873960422.shtml)
+- 2026-06-29 13:23 - [广州某高校辟谣禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/083469454519.shtml)

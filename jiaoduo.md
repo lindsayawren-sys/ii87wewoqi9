@@ -1,58 +1,48 @@
-# 美国特勤局击中在白宫附近开枪的男子
+# 中创智领遭BlackRock, Inc.减持72.12万股 每股作价约14.16港元
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-美国特勤局在一份声明中表示，周六一名男子在白宫附近持手枪开火后，被特勤局特工击中。 一名因调查敏感性而要求匿名的知情人士称，该男子此前在街道上徘徊了一段时间，随后接近一个警方检查点，从包中掏出手枪并开始无差别射击。 声明称，执法人员随即还击，击中嫌疑人。该男子随后被送往当地一家医院，随后死亡。 枪击事件中还有一名旁观者中弹。目前尚不清楚此人是被嫌疑人最初的枪击击中，还是在随后的
+香港联交所最新数据显示，6月12日，BlackRock， Inc．减持中创智领（00564）72.12万股，每股作价14.1588港元，总金额约为1021.13万港元。减持后最新持股数目为1429.38万股，持股比例为5.88%。责任编辑：卢昱君
 
 ## 正文
 
-美国特勤局在一份声明中表示，周六一名男子在白宫附近持手枪开火后，被特勤局特工击中。
+香港联交所最新数据显示，6月12日，BlackRock， Inc．减持中创智领（00564）72.12万股，每股作价14.1588港元，总金额约为1021.13万港元。
 
-一名因调查敏感性而要求匿名的知情人士称，该男子此前在街道上徘徊了一段时间，随后接近一个警方检查点，从包中掏出手枪并开始无差别射击。
+减持后最新持股数目为1429.38万股，持股比例为5.88%。
 
-声明称，执法人员随即还击，击中嫌疑人。
-
-该男子随后被送往当地一家医院，随后死亡。
-
-枪击事件中还有一名旁观者中弹。
-
-目前尚不清楚此人是被嫌疑人最初的枪击击中，还是在随后的交火中被击中。
-
-据知情人士透露，嫌疑人被确认为21岁的Nasire Best。
-
-法庭记录显示，他曾于2025年7月在白宫附近与警方有过一次接触，当时他因擅闯行人检查站的限制区域而被捕。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 13:09 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 13:10 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 13:23 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 13:12 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 13:30 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 13:12 - [我们注定是一撮县城葱姜蒜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 13:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 13:17 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 13:07 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 13:13 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-29 13:24 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-29 13:35 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 13:39 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 13:23 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 13:29 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 13:14 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 13:31 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 13:22 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 13:38 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-29 13:41 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 13:37 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 13:12 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 13:15 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/460560217161.shtml)
-- 2026-06-29 13:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/85274.shtml)
-- 2026-06-29 13:08 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/361898.shtml)
-- 2026-06-29 13:34 - [房屋抵押权与租赁权如何协调](http://www.share.minike.top/Article/details/4011931036.shtml)
-- 2026-06-29 13:29 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/92085263922.shtml)
-- 2026-06-29 13:15 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/408018.shtml)
-- 2026-06-29 13:19 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/0989071546.shtml)
-- 2026-06-29 13:18 - [陈露发声引舆论反转](http://www.share.kurohicncr.top/Article/details/294616546.shtml)
-- 2026-06-29 13:26 - [沙特足协主席发布声明主动请辞](https://www.blog.kurohicncr.top/Article/details/32188.shtml)
-- 2026-06-29 13:14 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/79197.shtml)
-- 2026-06-29 13:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/6514189289.shtml)
-- 2026-06-29 13:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/2048046715.shtml)
-- 2026-06-29 13:31 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/57638035.shtml)
-- 2026-06-29 13:11 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/84428679987.shtml)
-- 2026-06-29 13:12 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/521038168.shtml)
+- 2026-06-29 13:18 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/94535742758.shtml)
+- 2026-06-29 13:41 - [世界杯打成了欧洲杯和美洲杯](https://www.share.minike.top/Article/details/77604285.shtml)
+- 2026-06-29 13:24 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/8574072.shtml)
+- 2026-06-29 13:16 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/55202984129.shtml)
+- 2026-06-29 13:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/09690961.shtml)
+- 2026-06-29 13:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/80039349203.shtml)
+- 2026-06-29 13:19 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/46986.shtml)
+- 2026-06-29 13:16 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/43464921.shtml)
+- 2026-06-29 13:12 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/656382.shtml)
+- 2026-06-29 13:31 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/50562.shtml)
+- 2026-06-29 13:15 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/45918944.shtml)
+- 2026-06-29 13:19 - [在家赤身裸体是否绝对自由](https://www.share.minike.top/Article/details/27378163.shtml)
+- 2026-06-29 13:23 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/588963.shtml)
+- 2026-06-29 13:34 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/040852442.shtml)
+- 2026-06-29 13:23 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/1448286.shtml)

@@ -1,57 +1,53 @@
-# 出门吃饭遇到价格歧视怎么办？消费者维权实用指南
+# 中国驻美大使谢锋：工商界朋友既是中美关系巨轮的“乘客”，也是“水手”
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-最近，一家米粉店因“本地人7元、游客13元”的差异化定价登上热搜，引发广泛讨论。类似的价格歧视现象在外卖、餐饮、景区消费中并不少见——同样的商品或服务，不同人群被标以不同价格。作为消费者，面对这种情况该如何维护自身权益？ 首先需要明确的是，根据《价格法》和《消费者权益保护法》，经营者应当明码标价，不得有价格欺诈行为。如果商家对同类商品设置不同价格且未提前告知，或者存在虚假标价、
+发布时间：2026年06月22日 14:29 来源：中国新闻网 当地时间6月17日，中国驻美国大使谢锋在美中贸易全国委员会2026年度庆典晚宴上发表演讲指出，在习近平主席和特朗普总统掌舵领航下，中美关系巨轮已经开启新征程。工商界朋友既是“乘客”，也是“水手”，应该同舟共济，心往一处想、劲往一处使，确保中美关系巨轮沿着建设性战略稳定的正确航向劈波斩浪，驶向合作共赢的彼岸。谢锋对美
 
 ## 正文
 
-最近，一家米粉店因“本地人7元、游客13元”的差异化定价登上热搜，引发广泛讨论。
+发布时间：2026年06月22日 14:29 来源：中国新闻网 当地时间6月17日，中国驻美国大使谢锋在美中贸易全国委员会2026年度庆典晚宴上发表演讲指出，在习近平主席和特朗普总统掌舵领航下，中美关系巨轮已经开启新征程。
 
-类似的价格歧视现象在外卖、餐饮、景区消费中并不少见——同样的商品或服务，不同人群被标以不同价格。
+工商界朋友既是“乘客”，也是“水手”，应该同舟共济，心往一处想、劲往一处使，确保中美关系巨轮沿着建设性战略稳定的正确航向劈波斩浪，驶向合作共赢的彼岸。
 
-作为消费者，面对这种情况该如何维护自身权益？
+谢锋对美工商界提出五点希望：一要做关系新定位的践行者；二要做交往新进程的推动者；三要做合作新平台的共建者；四要做科创新赛道的领跑者；五要做民心新联通的架桥者。
 
-首先需要明确的是，根据《价格法》和《消费者权益保护法》，经营者应当明码标价，不得有价格欺诈行为。
-
-如果商家对同类商品设置不同价格且未提前告知，或者存在虚假标价、误导性标价等情况，消费者有权要求解释甚至投诉。
-
-但实际操作中，很多消费者因为金额不大、怕麻烦而选择忍气吞声，这反而纵容了部分商家的不当行为。
-
-当遇到餐饮、外卖等消费纠纷 【下载黑猫投诉客户端】时，最直接的渠道是12315全国平台。
-
-通过微信小程序“全国12315平台”或拨打12315热线，可以提交投诉举报，市场监管部门会依法核查处理。
+(记者 陈孟统 制作 田媛媛) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 13:09 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 13:29 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 13:11 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-29 13:23 - [法拉利被4个孩子当滑梯玩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 13:12 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 13:12 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 13:21 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 13:18 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 13:22 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 13:15 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 13:31 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 13:26 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 13:16 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 13:28 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 13:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 13:12 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 13:40 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 13:15 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 13:38 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 13:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 13:16 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 13:15 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 13:16 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 13:29 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 13:27 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 13:41 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:33 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/3704947061.shtml)
-- 2026-06-29 13:09 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/97890.shtml)
-- 2026-06-29 13:23 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/324533.shtml)
-- 2026-06-29 13:23 - [《昨夜将至》为何是悬疑黑马](https://www.blog.minike.top/Article/details/077500838.shtml)
-- 2026-06-29 13:16 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/0189591.shtml)
-- 2026-06-29 13:22 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/72570.shtml)
-- 2026-06-29 13:21 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/61994.shtml)
-- 2026-06-29 13:17 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/827454911756.shtml)
-- 2026-06-29 13:12 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/556748681867.shtml)
-- 2026-06-29 13:11 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/939180750128.shtml)
-- 2026-06-29 13:23 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/849664216.shtml)
-- 2026-06-29 13:14 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/505241.shtml)
-- 2026-06-29 13:32 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/605110010.shtml)
-- 2026-06-29 13:09 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.minike.top/Article/details/7433993.shtml)
-- 2026-06-29 13:30 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/29020220.shtml)
+- 2026-06-29 13:38 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/877623091.shtml)
+- 2026-06-29 13:41 - [哈兰德之歌火到国外](https://www.blog.minike.top/Article/details/90219.shtml)
+- 2026-06-29 13:37 - [天道](https://www.blog.kurohicncr.top/Article/details/49585956.shtml)
+- 2026-06-29 13:42 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/19957.shtml)
+- 2026-06-29 13:17 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/365483834311.shtml)
+- 2026-06-29 13:26 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/7981416054.shtml)
+- 2026-06-29 13:15 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/25917424909.shtml)
+- 2026-06-29 13:18 - [加拿大92分钟绝杀成世界杯首个16强](http://www.blog.minike.top/Article/details/28247.shtml)
+- 2026-06-29 13:17 - [小娘惹](http://www.blog.minike.top/Article/details/79883.shtml)
+- 2026-06-29 13:16 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/68798409.shtml)
+- 2026-06-29 13:41 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/48670999533.shtml)
+- 2026-06-29 13:40 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/46057466636.shtml)
+- 2026-06-29 13:39 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/50945.shtml)
+- 2026-06-29 13:39 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/8974682786.shtml)
+- 2026-06-29 13:30 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/268727.shtml)

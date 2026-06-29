@@ -1,55 +1,56 @@
-# 果下科技拟出资2亿元参设产业基金 布局新能源产业链
+# 黑龙江：“夏至”未入夏 避暑正当时
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-果下科技（02655）公布，于2026年5月22日（交易时段后），公司（作为有限合伙人）与（其中包括）普通合伙人（作为普通合伙人）订立合伙协议，内容有关公司及有限合伙人有意作为有限合伙人投资的基金的运营及管理，以及基金的有限合伙人及普通合伙人的权利及义务。根据合伙协议，公司向基金作出总计人民币2亿元的资本承担。公司透过认购事项所作出的出资将以其内部资源拨付。 基金（凯博共创（湖
+中新网哈尔滨6月21日电(姜辉 杨爽)21日迎来夏季的第四个节气夏至节气。“夏至”标志着盛夏的正式开始，全国大部分地区的气温都会明显攀升。然而，地处我国北方的黑龙江省目前各市(地)均未进入气候学意义上的夏天，是夏季避暑的好去处。 黑龙江省气象台发布的天气预报信息显示，“夏至首日”(21日)，大兴安岭、黑河西部、伊春南部、齐齐哈尔、大庆、绥化、哈尔滨、牡丹江北部阴有中雨，其中大兴
 
 ## 正文
 
-果下科技（02655）公布，于2026年5月22日（交易时段后），公司（作为有限合伙人）与（其中包括）普通合伙人（作为普通合伙人）订立合伙协议，内容有关公司及有限合伙人有意作为有限合伙人投资的基金的运营及管理，以及基金的有限合伙人及普通合伙人的权利及义务。
+中新网哈尔滨6月21日电(姜辉 杨爽)21日迎来夏季的第四个节气夏至节气。
 
-根据合伙协议，公司向基金作出总计人民币2亿元的资本承担。
+“夏至”标志着盛夏的正式开始，全国大部分地区的气温都会明显攀升。
 
-公司透过认购事项所作出的出资将以其内部资源拨付。
+然而，地处我国北方的黑龙江省目前各市(地)均未进入气候学意义上的夏天，是夏季避暑的好去处。
 
-基金（凯博共创（湖北）股权投资基金合伙企业（有限合伙））的目标为以现金募集总认购金额约人民币50亿元。
+黑龙江省气象台发布的天气预报信息显示，“夏至首日”(21日)，大兴安岭、黑河西部、伊春南部、齐齐哈尔、大庆、绥化、哈尔滨、牡丹江北部阴有中雨，其中大兴安岭南部、黑河西部、齐齐哈尔北部、大庆北部、绥化南部局地有大雨，其他地区多云有阵雨或雷阵雨。
 
-于初始交割日期，基金的资本承担总额将为人民币16亿元，由公司及有限合伙人按各自的资本承担及合伙协议的条款以现金缴付。
+21日白天最高气温，黑河、伊春、哈尔滨、鹤岗、佳木斯、双鸭山23℃至25℃，其他地区21℃至23℃。
 
-合伙企业将主要投资于新能源电池产业供应链领域及其他新兴产业项目，包括子基金、项目、在中国设立或经营或与中国有重大关联的非上市公司股权，或上市公司股份及其他类型股权的私募配售。
+21日夜间最低气温，大兴安岭、伊春北部、齐齐哈尔北部、鸡西、牡丹江13℃至15℃，其他地区15℃至17℃。
 
-责任编辑：卢昱君
+根据行业标准《气候季节划分》(QX/T152-2012)中“夏季为日平均气温或滑动平均气温大于或等于22℃”的季节划分标准，基于1991年至2020年气温实况数据统计结果，齐齐哈尔是常年黑龙江省入夏最早的地方，平均入夏日期为6月20日，哈尔滨、大庆紧随其后，平均入夏日期为6月21日，之后是绥化，平均入夏日期为6月26日，佳木斯、双鸭山、牡丹江、七台河、鸡西、鹤岗平均入夏日期均在7月，大兴安岭、黑河、伊春没有气候意义上的夏天，是夏季避暑的好去处。
+
+尽管夏至节气标志着盛夏的正式开启，但由于黑龙江省地处北方，且受近期频繁降水及冷空气活动的综合影响，截至目前，黑龙江省各市(地)均未进入气候学意义上的夏天。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 13:20 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 13:29 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 13:07 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 13:12 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 13:08 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 13:27 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 13:17 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 13:27 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:35 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 13:16 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 13:14 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 13:31 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 13:19 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 13:22 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 13:27 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 13:22 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 13:38 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 13:21 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 13:22 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 13:29 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/276766409489.shtml)
-- 2026-06-29 13:24 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/54833541771.shtml)
-- 2026-06-29 13:32 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/284915.shtml)
-- 2026-06-29 13:27 - [沙丘](http://www.share.minike.top/Article/details/479769976415.shtml)
-- 2026-06-29 13:10 - [天道](https://www.share.minike.top/Article/details/44801293484.shtml)
-- 2026-06-29 13:26 - [梅朗雄主张法国退出北约](https://www.blog.kurohicncr.top/Article/details/4960095831.shtml)
-- 2026-06-29 13:28 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/187770655909.shtml)
-- 2026-06-29 13:22 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/869973.shtml)
-- 2026-06-29 13:10 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/848596746984.shtml)
-- 2026-06-29 13:33 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/364500952747.shtml)
-- 2026-06-29 13:15 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/5677654.shtml)
-- 2026-06-29 13:09 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/65749.shtml)
-- 2026-06-29 13:18 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/7388119.shtml)
-- 2026-06-29 13:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/8939711.shtml)
-- 2026-06-29 13:09 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/884874275.shtml)
+- 2026-06-29 13:39 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/96232293.shtml)
+- 2026-06-29 13:13 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/816093602055.shtml)
+- 2026-06-29 13:25 - [Mrbeast的30天不吃饭挑战](http://www.share.minike.top/Article/details/08457642378.shtml)
+- 2026-06-29 13:30 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/564025416083.shtml)
+- 2026-06-29 13:30 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/340101.shtml)
+- 2026-06-29 13:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/75101414194.shtml)
+- 2026-06-29 13:20 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/38261916708.shtml)
+- 2026-06-29 13:26 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/1692456.shtml)
+- 2026-06-29 13:35 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/54289683762.shtml)
+- 2026-06-29 13:36 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/49890314918.shtml)
+- 2026-06-29 13:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/977185856593.shtml)
+- 2026-06-29 13:38 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/17010333.shtml)
+- 2026-06-29 13:16 - [白玉兰最佳女主角提名片段](https://www.share.minike.top/Article/details/0189128.shtml)
+- 2026-06-29 13:13 - [TOP 无畏契约](https://www.share.minike.top/Article/details/79611697.shtml)
+- 2026-06-29 13:31 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/358676004065.shtml)

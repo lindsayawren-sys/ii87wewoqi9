@@ -1,61 +1,48 @@
-# 4000年前已有“地下式住宅” 太平遗址发现关中最早地坑院
+# 日韩股市集体高开 韩国股市开盘上涨2.5%
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新社西安5月23日电 (记者 阿琳娜)“我们在太平遗址东环壕北部发现一处由三座窑洞组成的地坑院式建筑，这是目前关中地区发现最早的地坑院。”中国社会科学院考古研究所研究员、太平遗址联合考古队队长王小庆表示，遗址内还并存多种房屋形式，表明聚落已具备成熟的多元建筑技术。在23日举办的“寻找‘最初的中国’——秦晋豫‘十四五’期间中华文明探源考古成果展”学术研讨会上，王小庆介绍了太平遗
+日经225指数开盘上涨0.7%，报71551.03点。韩国综合股价指数（KOSPI）开盘上涨2.5%，至9288.89点。责任编辑：王永生
 
 ## 正文
 
-中新社西安5月23日电 (记者 阿琳娜)“我们在太平遗址东环壕北部发现一处由三座窑洞组成的地坑院式建筑，这是目前关中地区发现最早的地坑院。
+日经225指数开盘上涨0.7%，报71551.03点。
 
-”中国社会科学院考古研究所研究员、太平遗址联合考古队队长王小庆表示，遗址内还并存多种房屋形式，表明聚落已具备成熟的多元建筑技术。
+韩国综合股价指数（KOSPI）开盘上涨2.5%，至9288.89点。
 
-在23日举办的“寻找‘最初的中国’——秦晋豫‘十四五’期间中华文明探源考古成果展”学术研讨会上，王小庆介绍了太平遗址的最新考古研究成果。
-
-太平遗址是位于陕西西安的一处大型客省庄文化聚落遗址，距今约4150年至3700年。
-
-该遗址由东西并列的两个环壕组成，面积不小于100万平方米，遗址内发现了数量众多、保存完好的各类遗迹。
-
-王小庆介绍，先民在平地先挖出长方形基坑，再在北壁掏挖窑洞，其中最大的一间进深约6米、宽3米至4米，面积约20平方米。
-
-地面和墙面均涂抹白灰，废弃堆积中还残留有彩绘痕迹。
-
-这是目前关中地区发现最早的地坑院。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 13:22 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 13:33 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 13:13 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 13:08 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 13:07 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 13:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-29 13:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 13:23 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 13:14 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 13:17 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 13:25 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 13:29 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 13:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-29 13:31 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 13:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 13:27 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 13:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 13:20 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 13:14 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 13:24 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 13:20 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 13:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-29 13:36 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 13:21 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 13:39 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 13:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/9020478.shtml)
-- 2026-06-29 13:25 - [为什么6月以来北方频繁降雨](http://www.blog.minike.top/Article/details/5222706.shtml)
-- 2026-06-29 13:31 - [金牌调解](http://www.blog.minike.top/Article/details/4641347.shtml)
-- 2026-06-29 13:27 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/56383824621.shtml)
-- 2026-06-29 13:24 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/410859.shtml)
-- 2026-06-29 13:17 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/1720658.shtml)
-- 2026-06-29 13:13 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/80880374.shtml)
-- 2026-06-29 13:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/321271481575.shtml)
-- 2026-06-29 13:15 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/21288322.shtml)
-- 2026-06-29 13:28 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/11449.shtml)
-- 2026-06-29 13:09 - [世界杯欧美八大豪强悉数出线](http://www.share.minike.top/Article/details/70272.shtml)
-- 2026-06-29 13:35 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/213467.shtml)
-- 2026-06-29 13:08 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/89215953303.shtml)
-- 2026-06-29 13:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/15730.shtml)
-- 2026-06-29 13:28 - [高考志愿今起开始填报](http://www.share.kurohicncr.top/Article/details/311955520.shtml)
+- 2026-06-29 13:26 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/74392974.shtml)
+- 2026-06-29 13:22 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/9667237613.shtml)
+- 2026-06-29 13:18 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/70672021017.shtml)
+- 2026-06-29 13:16 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/691697457538.shtml)
+- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.kurohicncr.top/Article/details/85443100728.shtml)
+- 2026-06-29 13:37 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/537793.shtml)
+- 2026-06-29 13:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/95633283.shtml)
+- 2026-06-29 13:20 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/467139687369.shtml)
+- 2026-06-29 13:41 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/3646526.shtml)
+- 2026-06-29 13:27 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/5152276.shtml)
+- 2026-06-29 13:17 - [流金岁月](https://www.blog.minike.top/Article/details/222910.shtml)
+- 2026-06-29 13:16 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/8191775952.shtml)
+- 2026-06-29 13:36 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/84677.shtml)
+- 2026-06-29 13:39 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/869460390.shtml)
+- 2026-06-29 13:35 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/3766175582.shtml)

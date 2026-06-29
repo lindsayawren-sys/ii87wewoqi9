@@ -1,48 +1,57 @@
-# 视频|李大霄：5月22日限制高溢价成交或能保护散户
+# 2026年APEC工商领导人中国论坛在北京举行
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：石秀珍 SF183
+2026年APEC工商领导人中国论坛昨天(21日)在北京举行。今年是APEC“中国年”，与会嘉宾表示，要坚定维护以世界贸易组织为核心的多边贸易体制，反对单边主义和保护主义，持续推进贸易和投资自由化便利化。 据介绍，今年在中方倡议和各方广泛支持下，APEC工商咨询理事会时隔8年恢复设立互联互通工作组，并发表了关于支持亚太自贸区和互联互通两份声明。 2026年APEC工商领导人峰会
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年APEC工商领导人中国论坛昨天(21日)在北京举行。
 
-责任编辑：石秀珍 SF183
+今年是APEC“中国年”，与会嘉宾表示，要坚定维护以世界贸易组织为核心的多边贸易体制，反对单边主义和保护主义，持续推进贸易和投资自由化便利化。
+
+据介绍，今年在中方倡议和各方广泛支持下，APEC工商咨询理事会时隔8年恢复设立互联互通工作组，并发表了关于支持亚太自贸区和互联互通两份声明。
+
+2026年APEC工商领导人峰会主席、中国贸促会会长 任鸿斌：这充分表明各方对于加强各领域互联互通的共同期盼。
+
+我们要用足用好RCEP等各类区域自贸协定，推动制定升级版APEC互联互通蓝图，不断做实做细硬联通、软联通、心联通，助力人员、货物、资金、数据安全有序流动，构建起更加紧密的产业链、供应链。
+
+亚太地区作为世界经济重要增长极，占世界人口总量的1/3，占世界经济总量超六成，贸易总量近一半。
+
+亚太地区在供应链领域开展的每一项合作、作出的每一个抉择，都将对世界经济增长产生重大影响。
+
+论坛上，与会嘉宾围绕“区域经济一体化”“互联互通”“人工智能”等区域经贸合作热点议题，展开深入探讨，为推动构建开放包容、创新增长、互联互通、合作共赢的亚太命运共同体贡献工商界智慧。
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:34 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 13:12 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 13:25 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 13:27 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 13:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 13:06 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 13:32 - [这位猫咪，请你自重！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 13:20 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 13:24 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 13:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 13:32 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 13:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 13:08 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 13:27 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 13:20 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 13:34 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 13:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 13:15 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 13:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 13:31 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 13:39 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 13:30 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 13:16 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-29 13:30 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [中方将20家日本实体列入出口管制名单](http://www.blog.kurohicncr.top/Article/details/513931.shtml)
-- 2026-06-29 13:16 - [谢霆锋演唱会变大型呲水现场](http://www.share.kurohicncr.top/Article/details/2261302099.shtml)
-- 2026-06-29 13:18 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/0173706579.shtml)
-- 2026-06-29 13:08 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/24252596.shtml)
-- 2026-06-29 13:10 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/252365866807.shtml)
-- 2026-06-29 13:34 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/77052861.shtml)
-- 2026-06-29 13:34 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/18709552311.shtml)
-- 2026-06-29 13:10 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/08982423.shtml)
-- 2026-06-29 13:32 - [张一山说杨紫早该拿奖了](http://www.share.minike.top/Article/details/429737557785.shtml)
-- 2026-06-29 13:33 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/115893.shtml)
-- 2026-06-29 13:16 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/248652.shtml)
-- 2026-06-29 13:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/89773787.shtml)
-- 2026-06-29 13:33 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/66684924.shtml)
-- 2026-06-29 13:32 - [为什么6月以来北方频繁降雨](https://www.blog.kurohicncr.top/Article/details/4675238379.shtml)
-- 2026-06-29 13:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/721676321382.shtml)
+- 2026-06-29 13:21 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/897053.shtml)
+- 2026-06-29 13:25 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/846181254950.shtml)
+- 2026-06-29 13:23 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/002193548.shtml)
+- 2026-06-29 13:24 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/490688.shtml)
+- 2026-06-29 13:26 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/629167.shtml)
+- 2026-06-29 13:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/20496694666.shtml)
+- 2026-06-29 13:26 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/264399700494.shtml)
+- 2026-06-29 13:20 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/29908.shtml)
+- 2026-06-29 13:28 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/797301.shtml)
+- 2026-06-29 13:14 - [广州某高校辟谣禁止小米汽车入校](https://www.share.minike.top/Article/details/9627917.shtml)
+- 2026-06-29 13:20 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/0317225299.shtml)
+- 2026-06-29 13:18 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/895545695489.shtml)
+- 2026-06-29 13:26 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/5200650.shtml)
+- 2026-06-29 13:24 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/6473594452.shtml)
+- 2026-06-29 13:41 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/376395049429.shtml)

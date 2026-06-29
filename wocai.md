@@ -1,61 +1,57 @@
-# 2026年四川省科技活动周暨蓉城科学之夜启动
+# 铁路公路运输迎来返程客流高峰 交通部门多措并举保通畅
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网成都5月24日电 (王利文)5月23日晚，“2026年四川省科技活动周暨蓉城科学之夜启动仪式”在成都天府艺术公园启幕。活动汇聚四川省科创力量、科普资源与社会各界代表，点亮蓉城科技之夜，拉开全省年度科普盛宴的序幕。 本次活动由四川省科学技术厅、中共四川省委宣传部、四川省科学技术协会主办，四川省科普工作联席会议共36家成员单位负责同志，以及科技创新团队代表、科普使者代表、科技
+端午出行 | 铁路公路运输迎来返程客流高峰 交通部门多措并举保通畅 央视网消息：6月21日是端午假期最后一天，铁路运输迎来返程客流高峰。记者从国铁集团了解到，全国铁路预计发送旅客1794万人次，增开旅客列车1355列。 为应对旅客集中返程，各地铁路部门根据12306大数据，在客流集中的线路和区段增加运力投放，多地铁路部门还增开夜间高铁。 应对返程客流高峰，铁路部门采取提前开站、
 
 ## 正文
 
-中新网成都5月24日电 (王利文)5月23日晚，“2026年四川省科技活动周暨蓉城科学之夜启动仪式”在成都天府艺术公园启幕。
+端午出行 | 铁路公路运输迎来返程客流高峰 交通部门多措并举保通畅 央视网消息：6月21日是端午假期最后一天，铁路运输迎来返程客流高峰。
 
-活动汇聚四川省科创力量、科普资源与社会各界代表，点亮蓉城科技之夜，拉开全省年度科普盛宴的序幕。
+记者从国铁集团了解到，全国铁路预计发送旅客1794万人次，增开旅客列车1355列。
 
-本次活动由四川省科学技术厅、中共四川省委宣传部、四川省科学技术协会主办，四川省科普工作联席会议共36家成员单位负责同志，以及科技创新团队代表、科普使者代表、科技工作者代表、科普基地代表、青少年学生及民众代表等齐聚现场，共赴这场全民科技盛宴。
+为应对旅客集中返程，各地铁路部门根据12306大数据，在客流集中的线路和区段增加运力投放，多地铁路部门还增开夜间高铁。
 
-启动仪式现场亮点纷呈，舞台情景剧生动再现“中国核潜艇之父”黄旭华的科研报国事迹，鲜活诠释爱国、创新、求实、奉献的新时代科学家精神；荣获中国政府友谊奖的戴伟带来趣味化学科普秀，以生动直观的实验互动拆解深奥科学原理。
+应对返程客流高峰，铁路部门采取提前开站、开启全部进出站通道、增派人员引导等方式，保障旅客顺利返程。
 
-活动现场同步落地科普创新举措，四川省科技工作者科普积分系统正式上线，天府科普大讲堂同步开班，进一步夯实科普服务载体，助推四川科普事业规范长效发展。
+夜间高铁开行期间，一些车站实行通宵运营，保障旅客夜间食品、热水供应充足，并积极协调地方交通部门延长地铁、公交运营时间。
 
-随着嘉宾共同按下启动装置，国家超级计算成都中心、四川科技馆、成都自然博物馆、金融城双子塔等地标性建筑同步亮起科技主题灯光，标志着2026年四川省、成都市科技活动周正式全面启动。
+另外，有些返程旅客可能会随身携带白酒，在这里也提示大家，酒水包装要求密封完好、标志清晰。
 
-本次活动周主会场设置两大特色板块，以沉浸式体验推动科学走进大众日常生活。
+公路方面，预计从16时开始，大中城市进城方向车流量逐渐增大，易出现拥堵缓行现象。
 
-“科学礼赞·科技工作者荣耀之夜”温情开启，全省重大科技成果团队代表踏上星光大道，青少年列队致敬科研榜样。
+提示广大司机朋友，遇到拥堵时，要保持安全车距。
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-29 13:22 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 13:29 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:32 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 13:24 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 13:33 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 13:28 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 13:06 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 13:33 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 13:23 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 13:08 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 13:19 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 13:18 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-29 13:15 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 13:14 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-29 13:13 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 13:31 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 13:13 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:14 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 13:17 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 13:25 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 13:22 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 13:30 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 13:31 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 13:38 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-29 13:18 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/042051785482.shtml)
-- 2026-06-29 13:09 - [韩国政府将对世界杯出局追责](http://www.share.kurohicncr.top/Article/details/252086172995.shtml)
-- 2026-06-29 13:33 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/956711.shtml)
-- 2026-06-29 13:12 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/37473483185.shtml)
-- 2026-06-29 13:06 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/4438014.shtml)
-- 2026-06-29 13:08 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/97601.shtml)
-- 2026-06-29 13:23 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/8728566.shtml)
-- 2026-06-29 13:34 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/299742363.shtml)
-- 2026-06-29 13:11 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/931117.shtml)
-- 2026-06-29 13:31 - [白玉兰最佳女主角提名片段](https://www.share.minike.top/Article/details/607126393004.shtml)
-- 2026-06-29 13:29 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/4778451.shtml)
-- 2026-06-29 13:16 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/69503.shtml)
-- 2026-06-29 13:07 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/093058.shtml)
-- 2026-06-29 13:23 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/62759.shtml)
-- 2026-06-29 13:33 - [薛之谦演唱会](http://www.share.minike.top/Article/details/40020.shtml)
+- 2026-06-29 13:18 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/4500552.shtml)
+- 2026-06-29 13:25 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/199199893769.shtml)
+- 2026-06-29 13:27 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/7959047.shtml)
+- 2026-06-29 13:25 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/29030.shtml)
+- 2026-06-29 13:24 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.kurohicncr.top/Article/details/93287894.shtml)
+- 2026-06-29 13:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/1902895413.shtml)
+- 2026-06-29 13:15 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/147280.shtml)
+- 2026-06-29 13:14 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/83630.shtml)
+- 2026-06-29 13:35 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/62762.shtml)
+- 2026-06-29 13:18 - [毕业寄几百斤快递回家女生发声](http://www.blog.minike.top/Article/details/67157.shtml)
+- 2026-06-29 13:24 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.kurohicncr.top/Article/details/488723.shtml)
+- 2026-06-29 13:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/79136.shtml)
+- 2026-06-29 13:37 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/0274701.shtml)
+- 2026-06-29 13:32 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/224371.shtml)
+- 2026-06-29 13:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/07387.shtml)

@@ -1,53 +1,51 @@
-# 中国自主研发载人观光潜水器亮相西洽会 已远销马来西亚、印尼
+# 颖通控股发布年度业绩 净溢利2.43亿元同比增加7.2%
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 17:15 来源：中国新闻网 5月22日，在第八届中国西部国际投资贸易洽谈会上，一款水下载人观光潜水器吸引不少参观者驻足。 据介绍，这款名为“鲛子”号的水下载人观光潜水器由中国自主研发制造，主要应用于旅游观光、深海救援、深海养殖。除国内使用外，该潜水器还远销马来西亚、印尼等国家和地区，未来将全方位覆盖东盟国家。(贾楠 景诗雁） 责任编辑：【李季
+颖通控股（06883）发布截至2026年3月31日止年度业绩，该集团取得收入21.52亿元，同比增加3.3%；年内溢利2.43亿元，同比增加7.2%；每股基本盈利19.2分。 本年度为本集团于港交所主板上市后的首个完整财政年度，标誌着本集团从私营企业正式迈向公众上市公司的全新发展阶段。上市提升了公司治理与合规标准，亦提供了更广阔的资本市场平台。本集团同时完成战略定位的重大升级，
 
 ## 正文
 
-发布时间：2026年05月22日 17:15 来源：中国新闻网 5月22日，在第八届中国西部国际投资贸易洽谈会上，一款水下载人观光潜水器吸引不少参观者驻足。
+颖通控股（06883）发布截至2026年3月31日止年度业绩，该集团取得收入21.52亿元，同比增加3.3%；年内溢利2.43亿元，同比增加7.2%；每股基本盈利19.2分。
 
-据介绍，这款名为“鲛子”号的水下载人观光潜水器由中国自主研发制造，主要应用于旅游观光、深海救援、深海养殖。
+本年度为本集团于港交所主板上市后的首个完整财政年度，标誌着本集团从私营企业正式迈向公众上市公司的全新发展阶段。
 
-除国内使用外，该潜水器还远销马来西亚、印尼等国家和地区，未来将全方位覆盖东盟国家。
+上市提升了公司治理与合规标准，亦提供了更广阔的资本市场平台。
 
-(贾楠 景诗雁） 责任编辑：【李季】
+本集团同时完成战略定位的重大升级，由过往专注产品分销与渠道运营，进化为“生活美学品牌伙伴”，在品牌组合优化、渠道结构调整、会员资产沉淀及组织能力提升等方面取得显著进展。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:31 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 13:33 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 13:07 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 13:24 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 13:18 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 13:08 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-29 13:25 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 13:31 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:15 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 13:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 13:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 13:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-29 13:33 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 13:20 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-29 13:28 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 13:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 13:31 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 13:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 13:35 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 13:15 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 13:29 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 13:32 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 13:32 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 13:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 13:16 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-29 13:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/406724505.shtml)
-- 2026-06-29 13:17 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/970106496.shtml)
-- 2026-06-29 13:14 - [韩剧编剧又升级了](http://www.share.minike.top/Article/details/26830963899.shtml)
-- 2026-06-29 13:35 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/274731.shtml)
-- 2026-06-29 13:13 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/248872.shtml)
-- 2026-06-29 13:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/92277518314.shtml)
-- 2026-06-29 13:34 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.kurohicncr.top/Article/details/0223659.shtml)
-- 2026-06-29 13:25 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.minike.top/Article/details/9548191.shtml)
-- 2026-06-29 13:28 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/47707159941.shtml)
-- 2026-06-29 13:14 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](http://www.blog.minike.top/Article/details/393508074073.shtml)
-- 2026-06-29 13:29 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/4729003.shtml)
-- 2026-06-29 13:22 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/360212123.shtml)
-- 2026-06-29 13:12 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/394968342.shtml)
-- 2026-06-29 13:09 - [毒液2](https://www.blog.kurohicncr.top/Article/details/58256356.shtml)
-- 2026-06-29 13:06 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/29227704.shtml)
+- 2026-06-29 13:24 - [《贺子珍》](https://www.blog.minike.top/Article/details/29719577835.shtml)
+- 2026-06-29 13:35 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/0293085055.shtml)
+- 2026-06-29 13:23 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/214151.shtml)
+- 2026-06-29 13:19 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/99120.shtml)
+- 2026-06-29 13:14 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/55805238.shtml)
+- 2026-06-29 13:35 - [汪东城回应45岁婚约](http://www.blog.minike.top/Article/details/1514948.shtml)
+- 2026-06-29 13:23 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/7450685.shtml)
+- 2026-06-29 13:17 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/2466297797.shtml)
+- 2026-06-29 13:14 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/984519389154.shtml)
+- 2026-06-29 13:24 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/06800163622.shtml)
+- 2026-06-29 13:14 - [俄军新型无人机战力如何](http://www.blog.kurohicncr.top/Article/details/8251874674.shtml)
+- 2026-06-29 13:32 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/332961.shtml)
+- 2026-06-29 13:14 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/33475.shtml)
+- 2026-06-29 13:28 - [功率半导体缺货涨价](http://www.blog.kurohicncr.top/Article/details/77617374550.shtml)
+- 2026-06-29 13:24 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/2211127.shtml)

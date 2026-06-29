@@ -1,59 +1,61 @@
-# 织密“全国一张网” 我国油气供应能力持续提升
+# 英国宣布追加投资5000万英镑促进关键材料生产
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-央视新闻客户端消息(新闻联播)：今年以来，我国重大油气基础设施持续完善，“全国一张网”不断织密筑牢，我国油气供应保障能力稳步提升。 这几天，在重庆、湖北、浙江等地，“十五五”规划的能源重点项目——川气东送二线全线正加快建设。 不仅是联通东西、纵贯南北的大通道，今年以来，区域间的连接线也在加速织密，近40个管网项目分布在东北、长三角等地，在建里程超过9000公里。 不断完善的能源
+英国政府周一宣布，将投资5000万英镑（约合6600万美元）用于促进关键材料的国内生产，以减少对全球集中供应链的依赖，增强经济韧性。 这笔资金将用于支持开采、加工和回收等项目，旨在保障从智能手机、冰箱到电动汽车电池等各类产品所需的原材料供应。 此前，英国已向该领域投入超过2亿英镑。 英国工业大臣克里斯·麦克唐纳 （Chris McDonald） 计划在访问英格兰东北部的工业研究
 
 ## 正文
 
-央视新闻客户端消息(新闻联播)：今年以来，我国重大油气基础设施持续完善，“全国一张网”不断织密筑牢，我国油气供应保障能力稳步提升。
+英国政府周一宣布，将投资5000万英镑（约合6600万美元）用于促进关键材料的国内生产，以减少对全球集中供应链的依赖，增强经济韧性。
 
-这几天，在重庆、湖北、浙江等地，“十五五”规划的能源重点项目——川气东送二线全线正加快建设。
+这笔资金将用于支持开采、加工和回收等项目，旨在保障从智能手机、冰箱到电动汽车电池等各类产品所需的原材料供应。
 
-不仅是联通东西、纵贯南北的大通道，今年以来，区域间的连接线也在加速织密，近40个管网项目分布在东北、长三角等地，在建里程超过9000公里。
+此前，英国已向该领域投入超过2亿英镑。
 
-不断完善的能源网络，正带动着油气资源调配效率持续提升。
+英国工业大臣克里斯·麦克唐纳 （Chris McDonald） 计划在访问英格兰东北部的工业研究中心期间启动该计划，该中心的公司正在开发金属回收和加工技术。
 
-过去五年，我国天然气跨省管输价格下降了5%，每年节约社会用能成本约149亿元。
+随着需求的增长，英国正在加紧努力确保关键矿物的供应。
 
-今年，这张网还在向多元化升级。
+“关键矿物对我们的国家安全至关重要，”麦克唐纳说。
 
-原本专属于油气的“高速路网”，可以开始输送氢、氨、醇等多种新介质。
+近期取得的进展包括英国25年来首家商业稀土磁体工厂的投产。
 
-数据显示，今年1—4月份，我国主干天然气管网累计输送天然气超800亿立方米。
+该工厂由Mkango Resources旗下的HyProMag公司在伯明翰运营，利用回收材料生产用于电机和其他技术的磁体。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 13:12 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 13:15 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 13:15 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 13:32 - [功率半导体缺货涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 13:22 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 13:30 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 13:29 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 13:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 13:06 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 13:32 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 13:24 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 13:10 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 13:32 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 13:28 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 13:31 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-29 13:41 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 13:27 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 13:33 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 13:21 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 13:16 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-29 13:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 13:15 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 13:20 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
+- 2026-06-29 13:20 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 13:40 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 13:12 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 13:35 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/814459.shtml)
-- 2026-06-29 13:30 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/8615799741.shtml)
-- 2026-06-29 13:24 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/4780141.shtml)
-- 2026-06-29 13:21 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/815294195662.shtml)
-- 2026-06-29 13:35 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/18328067221.shtml)
-- 2026-06-29 13:28 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/612963329013.shtml)
-- 2026-06-29 13:06 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/712522719695.shtml)
-- 2026-06-29 13:09 - [3D打印不是工业革命，它是……](http://www.share.minike.top/Article/details/0059689543.shtml)
-- 2026-06-29 13:22 - [张亚中：以中山精神为桥凝聚血脉认同](https://www.share.kurohicncr.top/Article/details/08290747960.shtml)
-- 2026-06-29 13:34 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/687207.shtml)
-- 2026-06-29 13:28 - [一见倾心](https://www.blog.minike.top/Article/details/689746.shtml)
-- 2026-06-29 13:11 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/169527739901.shtml)
-- 2026-06-29 13:15 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/39940791.shtml)
-- 2026-06-29 13:12 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/030199.shtml)
-- 2026-06-29 13:17 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/76656340.shtml)
+- 2026-06-29 13:13 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/4675866312.shtml)
+- 2026-06-29 13:19 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/3211832297.shtml)
+- 2026-06-29 13:15 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/641470.shtml)
+- 2026-06-29 13:16 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/311297.shtml)
+- 2026-06-29 13:18 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/64525048.shtml)
+- 2026-06-29 13:25 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/1008815.shtml)
+- 2026-06-29 13:25 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/1127463500.shtml)
+- 2026-06-29 13:33 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/1749191.shtml)
+- 2026-06-29 13:31 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/317052599122.shtml)
+- 2026-06-29 13:14 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/310836519746.shtml)
+- 2026-06-29 13:13 - [请回答王牌2019](https://www.blog.minike.top/Article/details/383435584002.shtml)
+- 2026-06-29 13:17 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/965312900138.shtml)
+- 2026-06-29 13:29 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/335547.shtml)
+- 2026-06-29 13:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/142911197392.shtml)
+- 2026-06-29 13:30 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/99059.shtml)

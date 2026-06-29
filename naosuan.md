@@ -1,61 +1,56 @@
-# 杰富瑞高调上调Generac评级：AI数据中心备电需求点燃转型催化剂
+# 巴西里约首届龙舟文化节：26艘龙舟竞渡 “中巴”组合亮眼
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-受数据中心备用电源需求强劲的乐观预期驱动，备用电源设备制造商Generac Holdings于5月22日股价大幅上涨，盘中涨幅一度接近7.5%。此前，华尔街投资机构杰富瑞将公司股票评级从持有一举上调至买入，并将目标股价从239美元大幅上调至302美元。 分析师指出，Generac正处于赢得超大规模数据中心合同的关键时刻。随着AI基础设施建设热潮涌动，为该类高能耗设施提供不间断电
+中新网里约热内卢6月22日电 (记者 林春茵)当地时间21日，为期两天的巴西里约热内卢首届龙舟文化节在罗德里戈湖收官。26条“中巴组合”的龙舟队奋楫竞渡；中巴民众共同感受中华传统文化魅力。 连日来，在基督像和面包山映衬下，旅巴华侨华人和巴西友人组队上阵，劈波竞渡。湖畔，醒狮、武术、音乐演出轮番上演，不少当地民众驻足观看，上船试桨，共同感受端午文化。 中国驻里约热内卢总领事田敏参
 
 ## 正文
 
-受数据中心备用电源需求强劲的乐观预期驱动，备用电源设备制造商Generac Holdings于5月22日股价大幅上涨，盘中涨幅一度接近7.5%。
+中新网里约热内卢6月22日电 (记者 林春茵)当地时间21日，为期两天的巴西里约热内卢首届龙舟文化节在罗德里戈湖收官。
 
-此前，华尔街投资机构杰富瑞将公司股票评级从持有一举上调至买入，并将目标股价从239美元大幅上调至302美元。
+26条“中巴组合”的龙舟队奋楫竞渡；中巴民众共同感受中华传统文化魅力。
 
-分析师指出，Generac正处于赢得超大规模数据中心合同的关键时刻。
+连日来，在基督像和面包山映衬下，旅巴华侨华人和巴西友人组队上阵，劈波竞渡。
 
-随着AI基础设施建设热潮涌动，为该类高能耗设施提供不间断电力支持的工业发电机需求激增。
+湖畔，醒狮、武术、音乐演出轮番上演，不少当地民众驻足观看，上船试桨，共同感受端午文化。
 
-杰富瑞认为，Generac已成为能够满足此需求的稀缺供应商，其独家供应的博杜安发动机技术已进入超大规模云服务商的配置方案。
+中国驻里约热内卢总领事田敏参加活动并致辞。
 
-公司基本面正在经历深刻的结构性转变。
+田敏表示，龙舟运动所体现的协作精神，与巴西人民热爱体育、崇尚团队合作的文化理念高度契合。
 
-最新财报显示，其商用与工业板块营收同比增长28%至3.85亿美元，几乎完全由数据中心订单驱动。
+作为“中巴文化年”重要项目之一，此次龙舟文化节将进一步增进巴西人民对中国传统文化的了解，深化两国人民友谊。
 
-公司总订单储备已超过7亿美元，其中包括一家超大规模云厂商发出的6亿美元非约束性意向函，计划于2027年交付。
+里约州议会议员、里约州国际关系中心协调员丹尼尔·卡斯特罗说，巴中两国相距遥远，中华龙舟首度亮相里约，“龙舟文化节成为一座连接不同文明的桥梁。
 
 ## 相关推荐
 
-- 2026-06-29 13:28 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-29 13:14 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 13:09 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 13:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-29 13:25 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 13:07 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 13:22 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 13:20 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 13:13 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 13:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 13:08 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-29 13:09 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 13:06 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 13:25 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 13:14 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 13:19 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 13:30 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 13:41 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 13:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 13:27 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 13:25 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 13:24 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 13:38 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 13:19 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 13:17 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/2499456465.shtml)
-- 2026-06-29 13:21 - [谢霆锋演唱会变大型呲水现场](https://www.share.minike.top/Article/details/153542972.shtml)
-- 2026-06-29 13:09 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/03005749.shtml)
-- 2026-06-29 13:26 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/545373935.shtml)
-- 2026-06-29 13:32 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/420562765.shtml)
-- 2026-06-29 13:22 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/87496.shtml)
-- 2026-06-29 13:06 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/785919571.shtml)
-- 2026-06-29 13:30 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/122620706.shtml)
-- 2026-06-29 13:21 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/02207179665.shtml)
-- 2026-06-29 13:34 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/876285727.shtml)
-- 2026-06-29 13:10 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/80001.shtml)
-- 2026-06-29 13:10 - [严浩翔FIY断层第一](https://www.share.minike.top/Article/details/8488919.shtml)
-- 2026-06-29 13:32 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/047867.shtml)
-- 2026-06-29 13:22 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/49732.shtml)
-- 2026-06-29 13:15 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/97579297.shtml)
+- 2026-06-29 13:33 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/603552964.shtml)
+- 2026-06-29 13:41 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/7941010136.shtml)
+- 2026-06-29 13:13 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/75802477.shtml)
+- 2026-06-29 13:16 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/64123153193.shtml)
+- 2026-06-29 13:16 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/54682802.shtml)
+- 2026-06-29 13:26 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/887299572.shtml)
+- 2026-06-29 13:26 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/17449.shtml)
+- 2026-06-29 13:24 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/106093.shtml)
+- 2026-06-29 13:24 - [毕业群都在出什么东西](https://www.blog.minike.top/Article/details/5862656690.shtml)
+- 2026-06-29 13:32 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/89000991.shtml)
+- 2026-06-29 13:21 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.minike.top/Article/details/0681552.shtml)
+- 2026-06-29 13:16 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/664736458370.shtml)
+- 2026-06-29 13:33 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/4398259648.shtml)
+- 2026-06-29 13:17 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/96061250.shtml)
+- 2026-06-29 13:41 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/174550525836.shtml)

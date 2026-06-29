@@ -1,44 +1,48 @@
-# 目前，中国空间站组合体已进入对接轨道，工作状态良好，满足与神舟二十三号载人飞船交会对接和航天员进驻条件
+# 十四届全国人大常委会第二十三次会议6月23日至26日在北京举行
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-新华社快讯：目前，中国空间站组合体已进入对接轨道，工作状态良好，满足与神舟二十三号载人飞船交会对接和航天员进驻条件 新华社快讯：目前，中国空间站组合体已进入对接轨道，工作状态良好，满足与神舟二十三号载人飞船交会对接和航天员进驻条件。
+记者从今天全国人大常委会法制工作委员会举行的记者会上了解到，十四届全国人大常委会第六十八次委员长会议决定，十四届全国人大常委会第二十三次会议6月23日至26日在北京举行。 委员长会议建议，十四届全国人大常委会第二十三次会议： 继续审议商标法修订草案、注册会计师法修正草案、检察公益诉讼法草案、南极活动与环境保护法草案、国家消防救援人员法草案； 审议全国人大财政经济委员会关于提请审
 
 ## 正文
 
-新华社快讯：目前，中国空间站组合体已进入对接轨道，工作状态良好，满足与神舟二十三号载人飞船交会对接和航天员进驻条件 新华社快讯：目前，中国空间站组合体已进入对接轨道，工作状态良好，满足与神舟二十三号载人飞船交会对接和航天员进驻条件。
+记者从今天全国人大常委会法制工作委员会举行的记者会上了解到，十四届全国人大常委会第六十八次委员长会议决定，十四届全国人大常委会第二十三次会议6月23日至26日在北京举行。
+
+委员长会议建议，十四届全国人大常委会第二十三次会议： 继续审议商标法修订草案、注册会计师法修正草案、检察公益诉讼法草案、南极活动与环境保护法草案、国家消防救援人员法草案； 审议全国人大财政经济委员会关于提请审议政府采购法修订草案的议案； 审议国务院关于提请审议招标投标法修订草案的议案、关于提请审议金融法草案的议案、关于提请审议中国人民银行法修订草案的议案等。
+
+(总台央视记者 武兵 周琨)
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 13:29 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 13:34 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 13:23 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 13:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 13:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:31 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 13:35 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 13:20 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 13:34 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 13:23 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 13:26 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 13:30 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-29 13:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 13:22 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 13:32 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 13:41 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 13:28 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 13:21 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 13:33 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 13:23 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 13:22 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:29 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 13:24 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [双高胎](https://www.share.minike.top/Article/details/4238208.shtml)
-- 2026-06-29 13:23 - [谢霆锋演唱会变大型呲水现场](https://www.blog.kurohicncr.top/Article/details/175121263.shtml)
-- 2026-06-29 13:33 - [金价银价下跌 油价上涨](http://www.share.kurohicncr.top/Article/details/82923202268.shtml)
-- 2026-06-29 13:12 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/03663.shtml)
-- 2026-06-29 13:22 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/335725887319.shtml)
-- 2026-06-29 13:13 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/91011003.shtml)
-- 2026-06-29 13:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/933015162.shtml)
-- 2026-06-29 13:34 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/825755.shtml)
-- 2026-06-29 13:26 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/10404.shtml)
-- 2026-06-29 13:10 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/05747.shtml)
-- 2026-06-29 13:30 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/418035.shtml)
-- 2026-06-29 13:29 - [我们注定是一撮县城葱姜蒜](http://www.blog.minike.top/Article/details/60297236468.shtml)
-- 2026-06-29 13:09 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/593562215.shtml)
-- 2026-06-29 13:13 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/9243800.shtml)
-- 2026-06-29 13:28 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/902994.shtml)
+- 2026-06-29 13:22 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/0760993.shtml)
+- 2026-06-29 13:35 - [金价银价下跌 油价上涨](http://www.share.minike.top/Article/details/404505.shtml)
+- 2026-06-29 13:39 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/0830399556.shtml)
+- 2026-06-29 13:16 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/794346954700.shtml)
+- 2026-06-29 13:16 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/094507751.shtml)
+- 2026-06-29 13:29 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/6661070.shtml)
+- 2026-06-29 13:23 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.kurohicncr.top/Article/details/115193.shtml)
+- 2026-06-29 13:18 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/333732647.shtml)
+- 2026-06-29 13:40 - [DSpark论文深度解读](http://www.share.minike.top/Article/details/8085690015.shtml)
+- 2026-06-29 13:18 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/20080.shtml)
+- 2026-06-29 13:15 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.kurohicncr.top/Article/details/8925885377.shtml)
+- 2026-06-29 13:22 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/246780599.shtml)
+- 2026-06-29 13:16 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/614570.shtml)
+- 2026-06-29 13:28 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/1040493.shtml)
+- 2026-06-29 13:24 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/205806871003.shtml)

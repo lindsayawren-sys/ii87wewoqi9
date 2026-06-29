@@ -1,61 +1,61 @@
-# 院士专家齐聚广州南沙共商打造“钢筋铁骨”
+# 日元逼近40年低点！日本财务大臣再提“大胆行动”，向投机交易释放干预警告
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网广州5月24日电 (王坚 罗瑞娴)“2026大湾区低碳冶金及先进金属材料技术交流会”23日在广州南沙开幕。大会期间，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌。 据介绍，本次大会由中国金属学会、新金属材料全国重点实验室、绿色低碳钢铁冶金全国重点实验室联合主办。 开幕式上，中国金属学会副秘书长车彦民宣读中国工程院院士殷瑞钰贺信。殷瑞钰在贺信中高度肯定了本
+来源：智通财经网 日本财务大臣片山皋月周五表示，由于日元汇率已接近四十年来最低水平，政府可以采取大胆行动应对投机行为。 “我们可以对外汇市场过度投机行为采取大胆行动，”片山在周五的新闻发布会上对记者表示。 片山此前曾多次使用“大胆行动”一词，该措辞指代外汇市场干预，通常被解读为对交易员的最后警告。她表示，日本财务省在货币问题上的立场并未改变。 片山的言论在一定程度上支撑了日元汇
 
 ## 正文
 
-中新网广州5月24日电 (王坚 罗瑞娴)“2026大湾区低碳冶金及先进金属材料技术交流会”23日在广州南沙开幕。
+来源：智通财经网 日本财务大臣片山皋月周五表示，由于日元汇率已接近四十年来最低水平，政府可以采取大胆行动应对投机行为。
 
-大会期间，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌。
+“我们可以对外汇市场过度投机行为采取大胆行动，”片山在周五的新闻发布会上对记者表示。
 
-据介绍，本次大会由中国金属学会、新金属材料全国重点实验室、绿色低碳钢铁冶金全国重点实验室联合主办。
+片山此前曾多次使用“大胆行动”一词，该措辞指代外汇市场干预，通常被解读为对交易员的最后警告。
 
-开幕式上，中国金属学会副秘书长车彦民宣读中国工程院院士殷瑞钰贺信。
+她表示，日本财务省在货币问题上的立场并未改变。
 
-殷瑞钰在贺信中高度肯定了本次大会的重要意义，强调要以科技创新引领钢铁行业高端化、绿色化、智能化发展，将冶金流程学理念融入低碳实践，统筹推进氢冶金、电炉短流程等多元低碳路径探索。
+片山的言论在一定程度上支撑了日元汇率，使其接近161日元兑1美元，但这一水平仍低于日本当局4月下旬干预市场支撑日元时的价位。
 
-本次大会邀请多位院士、行业专家及企业代表作主会场特邀报告，报告内容涵盖工业化后期先进钢铁材料发展、人工智能加速酸性电解水催化剂研发、钢铁行业形势分析与低碳进展、湛江钢铁绿色低碳发展实践、冶金智能化技术创新等多个热点领域，既有前沿理论探索，又有工程实践总结，为参会人员带来了一场精彩纷呈的学术与产业盛宴。
+日元的下一个关键关口是161.95，一旦跌破该水平，将创下自1986年12月以来的最低点。
 
-大会现场，《氢基竖炉—电炉紧凑型钢铁流程冶金》新书发布，绿色低碳钢铁冶金全国重点实验室大湾区(广工大)联合研发基地揭牌，二者将进一步推动低碳冶金技术成果传播与落地，凝聚起先进金属材料全行业的智慧与力量，为行业高质量发展注入新动能。
+日元下跌与美元大幅走强同步发生，由于市场预期美联储将在未来几个月开始加息，美元实现了三个月来最大的两天涨幅。
 
-会议期间，与会嘉宾围绕低碳冶金技术创新、先进金属材料应用、产学研用协同攻关等主题发表见解。
+本周早些时候日本央行将利率上调至1995年以来的最高水平，但此举对日元几乎没有支撑作用。
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [A股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:13 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 13:35 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 13:18 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-29 13:12 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 13:33 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 13:35 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 13:30 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
-- 2026-06-29 13:18 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 13:11 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-29 13:10 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 13:17 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 13:15 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 13:19 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 13:35 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 13:35 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 13:34 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 13:27 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 13:39 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 13:17 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 13:39 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 13:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 13:20 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 13:40 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-29 13:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 13:18 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 13:35 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 13:32 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 13:37 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 13:12 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [韩国拟将部分刑责年龄降至13岁](http://www.blog.kurohicncr.top/Article/details/814869285278.shtml)
-- 2026-06-29 13:08 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/7355759.shtml)
-- 2026-06-29 13:30 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/60674365978.shtml)
-- 2026-06-29 13:22 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/5685652938.shtml)
-- 2026-06-29 13:32 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/563939171261.shtml)
-- 2026-06-29 13:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/4863487324.shtml)
-- 2026-06-29 13:23 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/111235.shtml)
-- 2026-06-29 13:26 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/33895027660.shtml)
-- 2026-06-29 13:28 - [千与千寻](https://www.share.minike.top/Article/details/168908951969.shtml)
-- 2026-06-29 13:15 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/712913893247.shtml)
-- 2026-06-29 13:19 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/25842.shtml)
-- 2026-06-29 13:16 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.minike.top/Article/details/316680.shtml)
-- 2026-06-29 13:29 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/628737.shtml)
-- 2026-06-29 13:29 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/247156246722.shtml)
-- 2026-06-29 13:07 - [起风了](http://www.blog.kurohicncr.top/Article/details/5934247293.shtml)
+- 2026-06-29 13:29 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/889177620.shtml)
+- 2026-06-29 13:28 - [流金岁月](http://www.share.kurohicncr.top/Article/details/8707838130.shtml)
+- 2026-06-29 13:30 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/71604802.shtml)
+- 2026-06-29 13:37 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/463891.shtml)
+- 2026-06-29 13:31 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/181834345.shtml)
+- 2026-06-29 13:17 - [游戏数据竟被用于军事目的](http://www.blog.kurohicncr.top/Article/details/700345919.shtml)
+- 2026-06-29 13:18 - [中餐厅南北饮食差异](https://www.share.minike.top/Article/details/1792887.shtml)
+- 2026-06-29 13:23 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/08278.shtml)
+- 2026-06-29 13:27 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/521084902.shtml)
+- 2026-06-29 13:38 - [世界杯打成了欧洲杯和美洲杯](https://www.blog.kurohicncr.top/Article/details/614972836736.shtml)
+- 2026-06-29 13:13 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/9862827222.shtml)
+- 2026-06-29 13:16 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/5735219284.shtml)
+- 2026-06-29 13:21 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/00354891.shtml)
+- 2026-06-29 13:23 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/8305145115.shtml)
+- 2026-06-29 13:32 - [T1对战KC](https://www.share.kurohicncr.top/Article/details/87565.shtml)

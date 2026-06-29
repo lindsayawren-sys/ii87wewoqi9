@@ -1,52 +1,59 @@
-# 公安部拟明确刑事案件电子数据取证中获取密码等特殊程序
+# 马宁领衔中国裁判组完成世界杯历史性首秀，联想AI全程守护中国力量
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月22日电(记者李明辉)记者22日从公安部获悉，公安部拟对《公安机关办理刑事案件电子数据取证规则》进行修订，起草了《公安机关电子数据取证规则(征求意见稿)》，并向社会公开征求意见。 征求意见稿明确在电子数据取证工作中，确需输入与案件相关的智能终端等账号密码的，一般应先由电子数据持有人提供账号密码；其不提供账号密码的，应当经县级以上公安机关负责人批准，在明确告知电子数
+北京时间6月21日，2026美加墨世界杯迎来E组第二轮的关键战，厄瓜多尔对阵库拉索。这场较量，恰好是世界杯历史上的第999场比赛。然而在这场对决中，真正迎来极具里程碑意义的，是站在绿茵场中央的中国面孔。 马宁，中国足球裁判界公认的最高水准代表。执裁生涯二十余年，他以极致的专注与严苛的自我要求，一步步走到了世界足球的最高舞台。此番与助理裁判周飞、VAR视频助理裁判傅明组成“铁三角
 
 ## 正文
 
-新华社北京5月22日电(记者李明辉)记者22日从公安部获悉，公安部拟对《公安机关办理刑事案件电子数据取证规则》进行修订，起草了《公安机关电子数据取证规则(征求意见稿)》，并向社会公开征求意见。
+北京时间6月21日，2026美加墨世界杯迎来E组第二轮的关键战，厄瓜多尔对阵库拉索。
 
-征求意见稿明确在电子数据取证工作中，确需输入与案件相关的智能终端等账号密码的，一般应先由电子数据持有人提供账号密码；其不提供账号密码的，应当经县级以上公安机关负责人批准，在明确告知电子数据持有人或者有见证人见证的情况下，可以采取相应措施获取账号密码。
+这场较量，恰好是世界杯历史上的第999场比赛。
 
-在调取电子邮件等个人通讯内容时，应当先由电子数据持有人登录邮箱等方式协助提供，其不予协助的，应当经地市级以上公安机关负责人批准，在告知电子数据持有人或者有见证人见证的情况下向互联网服务提供者调取，从而充分体现对公民通信秘密、个人隐私、个人信息的尊重与保护。
+然而在这场对决中，真正迎来极具里程碑意义的，是站在绿茵场中央的中国面孔。
 
-此外，征求意见稿还扩大了取证规则的适用范围、对电子数据取证相关概念进行规范、规范了电子数据取证相关文书等。
+马宁，中国足球裁判界公认的最高水准代表。
 
-据悉，公众可以通过公安部网站(www.mps.gov.cn)查阅征求意见稿，有关意见建议可以通过电子邮箱或信函方式反馈，意见反馈截止时间为2026年6月21日。
+执裁生涯二十余年，他以极致的专注与严苛的自我要求，一步步走到了世界足球的最高舞台。
+
+此番与助理裁判周飞、VAR视频助理裁判傅明组成“铁三角”，代表中国首次以完整建制执法世界杯正赛，这不仅是马宁个人职业生涯的巅峰时刻，更是中国裁判力量在世界杯舞台上的历史性跨越。
+
+本场比赛最终以0：0战平落幕。
+
+面对这场两队互交白卷的防守肉搏战，马宁延续了他一贯严格、注重细节的执法风格，大局观掌控得当，展现出极高的国际级水准。
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 13:20 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 13:15 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 13:19 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-29 13:35 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 13:15 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 13:34 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 13:30 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-29 13:19 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-29 13:15 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 13:20 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-29 13:28 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 13:38 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 13:32 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 13:13 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 13:38 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-29 13:22 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 13:21 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 13:18 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 13:38 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 13:27 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 13:26 - [谢霆锋演唱会变大型呲水现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 13:36 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 13:35 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 13:34 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/80869.shtml)
-- 2026-06-29 13:08 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/528572.shtml)
-- 2026-06-29 13:30 - [流金岁月](https://www.share.minike.top/Article/details/850086.shtml)
-- 2026-06-29 13:32 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/5733323.shtml)
-- 2026-06-29 13:19 - [周生如故](http://www.blog.kurohicncr.top/Article/details/154444294406.shtml)
-- 2026-06-29 13:20 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/06888637951.shtml)
-- 2026-06-29 13:15 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/978004809.shtml)
-- 2026-06-29 13:28 - [赵露思爸爸拍vlog翻车了](http://www.share.kurohicncr.top/Article/details/62774.shtml)
-- 2026-06-29 13:14 - [ENC瓦中国香港负印度数据图](http://www.blog.kurohicncr.top/Article/details/859224886.shtml)
-- 2026-06-29 13:07 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/92429465.shtml)
-- 2026-06-29 13:29 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/31681290.shtml)
-- 2026-06-29 13:09 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/9908887045.shtml)
-- 2026-06-29 13:13 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/104536391445.shtml)
-- 2026-06-29 13:11 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/23549241285.shtml)
-- 2026-06-29 13:11 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/2520220855.shtml)
+- 2026-06-29 13:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/1661926.shtml)
+- 2026-06-29 13:25 - [严浩翔FIY断层第一](http://www.share.kurohicncr.top/Article/details/313646180426.shtml)
+- 2026-06-29 13:24 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/35247478.shtml)
+- 2026-06-29 13:31 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/18325.shtml)
+- 2026-06-29 13:26 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/83760999.shtml)
+- 2026-06-29 13:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/3918420640.shtml)
+- 2026-06-29 13:18 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/91994158538.shtml)
+- 2026-06-29 13:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/613802607601.shtml)
+- 2026-06-29 13:39 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/143384873676.shtml)
+- 2026-06-29 13:21 - [拆快递不再“里三层外三层”](https://www.blog.minike.top/Article/details/03984.shtml)
+- 2026-06-29 13:16 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/346910327649.shtml)
+- 2026-06-29 13:30 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/429029688.shtml)
+- 2026-06-29 13:25 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/2159271639.shtml)
+- 2026-06-29 13:17 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/266929868655.shtml)
+- 2026-06-29 13:34 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/3343535371.shtml)

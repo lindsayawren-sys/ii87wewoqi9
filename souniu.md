@@ -1,60 +1,44 @@
-# 野村：随着通胀的攀升 预计美联储在2026年不会降息
+# 奥地利外长赖辛格将访华
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-财联社5月22日讯（编辑 周子意）野村证券最新预计，由于通胀上升以及美联储官员对宽松政策的支持减弱，2026年美国联邦储备委员会将维持利率不变，短期内降息的可能性降低。 野村证券在周四（5月21日）发布的报告中表示，“新任美联储主席凯文·沃什可能仍倾向于放松货币政策，但近期数据和美联储官员言论使我们怀疑他能否说服FOMC多数成员支持降息。” 野村此前预计，美联储将于今年9月和1
+外交部发言人宣布： 应中共中央政治局委员、外交部长王毅邀请，奥地利外长赖辛格将于6月22日至26日访华。
 
 ## 正文
 
-财联社5月22日讯（编辑 周子意）野村证券最新预计，由于通胀上升以及美联储官员对宽松政策的支持减弱，2026年美国联邦储备委员会将维持利率不变，短期内降息的可能性降低。
-
-野村证券在周四（5月21日）发布的报告中表示，“新任美联储主席凯文·沃什可能仍倾向于放松货币政策，但近期数据和美联储官员言论使我们怀疑他能否说服FOMC多数成员支持降息。
-
-” 野村此前预计，美联储将于今年9月和12月将各降息25个基点。
-
-美联储新主席 美东时间周五（5月22日），凯文·沃什将在白宫正式宣誓就任美国联邦储备委员会第17任主席，接替卸任的杰罗姆·鲍威尔，美国总统特朗普将主持此次宣誓仪式。
-
-美国参议院于5月13日以54票支持、45票反对的结果确认沃什的任命，此次投票几乎沿党派分界线划分，仅一名民主党议员倒戈支持，是美联储主席提名史上党派分歧最严重的一次。
-
-沃什即将开启四年美联储主席任期及14年美联储理事任期，卸任的鲍威尔将留任美联储理事直至2028年。
-
-沃什曾公开反对多轮量化宽松政策，主要对美联储2020年扩张资产负债表导致的高通胀持批评态度，被视为反通胀“鹰派”。
-
-去年11月，他曾撰文称，人工智能突破将形成“显著降低通胀的力量”，使降息更为容易。
+外交部发言人宣布： 应中共中央政治局委员、外交部长王毅邀请，奥地利外长赖辛格将于6月22日至26日访华。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 13:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:26 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 13:12 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 13:14 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 13:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 13:29 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 13:17 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 13:34 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 13:24 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 13:24 - [俄政府批准巩固俄语地位行动计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 13:35 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 13:24 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 13:17 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 13:36 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 13:22 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 13:35 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 13:31 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 13:21 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 13:30 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 13:33 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 13:19 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 13:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 13:12 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 13:40 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 13:29 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/70992.shtml)
-- 2026-06-29 13:34 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/976794481.shtml)
-- 2026-06-29 13:07 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/567301.shtml)
-- 2026-06-29 13:17 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/51576.shtml)
-- 2026-06-29 13:30 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/0269130.shtml)
-- 2026-06-29 13:13 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.kurohicncr.top/Article/details/3020127.shtml)
-- 2026-06-29 13:13 - [2025年人口增长10强城市出炉](http://www.share.kurohicncr.top/Article/details/332506174140.shtml)
-- 2026-06-29 13:35 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/49617.shtml)
-- 2026-06-29 13:19 - [王楚钦3-0周启豪 晋级32强](https://www.blog.kurohicncr.top/Article/details/01070.shtml)
-- 2026-06-29 13:13 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.kurohicncr.top/Article/details/642289.shtml)
-- 2026-06-29 13:18 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/51094796845.shtml)
-- 2026-06-29 13:10 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/089136172097.shtml)
-- 2026-06-29 13:33 - [向佑说向佐是一生依靠](http://www.blog.minike.top/Article/details/2289117.shtml)
-- 2026-06-29 13:34 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.minike.top/Article/details/341307285555.shtml)
-- 2026-06-29 13:17 - [谢霆锋演唱会变大型呲水现场](http://www.share.kurohicncr.top/Article/details/545483667.shtml)
+- 2026-06-29 13:17 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/572955348.shtml)
+- 2026-06-29 13:14 - [女生雨天开车发现雨刮条被掰走](http://www.blog.minike.top/Article/details/66337065416.shtml)
+- 2026-06-29 13:39 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.kurohicncr.top/Article/details/225015645258.shtml)
+- 2026-06-29 13:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/50630921.shtml)
+- 2026-06-29 13:16 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.minike.top/Article/details/74740.shtml)
+- 2026-06-29 13:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/011058080645.shtml)
+- 2026-06-29 13:21 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/82000687865.shtml)
+- 2026-06-29 13:40 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/09153580816.shtml)
+- 2026-06-29 13:38 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/687906307.shtml)
+- 2026-06-29 13:15 - [《贺子珍》](http://www.blog.minike.top/Article/details/2509254.shtml)
+- 2026-06-29 13:18 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/51744450942.shtml)
+- 2026-06-29 13:12 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/09399270061.shtml)
+- 2026-06-29 13:33 - [AG 钟意](http://www.blog.minike.top/Article/details/5673127221.shtml)
+- 2026-06-29 13:23 - [张真源解读相思锁](https://www.share.minike.top/Article/details/367139853586.shtml)
+- 2026-06-29 13:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/7164847.shtml)

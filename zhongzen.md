@@ -1,46 +1,48 @@
-# 神舟二十三号载人飞船发射取得圆满成功
+# 山东墨龙拟非公开发行不超2亿元公司债及不超2亿元可续期公司债
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社快讯：神舟二十三号载人飞船发射取得圆满成功。责任编辑：宋雅芳
+6月21日，山东墨龙（002490.SZ）发布公告称，结合公司实际经营情况，为进一步拓宽融资渠道、优化债务结构、防控资金风险，公司拟面向专业投资者非公开发行不超过2亿元（含）公司债券，募集资金拟用于偿还公司及下属子公司有息负债，以及法律法规允许的其他用途。与此同时，公司还拟面向专业投资者非公开发行不超过2亿元（含）可续期公司债券，募集资金将通过支付预付款、清偿应付款项等形式，支
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月21日，山东墨龙（002490.SZ）发布公告称，结合公司实际经营情况，为进一步拓宽融资渠道、优化债务结构、防控资金风险，公司拟面向专业投资者非公开发行不超过2亿元（含）公司债券，募集资金拟用于偿还公司及下属子公司有息负债，以及法律法规允许的其他用途。
 
-新华社快讯：神舟二十三号载人飞船发射取得圆满成功。
+与此同时，公司还拟面向专业投资者非公开发行不超过2亿元（含）可续期公司债券，募集资金将通过支付预付款、清偿应付款项等形式，支持产业链上下游或与自身经营业务相关的中小微企业发展。
 
-责任编辑：宋雅芳
+（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 13:27 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 13:06 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 13:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 13:06 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 13:11 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 13:11 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 13:08 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-29 13:12 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 13:18 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 13:16 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 13:23 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 13:26 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 13:39 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-29 13:22 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 13:19 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 13:25 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 13:14 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 13:28 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 13:35 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 13:35 - [白玉兰最佳女主角提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-29 13:35 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [欧洲极端高温东扩](http://www.share.kurohicncr.top/Article/details/57329694230.shtml)
-- 2026-06-29 13:33 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/027004751015.shtml)
-- 2026-06-29 13:17 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/8763679584.shtml)
-- 2026-06-29 13:26 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/05904564767.shtml)
-- 2026-06-29 13:31 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/6012458877.shtml)
-- 2026-06-29 13:21 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/14237.shtml)
-- 2026-06-29 13:10 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/759593712938.shtml)
-- 2026-06-29 13:20 - [沙丘](http://www.blog.kurohicncr.top/Article/details/520921389738.shtml)
-- 2026-06-29 13:19 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/83160373813.shtml)
-- 2026-06-29 13:29 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/3649928.shtml)
-- 2026-06-29 13:34 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/7388453477.shtml)
-- 2026-06-29 13:22 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/85885579530.shtml)
-- 2026-06-29 13:15 - [极限挑战第一季](https://www.blog.minike.top/Article/details/86733401.shtml)
-- 2026-06-29 13:23 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/204524287511.shtml)
-- 2026-06-29 13:14 - [第一炉香](https://www.blog.minike.top/Article/details/12733110.shtml)
+- 2026-06-29 13:20 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/23799308777.shtml)
+- 2026-06-29 13:13 - [明星大侦探第一季](https://www.share.minike.top/Article/details/98594568.shtml)
+- 2026-06-29 13:13 - [腾讯回应做独立支付APP](http://www.share.minike.top/Article/details/602280228565.shtml)
+- 2026-06-29 13:22 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/5199764007.shtml)
+- 2026-06-29 13:37 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/06085697.shtml)
+- 2026-06-29 13:33 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/40136566.shtml)
+- 2026-06-29 13:20 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/6767133512.shtml)
+- 2026-06-29 13:20 - [T1对战KC](https://www.blog.minike.top/Article/details/7211968421.shtml)
+- 2026-06-29 13:19 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/81743084771.shtml)
+- 2026-06-29 13:27 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/14817.shtml)
+- 2026-06-29 13:25 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/085074771474.shtml)
+- 2026-06-29 13:25 - [美人鱼](https://www.share.kurohicncr.top/Article/details/1402969335.shtml)
+- 2026-06-29 13:22 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/448460911.shtml)
+- 2026-06-29 13:19 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/8545835.shtml)
+- 2026-06-29 13:35 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/5199620972.shtml)

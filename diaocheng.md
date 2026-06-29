@@ -1,60 +1,56 @@
-# 王忠民：AI正在成为文旅产业创新的重要驱动因素之一
+# 埃森哲下调营收预期引发市场对AI业务前景担忧，股价大跌 18%
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月22日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理： 新挑战、新机遇、新发展”。 “提振文化和旅游消费 服务扩大内需国家战略”主题论坛上，全国社会保障基金理事会原副理事长、深圳市金融稳定发展研究院理事长王忠民表示，文旅消费本质上源于人的精
+科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。 埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。公司 5 月财季营收 187 亿美元，同比增长 6
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月22日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
+科技咨询企业埃森哲公布 5 月财季新增订单与营收增速双双下滑后，其股价周四暴跌 18%，跌至 2017 年以来最低水平。
 
-本次论坛主题为“变局下的全球金融治理： 新挑战、新机遇、新发展”。
+这份财报印证了市场观点：人工智能工具会冲击埃森哲这类依靠大批软件工程师承接客户项目的咨询公司。
 
-“提振文化和旅游消费 服务扩大内需国家战略”主题论坛上，全国社会保障基金理事会原副理事长、深圳市金融稳定发展研究院理事长王忠民表示，文旅消费本质上源于人的精神文化需求、审美需求和体验需求。
+埃森哲本财季新增订单（即当期签署合同总金额）为 193 亿美元，同比下降 2%；上一财季新增订单同比还上涨 6%。
 
-要把这种内在需求有效激发出来，既需要政策引导和消费场景建设，也需要新的技术变量和内容供给方式。
+公司 5 月财季营收 187 亿美元，同比增长 6%，相较于 2 月财季 8% 的增速小幅放缓。
 
-AI正是其中非常重要的驱动因素。
+首席执行官朱莉・斯威特表示，中东局势冲突导致业务开展放缓、销售额不及预期，且这一低迷态势将延续至当前财季。
 
-王忠民指出，AI 具备多模态内容生产能力，能够在较低成本下辅助生成影像、图像、脚本、虚拟场景和交互内容，使专业性较强的文旅内容获得更加丰富、精美和高效的呈现；AI生成内容、虚拟形象、数字IP和智能化传播工具，为文旅项目提供了低成本、高创意、可持续迭代的传播方式；AI还可以增强文旅消费的审美体验和文化想象力，把考古遗址、历史文物、艺术作品和地方文化转化为更具沉浸感、互动性和想象力的内容形态，使传统文化获得新的表达方式。
+埃森哲同时下调了投资者对其 8 月结束的完整财年业绩预期，预计固定汇率下全年营收最高仅增长 4%，此前公司给出的预期为 5%。
 
-“AI正在成为文旅产业创新的重要驱动因素之一，也能够帮助政策目标转化为更具体、更可感的消费场景和产业形态。
+周四收盘时，埃森哲总市值约 790 亿美元，较前一日缩水约 170 亿美元。
 
-”王忠民说道。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 13:22 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 13:06 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 13:08 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 13:17 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-29 13:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 13:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 13:26 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 13:31 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 13:11 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 13:17 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-29 13:23 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 13:09 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 13:16 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 13:38 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 13:36 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:15 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 13:21 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 13:30 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 13:26 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 13:34 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 13:13 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 13:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:28 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/6656443752.shtml)
-- 2026-06-29 13:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/4099105.shtml)
-- 2026-06-29 13:28 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/1645331.shtml)
-- 2026-06-29 13:31 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.minike.top/Article/details/3642302.shtml)
-- 2026-06-29 13:08 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/56064918.shtml)
-- 2026-06-29 13:24 - [哈基米歌王争霸赛](http://www.blog.kurohicncr.top/Article/details/374103758438.shtml)
-- 2026-06-29 13:20 - [手游300亿数据或被军事化运用](http://www.share.kurohicncr.top/Article/details/251231413.shtml)
-- 2026-06-29 13:18 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/9098741869.shtml)
-- 2026-06-29 13:16 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/947801101.shtml)
-- 2026-06-29 13:19 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/22828815.shtml)
-- 2026-06-29 13:26 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/3010357960.shtml)
-- 2026-06-29 13:34 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/502042.shtml)
-- 2026-06-29 13:32 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/40455146.shtml)
-- 2026-06-29 13:32 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/89787448126.shtml)
-- 2026-06-29 13:12 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/96272.shtml)
+- 2026-06-29 13:28 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.kurohicncr.top/Article/details/407849009296.shtml)
+- 2026-06-29 13:38 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/0326540360.shtml)
+- 2026-06-29 13:14 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/091447107.shtml)
+- 2026-06-29 13:13 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.kurohicncr.top/Article/details/31984562.shtml)
+- 2026-06-29 13:34 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/7618932.shtml)
+- 2026-06-29 13:41 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/481850.shtml)
+- 2026-06-29 13:25 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.kurohicncr.top/Article/details/513862911.shtml)
+- 2026-06-29 13:34 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/4908557.shtml)
+- 2026-06-29 13:34 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/4026317.shtml)
+- 2026-06-29 13:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/403815377.shtml)
+- 2026-06-29 13:26 - [普京称俄处于命运攸关之际](https://www.blog.kurohicncr.top/Article/details/913988.shtml)
+- 2026-06-29 13:12 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/610113.shtml)
+- 2026-06-29 13:29 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.share.kurohicncr.top/Article/details/00272772.shtml)
+- 2026-06-29 13:13 - [未来5年全国能源体系将呈现这些特征](https://www.share.kurohicncr.top/Article/details/89134.shtml)
+- 2026-06-29 13:41 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/47937092080.shtml)

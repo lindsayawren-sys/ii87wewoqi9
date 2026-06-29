@@ -1,61 +1,56 @@
-# 习近平主席同普京总统出席“中俄教育年”开幕式侧记
+# 国药系终止47亿并购，抽身派林生物
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电 题：“着眼中俄关系长远发展作出的战略部署”——习近平主席同普京总统共同出席“中俄教育年”开幕式侧记 新华社记者王鹏、温馨 初夏的北京，万物葱茏，生机勃发。 20日下午，人民大会堂西大厅流光溢彩，气氛热烈。鲜艳的红色背景下，中俄两国国旗并排而立、相映成辉。在这里，两国间历久弥新的深情厚谊，又掀开了新一页的华彩篇章。 在热烈的掌声中，国家主席习近平同俄罗斯总
+（来源：投资者网-思维财经） 【医药视界 】直击大健康行业动态与药企财报，一线政策解读，迅速看懂医药前景。 ‘戛然而止。’ 赶在端午节前，国药系终止一笔重磅大交易。 该笔有望成为今年大健康行业最大的资本交易，也因戛然而止成为历史。然而，交易前后故事以及血液制品的波动周期探讨，不会停止。 01 47亿国药收购半途终止 6月，派林生物宣告持续近一年的重磅控制权转让交易正式落幕。 根
 
 ## 正文
 
-新华社北京5月20日电 题：“着眼中俄关系长远发展作出的战略部署”——习近平主席同普京总统共同出席“中俄教育年”开幕式侧记 新华社记者王鹏、温馨 初夏的北京，万物葱茏，生机勃发。
+（来源：投资者网-思维财经） 【医药视界 】直击大健康行业动态与药企财报，一线政策解读，迅速看懂医药前景。
 
-20日下午，人民大会堂西大厅流光溢彩，气氛热烈。
+‘戛然而止。
 
-鲜艳的红色背景下，中俄两国国旗并排而立、相映成辉。
+’ 赶在端午节前，国药系终止一笔重磅大交易。
 
-在这里，两国间历久弥新的深情厚谊，又掀开了新一页的华彩篇章。
+该笔有望成为今年大健康行业最大的资本交易，也因戛然而止成为历史。
 
-在热烈的掌声中，国家主席习近平同俄罗斯总统普京一同步入会场，共同出席“中俄教育年”开幕式。
+然而，交易前后故事以及血液制品的波动周期探讨，不会停止。
 
-习近平主席发表了热情洋溢的致辞：“今年是中俄战略协作伙伴关系建立30周年和《中俄睦邻友好合作条约》签署25周年。
+01 47亿国药收购半途终止 6月，派林生物宣告持续近一年的重磅控制权转让交易正式落幕。
 
-在这样一个具有特殊意义的年份启动‘中俄教育年’，是我和普京总统着眼中俄关系长远发展作出的战略部署。
+根据公告，国药集团旗下中国生物与控股股东胜帮英豪达成一致，终止作价46.99亿元的股份转让协议。
 
-” “置身开幕式现场，见证‘中俄教育年’启幕，聆听两国元首的致辞，我倍感荣耀。
+交易终止后，胜帮英豪仍为第一大股东，陕西国资实控地位不变，长达一年的资本联姻宣告“一别两宽”。
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-29 13:20 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 13:13 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 13:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 13:16 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 13:19 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 13:08 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 13:18 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-29 13:08 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 13:27 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-29 13:35 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:19 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 13:16 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 13:34 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 13:26 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 13:29 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 13:40 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:28 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 13:34 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 13:38 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 13:37 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 13:13 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 13:24 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:13 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 13:41 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/96828734.shtml)
-- 2026-06-29 13:19 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/17541818338.shtml)
-- 2026-06-29 13:17 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/875569573848.shtml)
-- 2026-06-29 13:13 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/5272747.shtml)
-- 2026-06-29 13:26 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/948522813.shtml)
-- 2026-06-29 13:21 - [退休化学教授帮医药研发人员制毒](https://www.blog.kurohicncr.top/Article/details/99265438690.shtml)
-- 2026-06-29 13:14 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/728274.shtml)
-- 2026-06-29 13:36 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/020573.shtml)
-- 2026-06-29 13:06 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/8771496131.shtml)
-- 2026-06-29 13:20 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/412459782995.shtml)
-- 2026-06-29 13:33 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.minike.top/Article/details/06794674044.shtml)
-- 2026-06-29 13:20 - [乔家的儿女](https://www.share.minike.top/Article/details/6440452554.shtml)
-- 2026-06-29 13:06 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/783823558269.shtml)
-- 2026-06-29 13:17 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/22709670.shtml)
-- 2026-06-29 13:29 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/759789256.shtml)
+- 2026-06-29 13:41 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/0328061.shtml)
+- 2026-06-29 13:16 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/7303722216.shtml)
+- 2026-06-29 13:18 - [功率半导体缺货涨价](https://www.share.minike.top/Article/details/468543029.shtml)
+- 2026-06-29 13:30 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/4576529.shtml)
+- 2026-06-29 13:41 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/37441714.shtml)
+- 2026-06-29 13:23 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/870370.shtml)
+- 2026-06-29 13:25 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/56939532027.shtml)
+- 2026-06-29 13:18 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/82574162762.shtml)
+- 2026-06-29 13:37 - [《贺子珍》](http://www.blog.minike.top/Article/details/989303572.shtml)
+- 2026-06-29 13:25 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/0646397120.shtml)
+- 2026-06-29 13:33 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/445495188.shtml)
+- 2026-06-29 13:12 - [毕业寄几百斤快递回家女生发声](https://www.share.minike.top/Article/details/2188883911.shtml)
+- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/017607219931.shtml)
+- 2026-06-29 13:13 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/1686976026.shtml)
+- 2026-06-29 13:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/95725717354.shtml)

@@ -1,48 +1,58 @@
-# 媒体称美伊下一轮会谈可能在6月5日举行
+# 广东结束防汛Ⅳ级应急响应
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社利雅得5月24日电据沙特阿拉伯阿拉比亚电视台24日报道，消息人士透露，美国与伊朗的下一轮会谈可能在6月5日举行。（完）责任编辑：宋雅芳
+中新网广州6月20日电 (记者 王坚)广东20日17时结束防汛Ⅳ级应急响应。 广东省应急管理厅介绍，鉴于本轮强降雨过程已经结束，全省江河水情平稳，根据《广东省防汛防旱防风防冻应急预案》和广东省防总有关规定，广东省防总决定于6月20日17时结束防汛Ⅳ级应急响应。 广东省防总表示，受持续强降雨影响，当前全省江河底水高，土壤含水量饱和。各地各部门要克服麻痹松懈思想，加强地质灾害防御和
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州6月20日电 (记者 王坚)广东20日17时结束防汛Ⅳ级应急响应。
 
-新华社利雅得5月24日电据沙特阿拉伯阿拉比亚电视台24日报道，消息人士透露，美国与伊朗的下一轮会谈可能在6月5日举行。
+广东省应急管理厅介绍，鉴于本轮强降雨过程已经结束，全省江河水情平稳，根据《广东省防汛防旱防风防冻应急预案》和广东省防总有关规定，广东省防总决定于6月20日17时结束防汛Ⅳ级应急响应。
 
-（完）责任编辑：宋雅芳
+广东省防总表示，受持续强降雨影响，当前全省江河底水高，土壤含水量饱和。
+
+各地各部门要克服麻痹松懈思想，加强地质灾害防御和超警河流退水阶段巡查防守。
+
+要强化转移人员安置管理，在风险没有解除前严禁擅自冒险返回，坚决做到“不安全、不返回”。
+
+要加快损毁设施修复，尽快恢复正常的生产生活秩序，全力以赴保障人民群众生命财产安全。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 13:27 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 13:26 - [陈露发声引舆论反转](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 13:23 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 13:21 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 13:08 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 13:10 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 13:10 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 13:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 13:30 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 13:14 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 13:17 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 13:21 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 13:40 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 13:38 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 13:34 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 13:34 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 13:12 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 13:19 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-29 13:18 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 13:17 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:40 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:26 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 13:40 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 13:34 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 13:12 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [美人鱼](http://www.share.kurohicncr.top/Article/details/79432693851.shtml)
-- 2026-06-29 13:26 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/165560692.shtml)
-- 2026-06-29 13:06 - [媒体人：警惕日本再次成战争加害国](https://www.blog.minike.top/Article/details/345521698310.shtml)
-- 2026-06-29 13:19 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/050214.shtml)
-- 2026-06-29 13:28 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/003942004971.shtml)
-- 2026-06-29 13:26 - [小娘惹](http://www.blog.minike.top/Article/details/087427.shtml)
-- 2026-06-29 13:33 - [游戏数据竟被用于军事目的](https://www.share.minike.top/Article/details/166976840111.shtml)
-- 2026-06-29 13:16 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/02365900.shtml)
-- 2026-06-29 13:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/978439726.shtml)
-- 2026-06-29 13:23 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/85510.shtml)
-- 2026-06-29 13:35 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/546727.shtml)
-- 2026-06-29 13:22 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.kurohicncr.top/Article/details/7954701.shtml)
-- 2026-06-29 13:35 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/22568453651.shtml)
-- 2026-06-29 13:25 - [2026年Mac能玩游戏了吗](http://www.share.kurohicncr.top/Article/details/673117.shtml)
-- 2026-06-29 13:20 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/19083.shtml)
+- 2026-06-29 13:36 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/78398350.shtml)
+- 2026-06-29 13:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/6556703.shtml)
+- 2026-06-29 13:29 - [2026年Mac能玩游戏了吗](https://www.blog.minike.top/Article/details/230760542393.shtml)
+- 2026-06-29 13:16 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/6899360.shtml)
+- 2026-06-29 13:31 - [吴建豪老婆](https://www.share.minike.top/Article/details/6362932.shtml)
+- 2026-06-29 13:35 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/6347145364.shtml)
+- 2026-06-29 13:18 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/57551290826.shtml)
+- 2026-06-29 13:32 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/645176874.shtml)
+- 2026-06-29 13:33 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/07096331128.shtml)
+- 2026-06-29 13:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.kurohicncr.top/Article/details/20572.shtml)
+- 2026-06-29 13:12 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/741183298012.shtml)
+- 2026-06-29 13:29 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/76345.shtml)
+- 2026-06-29 13:30 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/709562176.shtml)
+- 2026-06-29 13:19 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/872828919.shtml)
+- 2026-06-29 13:28 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/982398852964.shtml)

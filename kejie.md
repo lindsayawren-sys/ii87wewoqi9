@@ -1,56 +1,61 @@
-# 贾永婕喊“不当台湾人可以离开” 岛内舆论怒怼：台湾是中国的，不当中国人请离开
+# 遵义会议纪念馆以数字赋能让历史“触手可及”
 
-> 更新时间：2026-06-29 13:36:02 UTC+8
+> 更新时间：2026-06-29 13:42:02 UTC+8
 
 ## 摘要
 
-中新网5月24日电(燕新台) 台北101董事长贾永婕近日在节目中称“不当台湾人就离开”，相关言论引发岛内舆论争议。然而今年春节期间，贾永婕曾因一句“中国人过年就要大红色”遭“青鸟”群体围剿，如今此番表态再度引发岛内舆论质疑。据悉，贾永婕祖籍安徽，1974年7月出生于台湾，她是模特出身，后来进军娱乐圈，赖清德上台后，她接任台北101董事长。 台湾时事评论员郑村棋对此直言，台湾是中
+中新社贵州遵义6月19日电 (记者 杨茜)“文物的价值不仅在于收藏，更在于如何被看见、被传承。”遵义会议纪念馆宣教部副主任洪敏介绍。 贵州省遵义市红花岗区子尹路96号，坐落着在中国最知名的红色地标之一“遵义会议会址”，会址正门上方挂有毛泽东亲笔题写的“遵义会议会址”匾额，络绎不绝的游客纷纷在此拍照留念。 1935年1月中旬，中共中央政治局在这栋中西合璧风格的两层砖木结构小楼里召
 
 ## 正文
 
-中新网5月24日电(燕新台) 台北101董事长贾永婕近日在节目中称“不当台湾人就离开”，相关言论引发岛内舆论争议。
+中新社贵州遵义6月19日电 (记者 杨茜)“文物的价值不仅在于收藏，更在于如何被看见、被传承。
 
-然而今年春节期间，贾永婕曾因一句“中国人过年就要大红色”遭“青鸟”群体围剿，如今此番表态再度引发岛内舆论质疑。
+”遵义会议纪念馆宣教部副主任洪敏介绍。
 
-据悉，贾永婕祖籍安徽，1974年7月出生于台湾，她是模特出身，后来进军娱乐圈，赖清德上台后，她接任台北101董事长。
+贵州省遵义市红花岗区子尹路96号，坐落着在中国最知名的红色地标之一“遵义会议会址”，会址正门上方挂有毛泽东亲笔题写的“遵义会议会址”匾额，络绎不绝的游客纷纷在此拍照留念。
 
-台湾时事评论员郑村棋对此直言，台湾是中国的一部分，许多台湾民众祖辈都来自大陆，“不想当中国人的才可以离开”。
+1935年1月中旬，中共中央政治局在这栋中西合璧风格的两层砖木结构小楼里召开会议，集中解决当时具有决定意义的军事和组织问题。
 
-郑村棋指出，贾永婕这类人本质上是在向民进党递交“投名状”。
+此次“遵义会议”事实上确立了毛泽东在中共中央和红军的领导地位，也开启了中共独立自主解决中国革命实际问题的新阶段。
 
-他批评赖清德、沈伯洋等人不断操弄“台独”议题，撕裂社会，将其变成攻击异己的“杀人利器”。
+遵义会议纪念馆(下称“纪念馆”)是新中国成立后第一批建立的21个革命纪念馆之一，自1955年10月内部开放起持续建设、逐步完善发展至今。
 
-台湾时事评论员谢寒冰更是痛批赖清德及民进党长期通过“偷换概念”混淆视听。
+目前，纪念馆下辖遵义会议会址，遵义会议期间红军总政治部旧址，遵义会议期间毛泽东、张闻天、王稼祥住址，遵义会议陈列馆等纪念场所。
 
-中国国民党桃园市议员詹江村也在社交平台发文批评贾永婕，称其为了金钱与地位越来越“青鸟化”，并质问其“有什么资格决定谁该离开台湾”，更批评其“舔美舔到无极限”。
+纪念馆陈列布展面积9000多平方米，拥有馆藏文物2100余件。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-29 13:21 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 13:30 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 13:09 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 13:06 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 13:30 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 13:11 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 13:12 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 13:10 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-29 13:30 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 13:37 - [欧洲极端高温东扩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 13:17 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 13:18 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 13:28 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 13:31 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-29 13:34 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 13:34 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 13:27 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 13:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 13:37 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 13:17 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 13:36 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 13:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 13:31 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 13:17 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [灿如繁星定档](https://www.share.minike.top/Article/details/59021914.shtml)
-- 2026-06-29 13:17 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/04646677.shtml)
-- 2026-06-29 13:12 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/752480117565.shtml)
-- 2026-06-29 13:06 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/08381698653.shtml)
-- 2026-06-29 13:32 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/01642586.shtml)
-- 2026-06-29 13:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/5147617.shtml)
-- 2026-06-29 13:30 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/014969524.shtml)
-- 2026-06-29 13:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/09720.shtml)
-- 2026-06-29 13:09 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/00058.shtml)
-- 2026-06-29 13:30 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/86112871.shtml)
-- 2026-06-29 13:23 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/04591871.shtml)
-- 2026-06-29 13:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/861190348.shtml)
-- 2026-06-29 13:18 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/57934.shtml)
-- 2026-06-29 13:30 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/081870368.shtml)
-- 2026-06-29 13:25 - [恋与深空需直面玩家6大疑问](http://www.share.minike.top/Article/details/300685.shtml)
+- 2026-06-29 13:24 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.minike.top/Article/details/43602027.shtml)
+- 2026-06-29 13:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/39154.shtml)
+- 2026-06-29 13:16 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/47246232326.shtml)
+- 2026-06-29 13:16 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/029642.shtml)
+- 2026-06-29 13:25 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/95227.shtml)
+- 2026-06-29 13:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/39234467.shtml)
+- 2026-06-29 13:32 - [谢霆锋演唱会变大型呲水现场](http://www.blog.kurohicncr.top/Article/details/243460.shtml)
+- 2026-06-29 13:28 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/964775245012.shtml)
+- 2026-06-29 13:33 - [2026年Mac能玩游戏了吗](https://www.share.kurohicncr.top/Article/details/4349610.shtml)
+- 2026-06-29 13:26 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/5358109357.shtml)
+- 2026-06-29 13:27 - [毕业寄几百斤快递回家女生发声](https://www.blog.kurohicncr.top/Article/details/258805.shtml)
+- 2026-06-29 13:37 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/07736.shtml)
+- 2026-06-29 13:34 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/506354.shtml)
+- 2026-06-29 13:38 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/531150.shtml)
+- 2026-06-29 13:21 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/78790357.shtml)
